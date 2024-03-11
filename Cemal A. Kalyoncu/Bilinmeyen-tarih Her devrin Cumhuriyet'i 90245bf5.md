@@ -1,0 +1,205 @@
+# Her devrin Cumhuriyet'i
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050322030122im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050322030122im_/http://www.aksiyon.com.tr/resim/491/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  80 yaşını geride bırakacak olan ve bugün Türkiye'nin önde gelen medya patronlarının ortaklığı bulunan Cumhuriyet Gazetesi, 1991'de yaşadığı üçüncü ve en önemli 'iç depremden' sonra bir daha kendine gelemedi. Dünyayı iyi algılamasını etkileyen "marjinal ve statükocu" yapısı, gazetenin önündeki en büyük engel olarak görülüyor. Türkiye Cumhuriyeti kurulmuş, sıra toplumsal devrimlere gelmişti. Atatürk, devrimlerini destekleyecek bir iletişim aracından yanaydı. İstanbul"da mütareke döneminde bile İleri ve Akşam gibi Ankara Hükümeti"ni destekleyen yayınlar çıkmaktaydı. Fakat Atatürk kendisine daha fazla teslim olmuş, gözü kapalı istediklerini yapacak bir yayın arıyordu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1879 Muğla/Fethiye doğumlu Yunus Nadi adlı milletvekilliği de yapmış iyi eğitimli gazeteci, her dediğini gözü kapalı destekleyen bir kişi olarak Mustafa Kemal"in gözüne girmişti. Arşivciliği ile de bilinen ünlü komünistlerden Rasih Nuri İleri"nin, amcası Celal Nuri"den dinlediğine göre Yunus Nadi, rejime şartsız bağlılığı sayesinde matbaa sahibi olmuş, servet edinmiş, Atatürk"ün oluşturmaya çalıştığı Türk burjuvazisinin prototiplerinden biri haline gelmişti. Dolayısıyla Atatürk için Yunus Nadi daha önemli bir isimdi. Yeni Gün"ü çıkarmasında bu özelliğinin de etkisi vardı. 1924 senesinde Atatürk yeni bir gazete çıkarmak istediğinde de aklına zaten Yeni Gün"ü çıkarmakta olan Yunus Nadi geldi. Bu fikrinde yanılmadı da. Bazı konulardaki görüşlerini Yunus Nadi imzasıyla kamuoyuna duyuracaktı ilerleyen dönemlerde.
+   <br>
+    <br>
+     Sonuçta Atatürk, İstanbul"da, Cağaloğlu"ndaki İttihat ve Terakki"nin merkezi olan Kırmızı Konak"ı vererek burada Cumhuriyet adını koyduğu gazeteyi çıkarmasını istedi Yunus Nadi"den. Ve 7 Mayıs 1924 tarihinde Cumhuriyet yayın hayatına başladı. İlk nüshasında gazetenin ilkelerini de belirlemişti Yunus Nadi: "...gazetemiz ne hükümet gazetesi, ne de bir parti gazetesidir. Cumhuriyet sadece cumhuriyetin, bilimsel ve yaygın ifadesiyle demokrasinin savunucusudur. Memlekette her anlamıyla gerçek bir demokrasi kurulması için gazetemiz bütün varlığı ile çalışacaktır. Memlekette halkın halk tarafından, halk için idaresi bizim idealimizdir. Ve biz yalnız bu idealin esiriyiz, başka hiç bir kuvvetin değil." Bu ilkelerden, ilerleyen dönemlerde sapmalar olacaktı. Partizanlık ve gazetenin bir yöneticisinin darbecilerle birlikte hareket etmesi gibi.
+     <br>
+      <br>
+       "Yunus Nazi" dönemi
+       <br>
+        <br>
+         Cumhuriyet Gazetesi, 1930"lara kadar ağırlıklı olarak rejimin yerleşmesi ve devrimlerin benimsenmesi üzerine bir politika izler. Bu dönemde, alışverişlerde indirim sağlayacak bir kupon vererek ilk promosyonu gerçekleştirir. 1929 Şubat ayında da Türkiye"deki ilk güzellik yarışmasını bizzat düzenler. İlk ansiklopediyi de Cumhuriyet verir. Cumhuriyet bu yıllarda Yunus Nadi"nin Atatürk"ten aldığı rüzgara göre yoluna devam ediyordu. 1930"ların sonuna doğru Almanların ayak sesleri duyulmaya başlandığında bu sefer Cumhuriyet Gazetesi, Alman taraftarı yazılar yayınlamaya başlar. Yunus Nadi"ye "Yunus Nazi" denmesine de yol açacak bu tür yazıların ilki Yunus Nadi"nin en büyük oğlu Nadir Nadi"nin "Hitler Viyanası"ndan Röportajlar" dizisiydi. Ve bundan sonra II. Dünya savaşı bitene kadar Cumhuriyet"in Nazi yanlısı yayınları sürer. Kimilerine göre Almanya"dan destek gören bir grup vardı Türkiye"de. Yunus Nadi için de bu durumu gündeme getirenler oldu. Cumhuriyet Olayı kitabının yazarı Emin Karaca"dan dinleyelim: "İsmet İnönü"yü Ankara Garı"nda karşılamaya gelen Nadir Nadi"ye İnönü aynen şöyle diyor. "Ticari maksatlar uğruna siyasi yazı yazılmasına müsaade edemem!. Yunus Nadi "Yok böyle bir şey!" dese de Milli Şef sinirlidir: "Kat"iyyen müsaade edemem!" Ve İnönü Yunus Nadi"nin elini sıkmadan çıkış kapısına doğru ilerliyor."
+         <br>
+          <br/>
+          Yunus Nadi'nin Almanlar'dan destek gördüğü hep tartışılır. Ama gerçek olan Almanların Türklere yönelik böyle bir listenin var olduğudur. Rasih Nuri İleri, Türkiye"de her zaman tartışılan Almanya"dan yardım alanlar konusunda şu açıklamayı yapıyor: "Almanya"dan yardım konusunda çok önemli bir ifşaat... Naim Dikel Bey -ki çok önemli bir Alman şirketinin temsilcisi idi- öldüğü vakit karısı Fatma Hanımefendi, kasasında, altın-mark olarak hangi Türk büyüklerine ne kadar parasal yardım yapıldığının listesini bulmuştu. Ve içinde dostlarından birçok kişi bulunduğu için listeyi yakmıştır."
+          <br/>
+          <br/>
+          - Listeye dair bir şey biliyor musunuz?
+          <br/>
+          <br/>
+          "Olayı biliyorum. Taha Toros da bilir, ben de bilirim. Fatma Hanımefendi ile uzaktan hısımlığımız vardı."
+          <br/>
+          <br/>
+          Savaşın bittiği 8 Mayıs 1945"te Cumhuriyet"in konu ile ilgili başlığı "İnsanlığa geçmiş olsun"dur. Gazete hemen Alman yanlılığından çark etmiştir. Emin Karaca"nın söylediği gibi "bu sefer birinci sayfasından, harbi çıkaranları lanetliyor." Bazı kişilere göre Cumhuriyet"in Alman taraftarlığı söz konusu değildir, ama böyle diyenler için Cumhuriyet"in eski nüshaları en azından gazetenin arşivinde mevcuttur demek yerindedir sanırım.
+          <br/>
+          <br/>
+          Yunus Nadi 28 Haziran 1945"te vefat edince, gazetenin yönetimi en büyük oğlu Nadir Nadi"ye geçer. Ama, annesi Nazime Hanım her zaman en tepedeki kişi olarak bundan sonraki süreci gözetleyecektir.
+          <br/>
+          <br/>
+          Nadir Nadi 1950 seçimlerinde Demokrat Parti listesinden Bağımsız Muğla Milletvekili seçilince gazete de dolayısıyla DP"li olur. Cumhuriyet, ülkeden kaçan Nazım Hikmet"in fotoğrafını "tükürülmesi" için yayınlar, yani tamamen antikomünist bir yayın izler bu süreçte.
+          <br/>
+          <br/>
+          Fakat Nadir Nadi, 1954 seçimlerinde Meclis"e girmeyince, Cumhuriyet Gazetesi"nin DP"ye giderek azalan desteği de 1957"den sonra eleştiriye dönüşür. DP de diğer muhalif basına olduğu gibi kağıt baskısından denetim baskısına kadar hepsini uygular Cumhuriyet"e.
+          <br/>
+          <br/>
+          Sola demir atma zamanı
+          <br/>
+          <br/>
+          1960"ların ilk yıllarına kadar Cumhuriyet Gazetesi bir sayfasında sağ bir sayfasında sol görüşlü yazarların yazı yazabildiği bir gazete iken bu tarihten sonra dünyada esen sol rüzgarın etkisinde kalır. Belki bunun neticesinde Nadir Nadi, 1962 senesinde sol yazıları ile bilinen ve henüz 36 yaşında olan İlhan Selçuk"u gazeteye alır, ona bir "Pencere" açar. 1957"den 65"e kadar gazetenin yazı işleri müdürlerinden biri olan Vecdi Kızıldemir"e göre İlhan Selçuk"a gelene kadar Vala Nurettinler, Cevat Fehmiler, Yaşar Kemaller zaten solcu idi. Dolayısıyla gazete sola İlhan Selçuk"la kaymamıştır.
+          <br/>
+          <br/>
+          Fakat dışarıdan algılanan öyle değildir. Cumhuriyet, bundan sonraki dönemde "solcu" ve "komünist" gazete olarak anılır hep. Bundan dolayıdır ki, 1963 senesinde, Yunus Nadi"nin, Nadir Nadi ve Doğan Nadi dışındaki çocukları Leyla Uşaklıgil ve Nilüfer Nun"un eşleri Bülent Uşaklıgil ve Niyazi Nun gazetenin aşırı sola kaymasından şikayet ederek gazeteye el koyar. Ama bu olay Babıali"de çok duyulmaz. 1971 yılında damatlar gazeteye bir kez daha el koyduğunda Cumhuriyet"te deprem bu sefer bir sene sürer. Konu yine gazetenin sola kayması hatta komünizm taraftarlığıdır. Özellikle Niyazi Nun, gazeteyi sağa çekmek için mücadele verir. Bu olayda İlhan Selçuk"un 9 Mart darbecileri arasında yer alması da etkili olmuştur. Fakat bir yılın sonunda gazete yine Nadir Nadi"ye teslim edilir. Zaten 1969"dan itibaren İlhan Selçuk gazetede etkili olmaya başlamıştı. Çok çabuk etki altında kaldığı söylenen Nadir Nadi de gazetenin sola meyletmesini istiyordu.
+          <br/>
+          <br/>
+          Cuntanın sözcülüğünü yaptı
+          <br/>
+          <br/>
+          Nadir Nadi"nin, 1971 yılında 9 Mart darbesine hazırlananlar arasında yer alan İlhan Selçuk"tan haberdar olmaması mümkün değildi. Mahir Kaynak ve İlhan Selçuk"la beraber "darbeciler" birbirlerinin ev ve işyerlerinde toplantılar yapmaktaydı. Bunlardan biri de Cumhuriyet"te yapılmıştı. Gazetenin eski yazı işleri müdürü olan ve halen Cumhuriyet"te çalışan Sami Karaören anlatıyor: "Nadir Bey"in derece derece bilgisi vardı. Nadir Bey, gece toplantılarının içinde değildi ama kendisine bilgiler veriliyordu tabii."
+          <br/>
+          <br/>
+          Bu yıllarda özellikle bürokrasi ve solcu gençlik üzerinde etkili bir gazete olan Cumhuriyet, Türkiye"nin karışık döneminde de eski kimliğinden uzak yayın yapar. Bu dönemde Cumhuriyet okuyanlar ile okumayanlar, sistemin işleyişindeki bazı kışkırtmalar sonucu birbirine girer.
+          <br/>
+          <br/>
+          Gazete; iktidarlar, örfi idare ve askeri yönetimler tarafından en çok kapatma cezası alanların başında gelir. 10 Ağustos 1940"ta "Bu adamlar benimle uğraşmak istiyor" diyerek Cumhuriyet Gazetesi"ni 90 gün süreyle kapatır İsmet İnönü. Bundan önce de kapatıldığı gibi bundan sonraki dönemlerde de, başta askeri yönetimlerin bulunduğu zamanlar olmak üzere Cumhuriyet kısa veya uzun aralıklarla kapatma cezası alır. Kenan Evren döneminde de, çoğunlukla olduğu gibi yine İlhan Selçuk"un bir yazısı sebebiyle kapatılır gazete. Tarih 24 Ocak 1983"tür. 18 Şubat günü tekrar çıkmasına izin verildiğinde Nadir Nadi, başyazısında şunlardan yakınacaktır: "Biz Cumhuriyetçiler için Atatürk"ün hayatta bulunduğu dönem gazetenin en parlak, en huzurlu yılları oldu. Nedense Atatürk"ten sonra yazgımız değişti."
+          <br/>
+          <br/>
+          Bu dönemde gazetenin kadrosunda bugün liberaller olarak öne çıkacak genç isimler vardı. Hem de bunlar idari kademelerde görevliydi. Hasan Cemal bu ekibin başını çekiyordu. Hasan Cemal"i, yabancı dili ve solu biliyor olması sebebiyle İlhan Selçuk, Oktay Akbal ve Sami Karaören aldırmıştı gazetenin İstanbul"daki merkezine. Cemal, 2 Nisan 1981"de gazetenin genel yayın müdürlüğüne getirildi. Karaören, bu konuda, "Gençtir, yabancı dil biliyor, koşar, Cumhuriyet"i şey yapabilir. İşte yakışıklı makışıklı adamdır dedik. Ama Hasan Cemal tam bir ihanet içinde oldu. Ama şunu çok açık söylüyorum, vaktiyle komünistliği kimselere bırakmayanlar sonradan dönüş yapan kişiler oldular" iddiasındadır. Aileden Leyla-Bülent Uşaklıgil"in kızları Emine Hanım da müessese müdürlüğüne tayin edilir. Eski kadrosuna göre epey genç olan ekip gazeteyi liberal bir çizgiye getirmeyi kararlaştırır. Hatta Sami Karaören, liberal çizgiye gelme konusunda Hasan Cemal"in şu düşüncesini de kendilerine aktardığını söylüyor: "Hep birlikte olduğumuz bir ortamda iken Nadir Bey"e teklif etti. "Efendim" dedi "biz öyle bir gazete olalım ki Atatürk"ün aleyhinde de bir yazı çıkabilsin Cumhuriyet"te."
+          <br/>
+          <br/>
+          Liberaller uzaklaştırıldı
+          <br/>
+          <br/>
+          Bütün bunlar damla damla birikti. Osman Ulagay"ın, 1991"deki seçimden sonra yeni oluşacak hükümetin adresini, SHP"den ziyade DYP-ANAP olarak göstermesi ve İlhan Selçuk gibi isimlerin buna karşı tavır alması sonucunda Cumhuriyet Gazetesi"nin tarihindeki en önemli kriz patlak verdi. Hasan Cemal"in arkasındaki liberaller, İlhan Selçuk"un arkasındaki Kemalistlerin gazeteden ayrılması ile 5 Kasım 1991"den sonra gazetenin tek hakimi oldu. Ama gazeteden ayrılanların "Cumhuriyet okumuyoruz" kampanyası, gazetenin geleceğini tehlikeye atınca eski ekip işi bıraktı. Ve 10 Nisan 1992 tarihinden itibaren de İlhan Selçuk ekibi yine Cumhuriyet"e geri döndü.
+          <br/>
+          <br/>
+          Bu olaylar gerçekleştiğinde Cumhuriyet Gazetesi"nin tirajı 120-130 binler civarında idi. Daha sonra sürekli düşerek 60, hatta 30-40 binlere inen satış bugün 45 ile 60 bin civarında. 7 Mayıs 2004"te 80 yaşını dolduracak olan Cumhuriyet Gazetesi"nin tirajı, 27 Mayıs"tan sonra diğer gazetelerin bir hafta kapatılması sonucu 500 bine ulaşması dışında 130 binlerden yukarı çıkmadı. Ve 1991"deki son hadiseden sonra eski okurlarını kaybettiği gibi yeni okur da kazanamadı. Gazetenin 1969-1977 tarihlerinde müessese müdürlüğünü yapan Sadun Tanju"nun, Cumhuriyet Olayı kitabındaki söylediklerine kulak verince, görülüyor ki gazetenin neden gerilediği ve okur kaybettiği konusunda 10 yıl önce yazılmış bir kitap bile hâlâ yol gösterici olabiliyor: "Gazete, ülkenin ekonomik, sosyal ve siyasal gelişme grafiklerini izleyemiyor, geride kalıyordu. (...) Cumhuriyet, 1970"lerin başından itibaren, yayın ve politikaları ve içeriği ile ülkedeki gelişmeleri iyi izlemeliydi. Bunu yapamadı. Doğrusu yapmak istemedi. (...) ... Cumhuriyet, yeni oluşumları kendi görüş açısıyla değerlendirmiş; bir başka anlamda muhafazakarlığın kurbanı olmuştur. Bugün artık eleştiri yapmanın bile zamanı geçmiş bulunuyor."
+          <br/>
+          <br/>
+          Cumhuriyet Gazetesi, dünyadaki gelişmeleri nasıl görüp değerlendirebilirdi ki. Çünkü gazetenin başında, on yıl önce Emin Karaca"ya "...Türkiye"de bir "sivil toplum" için daha kırk fırın ekmek yemek lazımdır" diyen bir gazeteci-aydın-yazar olan İlhan Selçuk bulunmakta idi.
+          <br/>
+          <br/>
+          10 Nisan 1992"den sonra Kemalistlerin geri dönmesinden sonra gazetede yukarıda bahsedilen gelişmeler oldu. Cumhuriyet"in 90 milyara yükselen borçları ödenemez hale geldi. En büyük alacaklı ise İmar Bankası, dolayısıyla Kemal Uzan"dı. Uzan, alacakları konusunda anlaşmaya yanaşmadı, hatta icra yolunu tercih etti. Fakat Cumhuriyet, borçlarından kurtulabilmek için Yönetim Kurulu Başkanı Osman Nuri Torun"un bulduğu planı uyguladı. Bu plan 9 Aralık 1992"de yılında sonuca ulaştı ve gazetenin iflası sağlandı. Bu itirafın sahibi Cumhuriyet Gazetesi"nin 1967"den 1986 yılının başına kadar yazı işleri müdürlüğünü yapan ve halen gazetenin ikinci sayfasında yayınlanan makaleleri düzenleyen Sami Karaören. Karaören, Aksiyon"a aynen şunları söyledi: "İcralar, hacizler vardı. Fakat (O zamanki yönetim kurulu başkanı) Osman Nuri Torun, çok güzel bir şey hazırladı. Dedi ki, "Bir tek kurtuluş yolu var. İflasını sağlamak." Hakimler yardımcı oldu. İflasını sağladık. İflas edince kurtulduk. Biz, sıfır borçlu yepyeni bir Cumhuriyet kurduk. Borçlardan kurtulmuş olduk. Hâlâ daha alacağı olanlar, bulurlarsa alacaklar! Bu yeni Cumhuriyet"in borcu yok."
+          <br/>
+          <br/>
+          Sami Karaören, "Hakimler yardımcı oldu" diyerek Cumhuriyet Matbaacılık ve Gazetecilik Türk Anonim Şirketi"nin 9 Aralık 1992"deki iflası hakkında şaibeli bir durumu açığa vururken, gazeteden alacaklı olanların da böylece haklarını tahsil edemediğini dile getiriyor bu açıklamasıyla.
+          <br/>
+          <br/>
+          Bundan sonra Türkocağı Caddesi, No: 39/41 Cağaloğlu adresinde bulunan 34599 ticaret sicil numaralı Cumhuriyet Matbaacılık ve Gazetecilik Türk Anonim Şirketi iflas etmiş, ardından 10 Mayıs 2000 tarihinde yine Türkocağı Caddesi, No. 39/41 Cağaloğlu adresinde 437909 sicil numarası ile Yeni Gün Holding Anonim Şirketi kurularak İstanbul Ticaret Odası"na tescil ettirilmişti.
+          <br/>
+          <br/>
+          Yaşayabilmek ve Türk medyasındaki diğer gazetelerle baş başa mücadele edebilmek için holdingleşen Cumhuriyet Gazetesi, Yeni Gün Holding"in de finans sorununa çözüm bulamaması sebebiyle hâlâ sermaye arayışını sürdürüyor. Maliye eski bakanlarından Zekeriya Temizel"in gazete adına temasları sürdürdüğü iddia edilirken, Cumhuriyet, bugün Türk medyasında, nerede ise tüm medya patronlarının hissesi bulunduğu bir gazete olarak da dikkat çekiyor.
+          <br/>
+          <br/>
+          Gazetenin resmi danışmanı Emre Kongar"a göre Çapan ailesinden işadamı Günay Çapan"ın yüzde 20 ile ortak olduğu, Karamehmet ve Doğan Grubu"nun da elinde hissesini bulundurduğu Cumhuriyet Gazetesi"nde en büyük pay sahibi ise işadamı Turgay Ciner. Günay Çapan"ın ifadesiyle yüzde 60 gibi bir oranla Merkez Grubu Cumhuriyet"te söz sahibi.
+          <br/>
+          <br/>
+          Bunlara rağmen okur da para koyarak Cumhuriyet Gazetesi"ne ortak olabiliyor. Günay Çapan, Cumhuriyet"te okurların patron olmasını istediklerini, bu nedenle gazeteye ortak olabilmenin yollarını açtıklarını, fakat okurun buna ilgi göstermediğini söylüyor: "Sahip çıkmadılar. O zaman niye eleştiriyorsunuz şimdi? Cumhuriyet Gazetesi"nde hâlâ böyle bir imkan varken bunları konuşalım. Niye katılmıyoruz kardeşim!"
+          <br/>
+          <br/>
+          Fakat şu da bir gerçek ki, gazeteye kim ortak olursa olsun, destek verirse versin Cumhuriyet Gazetesi"nin yönetimi, İlhan Selçuk"un başında bulunduğu Cumhuriyet Vakfı"nın elinde. Hatta, eski Cumhuriyet çalışanlarının ifadesiyle Cumhuriyet Gazetesi"nde tek yetkili İlhan Selçuk! Patronsuz ve çalışanların çıkardığı gazete olduğunu söyleyen Cumhuriyet"te İlhan Selçuk"un istemediği bir şeyin gerçekleşmesi söz konusu değil.
+          <br/>
+          <br/>
+          Cumhuriyet Gazetesi"nin ortaklarından Günay Çapan, gazeteye zor şartlarda destek verdiği halde ortak olarak kabul görmediğini belirterek şunları anlatıyor: "Sahibi olarak ben Cumhuriyet Gazetesi"nin genel yayın politikası içerisinde, yani gazetenin yayın ilkelerini belirleyen bir noktada değilim. Cumhuriyet"in yazar ve çizerlerinin hiç bir zaman ne fikriyatına ne de zikriyatına müdahil olmadım. Gazeteci değilim, işadamıyım. Birisi gidip cami yaptırıyor. Ben de Cumhuriyet Gazetesi"ne bağış yaptım. Burası daha bir ibadet yeridir diye..."
+          <br/>
+          <br/>
+          İlhan Selçuk"un gazetede sözü geçen tek kişi olmasından mıdır bilinmez, dosyayı hazırlarken ortada bir İlhan Selçuk gölgesi dolaşmaktaydı sanki. Görüşme talebinde bulunduğumuz Mehmet Barlas, Osman Ulagay, Hasan Cemal gibi isimler konuşmak istemezken, görüşme gerçekleştirdiğimiz bazı isimler de oldukça temkinli yaklaştı konuya. Hasan Cemal"in, Cumhuriyet"le ilgili yeni bir kitap çalışması içinde olduğunu öğrendik. İlhan Selçuk"un da bir Cumhuriyet kitabı yazacağı söyleniyor uzun zamandır. Nerede ise Türkiye Cumhuriyeti ile yaşıt olan, aralarında sadece 6 ay fark bulunan Cumhuriyet Gazetesi ile ilgili bugüne kadar yazılan tek bir kitap var. O da gazeteci-yazar Emin Karaca"nın kaleme aldığı "Cumhuriyet Olayı" adlı kitap.
+          <br/>
+          <br/>
+          Medya kuruluşları, gazeteler Türkiye"nin kara kutularıdır. Ancak böylesine önemli; bürokrasi, asker ve sivil toplum üzerinde eskiden de olsa etkileyici ve yönlendirici; yayın hayatı boyunca bazı olaylara angaje olduğu bilinen Cumhuriyet gibi bir gazete hakkında bugüne kadar sadece bir kitabın çıkmış olması da oldukça üzücü.
+          <br/>
+          <br/>
+          Cumhuriyet Olayı kitabının yazarı Emin Karaca, kitap çıktıktan sonra İlhan Selçuk"un başında bulunduğu gazetenin kendisine adeta "ambargo" uygulandığını söylerken, aileden Emine Uşaklıgil ise kitabın "eksik" bile olduğunu düşünüyor.
+          <br/>
+          <br/>
+          İlhan Selçuk gölgesi
+          <br/>
+          <br/>
+          İşte böylesine, herkesin birbiri hakkında ve olaylar üzerine konuşmakta tedirgin olduğu bir ortamda görüşmek istediğimiz bazı isimler ile randevulaşmak bile çok uzun zaman aldı. Randevu gerçekleştirdiğimizde ise nihayetinde eski çalıştıkları kurum olması ve İlhan Selçuk"un halen başında bulunması sebebiyle görüşme yapmaktan vazgeçmeyi düşündüklerini itiraf edenler oldu. Selçuk görüşme talebimize olumlu yanıt vermezken bugün Cumhuriyet"te çalışmakta olanlardan sadece Sami Karaören"le röportaj gerçekleştirebildik. Cumhuriyet"te eskiden bir şekilde çalışmış olan kişilerden aldığımız bilgilere göre gazetenin halihazırdaki yayın anlayışını "marjinal, statükocu ve Kemalist" olarak ifade etmek mümkün. Ama gazetede 1962-64 yıllarında çalışmış olan, daha sonraki dönemlerde de kitap kritikleri yazan Hilmi Yavuz"un burada bir itirazı oluyor: "Bugün çağdaş bir Kemalizm yorumu yapılacaksa eğer bu yorum İlhan Selçuk"un ve onun düşüncelerinin üretildiği Cumhuriyet Gazetesi"nin Kemalizmi değildir bana göre." 27 yıl çalıştıktan sonra 1993 senesinde Cumhuriyet"ten ayrılan Atilla Dorsay ise bakın bu konuda neler söylüyor: "Cumhuriyet okuyarak Türkiye"yi takip edemez, Türkiye"nin, hatta dünyanın nabzını tutamazsınız. Cumhuriyet"in yöneticileri sanki sadece kendi gazetelerini okuyorlar gibi geliyor bana." Hasan Cemal"le birlikte liberal kanadın iki numaralı ismi olan Vatan Gazetecisi idareci ve yazarlarından Okay Gönensin de Cumhuriyet"i okurların neden terk ettiği sorusuna şu yaklaşımı getiriyor: "Statükocu çünkü. Hâlâ 1950"li, 1960"lı yılların ideolojik takıntılarını devam ettiriyor Cumhuriyet. Hiç bir özgürlükçü açılıma izin vermiyor. Ve hâlâ Türkiye"yi dar kalıplar içinde yorumlamaya devam ediyor. Avrupa Birliği"nden kuşku, Kıbrıs"ta çözümsüzlük, her türlü demokratik gelişmenin radikal sağa yarayacağına dair korku. Bu platformda da faşizan fikirlerle yan yana geliyor."
+          <br/>
+          <br/>
+          Cumhuriyet"te değişimi gerekli görenlerin yanında bir değişimin mümkün olmadığını düşünenler de çıktı karşımıza doğal olarak. Hasan Cemal"in ekibinde yer alarak iki sene Cumhuriyet"te yazarlık yapan medya sosyoloğu ve Radikal Gazetesi Yazarı Haluk Şahin, demokrasinin sağlıklı bir şekilde çalışabilmesi için haber ve fikir yelpazesinin mümkün olduğu kadar geniş olması gerektiğinin altını çizerek "Cumhuriyet"in Türk basınının şu döneminde çok önemli bir kurumu temsil ettiğini" düşünüyor. Şahin bunu söylerken, Cumhuriyet Gazetesi yöneticilerinin bazı konularda taşıdığı kaygılar noktasında "Ben Türkiye"de sivil toplumun Cumhuriyet Gazetesi"nin zannettiğinden daha güçlü olduğuna inanıyorum" diyor. Atilla Dorsay ise, statükocu ve kapalı tutumu dolayısıyla Cumhuriyet"in, bugün oynayabileceği büyük toplumsal ve siyasal rolün ancak bir kısmını oynayabildiğini dile getiriyor.
+          <br/>
+          <br/>
+          Değişim için Günay Çapan, para sıkıntısını öne sürüyor. Hilmi Yavuz, çok radikal değişiklikler yapılırsa ancak Cumhuriyet"in değişebilmesini mümkün görüyor ama bugünkü anlayışla da değişimin önünün kapandığını düşünüyor. "1991"deki liberal değişimi gerçekleştirebilseydik bugün Le Monde, Washington Post gibi bir Cumhuriyet çıkıyor olacaktı" diyen Okay Gönensin"in yorumu da Hilmi Yavuz"la aynı: Şu anda Cumhuriyet son derece dar bir grubun sözcüsü halinde çıkıyor. Bütün haberleri taraf. Değişmez bu saatten sonra artık Cumhuriyet."
+          <br/>
+          <br/>
+          12 Mart 1971 Muhtırası"ndan önce gerçekleştirilecek olan 9 Mart Cuntası"nda Milli İstihbarat Teşkilatı adına görev yapan ve İlhan Selçuk"la bu dönemde tanışan Mahir Kaynak ise konuyu farklı bir düzleme taşıyor: "Türkiye demokratik rejimi seçtiğinde Cumhuriyet Gazetesi asker-sivil-bürokratların sözcüsü konumunda idi. Ve çok da güçlü idi. Gücünün azalması, aslında gazetenin kötü yönetilmesinden kaynaklanmıyor. Asker-sivil-bürokratların güç kaybına uğramasından kaynaklanıyor. Çünkü bir yandan halk siyasete daha çok katıldı ama asıl önemlisi, bugüne kadar gelen süreç içerisinde devletin ekonomik kaynakları sınırlandı, elinden alındı. Dolayısıyla bunlar da etkisiz hale geldiler. Hele şu son zamanlarda özelleştirme sonucu bu gücü tamamen kaybettiler. O bakımdan Türkiye"de neden CHP veya asker-sivil-bürokratları temsil eden görüş kaybediyor, liderleri mi kötü, iyi yönetilemiyorlar mı sorularının cevabı "Hayır" onunla ilgili değildir. Sebep o gücü destekleyen maddi temelin ortadan kalkmasıdır. Ve kimse bunu düzeltemez. Yani Cumhuriyet"e daha başka yöneticiler de getirseniz politikaları değişmezse yeniden güç sahibi olmaları mümkün değil."
+          <br/>
+          <br/>
+          YENİ GÜN HOLDİNG A.Ş. Yönetim Kurulu Üyeleri:
+          <br/>
+          <br/>
+          Erol Erkut, İlhan Selçuk, İbrahim Yıldız, Akın Atalay, Alev Coşkun, Günay Çapan
+          <br/>
+          <br/>
+          Firmanın İş Konusu: Esas itibari ile görüntülü, sesli, basılı ve elektronik iletişim araçları ile yayıncılık faaliyetleri göstermek üzere kurulmuş ya da kurulacak şirketlerin sermaye ve yönetimine katılarak bunların yatırım....ve ana sözleşmesinde yazılı olan diğer işler.
+          <br/>
+          <br/>
+          BÜTÜN MEDYA PATRONLARI ORTAK
+          <br/>
+          <br/>
+          İlhan Selçuk"un Emre Kongar"a verdiği bilgiler ışığında Cumhuriyet Gazetesi:
+          <br/>
+          * Vakıf, holding içinde değişmez ve imtiyazlı olarak yüzde 10 hisseye sahiptir.
+          <br/>
+          * Holding, Cumhuriyet Gazetesi"ni yayınlayan Yeni Gün Haber Ajansı"nın mali işlerini koordine eder, hiç bir şekilde yayın politikasına karışmaz.
+          <br/>
+          * Cumhuriyet Gazetesi"nin yayın ilkelerinin uygulamasını yayın kurulu yapar. Yayın kurulu, vakıf tarafından atanmıştır ve bu konudaki tek yetkilidir.
+          <br/>
+          * Holding"in yüzde 10"u vakfa ait olan imtiyazlı hisselerinin dışındaki dağılımda, bir ikinci yüzde 10 da Cumhuriyet okurlarına aittir. Bu kişilerin sayısı 240"tır.
+          <br/>
+          * Holding hisselerinin yüzde 20"lik bir bölümü Kasım 2000 tarihinde Günay Çapan"a satılmıştır.
+          <br/>
+          * Son günlerde ikinci bir yüzde 20 hisse de Park Grubu"na satılmıştır.
+          <br/>
+          <br/>
+          Şimdi resmi bilgiler içinde yer almayan ve bazıları muhtemel gelişmelere ilişkin olan üç bilgi daha vereyim:
+          <br/>
+          * Doğan grubu da holdingde üç yüz bin dolarlık hisse almak istemiş, bunun elli bin dolarını ödemiş, sonradan hisselerini bu miktarla sınırlı tutma eğilimi göstermiştir.
+          <br/>
+          * Günay Çapan hisselerini devretme eğilimindedir.
+          <br/>
+          * Holding yeni ortaklar aramakta ve çeşitli sermaye gruplarıyla temaslarını sürdürmektedir. Temas sürdürülen gruplar ve kişiler arasında Çukurova grubuna mensup olanlar da vardır.
+          <br/>
+          Kaynak: http://www.kongar.org/medyanotu/249_Medya_Yeniden_Yapilanabilecek_mi_VII.php
+          <br/>
+          <br/>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Ayhan Çınar, 10-Mayıs-2004
+> BU ÜLKENİN KIRILMAZ TAŞLARI: 
+> Kim ne derse desin ister eleştirsin ister savunsun şöyle bir gerçek var, bu ülkenin yaklaşık 70 yıldır başından indiremediği taşlar var.Herşey yer değiştiriyor her fikir yerinden oynuyor herkes kendine az veya çok çeki düzen veriyor ama bu kesim maalesef nasıl geldiyse öyle gidiyor.Buradaki talihsizlik ise bu taşların Türkiyenin temelinde yer almaları.Kesinlikle kendisinden başkasını kabul etmeyen kendisinden olmayana suratını en çirkin haline getirip bizi bile korkutan taşlar.Fakat temelde yeralıyorda çoktan temelden dışlandığınında farkında olmayan taşlar.Bu ülke kendini yeniden yapılandırıyor herkes güzeli arıyor hal böyleykende kimsenin bu taşlardan korkmasına gerek yok bu taşlar her rüzgarda dahada eriyorlarlar. Bu ülke temellerini sağlamlaştırıyor.Bu yeni kurulan temeller eskisini yok etmiyor aksine onlara yardımcı oluyor ama bu sözkonusu taşlar bunu istemiyor daha doğrusu  kırılmak istemiyor...
+
+### Derya Tulga, 07-Mayıs-2004
+> Bilinenler: 
+> Alman Elçisi von Papen'ın yalnız 1944 yılı ihtiyaçları için Dışişleri bakanı Ribbentrop'tan talep ettiği meblağ tam 5 milyon altın marktır. Bu para Türkiye'deki Almancı lobiye dağıtılacaktır. Ünlü ajan Fritz Fiala'nın terekesinde ise sade Cumhriyet'in değil daha nice liberal geçinen zevatın adları vardır. Sovyetler bu ilişkileri 1938-1946 yılları arasında afişe ederek Türkiye'ye karşı güttükleri siyasete bahane aramışlardı.
+
+### ulas ozturk, 06-Mayıs-2004
+> Cumhuriyet Bir Erdemdir: 
+> Cumhuriyet gazetesinin bugün 60 binin üzerinde okuru var.Hemde 500 bin lira gibi bir fiyatla satılmasına rağmen bu okur sayısına ulaşıyor.Cumhuriyet gazetesinin fiyatında ki farklılığa rağmen bu başarıya ulaşmasının  nedeni ise arkasında çıkarcı holdingler yerine biz okurlarının olmasıdır. Ve sonsuza dek biz okurları tarafından desteklenip yaşatılacaktır.
+
+### metin hircin, 04-Mayıs-2004
+> ALIN BIR ARASTIRMA KONUSU DAHA!: 
+> Yaziniz gercekten mukemmel. Fakat gozden kacan kucuk (aslinda buyuk) bir noktayi da ben hatirlatayim dedim. Butun gazeteler (yerel gazeteler bile) gunluk iceriklerini - kose yazilarini bile hic kiskanmadan - web uzerinden yayinliyorlar. Hatta bazilari basta Ingilizce olmak uzere diger dillerde bile yayin yapiyorlar. Ama nedense malum gazetenin sitesine girip birde onlarin engin goruslerinden (!)  yararlanmaya kalktigimizda karsimiza bankadan para cekecegimizde bile goremeyecegimiz kadar siki bir guvenlik onlemi geliyor. Bu konuda hic bir yorum yapmak istemiyorum. Basli basina bir arastirma konusu daha!
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11420&yorum_id=1199), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050322030122/http://www.aksiyon.com.tr:80/detay.php?id=11420&yorum_id=1199)

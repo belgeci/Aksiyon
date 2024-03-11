@@ -1,0 +1,31 @@
+# Hem müze hem otel
+
+*Hakan Güven Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040301224457im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040301224457im_/http://www.aksiyon.com.tr/resim/476/76.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Eresin Crown ilginç bir projeye imza atarak dünyanın ilk müze otelini açtı. Otelin temel kazısından çıkan birbirinden değerli eserler özel bir izinle lobide sergileniyor. Böylece hem 5 çayınızı antik eserlerin karşısında içebiliyor, hem de Bizans mozaiklerinin süslediği restoranda yemek yiyebiliyorsunuz.
+ </font>
+ <p>
+  <font class="content">
+   Sultanahmet Eresin Crown Hotel dışarıdan bakıldığı zaman herhangi bir 5 yıldızlı otelden farksız görünüyor. O da diğerleri gibi Sultanahmet Camii, Ayasofya, Topkapı Sarayı gibi önemli turistik mekanlara yakın, konforlu, kaliteden ödün vermeyen ve estetik bir otel. Ancak söz konusu bu otelin çok farklı ve bilinmeyen bir özelliği var. Eresin Crown Hotel, dünyanın tek müze oteli. İlk bakışta, bir mekan hem müze hem otel olur mu sorusunu akıllara getirse de otelin lobisinde küçük bir tur attığımızda bile kendinizi bir müzede gibi hissediyorsunuz. Otelin nasıl olup da bir müze—otel haline geldiğini Salih Eresin şöyle anlatıyor: “Otelin bulunduğu bölgede Bizans döneminde Büyük Saray olarak adlandırılan bir yapı varmış. Otel inşaatına başladığımız zaman toprak kazısı sırasında birtakım tarihi eserler çıkınca arkeologlar devreye girdi ve temel kazasından çıkan eserler tek tek toplandı. Yaptığımız başvurular sonucunda müze tekniğine uygun olmak kaydıyla çıkan eserleri yerlerinde sergileme izni aldık. Böylece dünyanın ilk müze—oteli ortaya çıktı.”
+   <br/>
+   <br/>
+   Otelin temel kazısı sırasında milattan önce 2 ve 3. yüzyıla ait eserler ile milattan sonra 6. yüzyıla ait Helen, Roma ve Bizans dönemlerine ait 49 parça tarihi esere ulaşılır. Ortaya çıkan eserlerin Arkeoloji Müzesi’ne taşınması gündeme gelir ancak Eresin Otelleri Yönetim Kurulu Başkan Yardımcısı Salih Eresin, farklı bir tarz önererek çıkan eserlerin yerinde sergilenmesini teklif eder. Ancak bu kararın çıkması tam 14 ay sürer. Arkeologların tek tek çıkardıkları eserler büyük bir özenle temizlenir ve yine arkeologlar tarafından hazırlanan bir plan dahilinde bunların otelde sergilenilmesine karar verilir. Uzun süren çalışmalar sonunda otelin lobisi arkeologların istediği gibi dizayn edilir ve tarihi öneme sahip 49 eser yerlerine yerleştirilir. Çıkan eserler arasında milattan önceye ait sütun başları, 9. yüzyıla ait sarnıç duvarı, 5. yy’dan kalma mozaik ve 2. yüzyıldan kalma Kederli Eros heykeli vardır. Özellikle bu heykel ve Helenistik Akretorlar önemlidir ve Arkeoloji Müzesi söz konusu bu iki eserin müzeye kaldırılması konusunda ısrarlıdır. Salih Eresin uzun süren yazışmalar ve protokoller sonunda bu iki eserin de otelde sergilenmesi için izin alır; “Malum İstanbul’un bulunduğumuz bölgesinin altı çok zengin. Ancak müzeye belli saatlerde gidersiniz, uzun zaman oturup eserleri inceleyemezsiniz ve fotoğraf çekemezsiniz. Üstelik müze için ekstra para harcarsınız. Biz önerdiğimiz farklı bir tarz ile, gezmeye gelen turiste hem konforlu olarak barınabilme hem de tarihi eserleri çıktıkları yerde görme imkanı tanıdık. Otele gelen her turist de bu uygulamadan duyduğu memnuniyeti dile getirdi.”
+   <br/>
+   <br/>
+   Otel lobileri bekleme mekanları olduğu için genellikle sıkıcıdır ancak Eresin Crown’da böyle bir alternatifiniz yok. Çünkü oturduğunuz koltukların ardındaki sütunlar ancak bir müzede rastlayabileceğiniz cinsten. Üstelik duvar olarak duran bölümler 6. yüzyıldan kalma sarnıç duvarına ait. Tabii ki altlarında açıklamaları da mevcut. Lobinin hemen yanındaki Mozaik Restoran’da ise belki de müze otelin en önemli eseri var. Zemine yapılmış özel bölmede milattan sonra 5. yüzyıldan kalma bir mozaik yer alıyor. Arkeologlara göre mozaikteki büyük balık motifi kutsal bir imge ve dini bir mekanın giriş kapısı önünde yer alıyor. Yine lobinin bir diğer bölümü olan Kolon Bar’da ise arkeologların paha biçemediği Kederli Eros heykeli göze çarpıyor. 2. yüzyıla ait olduğu sanılan bu eserin hemen yanında ise Helenistik dönemden akretorlar var. Oteldeki eserler sadece Bizans ve Roma dönemine ait değil. Otel yönetimi aynı zamanda Türk—İslam eserlerinin de güzel örneklerini sergilemiş. İznik çinilerinden oluşan eserlerin yanında Gültekin Çizgen’in kaleminden Bizans ve Osmanlı yaşam tarzını konu olan 169 parça özel resim koleksiyonu duvarları süslüyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11051&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040301224457/http://www.aksiyon.com.tr:80/detay.php?id=11051&yorum_id=1)

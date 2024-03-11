@@ -1,0 +1,64 @@
+# Muhabirlikten şoförlüğe..
+
+*Rahime Sezgin Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214125im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214125im_/http://www.aksiyon.com.tr/resim/340/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bu haberin taşıdığı dramatik ağırlığı galiba en çok haberci olanlar yüreklerinde hissedecek ve anlayacaktır. Haberin ve haberciliğin, damarında virüs olup dolaştığı bir gazetecinin yaşadığı en acı imtihan sizce nedir?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Meslekten atılması mı, haber atlaması mı, haberinin girmemesi mi, haberinin pazarlık konusu yapılması veya sansürlenmesi mi? Bunlar bizim meslekte (hele de burası Türkiye olunca) artık rutinden addediliyor...
+   <br>
+    <br>
+     Bir gazeteci düşünün; yıllarını verdiği mesleğine âşık. Çalıştığı gazetenin ulaşım araçlarında sayısız haberi atlatmanın/atlamanın tatlı heyecanını iliklerine kadar hergün yaşamış. Gün gelmiş, hergün bindiği ulaşım araçlarına kendisi şoför olup, bu defa kendisi habercileri taşımaya başlamış.
+     <br>
+      <br>
+       Son bir yıl içerisinde basın sektöründe yaklaşık üç bin gazeteci işsiz kaldı. Basının en alt kademesinden en üst kademesine kadar yıllardır basına emek veren binlerce insan kendini kapının önünde bulurken bu gazetecilerin başka bir gazetede veya televizyon kuruluşunda iş bulmaları da imkansız hale geldi. Krizle birlikte yıllardır emek verdikleri mesleği bırakmak zorunda kalan binlerce basın emekçisi şimdilerde bin bir güçlükle geçimlerini sağlamaya çalışıyor. Aşağıda sizlere bir gazetecinin öyküsünü anlatacağız. Uzun yıllar çeşitli gazetelerde muhabirlik yapan, şimdi ise geçimini bir zamanlar muhabirlik yaptığı gazetede şoförlükle kazanan bir gazetecinin öyküsü.
+       <br/>
+       <br/>
+       Karanlık odadan muhabirliğe
+       <br/>
+       <br/>
+       Muammer Bövelek, gazeteciliğe 1988 yılında alaylı olarak Sabah gazetesinde başlamış. “O dönemde Son Havadis gazetesi vardı. Orada fotoğrafhanede karanlık odada çalışıyordum. Muhabirlerin çalışmalarını gözler ve muhabir olmak isterdim. Uzaktan tanıdığımız birinin Sabah gazetesinde çalıştığını öğrenince yanına gittim ve muhabirlik yapmak istediğimi söyledim. Fotoğraf çekmesini biliyordum, makinem de vardı. Böylelikle 1988 yılında gazetecilik mesleğine başladım.” Bir yıl Sabah gazetesinde çalışan Bövelek buradan ekip arkadaşlarıyla birlikte Günaydın gazetesine geçer fakat Asil Nadir döneminde bir yıl maaş alamadıkları için yine ekip olarak Sabah'a geri dönerler. Daha sonra gazetecilik mesleğine Duvar gazetesinde devam eden Bövelek, Akşam gazetesinin çıkmaya başlamasıyla birlikte burada işe başlar. Bir yıl Akşam gazetesinde çalıştıktan sonra tekrar mesleğe ilk başladığı gazete olan Sabah gazetesine transfer olan Bövelek, 17 Ağustos depreminden on yedi gün önce işten çıkartılır. On ay işsiz kalan Bövelek bu süre içinde arkadaşlarıyla olan bağlantılarını kaybetmez ve başka bir gazetede çalışabilmek için iş başvurularında bulunur. Star gazetesinde muhabire ihtiyaç olduğunu öğrenen Bövelek, burada çalışmaya başlar. On ay Star gazetesinde çalışan Bövelek ekonomik krizle birlikte yeniden işsiz kalır.
+       <br/>
+       <br/>
+       Artık muhabir değil, şoför
+       <br/>
+       <br/>
+       Gazetede çalışırken aldığı üç yüz milyon maaşla ailesini geçindirmekte güçlük çeken Bövelek yakınlarından aldığı borçlarla bir araba alır ve arabasını gazetede çalıştırmaya başlar. “Muhabirlik yaparken aldığım para üçyüz milyondu. Bu parayla iki çocuk okutup ev kirasını ödeyemiyordum. Aynı zamanda ben bir depremzedeyim. 17 Ağustos depreminde Avcılar’da oturuyordum. Oturduğumuz daire büyük hasar gördü, taşınmak zorunda kaldık. Arkadaşlardan aldığım borçlarla araba aldım ve onu gazetede işe soktum, ek gelir olur diye. Fakat bir muhabirin gazetede araba çalıştırması yasakmış. Araba benim üzerime değildi ve bir şoför arkadaş çalışıyordu arabada. Kulaktan kulağa benim olduğunu öğrenmişler. Benim işime son verildikten sonra aynı gün arabam da işten çıkartıldı. Arabam gazetede çalışırken üç tane taşeron şirket değiştirdi. Hiç birisinden paramızı alamadık. En son gelen şirket ‘Sizi mağdur etmeyeceğiz, biz dört ay gazeteden para alamazsak bile sizin paranızı ödeyebiliriz’ dedi. Ama kırk gün sonra şirket işi bıraktı ve paramızı alamadık. Şirkette beş yüz milyon alacağımız kaldı.”
+       <br/>
+       <br/>
+       Arkadaşlarına borcu olan Bövelek alacaklı olduğu şirketten paralarını istemek için şirketin binasına gider fakat paralarını alamaz. Şirketteki yöneticilerle tartışan Bövelek bir anlık hırsla binanın çatısına çıkar ve intihar girişiminde bulunur. “Borçlarımı ödeyebilmek için paramı almam gerekiyordu fakat şirkette bir sürü hakarete uğradım ve paramı da vermediler. O sinirle hiç planlamadığım halde binanın çatısına çıktım. Sonra polis geldi ‘Paranı aldık, vereceğiz’ dediler. Aşağıya indiğimde karakola gittik. Meğer o parayı vatandaşın biri polise vermiş, ben indikten sonra parasını aldı. Yani paramı alamadım üstelik çatıya çıkıp intihar girişiminde bulunduğum için yüz yetmiş milyon cezaya çarptırıldım. Eşim ve çocuklarım intihar durumunu bilmiyorlar fakat diğer bütün arkadaşlarım biliyorlar. Daha önce biz intihara teşebbüs eden insanları haber yapardık. Birgün benim de aynı şeyi yapabileceğim aklımın ucuna bile gelmezdi. Fakat insan çaresiz kalınca o hırsla ne yapacağını bilemiyor.”
+       <br/>
+       <br/>
+       Bu intihar vakasından sonra Star gazetesinde çalışan şoför arkadaşlarının yardımıyla tekrar arabasını gazetede işe sokar ve mart ayından itibaren bir zamanlar muhabirlik yaptığı gazetede şoför olarak çalışmaya başlar. İlk zamanlar habere gitmek için arabaya binen muhabirler bir zamanlar beraber çalıştıkları mesai arkadaşlarını görünce şaşırırlar. Fakat bu durumu yadırgamazlar ve arkadaşlarına destek olurlar, bir bakıma da kendileriyle aynı meslekte çalışmış olan arkadaşlarıyla çalışmayı avantaj olarak görürler. Muhabirlik yaptığı gazetede şoför olarak çalışmak zorunda kalan Bövelek ise bundan utanmadığını söylüyor ve arkadaşlarının kendisine şoförmüş gibi davranmadıklarını söylüyor: “Ben yaptığım işten utanmıyorum. Çocukluğumdan beri farklı farklı işlerde çalıştım fakat arkadaşları habere götürünce ben de hemen fotoğraf makinesini kapıp arkadaşlarla birlikte çalışmaya başlayayım istiyorum. Ben mesleğimi çok seviyorum. Gazetecilik mesleğini yaparken de çok büyük paralar kazanmıyordum, üç yüz milyon maaşla çalışıyordum ama yaptığım işi seviyordum. Şimdi de en azından arkadaşlarla aynı ortamda olmaktan mutluyum ama insan zamanla haberden uzaklaşıyor. Önceden bir yere gittiğimiz zaman gidip insanlarla tanışıp muhabbet ederdik fakat şimdi biz dışarıda bekliyoruz, arkadaşlar içeri giriyorlar. “
+       <br/>
+       <br/>
+       On üç sene boyunca farklı gazetelerde çalışan Bövelek artık medya dünyasında kendisine yer bulabileceğine inanmıyor. “Ben artık mesleğe geri dönüş yapabileceğime inanmıyorum. Bir sürü kişi bu krizde işsiz kaldı. Önceden de işten çıkarılan gazeteciler olurdu ama bir yerden çıkan başka bir yerde işe girerdi. Günümüzde basında oluşan tekelle birlikte bu imkansız hale geldi. Üstelik biz alaylıyız, şimdi iletişim fakültelerinde yetişen genç insanlar var. Üstelik gazeteler bunları çok az ücretlerle çalıştırabiliyorlar. Böyle bir ortamda benim iş bulmam imkansız.”
+       <br/>
+       <br/>
+       Şimdilerde Bövelek herşeye rağmen arkadaşlarıyla birlikte aynı ortamda bulunmaktan mutlu. Yıllardır emek verdiği mesleğini yapamamak kendisini çok üzse de sonuçta sorumlu olduğu insanların var olduğunu düşünüyor ve bir şekilde onları geçindirmek için uğraşıyor. Biriken borçlarını ödemek için farklı yollar arayan Bövelek bir zamanlar haber görüşmesi yaptığı iş adamı Kadir Has’tan yardım istiyor.
+       <br/>
+       <br/>
+       rahimesezgin@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12747), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214125/http://www.aksiyon.com.tr:80/detay.php?id=12747)

@@ -1,0 +1,88 @@
+# Yabancının adı var kendisi yok
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Uzun yıllar, istikrarsızlık nedeniyle Türkiye'ye hatırlı miktarda yabancı sermaye girişi sağlanamadı.
+   <br/>
+   <br/>
+   Hollanda tek başına yılda 19,7 milyar dolar yabancı sermaye çekerken, Türkiye 80 yılda bu rakama yetişemedi.
+   <br>
+    <br>
+     Türkiye işsizliği tartışıyor, işsizliği önleyecek yabancı sermaye yatırımları ise temenniden öteye geçmiyor. 20 yıldan bu yana doğru düzgün özelleştirme yapılamadığı için ülkeye hatırlı miktarda yabancı sermaye girişi olmadı. Nedeni çok çeşitli olsa da  kayıt dışı ekonomi rekabet gücünü olumsuz yönde etkiledi.
+     <br>
+      <br>
+       Kayıt dışı ekonomi Türkiye'de milli gelirin yüzde 45'i ile 66'sı arasında değişiyor. Buna göre her 100 liranın 66 lirası kayıt dışı, her 100 kişiden 45'i kaçak çalıştırılıyor. Kayıt dışı ekonomi ve kayıt dışı işçilik nedeniyle, kayıtlı mükelleflerin vergi yükü sürekli artıyor.
+       <br>
+        <br>
+         1923’ten 2002’ye varıncaya kadar  her üç dört senede bir kriz yaşanması yüzünden bu topraklara yabancı ayak basamaz oldu.
+         <br/>
+         <br/>
+         Bırakın yabancıyı yerlisi bile son 4-5 senedir doğru düzgün yatırım yapmıyor. Yerlisi yatırım yapmayı düşünmeyince doğal olarak yabancılar da gelip bu ülkeyi tercih etmiyor. ABD yılda 40 milyar dolar, Belçika, 31,3 milyar dolar Hollanda ise yılda 19,7 milyar dolar yabancı sermaye çekerken Türkiye, 80 yılda sadece 16,8 milyar dolar yatırım alabildi. Bu şu anlama geliyor: Hollanda'nın bir yılda getirdiği sermayeye Türkiye 80 yılda yetişemedi.
+         <br/>
+         <br/>
+         2003 yılına gelindiğinde ise yabancıların şirket satın alma ve birleşmelere olan ilgisi neredeyse hiç artmadı. Yabancılar birleşmeler ve  satın almaların sadece yüzde 20'sini  gerçekleştirdi. Yabancı sermaye için 2003 toparlanma, 2004 ise “bekle gör” yılıydı. 2001'de dibe vuran şirketlerin değeri makul düzeye inmesine rağmen yabancılar gelmemişti. Çünkü istikrar yoktu. Kelepir şirketler bile ilgi görmemişti.
+         <br/>
+         <br/>
+         Tatlı kârlar ilgiyi  artırdı
+         <br/>
+         <br/>
+         Şeytanın bacağı son 2 yılda siyasi ve ekonomik istikrarla birlikte kırılırken 17 Aralık’ta Avrupa Birliği için tarih alınmasıyla ekonomide, siyasi yapıda ve dış politika alanında yeniden yapılanma süreci başladı. Görüşmelerden sonra ilk duyumlar piyasalara sızdı. 285 milyar dolar cirolu dünyanın en büyük perakende devi Wall Mart’ın Migros’la ilgilendiği haberleri umutları arttırdı. Perakende sektöründe en önemli yabancı girişi Kipa ile Tesco arasında yıllarca süren satın alma söylentilerinin 2003 yılının kasım ayında sonuçlanmasıyla gerçekleşmişti. İngiliz perakende devi 117 milyon dolar vererek İzmir'de faaliyet gösteren Kipa marketlerini satın aldı. Ardından gelecek özelleştirmelerle birlikte şimdiden Türkiye'nin yabancı sermayeye boğulacağı beklentileri özellikle borsayı coşturdu.
+         <br/>
+         <br/>
+         Hazine'nin son ihalesi de ortaya koydu ki artık Türkiye yoğun bir yabancı ilgisi ile karşı karşıya. 20 yıllık Euro-tahvile 13 milyar dolarlık talep geldi. Ve Hazine, 2 milyar dolarlık satış yaptı. Dış piyasalarda şimdiye kadarki en büyük taleple karşılaşan Hazine,   borçlanmasını gerçekleştirdi.
+         <br/>
+         <br/>
+         2002 yılında yabancıların Türkiye portföyü toplamı 8,2 milyar dolar iken 2003'e bu rakam 16,2 milyar dolara çıktı. Nisan sonrası yabancıların Türkiye piyasasına yatırımları ise giderek arttı. TL bazlı iç borçlanma senetlerindeki yabancı yatırımcı geçen yıl  5,5 milyar dolar, hisse senetlerinde de 1,4 milyar dolar oldu. Yatırımcıların Türkiye portföyü 30,5 milyar doları buldu. Dövizdeki düşüş ve borsadaki yükselişin etkisiyle yabancıların geçen yılki kârı 5,7 milyar dolara ulaştı. Bu tatlı karları gören yabancıların, önümüzdeki günlerde borsada daha fazla yer almaları bekleniyor.
+         <br/>
+         <br/>
+         Bir tarafta bunlar yaşanırken öte yandan gözler asıl gerçek yatırımcının piyasaya girmesini bekliyor. Bu ihtiyacı fark eden hükümet, özelleştirme kapsamına alınan ve Tasarruf Mevduatı Sigorta Fonu (TMSF) aracılığı ile satışa çıkarılan şirketlerle yabancıları çekmeye çabalıyor. Meyvesini veren bu çalışmalarla birlikte Türk Telekom'la ilgilenen yabancı şirket sayısı şimdiden 10'a çıktı. Telekom hisselerinin yüzde 55'inin blok olarak satışına ilişkin süreç, 25 Kasım 2004 tarihinde, ihale ilanlarının yayımlanmasıyla başladı. İhalede son teklif verme süresi 31 Mayıs olarak açıklandı.
+         <br/>
+         <br/>
+         Öte yandan Tekel'in tütün kısmı, 4 yabancı şirketin dikkatini çekmiş durumda. Milli Piyango'ya çok meşhur ailelerin ilgi duymasının yanı sıra 8 yabancı şirket gelişmeleri yakından takip ediyor. Uzanlar'dan TMSF'ye geçen çimento şirketleri, dünyanın büyük çimento üreticilerinin takibinde.
+         <br/>
+         <br/>
+         Finansta yabancı payı artacak
+         <br/>
+         <br/>
+         TÜPRAŞ, piyasadaki konumu dolayısıyla yabancıların ilgisini çeken diğer şirketlerden biri. Son ihalede şirketi alan Tatneft’in ilgisi sürüyor. Daha önce talipleri arasında BP, Shell, Rus TNK, Kazak Salamat gibi şirketlerin adları geçmişti. Bu şirketlerin takibi devam ediyor. Diğer yandan Türk demir çelik sektörünün en önemli şirketi Erdemir'e de yine dünyanın en büyük demir çelik üreticileri talip olduklarını açıkladı. İç piyasalara gelen güvenle birlikte kızışan pazara bu sefer finans şirketleri de göz kırpmaya başladı.
+         <br/>
+         <br/>
+         Türkiye'nin Avrupa Birliği'nden müzakere tarihi almasıyla birlikte yabancı sermayenin en yoğun talep göstermesi beklenen bankacılık sektörü, yatırımcıların ilgisini daha önceden çekmişti. Garanti-Intesa görüşmelerinin başarısızlıkla sonuçlanmasının ardından, TEB ile Paribas'ın anlaşmaya varması ve son olarak da Şekerbank ile Hollandalı Rabobank arasında başlayan görüşmeler, sektörde yabancı sermaye beklentisini artırdı.
+         <br/>
+         <br/>
+         2002 yılında Koç Holding, Türkiye'de kriz sonrası, finans sektöründe ilk ortaklığı gerçekleştirdi. Avrupa'nın güçlü finans kuruluşlarından Unicredito Italiano SPA ile yüzde 50-50 oranında ortaklık anlaşmasını imzaladı. Şimdi Koç ve ortağı olan Unicredito,  Yapı Kredi için prensipte anlaşmaya vardı. Nihai anlaşma imzalandığı takdirde aynı bankayla ilgilenen ve Türkiye'de de faaliyet gösteren Citibank, sadece ilgilenmekle kalmış olacak. Bankacılık sektöründe halen yüzde 4 civarında olan yabancı payının 2008'e kadar yüzde 30-35'e çıkması bekleniyor.
+         <br/>
+         <br/>
+         Özelleştirme kapsamındaki Türk Telekom, Tekel Tütün, Milli Piyango, Erdemir gibi şirketlere bu kadar yoğun yabancı ilgisinin nedeni, kârlı oluşları. Sağlam finansal yapıları, iç piyasadaki pazar payları iştah kabartıyor. Yabancılar, bu şirketleri veya satışta olan kısımlarını aldıkları takdirde, iç piyasada önemli oyuncular haline gelecek. En çok talep gören ise çimento fabrikaları. Uzanlar'dan TMSF'ye geçen çimento fabrikalarını alan, pazarda önemli hale gelecek.
+         <br/>
+         <br/>
+         Göz kırpmalar artıyor
+         <br/>
+         <br/>
+         Bu arada Star Medya Grubu ve Telsim de yabancıların ilgisini çeken diğer şirketler. Telsim, GSM piyasasının iki numaralı oyuncusu. Star Medya Grubu da, Türkiye'de bu pazara girmek isteyen yabancılar için önemli bir fırsat. Petkim, Uzanlar'a satışla sonuçlanan ihalenin iptaliyle tekrar görücüye çıkmıştı. Özelleştirme programına alınan Petkim'e İran Milli Petrol Şirketi göz kırpıyor.
+         <br/>
+         <br/>
+         Bu gelişmeler gösteriyor ki 2005, yabancı yatırımcılar için beklenti yılı olacak. Şu anda birçok şirketin adı ortalıkta dolaşıyor ancak net bir sonuç ortada yok. AB ile tam üyelik müzakerelerinin başlamasının yabancı  yatırımları arttıracak bir etki yapması bekleniyor. Şimdilik sadece şirketlere göz kırpılıyor. Birleşmeler ve satın almalar konusundaki gelişmeleri izleyen günlerde görmeye devam edeceğiz.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 412 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19438), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050217130748/http://www.aksiyon.com.tr:80/yazdir.php?id=19438)

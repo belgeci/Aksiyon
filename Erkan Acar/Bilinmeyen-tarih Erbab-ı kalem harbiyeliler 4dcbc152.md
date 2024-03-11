@@ -1,0 +1,82 @@
+# Erbab-ı kalem harbiyeliler
+
+*Erkan Acar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119204952im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119204952im_/http://www.aksiyon.com.tr/resim/498/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Güçlü kalemleri ile tanıdığımız isimler arasında asker kökenliler hiç de az değil. Ömer Seyfettin"in Balkanlar"da görev yapmış piyade üsteğmen, Süper Baba"nın senaristi Sulhi Dölek"in deniz albayı olduğunu biliyor muydunuz?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   "Çocuk edebiyatıçısı orgeneral", "şair tuğgeneral", "romancı yarbay", "senarist albay" toplum hayatında pek alışık olmadığımız unvanlar. Ancak bu, askerler edebiyat dünyasına çok da meraklı değil manasına gelmiyor. Siyasi hayatımıza yön verme konusunda belki de sivillerden daha etkili olmuş Harbiyelilerin bu yönleri kamuoyunda pek bilinmiyor.
+   <br>
+    <br>
+     Türk Silahlı Kuvvetleri mensupları işlerinin yoğunluğu nedeniyle genellikle emeklilik dönemlerinde sanat ile uğraşma fırsatı buluyor. Buna rağmen aralarından birçok edebiyatçı ve şair çıkmış.
+     <br>
+      <br>
+       Güçlü kalemleri, kimi zaman toplum içinde Harbiyeli kimliklerinin de önüne geçmiş. Örneğin Ömer Seyfettin. Onun piyade üsteğmen olduğu pek bilinmez. Falaka, Bomba gibi eserlere imza atan Seyfettin, Balkanlar"da hudut bölük komutanlığı yapmış enteresan bir isim. Görev yaptığı Yakovit"te horozların vakitli vakitsiz ötmesine sinirlenen Seyfettin, emir verip  ibiklerini kestirmiş.
+       <br/>
+       <br/>
+       Kitap yazan askerler arasında ilginç çalışmalara imza atanlar da var. Örneğin Kara Kuvvetleri eski Komutanı emekli Orgeneral Hikmet Bayar, "Patikli Kurmaylar" isimli bir çocuk kitabı kaleme aldı. İkinci Bahar ve Süper Baba gibi büyük ilgi gören televizyon dizilerinin senaristi de bir asker; Emekli Deniz Albay Sulhi Dölek. Dölek, 1944"te Aynalar isimli öyküsü ile Yunus Nadi ödülünü, Süper Baba senaryosu ile de Marmara Üniversitesi İletişim 97 Zirvedekiler ödülünü almaya hak kazanmış.
+       <br/>
+       <br/>
+       Kılıç erbabı Harbiyeliler içindeki kalem sahipleri, önemli bir araştırmaya konu oldu. Araştırmayı yapan ve yaptığı çalışma kitap olarak basılan kalem erbabı da emekli bir albay. 74 yaşındaki Emekli Albay İlhan Çiloğlu bugüne kadar edebiyat dünyasının çeşitli dallarında kalem oynatmış yaklaşık 400"e yakın askeri "Asker Yazarlar ve Şairler" isimli kitapta topladı.
+       <br/>
+       <br/>
+       Çiloğlu daha önceden de "Asker Ressamlar, Besteciler, Sinema, Tiyatro Oyuncuları ve Asker Kazanından Yiyen Sanatçılar" isimli bir çalışmaya imza atmıştı.
+       <br/>
+       <br/>
+       Ömrünün 35 yılını asker ocağında geçiren Çiloğlu, Harp Okulu"ndan 1951"de mezun olmuş. İstanbul, Kırklareli, Sarıkamış, Elazığ ve Ankara"da görev yapan Çiloğlu, Kore"de görev almış. Kıbrıs"ta 150. Alay Komutanlığı yapan Çiloğlu, 1980"de Harbiye Orduevi Müdürlüğü"nde mesleki yaşamını noktalamış. Emekli olduktan sonra Türk insanının askerleri savaş insanı olarak tanıdığını sanatçı ve yazar yönlerini pek bilmediğini fark etmiş. Ve bu konudaki çalışmalarına yaklaşık 15 yıl önce başlamış. "Asker Yazarlar ve Şairler" kitabında ise 150 yıllık bir zaman dilimini ele almış.
+       <br/>
+       <br/>
+       Çiloğlu yaptığı araştırmalarda Osmanlı Devleti"nin çöküş sürecine girdiğinde o koca coğrafyada 45-50 yaşlarında Sadrazamlık (Başbakanlık) yapmış kurmay subaylar olduğunu ve bu kişilerin pek çok eser verdiklerini saptamış.
+       <br/>
+       <br/>
+       Şiiri, askeri terimlerle "duygu ve düşüncelerin vezin ve kafiyeler aracılığıyla hiza ve istikamete getirilmesi" şeklinde tanımlayan Çiloğlu, "Asker şairlerimiz de böyle yapmış olmalılar diye düşünüyorum" diyor.
+       <br/>
+       <br/>
+       Çiloğlu, devletin birçok önemli kararı altında imzası olan askerlerin neden ketum kalmayı tercih ettiğini şöyle açıklıyor:  "Askerler eskiden çok fazla anılarını yazmazlardı. Yeni yeni yazmaya başladılar. Görev yaptıkları yerlerde ilgilendikleri konuların bazıları son derece gizli içerikli. Bunları açıklamaları suçtur. Ben de Doğuda 8. Kolordu İstihbarat Şube Müdürlüğü yaptım. Okuduğum çok gizli bilgiler vardı. Biz o gizli bilgilerin yer aldığı yayın ve broşürleri alıp okuruz. Okuduğumuz evraklara adımızı soyadımızı, okuduğumuz saati yazıp imzalarız. O bilgi yayıldığı zaman listeye bakarlar, kimler okumuş diye. Bilgiyi sızdıranı hemen bulurlar. Onun için bazı şeylerin açıklanması, hatıralarda yer alması mümkün değil. Devlete yönelik tehditler gizli yapıldığı için bunlarla da gizli mücadele edilmesi gerekir. Namusumuza emanet edilmiş o devletin sırları. Onun için yazamıyorlar. Ama ölçüsü nisbetinde yazmak mümkün."
+       <br/>
+       <br/>
+       Edebiyat hayatında yer alan asker yazarların daha çok tarih kitapları yazdığına dikkat çeken Çiloğlu, bu sıralarda dinî eserlerin önemli bir yere sahip olduğunu söylüyor: "Tarihi eserler yazmışlar. Katıldıkları savaşları anlatmışlar. Ondan sonra dini kitaplar yazmışlar. Hakikaten İslam dinini çok iyi anlatan ve açıklayan kitaplar kaleme almışlar."
+       <br/>
+       <br/>
+       HİKAYEDEN ŞİİRE HER ALANDA KALEM OYNATMIŞLAR
+       <br/>
+       <br/>
+       Atatürk, İsmet İnönü, Mareşal Fevzi Çakmak"ın en başında geldiği asker yazarlar içinde roman, hikaye, senaryo, tarih, anı, şiir, dini ve ilmi eserler verenler çıkmış.
+       <br/>
+       <br/>
+       Tarih yazarları: Ahmet Cevat Paşa, Ahmet Muhtar Paşa, Yusuf Akçura, Ali Cevat, Fahrettin Altay, Ahmet Refik Altınay, İbrahim Artuç, Fahri Belen, Mahmut Boğuşlu, Afif Büyüktuğrul, Fevzi Çakmak, Feridun Dirimtekin, Osman Sanai Erdemgil, Ali Fuat Erden, Mehmet Şükrü Kaptan, Kazım Karabekir, Fevzi Kurtoğlu, Erol Mütercimler, Rıza Nur, Yahya Okçu, Turhan Olcaytu, Ali İhsan Sabis, Sabahattin Selek, Necati Ulunay Ucuzsatar.
+       <br/>
+       <br/>
+       Şairler: Fazıl Hüsnü Dağlarca, Ali Rıza Çopur, Cenap Şahabettin, Ahmet Refik Altınay, Abdullah Cevdet, Bekir Sıtkı Erdoğan, Zeki Ergun, Halil Gelendost, Ferda Güley, Nejat Gülümser, Mustafa Necati Kararer, Turgut Uyar, Doğan Ülkekul, Turgut Yargent, Dursun Yaşa.
+       <br/>
+       <br/>
+       Dini eser sahipleri: Gazi Ahmet Muhtar Paşa, Ahmet Cemil Akıncı, Ragıp Akyavaş, Fahrettin Altay, Cevat Rıfat Atılhan, Şefik Can, Refik Soykut, Enver Tunçalp.
+       <br/>
+       <br/>
+       Hikaye, roman yazarları: Aziz Nesin, Celal Esat Arseven, Yusuf Atılgan, İlhan Baş, Hamdi Rıza Çaydam, Yılmaz Çongar, Sulhi Dölek, Burhan Günel, Baha Vefa Karaty, Osman Cemal Kaygılı, Hikmet Kıvılcımlı, Alp Kun.
+       <br/>
+       <br/>
+       Anı yazarları: Hikmet Bayar, Ali Fuat Cebesoy, Kenan Evren, İsmet İnönü, Ali Kılıç, Kenan Kocatürk, Sadi Koçaş, Hafız Yaşar Okur, Tevfik Salim Sağlam, Selim Sırrı Tarcan, Cemil Topuzlu, Sabri Yirmibeşoğlu.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11622&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119204952/http://www.aksiyon.com.tr:80/detay.php?id=11622&yorum_id=1)

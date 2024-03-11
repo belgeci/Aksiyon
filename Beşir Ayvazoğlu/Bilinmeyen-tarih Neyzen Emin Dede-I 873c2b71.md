@@ -1,0 +1,55 @@
+# Neyzen Emin Dede-I
+
+*Beşir Ayvazoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214454im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214454im_/http://www.aksiyon.com.tr/resim/335/65.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Hakkı Süha Gezgin, bir cuma günü Galata Mevlevihanesi’ne giderek Neyzenbaşı Emin Dede’yi âyinden sonra hücresinde ziyaret etti; eğer müsaadeleri olursa öteden beri üflemekte olduğu ney’de ilerlemek için kendisinden ders almak istiyordu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Emin Dede, “kabulüne bir himmet ve lûtuf ağırlığı vermeden” ince ince gülümseyerek “Salıları evdeyim, gelin!” dedi. O salı ney’ini koltuğunun altına sıkıştırıp Tophane Defterdar yokuşunu tırmanarak Emin Dede’nin Türkgücü Sokağı’ndaki ahşap konağına giden Hakkı Süha, “Kocaman bir kapıdan kocaman bir taşlığa giriliyordu; taşlıkta bir terlik taburu dizilmişti” diyor. Genç Hakkı Süha’yı taşlıkta bir deniz subayı karşılamıştı; birlikte yukarı çıkıp Emin Dede’nin odasına girdiler. İçerisi bir hayli kalabalıktı; başköşede kır saçlı ve heybetli bir adam, öteki köşede ise yüksek sesle konuşarak keyifli keyifli gülen, “gözleri mavi şimşekli, sarı sakallı” bir zat oturuyordu. Hakkı Süha birinin devrin en büyük hânendesi Tophaneli Sadık Bey, diğerinin ise Emin Efendi’nin ağabeyi meşhur hattat Ömer Vasfi Efendi olduğunu daha sonra öğrendi.
+   <br>
+    <br>
+     Mehmet Emin Efendi’den üç yaş büyük olan Ömer Vasfi Efendi, Tophane’deki evde 1880 yılında doğmuş, İbtidai’yi bitirdikten sonra aynı semtteki Feyziye Rüşdiyesi’ne devam ederken Çukurcumalı Kadri Efendi’den sülüs ve nesih meşketmişti. Daha sonra Aziz Efendi’den ta’lik ve sülüs, Hacı Kâmil Efendi’den sülüs ve divanî, Sami Efendi’den celî sülüs ve celî divanî meşkeden Ömer Vasfi Efendi nekre ve nüktedan bir adamdı; babaları Hâfız Eyüp Sabri Efendi vefat ettikten sonra onun yerine Hırka—i Şerif Camii’ne hatip tayin edildiği için Hatip Ömer Efendi diye de anılırdı. İki kardeşin birlikte yaşadığı zamanlara yetişenler, Tophane’deki evin sadece Emin Dede’nin ney’ini değil, Ömer Vasfi Efendi’nin hoş sohbetini dinlemeye gelenlerle de dolup taştığını söylerler. Şeyhülislam Mustafa Sabri Efendi, bir gün onu dinledikten sonra “Ayol bu Ömer Efendi değil, ömür efendi!” demişti.
+     <br>
+      <br>
+       Ömer Vasfi Efendi’nin salı günleri Sâmi Efendi’ye meşke giderken elinden tutup beraberinde götürdüğü kardeşi Emin Efendi sadece hüsnühatta değil, musikide de benzersiz bir kabiliyete sahipti; o da Kadri Efendi’den sülüs ve nesih, ağabeyi ile ara sıra gittiği Sâmi Efendi’den de celî meşk ediyordu. Bu arada Nusretiyye Camii kayyumlarından Hafız Hâşim Efendi’den düyek usulüyle başlayarak Kutbunnâyî Osman Dede Efendi’nin Rast Âyini’ni, geceleri de Galata Mevlevihanesi’ne giderek kudümzenbaşı Raif Dede’den başka önemli âyinleri geçmişti. Henüz çocuk denecek yaşta olmasına rağmen öğrenme aşkı ve heyecanı sonsuz denecek ölçüdeydi. Aziz Dede’yi Raif Dede’ye gidip gelirken keşfetmiş ve neye onu dinledikten sonra heves etmiş olmalıdır. Aziz Dede’den ney üflemeye başladığı zaman muhtemelen on üç ondört yaşlarındaydı; aynı yıllarda ağabeyi ile birlikte meşke gittiği Sami Efendi, can dostu Aziz Dede’nin de talebesi olduğunu bildiği Emin’den her seferinde ney üflemesini ister. “Bu oğlanda kudema tarzı var, dinledikçe safalanıyorum!” derdi.
+       <br/>
+       <br/>
+       Aziz Dede’den ne almak mümkünse hepsine sahip olmak için yıllarca Galata Mevlevihanesi’ne ve Dede’nin Üsküdar’daki evine gidip gelen Emin Efendi, bir yandan da Şevket Gavsi ve Rauf Yekta Beylerden musiki nazariyatıyla Hamparsum ve alafranga nota sistemlerini öğreniyordu. Halil Dikmen’in Turgut Cansever’e anlattığına göre, Aziz Dede’ye derse gittiği bir gün hırkasını çıkarırken yeninden alafranga nota sayfaları düştü. Aziz Dede notaları görünce “Bu ne?” diye haykırıp hatırı sayılır iki tokat aşkettiği genç öğrencisini kovdu. Emin Efendi, küsmek şöyle dursun, tam dokuz ay Aziz Dede’nin Üsküdar’daki evine gidip kapısında bekledi. Aziz Dede pencereden bakıyor, gelenin Emin olduğunu anlayınca kapıyı açmıyordu. Genç Emin, çok soğuk bir kış günü çatır ayaza rağmen Dede’nin açılmayan kapısı önünde inatla bekledi. Sonunda üşütüp hasta olmasından endişe ederek öğrencisini içeri alan ve affeden Aziz Dede’nin bu şuurlu tavrı, hiç şüphesiz, bir eseri notaya almakla meşk ederek ezbere almak arasındaki farkı çok iyi bilen bir sanatkârın geleneği bir sonraki nesle hocalarından devraldığı saflıkta aktarma arzusunu ifade etmektedir. Bu eğitimin son derece sağlam bir ahlâk anlayışıyla birlikte verildiğini belirtmekte de fayda vardır. Eski sanatkârların hayatları dikkatle incelenirse, en müteşerrisinden en rind—meşrebine kadar, hepsinin aynı zamanda mükemmel birer ahlâk adamı oldukları görülür. Bildiklerini öğretirken maddî hiçbir karşılık beklemezler; bekledikleri sadece samimiyet, kabiliyet ve öğrenme aşkıdır. Aziz Dede’nin Emin Efendi’yi dokuz ay inletmesinin de eğitim sürecine dahil olduğu ve talebesinin sabrını, kararlılığını ölçtüğü düşünülebilir.
+       <br/>
+       <br/>
+       Modern insanın kolay kolay anlayamayacağı bu eğitim sistemi ve ahlâk anlayışı metîn seciyeli ilim ve sanat adamlarının yetişmesini sağlardı. Refii Cevad Ulunay’ın anlattığı bir hadise, bu sanat ve ahlâk eğitiminin niteliği hakkında önemli ipuçları taşımaktadır. Sâbık Mısır Kralı I. Fuad, babası Hidiv İsmail Paşa’dan kalan Hâfız Osman hattı bir Kur’an’ın eksik sayfalarını tamamlatmak ister. Birçok hattatı dolaştıktan sonra başvurduğu Reisülhattatin Kâmil (Akdik) Efendi, bunu ancak Emin Efendi’nin başarabileceğini söyler. Bütün eski hattatların yazılarını asıllarından asla tefrik edilemeyecek bir ustalıkla yazabilen Emin Efendi, işi bir şartla kabul edebileceğini bildirir. Yazdığı sayfaların bir tarafına imzasını koyacaktır. I. Fuad razı olmaz ve imzasını koyma şartını kaldırdığı takdirde teklif ettiği bin lirayı iki katına çıkarabileceği haberini iletir; fakat Emin Efendi “Ben bir hattatım, sahtekâr değil. Hattımı Hafız Osman merhumun rûhunu rencide edecek surette istismar etmem ve ettirmem. İki bin değil, on bin verseniz imzasız yazmam!” diyerek bu küçük serveti şiddetle reddeder.
+       <br/>
+       <br/>
+       Aslında Emin Dede kendi imzasına hiç de meraklı bir adam değildi. Ahmet Hamdi Tanpınar, Huzur romanında, yedi asırlık bir gelenekten süzülen Mevlevî terbiyesinin onda ferde ait her şeyi sildiğini, “bu halîm, ilhamlı ve sabırlı adamı” âdeta “bir nevi hüviyetsizliğin içinde” erittiğini söyler. Huzur’un kahramanı Mümtaz ona baktıkça, Neşâtî’nin “Ettik o kadar ref’i taayyün ki Neşâtî / Âyîne—i pür—tâb—ı mücellâda nihânız” beytini hatırlamaktadır. Açıkçası, üflediği neyden daha narin bir görünüşe sahip olan bu zarif Mevlevi “Bir medeniyetin en yüksek cihaz olarak kendisini seçtiği insanlardan” biridir; gözlerine dikkat edildiği takdirde, “maddesinin çok üstünden konuştuğu” hemen farkedilir. Mümtaz’ı tanıştıkları gün gözleriyle yakalamış, kendisini dış görünüşünden hareketle tanımaya çalışan bu mütecessis genci tek kelime bile kullanmadan şöyle azarlamıştır: “Neden maddemle bu kadar meşgulsün? Ne ben, ne de senin sanatım dediğin şey, zannettiğin kadar mühim değildir. Elinden gelirse senin de, benim de içimizde konuşan sırra, âlemşümul sevgiye yüksel!”
+       <br/>
+       <br/>
+       Tanpınar, “ebediyet yıldızı” diye tarif ettiği Emin Efendi’de, haklı olarak, herhangi bir sanatkârane edayı ve şahsiyetini bir uca taşıyarak orada kendi iç fırtınalarıyla yaşamış olmanın verebileceği değişikliği aramayı beyhude bir gayret olarak görür. Beethoven, Wagner, Debussy, Liszt, Borodin gibi Avrupalı sanatkârların çılgın hiddet ve kinleri, bütün hayatı kendileri için hazırlanmış bir sofra zenneden iştihaları ve bunları tek başlarına yüklenmek için imkânsız bir Atlas gayretiyle gerilmiş gururları Emin Efendi’de yoktur. Bütün benzerleri gibi bir kile buğdayın içinde bir tane olarak yaşamayı seven “bu şöhretsiz dervişin hayatı üstüste kendi şahsını inkârdan ibarettir”. Hüsnühatta da birinci sınıf bir sanatkâr olduğu halde —Mustafa Râkım’ın ağabeyi İsmail Zühdî Efendi’nin vefatından önce kendi tarzını ortaya koymaktan ısrarla kıçınması gibi— Ömer Vasfi Efendi’ye hürmeten bu tarafını hiç ön plana çıkarmayıp talebe yetiştirmemesi, Tanpınar’ın görüşünü doğrulamaktadır.
+       <br/>
+       <br/>
+       Emin Efendi, sadece ney’in esrârını ve metin bir ahlâkı değil Mevlânâ sevgisini ve Mevlevî terbiyesini de meşk ettiği Aziz Dede’yi 1905 yılının 7 Mart’ında kaybetti. Artık Bahariye Mevlevihanesi Şeyhi Hüseyin Fahreddin Dede Efendi’ye devam ediyor, bilmediği peşrev ve semâîleri geçiyordu. Avni Aktuç, hoşsedanın Emin Dede bölümünde onu ilk defa büyük dayısı Fahreddin Dede’nin kütüphaneli odasında gördüğünü belirterek “Emin Dede, şeyhi Hüseyin Dede Efendi nây üflerken vecde gelir, sandalyeden kalkar, yere oturur, dizlerini öper, o büyük üstâdı hayranlıkla dinlerdi” diyor.
+       <br/>
+       <br/>
+       Devam edecek
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13053), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214454/http://www.aksiyon.com.tr:80/detay.php?id=13053)

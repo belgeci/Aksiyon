@@ -1,0 +1,277 @@
+# Futbol değil yönetenler nankör
+
+*Behram Kılıç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143606im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050117143606im_/http://www.aksiyon.com.tr/resim/517/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Abdullah Ercan, şampiyonluğu hedefleyen takımlarda top oynadıktan sonra kümede kalma mücadelesi veren İstanbul’la anlaştı. Yıldız oyuncu F.Bahçe’de kadro dışı kalmasından, 2002 Dünya Kupası’nda oynayamamasına kadar herşeyi Aksiyon’a anlattı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bir futbolcunun kolay kolay yaşayamayacağı sıra dışı bir spor hayatı oldu. Başarıdan da başarısızlıktan da daha fazlasını gördü. Yıllarca ülkenin en iyi sol kanat oyuncusu olarak yeşil çimlerde top peşinde koştu. Trabzonspor’da başlayan serüveni, F.Bahçe’de devam etti. 2002 Dünya Kupası’nda Uzakdoğu’ya giden milli takım kafilesinde forma giymeyen tek futbolcu olarak tarihe geçti. F.Bahçe’de hâlâ bilinmeyen bir sebeple kadro dışı kaldı. G.Saray’a gittiğinde amacı kendini ispatlamaktı. Sakatlıklar buna müsaade etmedi. Doktorlar “Artık futbol oynayamazsın” dediği anda kendini düşmemeye oynayan devletin takımı İstanbulspor’da buldu. İniş ve çıkışlarla dolu bir spor hayatı olan bu futbolcunun ismi Abdullah Ercan.
+   <br>
+    <br>
+     1995 yılında Türkiye Gazetesi onunla ilgili çarpıcı bir manşet atar: “Abdullah bir hafta içerisinde Avrupa yolcusu.” Gazetenin Trabzonspor muhabiri Tahir Kum, manşetle yetinmez, alt başlıkta “Bu gazeteyi kesip saklayın” diye bir ifade kullanır. Bu manşeti hatırlattığımızda Abdullah Ercan o günleri şöyle özetliyor: “Evet, Tahir öyle bir haber yapmıştı. Hatırlıyorum. Doğruydu. Çünkü Deportivo La Coruna beni istemişti. Uçak biletlerimi gönderdiler. O zaman başkanımız Faruk Özak çok rica etti, gitmemem için. Çok sevdiğim bu insanları kıramadım. Aslında biraz da korku vardı. Şimdiki gibi Avrupa’ya giden futbolcu yoktu.”
+     <br>
+      <br>
+       -Sonra Trabzonspor’da şampiyonluğu kaçırdınız...
+       <br/>
+       <br/>
+       Çok iyi oynuyorduk. F.Bahçe’yi eze eze yenip şampiyon olmak istemiştik. Nasip değilmiş. İki kere geldiler ve kazandılar. Eğer biz kazansaydık, birkaç takviye ile o yıllarda G.Saray’ın yaşadığı Avrupa başarısını elde edebilirdik. Hatta G.Saray’ın 4 yıl üst üste şampiyon olmasının önünü de kesebilirdik.
+       <br/>
+       <br/>
+       -Ardından F.Bahçe’ye gittin...
+       <br/>
+       <br/>
+       O yıllar bunu söyleyemedim. Ama şimdi rahatlıkla söylüyorum. Ogün ile ben F.Bahçe’ye gitmedik. Bizi başkanımız M.Ali Yılmaz 7 milyon dolara F.Bahçe’ye sattı. Bize de gidin siz ne kadar istiyorsunuz onun pazarlığını yapın dediler.
+       <br/>
+       <br/>
+       -Trabzon taraftarı hâlâ sana tepki gösteriyor.
+       <br/>
+       <br/>
+       Ben onlara ne yaptım ki, imza at dediler attım. Avrupa’ya gitme dediler gitmedim. Üstelik Ogün’le birlikte 7 milyon dolar para kazanmalarına vesile olduk. Ben tepkiyi şuna bağlıyorum. Trabzon taraftarı beni çok seviyordu. İstanbul’a gideceğime ihtimal vermiyorlardı. Büyük sevgiler büyük nefretleri doğurur. Tepkinin bu kadar şiddetli olmasının sebebi bence bu. Şimdi İstanbulspor’dayım, bana artık tepki göstermesinler.
+       <br/>
+       <br/>
+       -F.Bahçe’deki ilk yılında Pendik yenilgisi, Rüştü’nün dövülmesi gibi sıra dışı olaylar var.
+       <br/>
+       <br/>
+       1999-2000 sezonuydu. F.Bahçe kendi içinden bir Fatih Terim düşlüyordu. Onun için Rıdvan’ı hoca yaptılar. Başarılı olamadı. O sezon üç hoca değiştirdik. Preko, Sergen, Alpay, Ogün gibi oyuncular yeniydi. Bireysel olarak iyi futbolculara sahiptik. Bir türlü takım olamadık. F.Bahçe büyük beklentileri olan bir camiaydı. Artık her türlü olaya gebe bir hal almıştık. Bu ortamda Rüştü dövüldü.
+       <br/>
+       <br/>
+       -Milenyum’da Mustafa Denizli ile şampiyonluk geldi.
+       <br/>
+       <br/>
+       Evet. Denizli gelir gelmez yaptığı ilk konuşmasında ‘Bu sezon biz şampiyon olmalıyız’ dedi. G.Saray’ın arka arkaya elde ettiği başarılar vardı. Çok üst düzeyde bir futbol oynamadık. Arkadaşlık da olağanüstü değildi. Ama kazandıkça inancımız arttı. Yarış son haftalara kadar sürdü. Biz daha çok istedik ve şampiyon olduk.
+       <br/>
+       <br/>
+       -Aziz Yıldırım’ın sıkça soyunma odasına geldiği doğru muydu?
+       <br/>
+       <br/>
+       Ben başkanı soyunma odasında başarılar dilemesinin dışında hiç görmedim. Bir tek G.Antep maçı hariç. İlk yarı 3-0 gerideydik. Başkan geldi. Fizik olarak çok kötüydü: ‘Onlar size üç tane attıysa, siz ikinci devre niye dört  gol atamayasınız’ dedi. Etkili bir konuşmaydı. Tesirini gösterdi ve biz maçı 4-3 aldık. G.Antep kazansaydı, şampiyon olurdu.
+       <br/>
+       <br/>
+       -Bir sezon sonra Denizli’nin görevine son verildi. Yerine gelen Werner Lorant’la yıldızın barışmadı.
+       <br/>
+       <br/>
+       Futbol oynayışımı beğenmiyordu. Beni istemediğini birkaç kez söyledi. Kadro dışı bıraktı. Bu futbol hayatımda ilk kez başıma geliyordu. O sıralar G.Saray’a Fatih hoca yeni gelmişti. Bana teklifte bulundu. Ancak, F.Bahçe Lorant’ın istememesine rağmen benimle anlaştı. Yönetim G.Saray’da başarılı olmamdan korkuyordu.
+       <br/>
+       <br/>
+       -Lorant başarısız oldu ve yerine Oğuz Çetin geldi.
+       <br/>
+       <br/>
+       Oğuz hoca beni affetti. Forma verdi. Milli takıma kadar yükseldim. Takımda ikinci kaptan oldum. Ancak Elazığ’da oynanan ve 3-3 biten bir maçtan sonra benimle beraber 4 arkadaşım daha kadro dışı bırakıldık.
+       <br/>
+       <br/>
+       -Sebebi hiç açıklanmadı. Ancak Atilla Kıyat “Açıklarsak, toplum önüne çıkamazlar” dedi.
+       <br/>
+       <br/>
+       Evet, sebebi hiç açıklanmadı. Ben daha sonra Atilla ağabey ile bu sözü için konuştum. Bana ifadesinin yanlış anlaşıldığını söyledi. Lakin kafalarda hep “Demek ki bu oyuncular çok kötü bir şey yaptı” fikri kaldı.
+       <br/>
+       <br/>
+       -Oğuz hocanın rolü var mıydı?
+       <br/>
+       <br/>
+       Bence tamamen yönetimin tasarrufuydu. Takımın durumu kötüydü ve kurban olarak bizi seçtiler.
+       <br/>
+       <br/>
+       -Bugün kadro dışı kalmanın nedenlerini öğrenebildin mi?
+       <br/>
+       <br/>
+       Ben o günlerde Oğuz hocayı aradım. Hocam ben Abdullah dedim. Telefonu yüzüme kapattı. Birkaç dakika sonra bir daha aradım. Bu sefer telefonu komple kapatmıştı. Bir daha da hiç aramadım. Kimseye de sormaya yeltenmedim.
+       <br/>
+       <br/>
+       -Bir de F.Bahçe’de futbolcuların taraftarlara para verdiği söylenir.
+       <br/>
+       <br/>
+       Valla ben ne Trabzon’da, ne F.Bahçe’de ne de G.Saray’da hiç kimseye para vermedim. Vermem de.
+       <br/>
+       <br/>
+       -F.Bahçe’deki futbolunla Trabzon’dakini kıyaslayabilir misin?
+       <br/>
+       <br/>
+       Trabzon’da belli bir yere gelmek için çok çalışmıştık. Takım olarak, arkadaşlık olarak çok iyiydik. Ancak orada şampiyonluk yaşamadım. Bu zevki F.Bahçe’de tattım. Şampiyonlar Ligi’nde oynadım. Futbolumu ise sizler karşılaştırabilirsiniz.
+       <br/>
+       <br/>
+       -F.Bahçe’den ayrılarak G.Saray’a gittin. Bu seni korkutmadı mı?
+       <br/>
+       <br/>
+       Hayır. Çünkü G.Saray’a giderken çok istekliydim. F.Bahçe camiasına kendimi ispatlamak istiyordum. Aslında Fatih hoca bir sezon öncesi beni çok istemişti. O zaman Hakan Ünsal alınmamıştı. Ben gelmeyince Hakan Ünsal’ı İngiltere’den getirtti. G.Saray’a gittiğim yıl 8-9 hafta yataklardan kalkamadım. Geçtiğimiz sezon ortasında da Fatih hocayla konuşarak karşılıklı olarak sözleşmemi feshettik. Orada oynayamadığıma çok üzüldüm.
+       <br/>
+       <br/>
+       -Sanırım iki ameliyat geçirdin..
+       <br/>
+       <br/>
+       İsviçre’de iki ameliyat oldum. En son geçen nisanda bir ameliyat geçirdim. Psikolojik olarak çok kötü durumdaydım. Futboldan kopmak istemiyordum. Ama ameliyatlardan sonra yaptığım düz koşularda kasığımdaki ağrılar yeniden depreşiyordu. Doktor ‘Futbolu bırakmalısın’ dedi. Yunanistan’a gittim. Orada iğneyle tedavi yaptırdım. Haziranda da iyileştim. Ve yeniden futbola döndüm.
+       <br/>
+       <br/>
+       -Kulübün içinde bulunduğu duruma rağmen İstanbulspor’u tercih ettin.
+       <br/>
+       <br/>
+       Şartlar gerçekten çok kötü. İstanbul’da kurulu bir düzenim vardı. Buradan ayrılmak istemedim.
+       <br/>
+       <br/>
+       -Düşmemeye oynamak nasıl bir duygu...
+       <br/>
+       <br/>
+       Tabii ki kötü. Zaten durumumuz herkesin malumu. Fakat takımda iyi oyuncular var. Kendimize güven noktasındaki eksikliklerimizi giderirsek ligde kalırız.
+       <br/>
+       <br/>
+       -Daha önce oynadığın üç takım ise şampiyonluk için yarışıyor.
+       <br/>
+       <br/>
+       Trabzon çok disiplinli oynuyor. Ama yıllardır bir maç kaybetse de eleştirsek diye bekleyenler var. Bakın iki hafta puan kaybettiler, sanki lig bitmiş gibi eleştiriliyorlar. F.Bahçe bireysel olarak çok kaliteli oyunculara sahip. G.Saray bugün çok iyi. Ama bence belli bir yere kadar gelip yorulacaklar. Yarışın Trabzon ile F.Bahçe arasında geçeceğini düşünüyorum.
+       <br/>
+       <br/>
+       -Abdullah Ercan’ın geriye dönüp baktığında en büyük hatası neydi?
+       <br/>
+       <br/>
+       En büyük hatam Avrupa’ya gitmemekti. Ama inşallah antrenör olarak giderim.
+       <br/>
+       <br/>
+       -Futboldan kopmak yok yani.
+       <br/>
+       <br/>
+       Önceleri ticareti düşünüyordum. Sonra ticaretin bana göre olmadığını anladım. Antrenör olacağım.
+       <br/>
+       <br/>
+       -Ama Türkiye’de çok antrenör var.
+       <br/>
+       <br/>
+       Var ama. Benim gibi deneyimleri olanların sayısı çok az.
+       <br/>
+       <br/>
+       -Bir de hep futbol nankördür derler. Sence...
+       <br/>
+       <br/>
+       Bence futbolu yöneten insanlar nankör. Buna teknik direktörler de dahil.
+       <br/>
+       <br/>
+       -Sen de hoca olacaksın.
+       <br/>
+       <br/>
+       Ama ben öyle davranmayacağım. İdmana çıkmayan oyuncuyu oynattığın zaman sen nankörlük yapıyorsun. Oyuncuya para vermediğin zaman nankörlük yapıyorsun.
+       <br/>
+       <br/>
+       -Ya futbolcular?
+       <br/>
+       <br/>
+       Futbolcuların nankör olduğunu düşünmüyorum.
+       <br/>
+       <br/>
+       -Başından geçenleri anlatan bir kitap yazmayı düşündün mü?
+       <br/>
+       <br/>
+       Düşünmedim. Ama olabilir. Ben 1990 yılında günlük yazıyordum. İki ay kadar yazdım. Hiç unutmuyorum. İlk günkü sayfaya ‘Hayattaki isteklerim’ başlığıyla şunları yazmıştım: “Allahım bana yeteri kadar para ver, büyük takımlarda oynayayım, milli formayı giyeyim, Avrupa’ya gideyim, iki hayırlı evlat sahibi olayım, insanlardan saygı ve itibar göreyim’’. Allah’a şükürler olsun Avrupa ve iki çocuk sahibi olmak haricinde çoğu isteğim gerçekleşti. (Abdullah’ın Utku adında bir oğlu var).
+       <br/>
+       <br/>
+       GÜNEŞ HAKKINDA KONUŞMAK İSTEMİYORUM
+       <br/>
+       <br/>
+       - 2002 Dünya Kupası.
+       <br/>
+       <br/>
+       Şenol Güneş’le ilgili soru sorarsan cevap vermeyeceğim.
+       <br/>
+       <br/>
+       - Ama bu çok önemli.
+       <br/>
+       <br/>
+       Çok önemli biliyorum ama söylemek istediklerimi söyleyemiyorum. Ağzımı açtığım zaman kapatamam. O yüzden cevap vermek istemiyorum.
+       <br/>
+       <br/>
+       - Daha sonra kendisiyle hiç görüştün mü?
+       <br/>
+       <br/>
+       Hiç görüşmedim.
+       <br/>
+       <br/>
+       - Seni yine milli takıma aldı ama...
+       <br/>
+       <br/>
+       Almış olabilir. Bir şey söylemek istemiyorum onun hakkında.
+       <br/>
+       <br/>
+       - Anlaşılan seni çok etkiledi o olay.
+       <br/>
+       <br/>
+       Etkilemez mi? Elemelerdeki 10 maçın 9’unda oynadım. Kupa’ya gidiyorsun 5 dakika oynamıyorsun.
+       <br/>
+       <br/>
+       - Devlet Üstün Hizmet madalyasının verildiği törene gitmemen bir tepki miydi?
+       <br/>
+       <br/>
+       Hayır. Bununla bir alakası yok. Sakatlığım vardı. Onun için gidemedim Ankara’ya.
+       <br/>
+       <br/>
+       - Şenol hoca kupa öncesi Ogün’ü de kadro dışı bırakmıştı.
+       <br/>
+       <br/>
+       Ogün’e sor bak ne cevap verecek.
+       <br/>
+       <br/>
+       - Maç kadrolarında vardın değil mi?
+       <br/>
+       <br/>
+       Evet vardım. Bir tek üçüncü kaleci Zafer’le ben oynamadık.
+       <br/>
+       <br/>
+       - Şenol Güneş’in daha sonra gönderilişini nasıl karşıladın?
+       <br/>
+       <br/>
+       Ben olsaydım Dünya Kupası üçüncülüğünden sonra bırakırdım. Buralara getirmezdim durumu.
+       <br/>
+       <br/>
+       - Yerine getirilen Ersun hoca için görüşlerin?
+       <br/>
+       <br/>
+       Ersun hoca iyi bir seçim. Hakan Şükür olayına da cevap vereyim mi?
+       <br/>
+       <br/>
+       - Sorularda o da var tabii..
+       <br/>
+       <br/>
+       Ben hoca olsam Hakan’ı iyiyse milli takıma her zaman alırım.
+       <br/>
+       <br/>
+       - Ama o ‘taktik gereği almadım’ dedi.
+       <br/>
+       <br/>
+       Taktik gereği ise önce Hakan Şükür alınmalı. Ben buna inanmıyorum. Eğer form durumuna göreyse yine Hakan alınmalıydı.
+       <br/>
+       <br/>
+       - Sen, Ogün, Hakan ve diğerleri Milli Takıma yaptıkğınız bunca hizmete karşılık, bunun karşılığını aldınız mı?
+       <br/>
+       <br/>
+       Almadık. Ogün’ün milli takımdan ayrılışı şık değildi, Hakan’ın da öyle. Çok şükür ben bunları yaşamadım. 1990 ve 2000 yılları arasında milli takımı sırtlayan oyuncular daha farklı bir şekilde onore edilmeliydiler.
+       <br/>
+       <br/>
+       - Bir taltif bekliyorsunuz yani. Mesela bu bir maç olabilir mi?
+       <br/>
+       <br/>
+       Yo o zor. Bir plaket verilebilir.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### CEMAL MORADAOĞLU, 08-Kasım-2004
+> Gizli gerçekleri açıklasın: 
+> Abdullah Ercan'ı zorla Fenerbahçe'ye gönderdiler gibi bir hava estiriliyor. Trabzonspor hiçbir futbolcusunu kendi elleriyle rakibine teslim etmez. Ben Abdullah'ı her zaman beğenmişimdir. Gizli bir gerçek varsa bunu ortaya çıkarsın, her şeyi açıklasın.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17601&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143606/http://www.aksiyon.com.tr:80/detay.php?id=17601&yorum_id=1)

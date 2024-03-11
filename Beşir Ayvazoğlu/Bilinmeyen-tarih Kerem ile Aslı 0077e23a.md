@@ -1,0 +1,73 @@
+# Kerem ile Aslı
+
+*Beşir Ayvazoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302180955im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302180955im_/http://www.aksiyon.com.tr/resim/307/66.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Masal bu ya, Isfahan şahı Anka Bey’in tek üzüntüsü çocuklarının olmamasıydı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Günlerden bir gün yaşlı bir derviş elinde bir elmayla çıkageldi ve hanım sultanın bu elmayı Ayazma Çeşmesi’nin başında yemesi halinde Allah’ın izniyle bir çocuklarının olacağı müjdesini verip gözden kayboldu. Anka Bey sevindi ve tellallar çıkarıp halkın çeşme başında toplanmasını buyurdu. Isfahan’da aynı derdi çeken zengin bir Ermeni Keşişi vardı; karısı haberi duyunca hanım sultana giderek elmanın bir parçasını da kendisine vermesini istedi. Hanım sultan, doğacak çocuklar ayrı cinsten olursa büyüdüklerinde başgöz edileceklerine dair söz alarak elmanın yarısını Keşiş’in karısına verdi. Hikmet—i Hüda, dokuz ay sonra Anka Bey’in bir oğlu, Keşiş’in de bir kızı dünyaya geldi. Birine Mirza, diğerine Han Sultan adını koydular. Çocuklar birbirinden habersiz büyüdüler. Bir gün Mirza rüyasında bir dünya güzeli görüp âşık oldu; çok geçmeden arkadaşı Sofu’yla birlikte av peşinde koşarken bir bahçeye girdi ve karşısında rüyasındaki kızı görünce aklı başından gitti. Burası Ermeni Keşişi’nin bahçesi, kız ise Mirza’nın sözlüsüydü. Mirza rüyanın “aslı”nı bulduğunu söyleyerek kızı yanaklarından öptü, kız ise utanarak “Kerem et, beni rüsvay eyleme!” diye yalvardı. Böylece meşhur aşk hikâyesinin kahramanları asıl adlarını bulmuş oldular: Aslı ile Kerem.
+   <br>
+    <br>
+     Bundan sonrası malûm; Isfahan şahı Keşiş’ten sözünü yerine getirmesini isteyecek, ancak kızını bir Müslümana vermek istemeyen Keşiş, bir gece gizlice Isfahan’ı terkedecektir. Ertesi gün Keşiş’in ailesiyle birlikte sırra kadem bastığını öğrenen Mirza Bey beyninden vurulmuşa döner ve arkadaşı Sofu’yla birlikte yollara düşer. Demir asa demir çarık, bütün Doğu Anadolu’yu karış karış gezerek Aslı’sını aramaya başlar. Artık o Şehzade Mirza Bey değil, Âşık Kerem’dir; sazıyla hep aşkını söylemekte, dağlarla, derelerle, kurtla, kuşla söyleşip Han Aslı’sından haber sormaktadır. O kadar büyük aşktır ki bu, başı karlı dağlar ve azgın nehirler bile sazıyla o seslenince insafa gelir, yol verirler. Bazan Kerem Aslı’nın izini bulur, fakat Keşiş her seferinde kızını kaçırmayı başarır. Böyle yıllar süren bir kaçıp kovalamaca... Sonunda kavuşurlar kavuşmasına; fakat Keşiş kızına sihirli bir elbise giydirmiştir; Kerem gerdek gecesi Aslı’nın düğmelerini bir türlü çözemez ve öyle bir âh eder ki, aşkının ateşiyle yanıp kül olur. Kerem’in küllerini toplamaya çalışırken saçları alev alan Aslı da yanarak ölecek; böylece iki âşık ancak öteki dünyada birbirlerine kavuşabileceklerdi.
+     <br>
+      <br>
+       Hikâyeyi yeniden okumak
+       <br/>
+       <br/>
+       Bu güzel aşk hikâyesi, bana sorarsanız, Türk—Ermeni ilişkilerine dair önemli ipuçları taşıyor. Hanım sultanın çocuk sahibi olmasını sağlayacak elmayı bir keşişin karısıyla paylaşması, Türk toplumunun dışa dönük ve bir arada yaşama pratiğine sahip olduğunu göstermektedir. Hanım sultanın, doğacak çocuklar büyüdüklerinde evlenmelerini istemesi de bu biraradalığı daha da köklü bir hâle getirme iradesinin tezahürü olarak okunabilir. Keşiş’in karısı hanım sultana gidip rahatlıkla elmanın yarısını isteyebildiğine göre, bu irade esasen hayata geçirilmiştir. Açıkçası Kerem ile Aslı, aslında Ermenilerin Selçuklu ve Osmanlı şemsiyesi altında belki de tarihlerinin en rahat devirlerini yaşadıklarına dair vesika değerinde bir hikâyedir. Hiç baskı görmedikleri için kendi kültürlerinin içine kapanmamış, bizimle aynı hayatı paylaşarak ortak değerler edinmiş ve bize benzemişlerdi. O kadar bizdendiler ki, birçok mesleği gönül rızasıyla onlara terkettik; çünkü güvendiğimiz “zanaatkâr” insanlardı. Ticaret de yapar, hiçbir engelle karşılaşmadan zenginleşirlerdi. Eskiden Ermenilerin de yaşadığı şehir ve kasabalarda yaşları müsait olanlar kapı komşuları Nubar Efendi’leri, Kirkor ustaları, Arşak amcaları vb. sevgiyle hatırlarlar. On dokuzuncu yüzyılda Anadolu’yu gezen Moltke, Ermenilerin Hıristiyan Türkler olduğunu zannetmiştir. Edmondo de Amicis ise onları “Ruh ve iman bakımından Hıristiyan, doğuş ve cismaniyet bakımından Asya Müslümanı” diye tarif eder. Ahmet Turan Alkan’ın Altıncı Şehir’in son baskısına ilâve ettiği “Sivaslı Ermenilere dair” başlıklı yazısını, özellikle Terzi Sebuh Usta’nın bu yazıda anlatılan hikâyesini okuyunuz, ne demek istediğimi daha iyi anlayacaksınız.
+       <br/>
+       <br/>
+       Biz yine Kerem ile Aslı hikâyesine dönelim. Çocuklar büyüdüğünde Keşiş’in sözünde durmayıp kızını bucak bucak kaçırması nasıl yorumlanabilir? Bana öyle geliyor ki, bu motif Ermeni toplumunun asimile olmamak için gösterdiği şaşırtıcı gayreti ifade etmektedir. Asırlarca aynı coğrafyada bir arada yaşadıkları için Türk ve Ermeni toplumlarının hayat tarzları hakikaten birbirine çok benzer. Fakat Ermeniler içiçe yaşanan hayata rağmen kanların birbirine karışmasını önlemek için son derece titiz ve kıskanç davranmışlardır. Kerem ile Aslı hikâyesi çerçevesinde söylenen bir mani, bence, taraflardan birinin din değiştirmedikçe evliliğin mümkün olmadığını gösteren dikkate değer bir sözlü belgedir: “Bahçelerde mor meni / Verem ettin sen beni / Ya sen İslam ol ahçik / Ya ben olam Ermeni”.
+       <br/>
+       <br/>
+       Hem Ermeni, hem Bektaşi
+       <br/>
+       <br/>
+       Ermenilerle asırlarca bir arada yaşamış olmanın kaçınılmaz sonuçlarından biri de her seviyede cereyan eden kültür alışverişidir. Türk âşık edebiyatına paralel bir Ermeni âşık edebiyatının bulunduğunu uzun zamandan beri biliyoruz. Prof. Dr. M. Fuat Köprülü, 1922 yılında yayımlanan “Türk edebiyatının Ermeni edebiyatına tesiri” başlıklı ünlü makalesinde bu meseleyi enine boyuna tartışmıştı. Ermeni saz şairlerine verilen “aşuk” adının “âşık”tan bozma olduğunu anlamak için Ermenice bilmek gerekmez. Ermenice âşık edebiyatının yanısıra, Türkçe şiir söyleyen Ermeni âşıkları da vardı. Mesela Âşık Vartan, Hakkî, Mecnunî, Civan, Papa Yero, Kirkor Seydî..* Bazı şairleri yazdıkları şiirlerden yola çıkarak teşhis etmek imkânsızdır. Üstelik bunların bir kısmı Bektaşidir. Belki şaşıracaksınız; bir zamanlar, Bektaşi tarikatine mensup çok sayıda Ermeni şair vardı.
+       <br/>
+       <br/>
+       Asırlarca birlikte yaşamışlığımız, Ermenice’nin de Türkçe’den etkilenmesine de yol açmıştır. Bu konuda ilk çalışmalar H. Acaryan’ın Ermeni Diline Türk Dilinin Tesiri ve Ermenilerin Türklerden Aldıkları Sözler (1902) ve Arşak Çobanyan’ın Ermeni Âşıkları (1906) adlı kitapları ile Fuat Köprülü’nün yukarıda adı geçen makalesidir. Daha sonraki yıllarda aynı konu Azeri ve Ermeni araştırmacılar tarafından değişik açılardan ele alındı. Mesela Azeri araştırmacı Yusuf Vezir Çemenzeminli’nin Ermeni Aşugları Tarafından Söylenmiş Halk Edebiyatı ve Türk Edebiyatında Ermeni Müellifleri adlarını taşıyan kitaplarıyla G. Antonyan’ın Nizami ve Ermeni Edebiyatı (Baku 1947 ve Ermeni—Azerbaycan Halglarının Edebi Elagası (Bakü 1955) adlı kitapları ilk akla gelenlerdir**.
+       <br/>
+       <br/>
+       “Hançer—i ebrûsu saplandı dile”
+       <br/>
+       <br/>
+       Musikiye gelince.. Klasik Türk musikisiyle ilgilenenler, Ermeni asıllı ne kadar çok bestekâr ve icracı bulunduğunu bilirler. Yılmaz Öztuna’nın Türk Musikisi Ansiklopedisi’ni tarayınız, onlarca Ermeni ismiyle karşılaşacaksınız. III. Selim döneminde, musikimizin kayda geçirilmesi için bir nota sistemi geliştiren Hamparsum Çerçiyan (1765—1814) Ermeni’dir. Bazı müzikologlar Hamparsum notasının Türk musikisi için Avrupa nota sistemine nazaran daha elverişli olduğu kanaatindedirler. Nikogos ve Asdik Ağa’lar gibi önemli bestekârlar da yetiştiren Ermeniler, Türk musikisine ciddi katkılarda bulunmuşlardır. Mesela Nikogos Ağa’dan “Bari felek ben yüzüne söyleyim” (Acem Kürdi yürük semâî) ve “Niçin a sevdiğim niçin”i (Hicaz şarkı), yahut Asdik Ağa’dan “Hançer—i ebrûsu saplandı dile”yi (Kürdîli Hicazkâr Şarkı) dinleyin, gönül telleriniz Dede Efendi’nin eserlerini dinlerken nasıl titriyorsa öyle titreyecektir. Ermeni vatandaşlarımız hiç şüphesiz, musikide bizimle aynı dili konuşuyor, aynı duyguları terennüm ediyorlardı. Halk müziğinde de öyle. Bir türküye başka nerede aynı anda iki farklı toplum sahip çıkabilir? “Sarı Gelin” türküsü etrafında yapılan heyecanlı tartışmaları hatırlayınız!
+       <br/>
+       <br/>
+       XIX. asırda Osmanlı yönetiminin mimariyi Ermeni mimarlara teslim ettiğini, yani Balyan ailesini unuttuğumu zannetmeyiniz. Ama o ayrı bir bahis!
+       <br/>
+       <br/>
+       Her neyse, bu kadar sevdiğimiz, benimsediğimiz ve “millet—i sâdıka” olarak gördüğümüz için hariciyemizi bile ellerine teslim ettiğimiz Ermenilerden durup dururken nefret etmeye başlamak ve soykırıma kalkışmak hiçbir mantığa sığmıyor. Bu işte ne Kerem’in suçu var, ne Aslı’nın. Güzeller güzeli Aslı’nın “hançer—i ebrû”su gönlümüze, Keşiş’in “hançer—i hakikî”si bağrımıza saplanmıştır.
+       <br/>
+       <br/>
+       O halde hayatî sorunun Keşiş’e ve onu kullananlara sorulması gerekir.
+       <br/>
+       <br/>
+       * Bu âşıklar hakkında Köprülü’nün adı geçen makalesine (Edebiyat Araştırmaları I, Ötüken Neşriyat, İstanbul 1989, s. 239 vd) ve Türk Sazşairleri III (Milli Kültür Yayınları, Ankara 1962) adlı kitabına bakınız.
+       <br/>
+       <br/>
+       **Bu konuda geniş bilgi için Prof. Dr. Fikret Türkmen’in “Tarih boyunca Türk—Ermeni kültür ilişkileri” (Kubbealtı Akademi Mecmuası, nr. 4, Ekim 1998) başlıklı makalesine bakınız.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13807), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302180955/http://www.aksiyon.com.tr:80/detay.php?id=13807)

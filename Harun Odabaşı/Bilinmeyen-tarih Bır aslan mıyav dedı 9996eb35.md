@@ -1,0 +1,118 @@
+# Bır aslan mıyav dedı
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302225138im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302225138im_/http://www.aksiyon.com.tr/resim/292/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1980’den sonra filizlenen Anadolu sermayesine ‘Anadolu Kaplanları’ unvanının verilmesi 1996 yılına rastlıyor. O dönemde bu yakıştırmayı, gerek bu unvana layık görülen işadamları gerekse siyasiler o kadar sevdiler ki aslan—kaplan muhabbeti uzun süre gündemden düşmedi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fakat zaman içinde herşey büyüsünü kaybetti ve Anadolu sermayesi ‘Bize artık Anadolu Kaplanları diye seslenmeyin. Mutlaka bir şey söyleyecekseniz Anadolu Kedileri diyebilirsiniz. Siyasiler üzerimizde o kadar oyun oynadılar ki bizi kediye çevirdiler’ demeye başladılar.
+   <br>
+    <br>
+     Ekonomik güçleri ile ters orantılı bir desteklenme sözkonusu onlar için. İstihdamın yüzde 60’ı, ihracatın yüzde 40’ı onlardan sorulurken kredi musluklarından ancak yüzde 5 gibi küçük bir payla istifade ettiriliyorlar. ‘Siz aslansınız, kaplansınız’ edebiyatı ile sırtları sıvazlandıktan sonra cazip imkanları başkalarının hizmetine vermek onurlarına dokunuyor. 1998—99 döneminde yaşanan ekonomik krizin ağır yükünü çekmelerine rağmen hâlâ devletin onlar yokmuş gibi kararlar almalarına tahammül edemiyorlar.
+     <br>
+      <br>
+       100 yıllık hayâl: Anadolu sermayesi
+       <br/>
+       <br/>
+       Osmanlı İmparatorluğu’nun yıkılış sebepleri arasında sermaye yapısını milli yapamaması konusu önemle zikredilir. Hatta Türkiye Cumhuriyeti kurulurken bu önemli tespit dikkate alınır ve gayri müslim sermaye yerine Türk sermayesinin önü açılır. Bu açıdan Anadolu sermayesinin ayakta durması ve uluslararası pazarda rüştünü ispat etmesi son derece önemli bir göstergedir.
+       <br/>
+       <br/>
+       Birçok ekonomist Türkiye’nin ‘Anadolu Aslanları’ olarak tabir edilen KOBİ’lerle kendini bulacağını ve 21. yüzyılda dünyanın hızla değiştiği şu günlerde bu grup ile kendine çıkış bulabileceğini iddia etmekte. Çünkü bu sermaye grubu kendi kültürünün içinden çıkan bir oluşum ve kendi ayakları üzerinde durabiliyor.
+       <br/>
+       <br/>
+       Aynı zamanda Doğu kültürü ile Batı mantalitesinin sentezi olan KOBİ’ler bu bileşimi geliştirebilirlerse zamanla büyük bir dinamik güç haline gelebilecek.
+       <br/>
+       <br/>
+       Ekonomik ve sosyolojik olarak son derece önemli bir noktada olan Anadolu sermayesinin kendi konumunu ve gücünü keşfederek geleceğe dönük planlar yapması gerekiyor.
+       <br/>
+       <br/>
+       1950’den bu yana Türk ekonomisinin gelişmesi Marmara Bölgesi ağırlıklı olmuştur. Zaman içinde işçilik, kira ve elektrik gibi girdilerde maliyet artışı olunca Denizli, Uşak, Gaziantep, Çorum gibi illere göre İstanbul—İzmit hattının câzibesi kalmadı. Marmara Bölgesi’nin geleneksel sakinleri ise yıllardan beri devletle içli dışlı olmuş bir kesim. Merkez dışında kendi yağı ile kavrulup serpilen Anadolu sermayesi ile merkez sermaye arasında şimdilerde ciddi bir çekişme var. Maliyet avantajı ile iç ve dış piyasada tercih edilen Anadolu sermayesinin yükselişi bazı sermaye gruplarının işine gelmiyor.
+       <br/>
+       <br/>
+       Bankalar kendini düşünüyor
+       <br/>
+       <br/>
+       Özel bankalar da büyük sermayenin emrinde olduklarından ve kriz ortamında sanayiye kredi aktarmayı akıllıca bir iş görmediklerinden KOBİ’lere kredi vermekte çok cimri davrandılar. Bankaların kredinin üç katı teminat istemesi ve yüksek faiz uygulaması KOBİ’lerin kriz ortamında daha da yalnız kalmasına sebeb oldu. Devlet Halk Bankası’nın verdiği Acil Destek Kredisi dışında KOBİ’lere destek olamıyor. Teminatın yüksek olması ve kredinin en az 6 ay içerisinde verilmesi de bu krediyi kullanan kesimi büyük ölçüde daraltmakta.
+       <br/>
+       <br/>
+       Global kriz bütün hesapları bozdu
+       <br/>
+       <br/>
+       Anadolu sermayesinin şimdiki havasına bakmadan önce bu son iki yılda başına neler geldiğine bir bakalım: Gücünü ihracattan alan Anadolu sermayesi, önce Uzakdoğu’da başlayan sonra Rusya’yı içine alan global kriz nedeniyle üretimini azaltmak zorunda kaldılar. Uzakdoğu şirketleri ile kıyasıya bir rekabet savaşı içinde olan Anadolu sermayesi, kriz nedeniyle rakip ülkelerin aldıkları kararlardan olumsuz etkilendi. Uzakdoğu mallarındaki fiyat düşüşleri ve devalüasyon, Anadolu şirketlerinin gücünü zayıflattı.
+       <br/>
+       <br/>
+       Bir de Rusya pazarının kriz nedeniyle kapanması, özellikle tekstil sektöründeki ihracatçı firmaların kapılarına kilit vurdurdu. Bundan özellikle Rusya ağırlıklı çalışan Gaziantep gibi iller hemen etkilendiler. Ekonominin siyasi gelişmelere endekslenmesi de tuz— biber ekti. Bankaların, vâdesi gelmemiş kredi borçlarını istemeye başlaması, üreticilerin kriz nedeniyle aldığı yarayı derinleştirdi. Sonuçta, Anadolu sermayesi, alternatif pazarlar arayarak, üretim kapasitesini düşürerek, zorunlu izinler başlatarak, krizi aşmaya çalıştı.
+       <br/>
+       <br/>
+       Anadolu sermayesinin şimdiki moral motivasyonunu ölçmek için görüştüğümüz iş adamları pek hoş olmayan bir bilanço ortaya koydular. Son 2 yılı krizin pençesinde geçiren Anadolu sermayesi 2000 yılında uygulanmaya konulan ekonomik istikrar programı çerçevesinde bir çıkış yolu arıyor. Ekonomide ufak canlanma dikkatlerden kaçmazken henüz kaybedilenler telafi edilebilmiş ve kapasite kullanım oranları normale gelmiş değil.
+       <br/>
+       <br/>
+       2000, kayıp yıl
+       <br/>
+       <br/>
+       Gaziantep Sanayi Odası Başkanı Nejat Koçer, 1998—99 yıllarını genel kriz olduğu için değerlendirme dışı bıraksak bile 2000 yılını kayıp yıl hanesine yazmak zorunda olduğumuzu, Türkiye’de sanayinin kriz öncesi noktayı henüz yakalayamadığını söylüyor.
+       <br/>
+       <br/>
+       Devletin, Marmara Bölgesi yatırımcılarına göre Anadolu sermayesine üvey evlat muamelesi yaptığını iddia eden Koçer, “Marmara sermayesi Anadolu sermayesini kendisine bir tehdit gibi gördü. Anadolu’da işçilik ve elektrik ücretleri düşük olunca Anadolu belli sektörlerde Türkiye’de söz sahibi oldu. Bu Marmara’da devletle içli—dışlı şirketleri rahatsız etti” diyor.
+       <br/>
+       <br/>
+       Devlet ve özel bankaların sanayi şirketlerine yönelik tavırlarından şikayet eden Koçer’e göre devlet ve özel sektör KOBİ’leri desteklemiyor. Türkiye Halk Bankası Acil Destekleme Kredisi dışında kredi vermiyor. Teminatlar da çok yüksek.
+       <br/>
+       <br/>
+       Tayvan ve Singapur’un nasıl geliştiğini incelersek oralarda KOBİ’lerin büyümenin lokomotifi olduğu görülür. İşe taklitle başlamışlar ama şimdi kaliteli makinaları üreterek dünyaya satıyorlar.
+       <br/>
+       <br/>
+       Bireye kredi var, kuruma yok
+       <br/>
+       <br/>
+       Özel bankaların KOBİ’lere dönük tek bir enstrümanı bile olmadığını savunan Nejat Koçer, “Son iki yılda bankalar bireysel müşteriye yöneldi, kurumsal müşteriden kaçtılar. Halbuki KOBİ’ler bankalara çok yüksek kârlar bırakabilir. Büyükler hem sıkı pazarlık ediyorlar hem de kârlılıkları düşük. Ama KOBİ'lerin büyüme potansiyeli çok yüksek. Aylık yüzde 2,6 ile otomobil kredisi veren bankalar bunu şirketlere niçin veremiyor anlaşılır gibi değil.” diyor.
+       <br/>
+       <br/>
+       Anadolu Kaplanı unvanına şiddetle karşı çıkan Koçer, arkası gelmeyen iltifatlardan rahatsız olduklarını, Anadolu sermayesinin böylelikle siyasiler tarafından istismar edildiğini düşünüyor.
+       <br/>
+       <br/>
+       Alternatif pazarlar bulundu
+       <br/>
+       <br/>
+       Gaziantep’in herşeye rağmen krizden en az zararla çıkan il olduğuna dikkat çeken Koçer bu durumu şöyle izah ediyor: “Global kriz patlak verdiği andan itibaren biz alternatif pazarlar aramaya başladık ve şu anda Cezayir, Tunus, Fas pazarlarına girmiş durumdayız. Rusya pazarından doğan boşluğu böyle doldurduk. Şu anda geldiğimiz nokta kriz öncesi performansı yakaladığımızı gösteriyor. Krizden önce 93 bin işçi çalıştırırken şimdi 105 bin işçi çalıştırır hale gelmişiz. Bizim en önemli sıkıntımız ihracatta. Elektrik ve işçilik ücretleri kur artışının üstünde artıyor. Bir kaç ay dayanabilirsiniz ama belli bir noktada fiyatları artırmak zorunda kalıyorsunuz. Bu da bizim rekabet gücümüzü azaltıyor.”
+       <br/>
+       <br/>
+       İyi şeyler var ama yeterli değil
+       <br/>
+       <br/>
+       Kayseri’de Türkiye’nin sahasında en büyük 5 şirketinden biri olan Koza İplik A.Ş. Yönetim Kurulu Başkan Yardımcısı İrfan Yağmur ise piyasada 2000 yılının ilk 5 ayında bir canlanma olduğunu ancak bunun geleceğe dönük net bir iyimserliğe dönüşemediğini söylüyor.
+       <br/>
+       <br/>
+       Kaliteli ürün yapamayan şirketlerin varlıklarını sürdürmelerinin bundan sonra çok zor olacağını belirten Yağmur, kaliteye yatırım yapanların kazanacağını söylüyor. “99—2000 yılı kriz yılı olmasına rağmen firmamız 500 milyar lira kaliteye yatırım yaptı. Biz belli bir standartın üstünde mal ürettiğimiz için müşterilerimiz de seçkin bir kesim. Dolayısı ile müşteri bulma ve kaybetme konusunda sıkıntılarımızı büyük ölçüde aştık. Ancak piyasada fiyat kırarak ayakta durmaya çalışan bazı firmalar var. Bunlar yüzünden istikrarlı bir fiyat politikası yürütemiyoruz.”
+       <br/>
+       <br/>
+       Kârlılık ve piyasa canlılığı açısından şu anda iç pazarın dış pazara göre daha cazip olduğuna değinen Yağmur, ihracatta bir türlü tatmin edici fiyat tutturamadıklarından şikayetçi.
+       <br/>
+       <br/>
+       “Faizler düştükten sonra bankalar dürüst esnafın kapısını aşındırır oldu. Kriz döneminde bankaların attığı kazığı bildiğimiz için onlardan şimdilik uzak duruyoruz.” diyen İrfan Yağmur, “Enflasyonun düşmesine bir türlü alışamadık. Hâlâ 1 aydan fazla vadeli satışa yanaşamıyoruz. Kurt—kuş muhabbeti bizim moralimizi çok bozdu. Birşeyler olacağından korkuyoruz. Şirket birleşmelerini kaçınılmaz görüyoruz ama içerdeki birleşmeleri değil. Dışarda bize katkı sağlayacak yeni pazarlara girmemizi temin edecek birleşmeler bizce makbul.”diyor.
+       <br/>
+       <br/>
+       Anlaşılan Anadolu sermayesi genel kriz dolayısı ile sendelemiş ve yatırım motivasyonunu kaybetmiş durumda. Hükümet enflasyonu düşürürken piyasada istihdam yaratıcı adımlar için KOBİ’lere dönük ucuz kredilere bir yol bulmalı. KOBİ’lerdeki aşırı devletten birşeyler bekleme yaklaşımını olumlu bulmuyorum. Kendi yağları ile kavrularak ayakta durmaları daha önemli. Özel bankalar enflasyon düşerse zaten KOBİ’lere gitmeye mecbur olacaklar...
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14213), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302225138/http://www.aksiyon.com.tr:80/detay.php?id=14213)

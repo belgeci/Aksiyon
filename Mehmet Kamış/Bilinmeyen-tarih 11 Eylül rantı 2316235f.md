@@ -1,0 +1,40 @@
+# 11 Eylül rantı
+
+*Mehmet Kamış Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Tek kutuplu dünyanın patronu Amerika Birleşik Devletleri"ne iki yıl önce yapılan terör saldırısı 21. yüzyılın gerçek anlamdaki miladı oldu. Politik, ekonomik ve askeri sembollerine yapılan kamikaze dalışlar, kendini okyanuslarla emniyete almış olan dev gücün güvenlik içinde olmadığını gösterdi.
+   <br/>
+   <br/>
+   Saldırı insanları bir yandan panik ve korkuya sevk ederken, öte taraftan sabır ve tevekkülü öğretti.
+   <br>
+    <br>
+     Fransız İhtilali, 1. ve 2. Dünya Savaşı, 1917 Bolşevik ihtilali gibi, dünya tarihini değiştiren önemli olaylar arasında gösterilmeye başlandı 11 Eylül. Saldırıya ilişkin soru işaretleri hâlâ varlığını koruyor. Sonuçları ise hayatımızı doğrudan etkileyecek. Dünyadaki güç dengeleri yeniden şekillenecek. Fiyakası bozulan ABD"nin dünya egemenliğini sürdürmesinin yolu buna bağlı. Zaten o da ayağına kadar gelen bu fırsatı fazlasıyla değerlendirdi. Önce Afganistan"daki Taliban rejimini devirip Orta Asya"ya yerleşti ve Türk cumhuriyetlerine kurduğu kalıcı üslerle Rusya-Çin blokunu dağıttı, Şanghay oluşumunu sulandırdı. Ardından Irak"taki Saddam rejimine son verdi. Irak"ta kontrolü bütünüyle sağlayamasa da geri adım atmaya niyeti yok. Dünyanın en karmaşık bölgesinde sadece üsse değil, toprak parçasına da sahip oldu. Böylece petrol ve enerji havzalarının kontrolünü eline aldı.
+     <br>
+      <br>
+       Bütün bunlar bir yana 11 Eylül sektörler için de bulunmaz fırsatlar sundu. Sadece ABD"de değil bütün dünyada milliyetçilik ve vatanseverlik duygusu yükseldi. Bayrak satışları arttı. Bireysel hak ve özgürlükler kısıtlandı. 11 Eylül kitapları basıldı. İslam"a olan merak insanları Kur"an"ı anlamaya yönlendirdi. Sinema, tiyatro, müzik gibi görsel sanatların yanı sıra edebiyat da bu olaylardan etkilendi. Silah üreticileri, güvenlik şirketleri kârlarını artırdı. İkiz Kuleler"i hatırlatan hediyelik eşyalar üretildi. Yani 11 Eylül kendi pazarını oluşturdu. Travma, ranta dönüştü.
+       <br>
+        <br>
+         İyi haftalar dileğiyle.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1615 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2935), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050127150050/http://www.aksiyon.com.tr:80/yazdir.php?id=2935)

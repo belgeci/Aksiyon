@@ -1,0 +1,85 @@
+# Özlemeyi unuttum
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Eskiden, yani bizim çocukluğumuzda, bundan 10—15 sene önce, bu memlekette telefon hatlarının yeni yeni yaygınlaştığı bir dönemde gurbete ilk adımımızı atmıştık. Hem özlemeyi, hem gurbeti, hem hayatı yeni tadıyorduk.
+   <br/>
+   <br/>
+   Ayrılıklar tatlı değildi elbette. Cebimizde bulabileceğimiz 3—5 bozuk parayı biraraya getirip bir jeton alabilince neşeleniyorduk. Bir telefon kulübesi bulabilirsek ve aradığımız numarayı düşürebilirsek... işte o an ayrılığın verdiği acının tatlı bir neşe ile son bulduğu an olurdu. Özlemdi o. Hepimizin yüreğinde ihtiyaç duyduğu özlem.. Özlemin ses ile de olsa son bulduğu an mutluluk anımız idi.
+   <br>
+    <br>
+     Yıllar geçti. Teknolojiler hızla geldi geçti. Benim ülkemde de teknolojik nimetler hizmet eder oldu insanlara az az da olsa…
+     <br>
+      <br>
+       Ve internet girdi hayatımıza. Gerçek ile sahte arasında, sahici ile kandırmaca arasında bir boyut getirdi hayatımızın gizemli dakikalarına, saatlerine…
+       <br>
+        <br>
+         Belki çekingendik internetle tanışana kadar, belki de değil. Ama en azından yazabiliyorduk. Hislerimiz vardı. Dostlar, arkadaşlar edindik siber ortamın cafelerinde. Daha ileri gittik. Biraraya geldik. Buluştuk, tanıştık, görüştük, hemdem olduk. Ayrıldık, evimize vardık; internete girip kaldığımız yerden muhabbete devam ettik.. ettik.. ettik…
+         <br/>
+         <br/>
+         Sabah gözümüzü açınca bilgisayarı açıp ICQ’dan mesajlar atmaya başladık. “Alo orda mısın”, “Online olunca bana cepten bir mesaj salla” türü tırmalamalarla sanaldan reele dönüşen dostluğun dantelalarını ördük belki farkında olmadan…
+         <br/>
+         <br/>
+         Muhabbetler ilerledikçe, konuşulacak mevzular tükendikçe, geyik yapılacak konu kalmadıkça başladık siber uzayın boşluğunda adeta boşlukta dolaşmaya… Artık nete girdiğimiz dakikalar bayat, ICQ’yu açıp sLm yazmalarımız bayık gelmeye başladı… Telefon edip sesimizi duyurmamız bile tat vermiyordu artık…
+         <br/>
+         <br/>
+         Birşeyler eksikti. Mutluluğumuzu kısıtlayan, gülücüklerimizi bayatlatan birşeyler vardı. Hayatımıza absurd bir şekilde giren ve kafamızı allak bullak eden internetle belki ruhumuzu, belki kendimizi, belki aşkımızı, belki aklımızı, belki irademizi... Belki herşeyimizi kaybetmiştik… Belki de hiçbirşeyimizi…
+         <br/>
+         <br/>
+         Ama birşeyi kaybettiğimiz kesindi. Özleme yetimizi kaybetmiştik. Özlemeyi unutmuştuk.. Ama en azından birşeyi hââa özlüyorum.. Özlemeyi özlüyorum…
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Kendi web sayfanı kendin yap!
+         <br/>
+         <br/>
+         Sanal ortamın moda haline getirdiği kişisel sayfa açma olayında birçok kişi ilk etapta amatörce de olsa bilgi sahibi olup zamanla bu konuda ilerlemeyi hedefliyor genelde. İyi de yapıyorlar tabii ki. Çünkü, ofis programlarının yanında en azından Frontpage programının bilinmesi birçok iş müracaatında aranan özellik olacak birkaç yıl içinde. Yani herkesin az çok web sayfası hazırlama bilgisi, tecrübesi olması mutlaka bir değer kazandırmış olacak.
+         <br/>
+         <br/>
+         Kısa zamanda kendinize yetecek ölçüde tasarım bilgilerini www.bboz.nom.tr sitesinin Web Tasarımı Öğreniyoruz başlıklı bölümünden soru cevaplı olarak öğrenebilirsiniz.
+         <br/>
+         <br/>
+         Ayrıca, İngilizce ile sorununuz yoksa www.webreference.com adresinden de ileri seviyede bilgi edinebilir, günlük bültene abone olabilirsiniz.
+         <br/>
+         <br/>
+         Uyy, Temel internette hamsi tutiyy!
+         <br/>
+         <br/>
+         Her yörenin kendine has kültürlerini biraraya getirdiği internet siteleri Urfa. net’in öncülüğünde başlamıştı. Bu güzel çalışmayı şimdi “Temeller” diyarından “Temel” olmayan Ali Rıza Saklı’nın çalışması izliyor. Temel’in Yeri, Çay, Fındık ve Kivi ile ilgili has bölümlerin yer aldığı bu eğlenceli www.hamsi.org’da düşünce yazıları ve hava tahmin raporları gibi bilgiler de yer alıyor. Ayrıca, Artvin’den Gümüşhane’ye, Kastamonu’dan Bolu’ya kadar 14 Karadeniz iliyle ilgili tanıtıcı bilgiler de yer alıyor. Linkler bölümünde ise Türk dünyası ile ilgili linkler ağırlıkta.
+         <br/>
+         <br/>
+         Bu kadar ili biraraya getiren bu güzel çalışmaya biraz daha görsellik kazandırılırsa ve iyi bir server’da host edilirse reytingi daha da artan bir cazibe merkezi olabilir..
+         <br/>
+         <br/>
+         eserlerim.com
+         <br/>
+         <br/>
+         Yanlış anlamayın. Benim değil Refik Ongan’ın eserlerinin biraraya getirildiği sitenin kapısındayız. İçeriye girdiğimizde sadece Ongan’ın eserleri için değil de bütün sanatçıların eserlerinin biraraya getirilmesinin hedeflendiğini anlıyoruz. Fotoğraf, animasyon, grafik, illüstrasyon, karikatür gibi göze hitap eden eserlerin sahipleri ile ilgili ayrıntılı tanıtımlarla birlikte yer almak amacındaki sitenin tasarımı da profesyonel. Bu da geleceğinin parlak olduğunu gösteriyor bize. Malumunuz sitenin genel görünümü size ne kadar hoş gelirse o kadar daha fazla ziyaret etmek istersiniz o siteyi ve birçok dostunuza hemen tavsiye edersiniz, URL olarak gönderirsiniz.
+         <br/>
+         <br/>
+         Refik Ongan’ın yanında İllüstrasyon sanatçısı Ural Akyüz ve Karikatürist Mehmet Emin Kelekçi’nin de eserleri sitenin ziyaretçilerini bekliyor. Eser sahibi linkini tıklayınca alfabetik sıralı sanatçı listesi çıkıyor. Burdan Kelekçi’nin karikatürlerine girdiğinizde 40 kadar anlamlı karikatür içeren arşive ulaşıyorsunuz. Akyüz’ün de 100’ün üzerinde illüstrasyonu yer alıyor. Ongan’ın da çok sayıda fotoğrafı beğeninize sunulmuş..
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 9 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14717), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151530/http://www.aksiyon.com.tr:80/yazdir.php?id=14717)

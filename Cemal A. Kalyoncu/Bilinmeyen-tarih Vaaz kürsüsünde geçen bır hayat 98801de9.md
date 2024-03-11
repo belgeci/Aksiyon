@@ -1,0 +1,100 @@
+# Vaaz kürsüsünde geçen bır hayat
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095122im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095122im_/http://www.aksiyon.com.tr/resim/387/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Tunagür Hoca, Fethullah Gülen Hocaefendi’nin Edirne dönemi, Turgut Özal’ın da katıldığı ev sohbetleri ve Doğan Avcıoğlu ile Mamak Cezaevi günleri dahil bir çok anısını Aksiyon’a anlattı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   “Okuyabilirseniz her insan bir kitaptır.” M. Ellery Channing’in sözünden yola çıkarken, Yaşar Tunagür Hoca’yı sizlere çok iyi anlatabileceğim iddiasından çok, onun hayatının sadece bir kitap değil çok enteresan bir kitap olduğunu vurgulamaktı amacım. Cumhuriyetle neredeyse yaşıt olan Diyanet İşleri eski Başkan Yardımcısı Yaşar Tunagür Hoca’nın hikayesi, Türkiye’de dini eğitimin, din ve vicdan hürriyetinin de gayri resmi tarihinin hikayesidir aslında.
+   <br>
+    <br>
+     Yaşar Tunagür Hoca, aslen Siirtlidir. Siirt’in Hesras nahiyesi Zivzik köyünden olan dedesi Giyadini ailesinden Reşit Efendi’dir. Tunagür Hoca’nın bugün kendisini ‘safkan İstanbullu’ olarak görmesinin temelinde ise babası Ahmet Heyyül’ün Siirt’ten İstanbul’a gelip yerleşmesi yatmaktadır. Ahmet Bey, Sultan Abdülhamit döneminde sarayda ketebe–i hümayunda, yani kalem bölümünde vazife alır. Tunagür Hoca’nın iki dayısı da, Sultan Abdülhamit’in muhafız alayında görev yaptığından, Sultan’a karşı yapılan bombalı suikast hadisesinde hayatlarını kaybederler.
+     <br>
+      <br>
+       II. Abdülhamit tahttan indirilip göz hapsinde bulundurulmak üzere Selanik’e gönderilince Yaşar Tunagür Hoca’nın babası da 1918 tarihine kadar İstanbul'da kalır ve bilahare Siirt'te medreselerde talebelerle meşgul olur. 1923 yılında tekrar Beşiktaşa'a geri döner. Ailenin bir daha İstanbul’a gelişi cumhuriyetin ilanıyla olacaktır: “Anlattıklarına göre annemle beraber yaya olarak ancak bir ayda İnebolu’ya geliyorlar. Oradan da artık gemi yahut takayla İstanbul’a ulaşıyorlar. Ben de 1924’te Beşiktaş’ta, Serencebey yokuşunun başında küçük bir konakta dünyaya geldim.” Burası o zamanlar Osmanlı ‘elit’ tabakasının da oturduğu bir yerdir. O yıl, Türkiye Cumhuriyeti’nde yaşayanların sosyal hayatlarını etkileyecek bazı değişiklikler daha gerçekleşir: “1924’ten 1950’ye kadar bütün medreseler, tekkeler, zaviyeler, dergahlar, din tedrisatı veren bütün müesseseler kapalıydı?”
+       <br/>
+       <br/>
+       Ortaköy Camii’nde 6 kişi ile cuma
+       <br/>
+       <br/>
+       Babasından henüz dört yaşında iken Kur’an–ı Kerim öğrenmeye başlayan Yaşar Tunagür, iki senede Kur’an’ı hatmeder. Altı yaşını bitirmek üzere iken de bu değerli hocasını, yani babasını ebedi âleme uğurlar. İlkokula Beşiktaş’taki Esma Sultan İlkokulu’nda başlayan Tunagür, Akaretler’deki 46. İlkokul’dan mezun olur. Aile reisi vefat ettikten sonra konak da satıldığından Cihangir’e taşınırlar. Saadettin Kaynak’a komşu olmaları Tunagür’ün Cihangir’den hafızasında kalan fotoğraflardan bir tanesidir. Devrin en önemli okullarından Kabataş Lisesi’ne ise kayıt yaptırır. İlerleyen yıllarda Ticaret Bakanlığı da yapacak Kemal Cantürk, birkaç sınıf üstten Naim Talu gibi daha sonraki yıllarda tanınacak bir çok sınıf arkadaşı olur. Tunagür’ün Kabataş Lisesi’ndeki hocaları da alanlarında en meşhurlarıdır. Nihat Sami Banarlı, Faruk Nafiz Çamlıbel, Hıfzı Tevfik Gönensay, daha sonra açılacak olan İmam Hatip Okulu’nun ilk müdürlüğünü yapacak Cemalettin Öktem, Hatemi Senih Sarp ve rahmetli Ali Ulvi Kurucu’nun şiirde ‘hocam’ diyeceği Mahmut Cevdet Sezer.
+       <br/>
+       <br/>
+       Yaşar Tunagür Hoca’nın hayatının özellikle 25 yaşlarına kadar olan dönemi Türkiye’de dinin hayata tatbiki alanında yaşanan sorunların bir neticesinin de göstergesidir: “Dolmabahçe Camii, zaten deniz müzesi, kapalı idi. Kabataş Lisesi’nin 11. sınıfında iken, Ortaköy Camii’nde 5–6 kişi ile cuma namazı kıldığımız olurdu.”
+       <br/>
+       <br/>
+       “Ne olduysam o mahzende oldum”
+       <br/>
+       <br/>
+       Fakat Tunagür Hoca’nın, bütün bunlara rağmen din âlimi olmak kaderinde vardır. Tunagür’ün, 1940’larda bir bayram günü ikindi namazını kılmak için yakınında bir yerlerde cami araması onun hayatını değiştirecektir. Bu şekilde tanışacağı bir kişi, onun, uzun seneler ders alacağı, dersiamdan Hüsrev Efendi’yle tanışmasına vesile olur. Yıl 1940’dır. Bu arada lise son sınıfta okuldaki derslerinden biraz da hocalarla ihtilafı yüzünden sınıfta kalır. İhtilaf büyüyünce okul değiştirir. Ankara Atatürk Lisesi’ni dışarıdan bitirmek ise, Kabataş’taki disiplinli eğitimden sonra onun için çok kolay olur. Liseyi bitirince Ankara’daki Kadastro Heyet—i Fenniyesi’nde bir yandan öğrencilik yaparken bir yandan da aylık 90 liraya yakın bir parayla çalışmaya başlar. İki yılın sonunda eğitimini bitirir bitirmez, 22. yedek subay olarak altı ay Ankara’da bulunur. Devamında İzmir Poligon’daki 633. Piyade Alayı’na iaşe zabitliği görevi ile askerliğine başlar: “Orada, üzerimde subay elbiseleri olduğu halde Kestanepazarı diye bir camiye ikindi namazını kılmaya geldim.” Tunagür burada, Hocaefendi Mehmet Salin Tanrıbuyruğu ile dersler yapar: “Biz Hacı Raif Cilasun ile ki –Kestanepazarı’nın, hareketin banisi, en büyük hizmeti olan adamdır– görüştük. Böylece Arapçaya başlattık talebeleri.” Burada, akşamları bazı evlerde toplanıp sohbetler yapmaya da başlarlar. Fakat, Tunagür, 9 ay üzerine terhis olunca Kestanepazarı’ndakiler onu başka yere göndermek istemez. Ancak o Ankara’ya, eski işine döner ve tayinini İstanbul Sultanahmet’teki Kadastro Müdürlüğü’ne yaptırır, fen memuru olarak işe başlar. Eski yazıları güzel okuduğu için de kısa bir süre sonra Kadastro Komisyonu’na üye yapılır Tunagür. O tarihte Kadastro Genel Müdürü meşhur Türkçü Reha Oğuz Türkkan’ın babası Yusuf Ziya Türkkan’dır.
+       <br/>
+       <br/>
+       Yaşar Tunagür, bu arada Hüsrev Hoca’dan 1942 yılında başladığı tahsiline hem de çok yoğun bir şekilde devam etmektedir. Mesai dışındaki tüm vaktini Hüsrev Hoca’nın yanında geçirmektedir. Sarf, nahiv, mantık, usulü fıkıh, tefsir, hadis, kısacası din âlimi için gerekli her tür dersi almaktadır. Ancak yaptığı iş, vaktini fazlaca alıp, onun dini eğitimine engel teşkil ettiğinden o da İstanbul Müftüsü Nasuhi Bilmen’in de yardımıyla iş değiştirir, Şeri Siciller Mahzeni Tetkik ve Tasdik Memurluğu’nda işe başlar. Görevi ihtiyaç halinde, fetihten bu yana var olan tapu kayıtları üzerinde araştırma yapmaktır: “1948’den 53 yılına kadar beş sene ben o mahzende ders okudum. Ben ne olduysam orada oldum.”
+       <br/>
+       <br/>
+       Bu arada Yaşar Tunagür Hoca, 1949 yılına gelindiğinde evlenir, Ispartalı bir aileden Pakize Ustaoğlu Hanım’la birleştirir hayatını. 1950’de doğan ilk çocuğu Mehmet’ten sonra bir Ürdünlü ile evli Makbule, Ömer ve son olarak Osman adında dört çocuk sahibi olan Tunagür Hoca, 1953 yılına, Hüsrev Hoca vefat edene kadar ondan ders almaya devam eder.
+       <br/>
+       <br/>
+       Ezine’de müftü oluyor
+       <br/>
+       <br/>
+       Bu arada, 1950’de çok partili düzende yeni seçimler yapılmış, CHP’den kopan küskünler kurdukları Demokrat Parti ile iktidara gelmiş, Tunagür Hoca’nın ‘yeraltı okulları’ dediği, âlimlerin küçük çocuklara verdikleri din derslerine de biraz daha serbesti sağlanmıştır. Bu dönemin bir belirtisi olarak ezan aslına dönmüş, imam hatip okulları ile 1924’te açılıp 26’da kapatılan ilahiyat okulları yeniden hizmete başlamıştır. İşte böyle bir dönemde, 1953 yılında Yaşar Tunagür Hoca da müftülük imtihanını kazanır ve Ezine Müftülüğü’nde göreve başlar. İlk olarak Kur’an kursu açar ve talebe yetiştirmeye başlar. Gittiği ve gideceği her yerde kendisinden istenilenin fazlasını yaptığından, halk tarafından da çok sevilir. Ezine’de bunlar olurken Diyanet İşleri Başkanlığı’ndan bir yazı alır. Ankara’da seminere çağrılmaktadır. Yola çıkar, trende Kabataş Lisesi’nde sınıf arkadaşı Kemal Cantürk’le karşılaşır. O sırada Hazine Genel Müdür Yardımcısı olan Cantürk, Irak’la imzalanan Bağdat Paktı çerçevesinde 30 talebenin karşılıklı olarak yer değiştireceğini, dolayısıyla kendisinin de başvuruda bulunmasını tavsiye eder Tunagür’e. Politikacı olan Servet Sezgin, Ezinelilerle konuşarak, müftülük kadrosunun orada kalması şartıyla Arap dili ve edebiyatında eğitim almak üzere Tunagür Hoca’ya iki yıllığına 1956’da Bağdat’a gitme izni kopartır. Yaşar Tunagür Hoca’yı Bağdat’ta Ahmet Haşim’in Alüsi sülalesinden olan dayılarından Muhammet Fuat el Alüsi himayesine alır, medreselerinde yatırır. Tunagür Hoca burada Abdülkerim Kasım İhtilali’ne de tanık olacaktır.
+       <br/>
+       <br/>
+       Kaçak vaaz hattı
+       <br/>
+       <br/>
+       İhtilal sonrası hemen Türkiye’ye dönen Yaşar Tunagür Hoca, Ezine Müftülüğü’ne devam eder. Bu arada İstanbul’dan tanıdığı Hasan Basri Çantay da memleketi Balıkesir’de inzivaya çekilmiştir. Ve Tunagür Hoca’yı Balıkesir’de müftü olarak görmek istemektedir. Ezine’liler onu bırakmak istemez fakat Servet Bey yine devrededir. Böylece Tunagür Hoca için Balıkesir dönemi başlar. Vaazları her zaman ilgiyle karşılanmaya devam eder: “Dediler ki bu böyle olmaz. Camiler başta olmak üzere hastanenin mescidinden hapishaneye kadar 52 yere camiden hat çektiler. Cuma günleri vaaz ediyorum Balıkesir olduğu gibi beni dinliyor. Bir gün bazı camilerden şikayet geldi, ‘Ses kesiliyor, teşkilat güzel değil’ diye. Teknisyen gelip araştırdı ve baktılar ki, camiden camiye hat verirken o arada, vaazı evinde dinlemek için kablodan kaçak elektrik gibi hat çekmiş ahali. Neyse aradan bir seneye yakın zaman geçti, gür bir ses radyoda, Alparslan Türkeş’in sesi, memlekette ihtilal olmuş.” Günlerden cumadır. Cuma namazı kılınacaktır ancak sokağa çıkmak da yasaktır. Cuma namazına birkaç saat kala Tunagür Hoca, hergünkinden çok daha güzel giyinerek sokağa çıkar: “Görevliler düşünüyor ki, ‘Sokağa çıkmak yasak ama bu kadar iyi giyimli birisi herhalde sokağa çıkması caiz olan birisidir. Yoksa deli değil ya.” Müezzini de müftülüğe çağırtıp ezanı okuyunca, sokağa çıkma yasağına rağmen tüm Balıkesir’liler camiyi doldurur.
+       <br/>
+       <br/>
+       ‘Hanımlar camiye’
+       <br/>
+       <br/>
+       Aradan birkaç ay geçtikten sonra Tunagür Hoca aniden Edirne’ye tayin edilir: “Sonra ben Diyanet İşleri Başkan Yardımcısı olduğumda dosyama baktım, Halk Partililer, Türkeş’e hitaben yazdıkları yazılarda ‘Suç teşkil etmeyecek şekilde politika yapıyor’ demişler.” Tunagür Hoca, gittiği her yerde neredeyse sıfırdan organize eder müftülükleri. Burada da öyle olur. İlk iş olarak imsakiye bastırır ve elde edilen sekiz bin lira ile müftülüğe masa–sandalye alır. Edirne’deki Eski Cami’de vaaza başlar. Cemaat en fazla 4 veya 5 saftır. Fetih bölgesi olduğu için elinde kılıçla çıkar hutbeye. Ardından Selimiye Camii’nde vaazlarına devam eder: “Cuma günleri koskoca Selimiye Camii ya 10 ya 15 kişi, fazla değil, namaz kılıyor. Dedim ki, hanımlar da gelebilir vaaza. Bir hanım cemaat geldi ki korkunç. Sonra korktum camiye hep hanımlar gelecek diye. Bir—iki— üç ay geçti baktık ki cami yavaş yavaş doluyor, bu müthiş bir devrim bugünkü tabirle, hanımlara dedim ki ‘Siz artık yukarıda namaz kılın’, sonra artık gelmeseniz de olur gibi. Daha sonra hanımlara ayrı bir vaaz yaptık. Cemaat öyle arttı ki, İstanbul’dan ve civar yerlerden 30—40 otobüs geliyor cuma günleri. Belediye başkanı ‘Biz burayı pazar yapalım’ dedi. Dedim ne yaparsan yap. Bu arada müftülüğe ilk gittiğimde hoşgeldine geliyor hocalar. Orada baktım bir genç, çok nurani bir hali var, sordum, ‘Üçşerefeli Cami ikinci imamı Fethullah Gülen’ dediler. Bir gün gideyim dinleyeyim dedim. Ve bir vakit namazında camiye gittim. Baktım özel bir cemaati var hocanın. Namaz kıldırıyor, kıldırdıktan sonra bir aşr—i şerif okuyor ve okuduğunu da tercüme ediyor. Bu gençte  çok cevher var dedim. Başka bir gözle bakmaya başladık hocaya. Sonra birkaç üniversiteli gençle tanıştık, siz ne okuyorsunuz diye sordum onlara. Arapça metinler söylediler. Siz nasıl okuyorsunuz falan derken ‘Biz Üçşerefeli Cami’deki hocayla ders yapıyoruz’ dediler. Kendi kendime, bu gençte daha başka iş var dedim.”
+       <br/>
+       <br/>
+       HAFTAYA:
+       <br/>
+       <br/>
+       * Kestanepazarı’ndakiler Fethullah Gülen için Tunagür Hoca’ya ne dedi?
+       <br/>
+       <br/>
+       * Kestanepazarı Camii’nin çatlayan kubbesi.
+       <br/>
+       <br/>
+       * İzmir’deki Fatih Koleji nasıl kuruldu?
+       <br/>
+       <br/>
+       * Korkut Özal ve Ali Demirel'le ev sohbetleri.
+       <br/>
+       <br/>
+       * Süleyman Demirel’in kardeşi Hacı Ali Demirel, Tunagür Hoca’ya, Özal’ın da içinde bulunduğu yakın çevresini kastederek, neden ‘senin bu arkadaşlarınla iş yapılmaz’ diyor?
+       <br/>
+       <br/>
+       * MİT Müsteşarı Fuat Doğu’nun başını yiyen sahte MİT raporu.
+       <br/>
+       <br/>
+       * Sahte MİT raporuyla Mamak Cezaevine giren Yaşar Tunagür Hoca’ya, cezaevi arkadaşı 9 Martçılar’ın liderlerinden Doğan Avcıoğlu ne diyor?
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11841), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095122/http://www.aksiyon.com.tr:80/detay.php?id=11841)

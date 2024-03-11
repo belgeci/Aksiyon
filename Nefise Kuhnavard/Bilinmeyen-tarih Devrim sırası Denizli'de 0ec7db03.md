@@ -1,0 +1,76 @@
+# Devrim sırası Denizli’de
+
+*Nefise Kuhnavard Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   TAHRAN – Sıradışı bir kariyeri bulunan Mustafa Denizli, İran’ın Pas takımı ile anlaşarak bir ilke daha imza attı. İran futbol kamuoyu ise Jupp Derwall’in Türkiye’de gerçekleştirdiği reformların benzerini Denizli’den bekliyor.
+   <br/>
+   <br/>
+   “Daha düne kadar kimsenin aklına gelmezdi bir Türk teknik direktörün İran’da takım çalıştıracağı. Hem de adı sanı duyulmayan Pas gibi bir takımı... Ama kahramanımız Mustafa Denizli olunca, herkesin hayret ettiğini o rahatlıkla hayata geçirebiliyor. O değil miydi G.Saray’da onca başarıyı tattıktan sonra sürpriz bir şekilde Almanya’nın ikinci lig ekiplerinden Aechen’in teklifini kabul eden. O değil miydi, onca kariyerine rağmen Türkiye İkinci Lig takımlarından Vestel Manisa’nın başına geçen. Hem Pas takımı yöneticileri kendisine şöyle bir iltifatta bulunuyorlar: “1980’li yılların ortasında Jupp Derwall Türkiye’ye geldiğinde nasıl Türk futbolu dünyaya açılmışsa, sizin de İran’a gelmeniz bizi dünyaya açacaktır.”
+   <br>
+    <br>
+     Transfer rakamı açıklanmayacak
+     <br>
+      <br>
+       Gittiği her yere hareket getiren Denizli, İran’da da aynı senaryoyu vizyona koydu. Hem Türk hem İran basını bu transfere büyük ilgi gösterdi. Şu ana kadar en çok konuşulan ise onun aldığı ücret. “Pas takımı profesyonelce bakıldığı zaman hiç düşünmeden kabul edeceğim bir teklif yaptı.” sözleriyle bu olayı dile getiriyor Denizli. Resmi rakam açıklanmasa da Denizli’nin Pas takımıyla 1,5 yıl için 2 milyon 400 bin dolarlık bir anlaşma imzaladığı kulislere sızan bilgiler arasında. İşin doğrusu, bu rakama İran basını hiç ses çıkarmadı. Gazeteler, “İran futbol tarihinin en yüksek rakamlı anlaşması, yıldız rakamlı anlaşma, İran’ın en pahalı futbol hocası” gibi manşetlerle olaya pozitif yaklaştı. Bazı spor yorumcularına göre yarım asır içinde ilk kez İran futbolu için profesyonel bir yatırım anlamı taşıyan bu anlaşma spor severleri de mutlu etti.
+       <br>
+        <br>
+         Transferinin perde arkasını Aksiyon’a değerlendiren Mustafa Denizli, imza töreninde takımın yönetimiyle yaptığı mutabakata göre rakamın gizlendiğini hatırlatarak, “Pas takımının yaptığı teklif, bu ekibin İran birinci ligi ve Asya Kupası’nda şampiyonluk hedefi çerçevesinde yapıldı ve çok profesyonelceydi.” diyor.
+         <br/>
+         <br/>
+         “Tahran, Türkiye gibi”
+         <br/>
+         <br/>
+         İran’a gelmeden önce sosyal ortamı uygun görürsem Pas’la anlaşırım diyen Denizli şimdi Tahran’ı çok beğendiğini söylüyor. Pas takımının yeni teknik patronu; “Sanırım Türkiye’de birçok insan İran’ı tanımıyor. Ya da kafasında sadece 20 yıl önce yapılan devrimin karmaşık görüntüleri vardır. Ben de buraya gelmeden önce neyle karşılaşacağımı bilmiyordum. Bazı arkadaşlarım başörtüsü konusuna takılırken, benimle şaka ediyordu. Fakat buraya geldiğim zaman farklı bir görüntüyle karşılaştım. Tahran çok güzel ve değişik bir kent. İnsanların kültürü, Türk insanın kültürüne çok yakın.”
+         <br/>
+         <br/>
+         Tahran’da birkaç restorana giden Denizli, İran damak zevkinin Türk mutfağı ile uyuştuğunu düşünüyor. Hoca, İran pilavını Türk pilavından daha çok sevmiş. Hatta bu pilav için diyetini bile bozmayı göze aldığını belirtiyor. Tahran’a gelmeden önce duyduğu kuşkuların birçoğunu yendiğini dile getiren Denizli, kendisine yöneltilen “Liberal bir teknik adamın İran’da ne işi var.” eleştirilerine, “Benim görüşümde bir değişiklik yok. Bu saatten sonra da olmaz. İran’ı sevdim. Sanırım burada rahatça yaşabilirim.” şeklinde cevap veriyor.
+         <br/>
+         <br/>
+         İki ülkenin tanıtım elçisiyim
+         <br/>
+         <br/>
+         Denizli, İran’da yaşayan birkaç arkadaşına da danışmış. Özellikle ev konusunda yardım almış. Başkent Tahran’ın kuzey batısındaki lüks semtlerden Şehraki Garb’ı (Sahraki Garb) beğenmiş. Hocanın güzel ve şık bir dairesi var. Ona göre, Tahran, İstanbul’dan daha büyük ve düzgün yapılaşmış bir kent. “İstanbul’daki vapurları özleyecek misiniz?” sorusuna ise şöyle cevap veriyor: “Ben zaten daha çok yazlıkta olurdum. Tahran daha temiz, sorun olmaz.”
+         <br/>
+         <br/>
+         Zor bir göreve soyunduğunun farkında olan Mustafa Denizli, “İran’ı tanımak kadar, Türkiye’yi İran halkına anlatmak ve tanıtmak istiyorum. Yakın komşuyuz. Binlerce yıllık ortaklığımız var. Ancak bir o kadar da uzağız. Her iki ülke de birbirlerinin tanınmamış yönlerini tanımaya gayret etmeli.” diye konuşuyor.
+         <br/>
+         <br/>
+         Denizli’nin başına geçtiği Pas takımı 1960’ta İran Polis Fakültesi tarafından kuruldu. 45 yıl içinde 492 karşılaşmada 219 galibiyeti, 184 beraberliği, 89 mağlubiyeti var. Takım bugüne kadar 5 kez İran Birinci Ligi Şampiyonu oldu. Tahran’da 100 bin kişilik stadyuma, bir spor gazetesine ve spor haber ajansına sahip. Pas, İran’da hep ilk üç büyük futbol takımı arasında yer alsa da taraftar konusunda pek başarılı olamadı.
+         <br/>
+         <br/>
+         İran’da futbolcular, güreşçiler gibi halka ait ve halk için mücadele eden kahramanlar gibi görülüyor. Bu yüzden İran’ın üç büyük takımı İstiklal, Perspulis ve Pas’ın arasında gizli bir taraftar mücadelesi yaşanıyor. Kırmızı renkle tanınan, mali kaynağı büyük ölçüde özel sektöre, yani halka bağlı olan Perspulis, İran Devrimi’nden önce de sonra da halk tarafından sevildi. Mavi takım İstiklal’in gerçek ismi Taç idi. Devrimden önce Rıza Pehlevi rejiminin ünlü komutanlarından Hoşrevani tarafından kurulan İstiklal, o dönemlerde sevilmiyordu. Devrimden sonra İstiklal de en çok sevilenler arasına girdi, halka daha yakın oldu.
+         <br/>
+         <br/>
+         Pas’ın hedefi şampiyonluk
+         <br/>
+         <br/>
+         Taraftar açısından Pas’ın durumu devrim öncesi ve sonrasında da farklı olmadı. Yöneticiler son yıllarda taraftar kazanmayı gündemine aldı. Bu amaçla son 3 yıl içinde ünlü ve sevilen oyuncuları takıma transfer ettiler. 1997’de Dünya Kupası eleme maçlarında attığı bir golle İran’ı kupalara taşıyan Hodadad Azizi bu transferlerden biri. Geçen yıl birinci ligde şampiyon olan Pas bu yıl ise kötü bir grafik çiziyor. Şu an ligde 16 takım arasında 15’inci sırada yer alıyor. Zaten Denizli’nin takımın başına getirilmesi sırf bu yüzden.
+         <br/>
+         <br/>
+         Denizli’ye göre Pas daha iyi bir yerde olabilecek potansiyele sahip. Ama şimdilik hocanın bir kaygısı var: “Futbolcular yeni hocaya kendilerini göstermek için bütün performanslarını sahaya yansıtırlar. Daha sonra ise işi koyverme yoluna giderler. Burada da bu başıma gelebilir. Onun için işi baştan sıkı tutmalıyım.” diyor.
+         <br/>
+         <br/>
+         Hoca, her şeye rağmen takımı şampiyonluğa taşıma konusunda umutlu. Tabii Denizli’ye gösterilen ilgi Pas’a yeni taraftarlar da kazandıracak. Eğer gerçekten Pas Asya Şampiyonluğu’nu kazanabilirse İran yıllar sonra yeni bir futbol şenliği yaşayacak. 1997’de Dünya Kupası elemelerinde milli takımın Avustralya’yı elemesinin ardından 1998 Dünya Kupası’nda Amerika’yı mağlup etmesi, İranlıları sokağa dökmüştü. İranlılar yine bu sevinçleri yaşamak istiyor. Bakalım Mustafa Denizli, Jupp Derwall’in Türkiye’de gerçekleştirdiği futbol devrimini İran’da gerçekleştirebilecek mi?
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 590 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19358), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222044127/http://www.aksiyon.com.tr:80/yazdir.php?id=19358)

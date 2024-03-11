@@ -1,0 +1,46 @@
+# Yoruma açık, özgürlüğe kapalı
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   346 maddelik tasarıyla değiştirmeye çabaladığımız Türk Ceza Kanunu (TCK), TBMM tarafından 1926 yılında kabul edilerek yürürlüğe girdi. 1889 tarihli İtalyan Zanardelli Ceza Kanunu'ndan iktibas edilen TCK, zaman zaman yapılan değişikliklerle adeta yamalı bohçaya döndü.
+   <br/>
+   <br/>
+   1990'lı yıllara yaklaşıldığında artık ihtiyaca cevap vermez hale gelen kanun baştan ayağa yenilenmek istendi.
+   <br>
+    <br>
+     İlk TCK tasarısı 1989'da Ordinaryüs Prof. Dr. Sulhi Dönmezer'in başkanlığını yaptığı komisyonca hazırlandı. 1997 ve 2001 yıllarında da iki yeni tasarı daha vizyona konuldu. Hepsinde de merhum Dönmezer'in imzası vardı. Ancak bir türlü Meclis gündemine gelemiyordu. Çünkü partiler arasında anlaşma sağlanamıyordu. Geçtiğimiz nisan ayında AK Parti iktidarının Meclis'e sevkiyle kanunlaşma sürecine giren TCK tasarısı, anti-demokratik yönleri bulunup eleştirilince yeniden incelenmek üzere oluşturulan Adalet Alt Komisyonu'na havale edildi.
+     <br>
+      <br>
+       Eleştirilen maddeler devlete değil de insana öncelik veren yaklaşımla yenilenmesine rağmen yasakçı zihniyet taşıyan hükümlerin temizlenemediği görüldü. Tasarı, bu haftadan itibaren Meclis'te enine boyuna tartışılacak. Yalnız, tasarıdaki özgürlükler aleyhine olan aksaklık ve eksikliklerin yok edilip edilemeyeceği konusunda şüpheler var. Çünkü, Adalet Alt Komisyonu'ndaki görüşmeler sırasında ve komisyondan çıktıktan sonra, tasarı sanki yalnızca zina maddesinden oluşuyormuş gibi hava estirildi. Oysa, düşünce özgürlüğü ve siyasi haklarda istenilen düzeyde iyileştirme yapılamamış, bazı suçları düzenleyen maddeler elastiki cümlelerle yoruma açık halde bırakılmıştı. Gözden kaçan maddeleri gölgeleyen zina tartışmalarının sebep, sonuç ve amaçlarına ilişkin konular elinizdeki dergide ayrı bir dosya olarak işlendi.
+       <br>
+        <br>
+         Tasarıda gözden kaçan hususları kabul eden Adalet Bakanı Cemil Çiçek, muğlak ifadeler ile eksikliklerin Yargıtay içtihatlarıyla doldurulacağını söylüyor. Hukukçular, genel itibariyle özgürlükçü ve demokratik bir anlayışla hazırlanan TCK tasarısındaki kimi maddelerin, mevcut düzenlemeleri bile aratır nitelik taşıdığını kaydediyorlar. Özellikle geçtiğimiz dönemde çok tartışılan mevcut yasadaki 312'inci ve 159'uncu maddelerde özgürlükten yana adım atılamadığına işaret ediliyor.
+         <br/>
+         <br/>
+         Hukuk ve Demokrasi Kurumu Başkanı avukat Necdet Pakdil, suçlarda sadece devlet-insan sıralamasının değiştirilmesiyle iyileştirme meydana getirilemeyeceğini belirterek, "Tasarıdaki bazı maddeler, düşünce ve ifade özgürlüğünü sınırlandırma sonucunu doğuracak yoruma açık ifadeler içeriyor." diyor.
+         <br/>
+         <br/>
+         Yoruma açıklık çok ciddi bir tehlike. TCK tasarısıyla ilgili hazırlıklarını devam ettirirken görüştüğümüz Sulhi Dönmezer, yürürlükteki 312'nci maddeye göre bile Recep Tayyip Erdoğan'ın okuduğu o meşhur şiir yüzünden hapis cezası almaması gerektiğini ifade etmişti. Nitekim suçlara verilecek cezalardaki üst ve alt limitler arasındaki uçurum da yoruma yol açan başka bir risk unsuru. Söz konusu durum, aynı suça yorum farkıyla birbirinden çok uzak cezalar verilebilmesine ruhsat tanıyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 418 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=15454), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050223015715/http://www.aksiyon.com.tr:80/yazdir.php?id=15454)

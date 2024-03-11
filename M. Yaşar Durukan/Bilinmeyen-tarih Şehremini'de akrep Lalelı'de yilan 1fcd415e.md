@@ -1,0 +1,73 @@
+# Şehremini'de akrep Lalelı'de yilan
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225162017im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225162017im_/http://www.aksiyon.com.tr/resim/375/11.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Şehir efsanesi değil, gerçek! İstanbul’un taşı toprağı haşereyle doldu. Binden fazla firma ve belediyenin İstanbul’un yeraltı dünyasında başlattığı ‘kimyasal ve biyolojik savaş’ sürüyor. Fakat zehirlere karşı bağışıklık sistemini güçlendiren milyonlarca yaratık aramızda yaşamaya devam ediyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Biri size yaşadığınız kentin haşerelerin istilasına uğrayacağını, sonra da Ortaçağ salgınlarının başlayacağını söylese inanır mısınız? Hele bu talihsiz kentin İstanbul olduğu söylense; dünyada inanmazdınız herhalde. “Tüm bunlar Ortaçağ’da kaldı. O zaman özellikle kentler çok pisti, su kaynakları kirliydi, haşere ve salgın hastalıklar hızla yayılırdı” diye düşünerek içinizi rahatlatmaya çalışmayın. Bugün İstanbul başta olmak üzere büyük şehirlerdeki manzara Sanayi Devrimi sonrasını andırıyor. Çarpık şekilde gelişen  kentlerde doğal denge haşerelerin lehine bozuldu. Zararlı altı bacaklılara gündoğdu. Biyologlar, kentlerde insanla haşereler arasındaki doğal denge sınırlarının aşıldığını haber veriyor.
+   <br>
+    <br>
+     Haşere avcıları!
+     <br>
+      <br>
+       Sayıları her geçen gün artan haşerelere karşı başta İstanbul olmak üzere şehir merkezlerinde amansız bir savaş veriliyor. Hem de kimyasal ve biyolojik savaş! Bizim tesbit edebildiğimiz kadarıyla sadece İstanbul’da haşere ile mücadele için kurulmuş binden fazla kayıtlı firma var. Bu savaşın biyolojik kanadını İstanbul Büyükşehir Belediyesi ve ilçe belediyeler, kimyasal kanadını ise firmalar oluşturuyor. New York, Paris, Londra gibi dünya kentlerinde geçerli olan yöntem biyolojik. Ancak bu yöntem İstanbul’da sadece sivrisineklere karşı uygulanıyor. Birkaç profesyonel firma dışında kalan özel firmalar ise inanılmaz kimyasal maddeler kullanıyorlar. Hiçbir denetim yok. Çünkü ilaçlama firması açmak bakkal dükkanı açmaktan daha kolay. Bir ofis, bir telefon, internette site, birkaç bin tane de broşür bastırdınız mı bu iş tamam.
+       <br/>
+       <br/>
+       Vatandaşın evindeki haşereyi öldürmek firmanın tercih ettiği kimyasal maddenin marifetine kalmış. Vatandaşın tek isteği; evindeki hamamböceğinin, farenin ayaklarının havaya geldiğini görmek. Firmanın bunu nasıl başardığı hiç önemli değil. Eminönü ve Sirkeci’deki dükkanlar kimyasallar konusunda  zengin seçenekler sunuyor. Birçok firma tarım ilacı kullanıyor. Bir fareyi öldürmek için kullanılan kimyasal madde, o ailenin gelecekteki 5-6 kuşağını etkiliyor. Genetik yapısını bozduğu için sakat ve eksik doğumlara yol açıyor. 1997 yılında İngiltere’de bir kadının çocuğu sakat doğunca nedeni araştırılmaya başlanıyor. Araştırma sonunda kadının hamile iken kaldığı otelin ilaçlanmasında kullanılan bir kimyasal maddenin aktif maddesine ulaşılıyor. Bu madde çocuğun gelişimini etkilemiş ve sakat doğmasına yol açmış. Kadın beş yıldızlı otelden yüklü miktarda tazminat almıştı. Parkinson hastalığının en büyük sebeplerinden biri de işte bu yanlış ilaçlar. Üstelik bir dahaki sefere o farenin yavrularını aynı ilaçla öldürmek mümkün olmuyor. Çünkü bağışıklık sistemini ona göre geliştiriyor.
+       <br/>
+       <br/>
+       Oysa kullanılan bütün ilaçların Dünya Sağlık Örgütü (WHO) lisanslı ve Sağlık Bakanlığı onaylı olması gerekiyor. Bu standartları gözeten firmalar bir daireyi 50-70 milyona ilaçlarken, kimyasalcılar 10-15 milyona işi kapıyor. Binden fazla firmanın kaç çeşit kimyasal madde kullandığı, kaç ton kullandığı gibi bilgiler yok. Bergama’da siyanürlü altın aramaya karşı çıkılırken, İstanbul’da evlerimizin içine sıkılan kimyasal maddenin miktarı bile bilinmiyor. Hamamböcekleri o kadar çok kimyasalı yemekten yakında Mimic (Tehlikeli Yaratıklar) filmindeki gibi değişime uğrarsa hiç şaşırmayın. Mouse&amp;Master ilaçlama firması yetkilisi Cem Ömer Tuğcu, bir fırın ilaçlaması sırasında üzerlerine doğru uçan serçe büyüklüğünde hamamböcekleri gördüğünü söylüyor. Yanlış yöntemlerle mücadele aslında haşerelerin güçlenerek her geçen gün daha da çoğalmalarına neden oluyor.
+       <br/>
+       <br/>
+       Salgın tehlikesi
+       <br/>
+       <br/>
+       Ekosistemdeki dengenin bozulması salgın tehlikesiyle karşı karşıya kalmamıza neden olacak gibi görünüyor. Tarih sayfaları birkaç haşerenin taşıdığı ölümcül hastalıklar nedeniyle şehirlerin nasıl yok olduğunu anlatıyor. Örneğin, tifüs hastalığı bitler sayesinde Birinci Dünya Savaşı'nda, özellikle Almanya’daki esir kamplarında en büyük tahribatı yapıp Romanya’ya kadar yayılmıştı. II. Dünya Savaşı sonlarında, 1944 ve 1945’te geri çekilen Alman ordularının ve toplama kamplarının korkunç durumu tifüs afetinin Almanya ve Polonya’da yeniden alevlenmesine sebep oldu. Bazı salgınlarda ölüm oranı yüzde 30’a kadar yükseldi. Amerikan ordusu böcek öldürücü yeni ve güçlü bir ilaç (DTT) ile sistematik bir şekilde afetin önünü aldı.  Örneğin hamamböcekleri besin zehirlenmesi, dizanteri, tüberküloz, tifo, cüzzam, kolera, veba, çocuk felci, kancalı solucan gibi hastalıkları taşıyor. İstanbul’da yeniden patlayan tüberkülozun (verem) nedeni de hamamböcekleri olmasın? Karasinekler de zengin bir mönüye sahip: Tifo, paratifo, dizanteri, kolera, yaz ishali, trahoma (göz hastalığı). En popüler haşerelerden sivrisinekler sıtma, sarı humma, dank humması, filariasis hastalıklarına yol açıyor. Sivrisinekler ayrıca beyin iltihabı vürüsü de taşıyor. Fareler ise, idrarları, dışkıları ve tükrükleriyle akciğeri etkileyen bir tür virüs yayıyor. İstanbul’un tıkanan kanalizasyonları onlar sayesinde açılıyor. İSKİ, yağışlı havalarda su baskınlarına engel oldukları için farelere bir teşekkür borçlu. Onların da sayısı arttığı için yiyecek sıkıntısı durumunda şehri istila etme tehlikesi var. Bu veriler ışığında halk sağlığı uzmanları, İstanbul için salgının bir sürpriz değil, öngörülebilir bir gelişme olarak değerlendirilmesini istiyor.
+       <br/>
+       <br/>
+       Terörist hamamböceği!
+       <br/>
+       <br/>
+       Belki komik gelecek ama İstanbul’daki haşerelerin kontrolsüz çoğalmaları terör tehlikesini bile artırıyor. Belki size soğuk savaş paranoyası gibi gelebilir ama hamamböceğinin terörist eylemde kullanılması ihtimal dışı değil. 1999 yılında New York’ta 3 kişinin öldüğü ve 27 kişinin hastanelik olduğu esrarengiz salgının ardında teröristlerin olabileceği şüphesi ortaya çıkmıştı. New York’a korku salan salgın Ağustos ayında kendini göstermeye başladı. İlk belirlemelere göre sivrisineklerin hastalığı kuşlardan insanlara taşıdığı söylendi. Virüs, SaintLouis tipi menenjit virüsü olarak teşhis edildi. New York, havadan ilaçlandı, halka binlerce bedava böcek ilacı dağıtıldı, hastalığı anlatmak için 250 bin broşür basıldı. Ancak Bronx hayvanat bahçesindeki kuşların da bu virüsten ölmesi şüphe doğurdu. Çünkü normal olarak bu virüsün kuşlarda ölümcül sonuçlar doğurmaması gerekiyordu. Hastalıkları Kontrol ve Önleme Merkezi (CDC), virüsü yeniden büyüteç altına aldı. Sonuçta virüsün, Afrika’ya özgü Batı Nil virüsü olduğu anlaşıldı. Gerçi Batı Nil virüsü diğer virüsten daha zararsızdı ama şimdiye kadar ABD kıtasında hiç rastlanmamıştı. Bu salgın CIA’nin de ilgisini çekti. CIA, virüsün nasıl ABD’ye geldiğini bulmak için iz peşine düştü. Birden akla Saddam yönetiminden kaçan bir Iraklı muhalifin kitabında yazdığı iddialar geldi. Buna göre, Irak lideri Saddam Hüseyin, Batı’ya Batı Nil virüsü ile biyolojik saldırı düzenlemeye hazırlanıyordu. Merkezi Atlanta’da bulunan CDC, 1995 yılında Irak’a araştırmalarda kullanmak üzere Batı Nil virüsü göndermişti. Aynı zamanda Rhone-Poulenc Şirketi’nin bir yan kuruluşu olan bir Fransız şirketi de Irak’ın Al Manal kentinde bir aşı fabrikası kurmuş ve personelini eğitmişti. Ancak, BM silah uzmanları Bağdat’ta yaptığı incelemelerde Irak’ın Batı Nil virüsü ile biyolojik silah geliştirdiği konusunda bir ipucuna rastlayamamıştı ama yine de virüs araştırmalarının yapıldığı Al Manal fabrikasının büyük bir kısmını yıkmıştı.
+       <br/>
+       <br/>
+       Şehremini’de akrep,         Laleli’de yılan!
+       <br/>
+       <br/>
+       Aslında bu haberi yapmak için yola çıktığımızda niyetimiz bir haşere haritası çıkarmaktı. Fakat buna gerek kalmadı. Çünkü İstanbul’un her semtinde hemen hemen aynı tür haşere var. Bütün semtlerde bit, hamamböceği,  sivrisinek, karasinek ve farelerden oluşan grup mevcut. Nişantaşı, Şehremini, Kumkapı, Burhaniye mahallesinde akrep, Laleli’de yılan, Sultanahmet’te ise ekstradan gümüşçüle rastlanıyor. Ayrıca pek çok ilçede kertenkele görünmesi de sıradan bir olay haline geldi. Yine de İstanbul Büyükşehir Belediyesi Sağlık Daire Başkanlığı her ilçeden gelen şikayetlere göre oluşturulan haşere verilerini gizlemekte ısrar ediyor. Bir de işin ekonomik boyutu var. Minicik altı bacaklı yaratıklar bugün İstanbul’da devasa bir sektör doğurdu. Böceklerin omuzlarında büyüyen ilaçlama sektörünün hacmi 1.5-2 trilyon civarında. Mesela bir ilçe belediyesi sadece sivrisinek için 6 ton ithal ilaç kullanıyor. Her yıl bu rakam yüzde 50-60 oranında büyüyor. Bütün ilçe belediyeleri hesaplamaya dahil edildiğinde 50 milyon dolar gibi büyük bir rakam ortaya çıkıyor. Üstelik bu sadece sivrisinekler için harcanan miktar.
+       <br/>
+       <br/>
+       Böyle giderse böcekler daha pek çok firmayı zengin edecek. Avrupa ve Amerika’daki gibi Ulusal Haşere Birlikleri kurulmadığı sürece bu savaşı onlar kazanacak. Bin değil 10 bin firma bile olsa bu kadar yanlış ve tehlikeli yöntemler yüzünden çoğalmaları engellenemeyecek. Sağlık Bakanlığı olaya el koymazsa, İstanbul’da birkaç kuşak haşere niyetine zehirlenecek. Bir hamam böceği ölmeden önce yumurtalarını sağlıklı bir şekilde bırakmayı başarabilecek belki ama, bir annenin bebeği hamamböceği yavrusu kadar sağlıklı doğamayacak.
+       <br/>
+       <br/>
+       Bır haşere'nin günlüğü
+       <br/>
+       <br/>
+       İnternette dolaşan ve yazarı belli olmayan bir haşere hikâyesi:
+       <br/>
+       <br/>
+       Dün gece yine ölümle burun buruna geldim. Kendime bir zarar geleceğinden değil ama karım Cemile ne yapar sonra. Biz akşam yemeğimizi genelde saat 11-12 gibi yerdik, ama ev sahiplerimizin misafiri geldiğinden geç vakitlere kadar oturup yatmadılar. Neyse ki konukların gitmesiyle birlikte uykuya daldılar. Bir süre ortalığın sakinleşmesini bekleyip, yiyecek toplamaya başladım. Bugün misafirler geldiği için mönü çok zengindi. Pasta ve börek kırıntılarına bayılırız. Her neyse ben nevaleyi toplarken birden mutfağın ışığı yandı ve “Aaaaaa! Karafatma” diye bir ses duydum. Ben bir erkeğim, Fatma da nereden çıktı. Benim adım İsmail. Böyle şeyler delikanlıyı bozar. Hadi beni karımla karıştırdın diyelim. Sen ne kadar korkak bir adamsın. Benim kaç katım büyüklüğünde olmana rağmen bu bağırış da ne böyle? O korkunç sesin kesilmesiyle birlikte, sanki ben ona bir şey yapmışım gibi beni kovalamaya başladı. İnanın o kadar da dikkat ediyorum, tabak, çanak bardak üzerinde dolaşmamaya çünkü bu adamın karısı çok titiz. Bazen diyorum ki eve misafir geldiğinde git ortalarda dolaş, böylelikle utanılacak duruma düşsünler. Ama yapamıyorum işte. Ne olursa olsun, ekmek yediğin tekneye kötü gözle bakmamak gerekir. Ben eve geldiğim ilk yılları hatırlıyorum da ne güzeldi o günler. Rahmetli kayınbabam ve kayınvalidem beni evlerine kabul etmişlerdi. O zamanlar rahattık, çünkü ev sahibimiz Rıza amca kördü. Bu sebeple evin her yerinde serbestçe dolaşabiliyorduk. Hatta Rıza amcayla aynı sofrada yemek yediğimiz günler de oldu. Gerçi bizleri görebilseydi nasıl davranırdı bilmem ama o hep yüreğimizde yaşayacak. Rıza amcanın durumu pek iyi sayılmazdı, memur emeklisiydi. Bu ev de rahmetli karısınınmış, bu yüzden yiyecek konusunda bu kadar fazla seçeneğimiz yoktu. Ama daha mutlu ve huzurluyduk. Rıza amca bir gün görünmez kazaya kurban gitti. Gerçi  onun için bütün kazalar görünmezdi. Rıza amcanın toprağa verildiği gün biz de oradaydık. Karşı komşusu Osman Zeki bey bize geldiğinde ceketini asmıştı. Biz de bunu fırsat bilip ceketin cebine girdik. Ardından Osman Zeki beyle birlikte mezarlığa doğru yola koyulduk. Rıza amcanın üç tane oğlu vardı ama bugüne kadar sadece nüfusta gözüküyorlardı. Hayırsızlar daha ilk günden evi satışa çıkardılar. Evi şu anda oturan adam ve karısı satın aldı. Eve ayak basmalarıyla kayınbabam ve kayınvalidemi öldürmeleri bir oldu. Adam sonra iğrenerek cansız bedenleri kağıda sararak çöpe attı. Sanki kendisi çok temizmiş gibi. Halbuki tuvaletten çıktıktan sonra ellerini yıkamadığına defalarca şahit oldum. Şimdilerde kendine üzerinde rahmetli kayınvalidemin resmi olan bir ilaç almış, durmadan üzerimize sıkıp duruyor. Kayınvalidem Sultan hanım gençliğinde fotomodel olduğu için bu tür ilaçların üzerinde resmi bulunuyor. Hatta bir iki reklam filminde de oynamıştı. Ama evlenince mecburen bıraktı. Çünkü kayınbabam tam bir Osmanlı erkeğiydi. Bugüne kadar rahmetli Rıza amcanın anısına bu evde oturduk, artık daha fazla dayanacak halimiz kalmadı. Eşe dosta haber saldık. Kendimize göre bir ev bulur bulmaz taşınacağız buradan. Belki de sizin evinize yerleşiriz; hayat bu belli mi olur?
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12141), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225162017/http://www.aksiyon.com.tr:80/detay.php?id=12141)

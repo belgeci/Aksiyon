@@ -1,0 +1,77 @@
+# NAFTA yine lafta kalacak
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20031024082134im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20031024082134im_/http://www.aksiyon.com.tr/resim/35/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye’nin NAFTA’ya girme teklifi ilk defa Recep Tayyip Erdoğan tarafından ortaya atılmadı. Daha önceki başbakan ve bakanların ABD ziyaretlerinde de bu istek ABD yetkililerine iletildi. Çok cılız destekler olmasına karşın bir lobiler ülkesi olan ABD’de Türkiye’nin pazara girmesini istemeyen rakip sektör temsilcileri bu isteğin önüne geçti.
+ </font>
+ <p>
+  <font class="content">
+   AKP lideri Tayyip Erdoğan’ın ABD Başkanı George Bush’a yaptığı, ‘Bizi NAFTA’ya alın’ önerisi beklenmeyen bir ilgi gördü. Yeni duyulmuş bir bilgi gibi üzerine analizler yapıldı. ABD’nin etkili ekonomi gazetesi The Wall Street Journal’in baş yazarının da AKP liderinin fikrini orijinal ve uygulanabilir bularak desteklemesi Türkiye’nin NAFTA’ya dahil olabileceği ihtimalini daha da kuvvetlendirdi.
+   <br/>
+   <br/>
+   Türkiye’nin NAFTA’ya girme teklifi ilk defa Recep Tayyip Erdoğan tarafından ortaya atılmadı. Daha önceki başbakan ve bakanların ABD ziyaretlerinde de bu isteğimiz ABD yetkililerine iletilmişti. Çok cılız destekler olmasına karşın bir lobiler ülkesi olan ABD’de Türkiye’nin pazara girmesini istemeyen rakip sektör temsilcileri bu isteğin önüne geçti.
+   <br/>
+   <br/>
+   Ekonomi çevreleri Kuzey Amerika Serbest Ticaret Bölgesi’nin (NAFTA) ekonomik faydalarını kabul etmekle birlikte AB’ye (Avrupa Birliği) alternatif olacak boyutta bir birliktelik olmayacağı görüşünde birleşiyor: Herşeyden önce üç ülke ABD, Kanada ve Meksika’dan oluşan NAFTA, AB gibi siyasi ve askeri yönleri olan bir proje olarak ortaya çıkmadı. Ayrıca AB 2009 yılında Avrupa Birleşik Devleti konumuna gelmeyi planlarken NAFTA’nın konumu bugün ABD’de de değişik çevrelerde tartışma konusu. ABD’li ekonomistler NAFTA’nın Amerika ekonomisine yarardan çok zarar getirdiği görüşündeler. Amerika, çevresinde, sınırın öbür yanında ekonomik buhran içinde olan bir ülke istemiyordu. Bu açıdan özellikle Meksika’dan rahatsızdı. NAFTA ABD’nin bu rahatsızlığının bir sonucu olarak ortaya çıktı. Hatta taraflar 6 ay önceden bildirmek kaydı ile istedikleri zaman bu birlikteliğe son verebilir. Gümrük Anlaşması ise 15 yıl için yapıldı.
+   <br/>
+   <br/>
+   Bloklaşma mı küreselleşme mi?
+   <br/>
+   <br/>
+   Birkaç sene öncesine kadar NAFTA, AB, APEC ve ASEAN gibi bölgesel entegrasyonlara büyük çaplı küreselleşme hareketi için geçiş köprüsü olarak bakılıyordu. Çevre ülkelerle ekonomik bütünleşmeyi tamamlamış ülkelerin küreselleşmeye daha hazır hale geleceği varsayılıyor. Fakat özellikle gelişmiş ülkeler bu tip entegrasyonları bloklaşmaya taşıyarak kendi aralarında yapılacak ticarete büyük öncelik verirken dışarıda kalan ülkelere aşılması mümkün olmayan sert engeller koyuyorlar. Bu açıdan bazı makro iktisatçılar bu tip bloklaşmaların zaman içinde küreselleşmeyi engelleyecek paktlar haline dönüşebileceğinden endişe ediyor.
+   <br/>
+   <br/>
+   NAFTA, AB ve ASEAN gibi ekonomik entegrasyonların akıbetlerinin ne olacağına ilişkin tahminler bir tarafa büyük ekonomik rakamlara hükmeden yapıların dışında kalan ülkeleri oldukça zor bir süreç bekliyor. 12 Aralık Kopenhag Zirvesi’nden istediğini elde edemeyen Türkiye de bu ülkelerden biri. Ekonomik darboğazdan çıkma stratejisinin en önemli ayağı olan ihracat, AB ve ABD’nin gümrük ve kota duvarlarını aşmakta zorlanıyor.
+   <br/>
+   <br/>
+   Hedef ihracata dayalı büyüme
+   <br/>
+   <br/>
+   Dış Ticaret Müsteşarlığı tarafından yapılan 2002—2023 Dış Ticaret Projeksiyonu’na göre, Türkiye’nin ihracatının 2005 yılında 43 milyar, 2010 yılında 81 milyar, 2015 yılında 158 milyar, 2023 yılında da 458 milyar dolar olması öngörülüyor. Aynı araştırma, Türkiye’nin rekabet üstünlüğüne sahip olduğu ürünlerin, AB’ye ihracatının yüzde 68’ini, AB’nin toplam ithalatının yüzde 10.7’sini, NAFTA’ya ihracatının yüzde 73.3’ünü, NAFTA’nın toplam ithalatının yüzde 9.8’ini oluşturduğunu ortaya koyuyor. Türkiye’nin öngörülen rakamları tutturması gelişmiş ülkelerle arasında yapacağı gümrük ve kota anlaşmaları ile doğrudan ilintili. Bu açıdan NAFTA’ya üye olma, zorlukları bir tarafa önemli bir alternatif olarak duruyor.
+   <br/>
+   <br/>
+   NAFTA’dan Meksika istifade etti
+   <br/>
+   <br/>
+   NAFTA’dan en fazla Meksika istifade etti. ABD, Meksika’yı daha önce kara para aklama merkezi olarak kullanırken serbest ticaret anlaşması ile fason üretim merkezi haline getirdi. Kanada ile ABD ilişkileri NAFTA öncesinde de iyi idi ve Kanada’nın ekonomik durumu ve nüfusu ABD’yi rahatsız etmiyordu. İşte tam bu süreçte 200 milyar dolarlık GSMH’sı olan Türkiye’nin NAFTA’ya alınması, 8 trilyon dolarlık GSMH’sı olan ABD ekonomisinde ilk bakışta hazmı kolay görünse bile gerçekte sindirilmesi zor bir durum oluşturuyor.
+   <br/>
+   <br/>
+   Yüksek Strateji Merkezi’nden Dr. Can Fuat Gürlesel NAFTA fikrini hem makro strateji açısından hem de alternatif projeler açısından parlak bir fikir olarak kabul ediyor. Ancak uygulamada karşılaşılacak güçlüklerin şimdiden ortadan kaldırılması için mücadele başlatmak gerektiğine dikkat çekiyor.
+   <br/>
+   <br/>
+   GB anlaşması gözden geçirilmeli
+   <br/>
+   <br/>
+   Gürlesel Türkiye’nin AB ile gerçekleştirdiği Gümrük Birliği Anlaşması’nı da elini kolunu bağlayan bir unsur olarak görüyor. GB anlaşmasına göre AB’nin üçüncü ülkelerle onaylamadığı bir serbest ticaret anlaşmasının imzalanması mümkün değil. Bu açıdan AB’nin NAFTA ülkeleri ile STA’sı olması lazım ki Türkiye de NAFTA ile böyle bir anlaşma imzalayabilsin. Türkiye’nin AB’ye tam üyelik sürecinde çok önemli bir yara almasının ardından GB’nin yeniden gözden geçirilmesi ve en azından üçüncü ülkelerle ilişkilerde serbestiyet elde etmemiz yönünde adımlar atılması şart.
+   <br/>
+   <br/>
+   Bu ülkelerin Türkiye’den çok uzakta olması bazı iktisatçılara göre önemli bir dezavantaj. Gemi ile taşımanın uzun süre alması, uçak ile taşımanın ise maliyetli olması karamsar bakanların önemli argümanları. Bu teze karşı çıkanlar Çin örneğini göstererek cevap veriyorlar. Çin lojistik giderlerin yükünü alarak dünyanın dört bir tarafına ürünlerini gönderebiliyorsa Türkiye’nin ABD ve Kanada’ya satış yapamaması için hiçbir sebep yok.
+   <br/>
+   <br/>
+   Türkiye ABD ile ticarette bugüne kadar daha ziyade tekstil ürünleri üzerine odaklandı. Fakat rekabet üstünlüğü açısından sadece tekstil sektörümüz yok. Bu pörtföyü geliştirme açısından gıda, elektronik, otomotiv yan sanayi hatta mobilya sektöründen bile istifade edilebilir.
+   <br/>
+   <br/>
+   NAFTA EKONOMİK PROJE
+   <br/>
+   <br/>
+   Kuzey Amerika Serbest Ticaret Anlaşması. ABD, Kanada ve Meksika arasında Ağustos 1992’de imzalandı ve 1 Ocak 1994 tarihinde yürürlüğe girdi. Nüfus ve ekonomi bakımından AB’den daha büyük ancak entegrasyon çeşitliliği açısından daha küçük bir oluşum. NAFTA’nın dünya ticaretindeki payı 1999 yılı rakamları ile yüzde 22.5 iken AB’nin ticareti aynı dönemde yüzde 20 seviyesinde gerçekleşti. Özellikle ABD açısından bazı ekonomik maliyetleri olmasına rağmen bu birlikteliği tüm ABD kıtasına yayma gibi uzun vadeli bir hedefleri var.
+   <br/>
+   <br/>
+   NAFTA Anlaşması uyarınca, anlaşmaya taraf ülkeler arasında gümrük vergilerinin, bazı mallarda hemen, bazı mallarda 5 veya 10 yıllık, hassas mallarda ise 15 yıllık bir geçiş dönemi sonunda sıfırlanması öngörüldü. Petrol gibi bazı mallar da kapsam dışı tutuldu. Anlaşma kapsamında tekstil ve konfeksiyon, otomotiv sanayii, enerji, petro kimya ve tarım ürünleri, anti damping ve telafi edici vergi uygulamaları, fikri mülkiyet hakları, ulaştırma ve haberleşme, çevre ve işçi sorunları, mali konular ve yatırımlar vb. hususlara ilişkin düzenlemeler de yer almakta.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2233), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20031024082134/http://www.aksiyon.com.tr:80/detay.php?id=2233)

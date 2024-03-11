@@ -1,0 +1,66 @@
+# Teröre Karşı Elektronik Kalkan
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010800im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010800im_/http://www.aksiyon.com.tr/resim/400/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yılda 50 bin gemi, 5 binin üzerinde tehlikeli yük taşıyan tankerin geçtiği İstanbul Boğazı"na yapılacak bir saldırı, ya da bomba yüklü uçaklarla yapılacak bir intihar eylemine karşı Elektronik Kalkan Projesi hayata geçirilecek
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu yazıda okuyacağınız felaket senaryolarına bakarak "Bunlar kötü niyetlilere yol göstermek mi istiyor?" diye düşünmeyiniz. Haberden bir ders çıkarılacaksa, öncelikle bunu ülkenin güvenlik birimlerinin yapması gerekiyor.
+   <br>
+    <br>
+     11 Eylül tüm dünyada güvenlik kavramını altüst etti. Her yerde ekstra güvenlik tedbirleri yürürlükte. Son 30 yılını terörle içiçe geçiren Türkiye"de de doğal olarak 11 Eylül sonrasında birtakım projeler uygulanıyor, tedbirler alınıyor. Bunlardan birisi kamuoyuna pek yansımayan Elektronik Bariyer Projesi. Araştırmalarımızda projeyi geliştirenlerin belki hayallerinden bile geçirmedikleri bir durumla karşılaştık. Sıradan bir hobi olan model uçaklar, meğer inanılmaz bir terör makinesi olabiliyor ve bunlara karşı elektronik kalkan ya da manyetik bastırma yöntemleri çare olmuyormuş.  Boğaz"a, Vatan"a elektronik kalkan
+     <br>
+      <br>
+       11 Eylül"den sonra İstanbul"a yönelik bir saldırı ihtimalini gündemine alan İstanbul Emniyeti, İstanbul Teknik Üniversitesi ile birlikte Elektromanyetik Bariyer Projesi üzerinde çalışıyor. Yılda 50 bin gemi, 5 binin üzerinde tehlikeli yük taşıyan tankerin geçtiği İstanbul Boğazı"na yapılacak herhangi bir saldırının kitlesel terör eylemleri için biçilmiş kaftan olduğunu farkeden yetkililer o günden bugüne bazıları kamuoyuyla paylaşılan, bazıları da gizli tutulan çeşitli projeler üzerinde duruyor. İstanbul Boğazı"na ya da geçiş yapan gemilere uçaklarla yapılabilecek saldırılara karşı stringer füzeleri alınması, 11 Eylül"den beri sahil güvenlik timlerinin botlarla boğazdan geçen her tankere eskortluk yapması bunlardan bir kaçı.
+       <br/>
+       <br/>
+       Boğazlar"daki bu tehlikeye karşı hazırlanan en önemli proje ise Elektromanyetik Bariyer Projesi. Sistemin şu şekilde çalışması öngörülüyor: Geçiş yapan gemilere klavuzluk hizmeti veren romörkörlere yerleştirilecek yayın cihazları, ya da belli bölgelerden yapılacak elektromanyetik yayınlarla tankerlere yönelik saldırılar önlenecek. Halen İstanbul Emniyet Müdürlüğü Bilgi İşlem Dairesi"nin yürüttüğü Elektromanyetik Bariyer Projesi ise buna model oluşturacak. Emniyetin yaptığı çalışmanın temelinde Vatan Caddesi"ndeki Emniyet Müdürlüğü binasına uzaktan kumandalı maket uçak, helikopter ve uzaktan kumandalı bombalı arabalarla yapılabilecek saldırıların etkisiz hale getirilmesi düşünülüyor. Emniyet Genel Müdürlüğü"nden onay almak için 3 kez gözden geçirilip değerlendirilen proje noktasal hedefler olarak tanımlanan belirli merkezlerin elektromanyetik kalkan oluşturularak korunmasını hedefliyor. Örneğin maket uçak ya da helikopterlerle herhangi bir emniyet birimine yapılacak saldırıları, cihazın uçuş sistemi ve uzaktan kumanda frekansını etkisiz hale getirerek bertaraf etmeyi amaçlıyor.
+       <br/>
+       <br/>
+       Korunacak binanın çevresinde uzaktan kumanda ve uçan herhangi bir nesneyi etkisiz hale getirecek sistem için binanın çevresinde elektromanyetik bir koruma kalkanı oluşturulacak. Bu kalkan, savaş durumlarında düşmanın haberleşme cihazlarını etkisiz hale getiren elektromanyetik karıştırıcılar mantığıyla çalışacak.
+       <br/>
+       <br/>
+       Elektronik uzmanlarının "frekans bastırmak" tabirini kullandıkları bu kalkanla korunacak yerin çevresinde cep telefonu, televizyon yayınları, sivil haberleşme ve uçuş sistemleri dahil hiçbir haberleşme ve yayın sistemi çalışamayacak. Böylece bu tip saldırılar etkisiz hale gelecek. İhale aşamasına gelinen proje hayata geçirilse Türkiye"de Emniyet"in bu anlamda aldığı ilk tedbir olacak.
+       <br/>
+       <br/>
+       Kampüs başına 100-150 bin dolar civarında bir maliyet çıkarılan elektromanyetik kalkanın İstanbul Emniyet Müdürlüğü"nde başarılı olması halinde, projenin benzerleri diğer kritik bina, tesis ve Boğazlar için de model oluşturacak. Projenin sakıncalı yönleri de var. Mesela frekans bastırma yöntemiyle yapılan korumalarda kalkanın yakınından uçuş yapacak uçak veya helikopterlerin güvenliği riske girecek.
+       <br/>
+       <br/>
+       Güvenlik çevrelerinin yaptığı açıklamaya göre bu tür elektronik bariyer kurma fikri 11 Eylül saldırılarından sonra oldukça yaygınlaştı. Amerika başta olmak üzere tüm ülkelerde kritik tesisleri korumak için bu tür çalışmalara hız verildi.
+       <br/>
+       <br/>
+       Peki ama gizli yazışmalara konu olan maket uçaklar gerçekten de tehlike riski taşıyorlar mı? Model uçaklar ve radyo dalgaları ile çalışan uçaklarla ilgilenenler ülkemizde Model Uçak Kulüpleri adı altında faaliyette bulunuyorlar. Türkiye"de Ankara, İstanbul, İzmir ve Adana başta olmak üzere örgütlenmiş model uçak kulüpleri var. Bu kulüpler THK tarafından denetleniyor ve üye sayıları binleri buluyor. Ancak profesyonel anlamda model uçak yapıp uçuran meraklı sayısı dernek yetkililerinden aldığımız bilgiye göre yaklaşık beş yüz kişi. Bunlar içerisinde yüze yakını bu işi amatör seviyenin de üzerine çıkartmış, artık profesyonel uçucu kabul ediliyor.
+       <br/>
+       <br/>
+       İstanbul Model Uçak Kulubü Genel Sekreteri Ahmet Oranos"un verdiği bilgiye göre bu tür derneklere üye olmak ve model uçaklarla ilgilenmek son yıllarda giderek daha popüler hale geldi. Model uçak yapmanın ve uçurmanın çok yüksek teknolojik bilgi gerektirmediğini, pratik zekaya sahip herkesin dernek merkezlerinde açılan kurslara devam etmek suretiyle iki ay içerisinde iyi bir model uçakçı olabileceğini söylüyor Oranos. Doğrusu bu soru ile kendilerine gitmemize şaşırmamış çünkü bizden önce aynı soruyu İstanbul Emniyeti yöneltmiş, fakat görüşme sadece telefonla ve yüzeysel gerçekleşmiş. Model uçakların terörde kullanılma ihtimalinin imkan dahilinde olduğunu kabul eden Ahmet Oranos"un verdiği bilgilerse bazı çevrelerin model uçaklar ve uzaktan kumandalı araçlar hakkındaki endişelerinin hiç de yersiz olmadığını ispatlıyor. Çünkü Ahmet Oranos kendisinin bile isterse bir model uçakla 20 kilo bomba taşıyıp istediği binanın penceresinden içeri dalabileceğini söylüyor: "Türkiye"de üç ya da dört firma ithal ediyor model uçak parçalarını. Hazır maket olarak satılanlar bir kutuda ve hiç modifiye etmezseniz 2 kilo yük taşır, uzaktan kumanda edilir. İyi bir kullanıcıysanız 500 metre ile 2 bin metreden istediğiniz yere indirirsiniz. Ama bu sektörde sınır yoktur. Bir model uçağı modifiye ederseniz neler yapabileceğiniz sizin hayal gücünüzle sınırlıdır. Modifiye edilmiş bir uçak 20 kilo yük taşıyabilir, istediğiniz türden malzemeyi yükleyebilirsiniz". Model uçaklar konusunda inanılmaz bir teknolojik gelişim sözkonusu. Elektronikten anlayan bir model uçakçının yapabilecekleri her geçen gün daha da gelişiyor. Modifiye edilmiş bir uçağın maharetlerini gördükten sonra biraz paranoyak olmakta fayda var diyorsunuz.
+       <br/>
+       <br/>
+       Model uçakçıların önceleri uzaktan kumandayla istediği yere uçak indirebileceğini anlatan Ahmet Oranos son dönemde kullanılan teknoloji ile artık mesafe sorununun da ortadan kalktığına işaret ediyor: "Artık GPS teknolojisi var. Uçağa yükleyin bilgileri, kaldırın Sarıyer"den. Siz gidip keyfinize bakın, o gitsin istediğiniz plazanın, istediğiniz önemli binanın penceresinden içeri girsin. Ve ben garanti ediyorum hiç bir güç bu uçakları durduramaz." Peki ama elektronik kalkan projesi devreye girerse ne olur? Projenin kesinlikle gerekli bir çalışma olduğuna inandığını ama tek başına yeterli olmayacağını söyleyen Ahmet Oranos bu konuda şu açıklamayı yapmayı da ihmal etmiyor: "Bu konuda internette sayısız site var. Bir uçağın nasıl modifiye edileceği, nasıl bir silah haline getirileceği ile ilgili. Bunlardan birisine takılan bir meraklı bir kaç ayda bir canavara dönebilir. Peki elektronik kalkanı kurdunuz, ya sonra? Kalkan sadece belli dairede uzaktan kumandalı cihazların çalışmasını engeller. Ben olsam binaya yaklaştırınca uzaktan kumandayı kapatırım ve cihazın üzerindeki motor çalışmaya devam eder. Peki kalkan bunu nasıl engeller. Hiç bir şekilde engelleyemez. Teröre her zaman çıkış yolu vardır."
+       <br/>
+       <br/>
+       Bu durumda maket uçak satışlarının ve uçuruşlarının ruhsata bağlanması bir tedbir olabilir. Çünkü hali hazırda parayı bastıran, biraz da İngilizce ve mekanik bilgisi olan masum bir oyuncaktan bir terör canavarı üretebilir. Oranos"un dediği gibi yapabilecekleriniz hayallerinizle sınırlanıyor.
+       <br/>
+       <br/>
+       Katkıda bulunan: M.Fatih Uğur
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1609), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010800/http://www.aksiyon.com.tr:80/detay.php?id=1609)

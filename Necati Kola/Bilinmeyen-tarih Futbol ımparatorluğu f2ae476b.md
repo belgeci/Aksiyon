@@ -1,0 +1,103 @@
+# Futbol ımparatorluğu
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225163459im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225163459im_/http://www.aksiyon.com.tr/resim/380/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Brezilyalı Joeo Havalange’nin 1974 yılında FIFA Başkanı olmasının ve televizyonun devreye girmesinin ardından futbol hızla imparatorluk haline geldi. Dünyanın  bu en büyük sektörü, sınırları içerisine yeni ülkeler katmaya devam ediyor. İki buçuk ay kadar sonra Güney Kore ve Japonya’da başlayacak olan 2002 Dünya Kupası için tahmin edilen rakamlar, geride kalan organizasyonların çok çok üstünde.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tarih, 12 Temmuz 1998... Yer, Stade de France... Ev sahibi Fransa ile Brezilya, 16. Dünya Kupası’nın finalinde karşı karşıya gelmek üzereler. Fransa ilk, Brezilya ise beşinci kez dünya şampiyonu olmanın hesaplarını yapıyor. Maçın sonucunu  düşünenler sadece Fransızlar ve Brezilyalılar değil. Spor ürünleri markası Adidas ve Nike’ın yetkilileri de finalin neticesini oldukça merak ediyorlar. Çünkü, Adidas Fransa Milli Takımı’nın, Nike da Brezilya Milli Takımı’nın sponsoru. Televizyon karşısındaki milyonlarca futbolsever, bu önemli karşılaşmanın bir an evvel başlamasını bekliyor. O da ne? Hakemin başlama düdüğünü çalmasına sadece birkaç saat kala Brezilya’nın en büyük gol umudu Ronaldo sara nöbetine tutuluyor ve gizlice hastaneye kaldırılıyor. Oynama şansı neredeyse yok. Brezilya Milli Takımı ile yıllık 17 milyon dolarlık, Ronaldo ile de 1 milyon dolarlık sponsorluk anlaşması yapan Nike, hemen devreye giriyor ve ne pahasına olursa olsun Ronaldo’nun oynamasını istiyor. Final maçına 45 dakika kala gerekli iğneleri yapılan Ronaldo stadyuma geliyor ve Brezilya Teknik Direktörü Mario Zagallo ünlü futbolcuyu ilk on birde sahaya sürüyor. Bu maç, Barthez, Zidane, Blanc, Thuram, Lizarazu, Petit, Karembeu ve Trezequet gibi yıldızlardan kurulu Fransa ile, Taffarel, Cafu, Roberto Carlos, Rivaldo, Ronaldo ve Bebeto gibi oyunculardan oluşan Brezilya arasında oynanmıyordu sadece. Adidas ve Nike arasında da oynanıyordu. Ronaldo’nun sahada sadece dolaştığı bu maçı Fransa ve Adidas kazanıyor, Brezilya ve Nike kaybediyor, o gece, Fransa ve Adidas için rüya gecesi, Brezilya ve Nike için ise kabus gecesi oluyordu.
+   <br>
+    <br>
+     Nike’ın kampanyası ters tepince...
+     <br>
+      <br>
+       Nike, Fransa 98 Dünya Kupası’ndan önce Brezilya’yı müşterilerine yenilmeyen ve yenilmeyecek olan rüya bir takım olarak sunmuştu. Şampiyona boyunca rakipleri karşısında zorlanan Brezilya finalde kaybedince Ronaldo’nun sakatlığı mazeret olarak öne sürüldü. Fakat bu, Ronaldo’yu sakat sakat oynamaya zorlayan Nike’ın imajının zedelenmesini önleyemedi. Bütün bu olanlardan sonra Nike ile Brezilya’nın yollarının ayrılması gündeme geldi. Ancak Nike, Brezilya Futbol Federasyonu ile aralarındaki anlaşmaya ek maddeler koydurdu. Bu maddelerden sonra Brezilya Milli Takımı’nın kontrolü Nike’ın eline geçti. Ek maddelere göre, Brezilya’nın hangi takımlarla hazırlık maçı yapacağını Nike belirleyecek ve ilk on birde en az sekiz ünlü futbolcu bulunacaktı.
+       <br/>
+       <br/>
+       Futbol nereden nereye?
+       <br/>
+       <br/>
+       Günümüzde tam anlamıyla bir sektör haline gelen futbolu, Havelange ve Televizyon Öncesi- Havelange ve Televizyon Sonrası diye ikiye ayırmak gerekiyor. Çünkü futbol, Brezilyalı Joeo Havelange’nin 1974 yılında FIFA Başkanı olmasına ve televizyonun devreye girmesine kadar parayla bu kadar içli dışlı değildi. Havelange ve televizyon sayesinde hızla büyüyen futbol, dünyanın en büyük sektörü oldu. İsterseniz, futbolun nasıl imparatorluk haline geldiğini, Dünya Kupası’nın gelişimine yakından bakarak anlamaya çalışalım.
+       <br/>
+       <br/>
+       Dünya Kupası fikrinin ortaya atılmasında Uruguay’ın 1924 ve 1928 yıllarında iki kez üst üste olimpiyat şampiyonu olmasının etkisi inkar edilemez. ‘Dünyanın en iyi takımı biziz’ diyen Uruguaylılara Avrupalılar katılmıyor ve Dünya Kupası fikri yavaş yavaş oluşmaya başlıyordu. Fransız Jules Rimet başkanlığındaki FIFA, çok geçmeden bu fikri benimsiyor ve ilk Dünya Kupası’nın 1930 yılında düzenlenmesini kararlaştırdı. Ancak bu işe bir engel çıktı. Global ekonomik buhran nedeniyle hiçbir ülke bu organizasyona ev sahipliği yapmaya yanaşmadı. Sonra Uruguay çıktı ve ‘Bir yıl içinde eksiklerimizi tamamlar, en iyi şekilde düzenleriz’ dedi. Bunu derken de iki şeyi gözetiyor. Birincisi, saha avantajını kullanarak Avrupalılara en iyi olduklarını ispat etmek. İkincisi de ülkenin yüzüncü yıl kutlamalarını bu şekilde anlamlı hale getirmek. Eleme maçlarının yapılmadığı ilk Dünya Kupası’na ekonomik sıkıntı nedeniyle Avrupa’dan sadece dört ülke katılıyor. Fransa, Romanya, Belçika ve Yugoslavya Milli Takımı’nın oyuncuları aynı gemiyle Güney Amerika’nın yolunu tutuyorlar, aylar süren yolculuktan sonra Brezilyalı futbolcuları da alarak Uruguay’a ulaşıyorlar.
+       <br/>
+       <br/>
+       O yıllarda birinci savaştan çıkıp ikinci bir savaşa hazırlanan dünya, çok büyük bir ekonomik sıkıntı çekiyor. Bu nedenle Amerika kıtasında düzenlenen organizasyonlara Avrupalılar, Avrupa’da düzenlenen organizasyonlara da Amerikalılar fazla rağbet etmiyorlar. Mesela, İtalya’da düzenlenen 1934 Dünya Kupası’na Amerika’dan sadece Brezilya, Arjantin ve ABD; Fransa’da düzenlenen 1938 Dünya Kupası’na da sadece Brezilya ve Küba katılıyor. 1942 ve 1946 yıllarında da savaş nedeniyle Dünya Kupası düzenlenmiyor. İlk üç Dünya Kupası organizasyonuna katılmayan Türkiye ise resmi maçlar yapmaya Brezilya’50 Dünya Kupası elemelerinde başlıyor. Milli Takım, Avusturya ile eşleşiyor; fakat her iki maçta da mağlup oluyor. Ancak Avusturya parasızlıktan dolayı gitmeme kararı alınca, FIFA Türkiye’ye bir şans daha veriyor. Suriye’yi yenince bu şans bize gülüyor; ama biz de aynı nedenle Brezilya’ya gitmiyoruz. İsviçre’de düzenlenen 1954 Dünya Kupası’na ise yakın olduğu için katılıyoruz. Kısacası, ülkeler için Dünya Kupası’na katılmak, 1970’li yıllara kadar bugünkü gibi önem arz etmiyor.
+       <br/>
+       <br/>
+       Havelange’nin marifetleri
+       <br/>
+       <br/>
+       Futbolun günümüzde bu kadar etkin bir konuma gelmesinde FIFA eski Başkanı Brezilyalı Joeo Havelange’nin rolü inkar edilemez. Dünya futbolunun 24 yıl patronluğunu yapan Havelange, ilk kez başkan seçildiği 1974 yılında, ‘Ben buraya futbol adı verilen bir oyunu pazarlamaya geldim’ demişti. Hakikaten dediğini yaptı, futbolu çok iyi pazarladı. Televizyon patronlarıyla çok iyi ilişkiler kurdu, futbolun tüm dünyada seyredilmesini sağladı, bu büyülü sporu başlı başına bir sektör haline getirdi.
+       <br/>
+       <br/>
+       Almanya Milli Takımı’nın eski kalecisi Tony Schummacher’in, maç saatlerinin Avrupa’nın prime time’ına göre ayarlandığı Meksika 86 Dünya Kupası’nda söyledikleri, futbolun bir sektör haline nasıl geldiğini gayet güzel bir şekilde ortaya koyuyor: ‘Devamlı terliyoruz, boğazımız kuruyor. Güneş ışınları sahaya dik olarak düşüyor ve kafamızda parçalanıyor. Gölgemiz bile yok. Televizyon için bunun daha iyi olduğunu söylüyorlar’. O sıcakta maç yapmanın televizyonlar için daha iyi olduğunu söyleyenler ise Havelange ve Meksika’da yayın yapan Televisa kanalının sahibi Guillermo Canedo’ydu hiç şüphesiz. Onları Avrupa pazarına satacakları yayınlardan başkası ilgilendirmiyordu. Onlara göre futbolcular sıcaktan şikayet edeceklerine, çenelerini kapatıp sahada koşmaya bakmalılardı. Bu arada şunu da belirtelim. 86 Dünya Kupası, Kolombiya’da düzenlenecekti; ancak Kolombiya parasızlıktan dolayı düzenleyemeyeceğini söyleyince, organizasyon Meksika’ya verildi. Çünkü, Televisa’nın sahibi Canedo, Havelange’nin çok yakın dostuydu.
+       <br/>
+       <br/>
+       Joeo Havelange başkanlığındaki FIFA, 16 takımla yapılagelen Dünya Kupası’nı, Meksika’86’dan itibaren 24 takımla organize etmeye başladı. Amacı, elemelerdeki heyecanı yükseltmek, organizasyondaki maç sayısını artırmak, seyirci sayısını çoğaltmak ve televizyonlardan daha fazla gelir elde etmekti. Joeo Havelange, patronluğunun son döneminde bir yenilik daha yaptı ve Fransa’98 Dünya Kupası’nda takım sayısını 32’ye yükseltti. Bu sayede daha fazla ülke heyecana ortak olacak, futbol maçlarını seyreden insan sayısı artacaktı. Nitekim Fransa’98, insanları en fazla ekran başına toplayan Dünya Kupası oldu. Havelange bu yeniliklerle kalmadı, futbol imparatorluğuna, futbolla ilgisi olmayan ülkeleri de katmak için özel bir çaba sarf etti. Mesela, 94 Dünya Kupası’nı Amerika Birleşik Devletleri’ne, 2002 Dünya Kupası’nı da Uzakdoğu ülkelerinden Güney Kore ve Japonya’ya verdi.
+       <br/>
+       <br/>
+       UEFA da boş durmadı
+       <br/>
+       <br/>
+       FIFA futbol imparatorluğunun sınırlarını genişletmeye çalışırken, UEFA da boş durmadı. Avrupa’daki futbol organizasyonlarını düzenleyen ve denetleyen UEFA, kitleleri statlara ve ekran başına toplayabilmek için çeşitli çalışmalar yaptı. Şampiyon Kulüpler Kupası’nın isminin ve statüsünün değiştirilerek Şampiyonlar Ligi haline getirilmesi bu çalışmaların en önemlilerindendi. 1992 senesinde uygulamaya konulan ve 8 takımla start alan Şampiyonlar Ligi, ilerleyen yıllarda önce 16, sonra 24, daha sonra da 32 takımla organize edildi. Amaç, daha fazla maç, daha fazla seyirci ve daha fazla para. UEFA Asbaşkanı Şenes Erzik, amaçlarını şu sözleriyle gayet net bir şekilde özetliyor: ‘Futbolcu transferleri artınca ve Avrupa’nın büyük kulüpleri tarafından Süper Lig adı altında bağımsız bir lig kurulması düşünülünce, UEFA olarak biz de Şampiyonlar Ligi’ne katılan takım sayısını artırdık. UEFA’nın amacı, sezona daha fazla maç sığdırıp televizyon ve seyirci gelirini artırmak. Bu yüzden futbolda güçlü olan ülkelerin şampiyon olamayan takımlarını bile Şampiyonlar Ligi’ne alarak kaliteyi ve rekabeti artırmayı düşünüyoruz.’.
+       <br/>
+       <br/>
+       UEFA; rekabeti, heyecanı, dolayısıyla reytingi, seyirciyi ve geliri artırmak için Şampiyonlar Ligi’ne katılan takımlara verdiği ödüllere de zam yaptı. Takımlara katılım payı olarak 1.5 milyon, her galibiyet için 500 bin, her beraberlik için 250 bin İsviçre Frangı para ödülü veriliyor. Çeyrek finale kalan takımlara 4, yarı finale kalan takımlara 5, finalde kaybedene 8 ve şampiyon olan takıma da 10 milyon İsviçre Frangı ödeniyor. Ayrıca UEFA, UEFA Kupası’nı 2003-2004 sezonundan itibaren Şampiyonlar Ligi statüsüyle düzenlemeye karar verdi.
+       <br/>
+       <br/>
+       Kulüpler kulüp değil, şirket
+       <br/>
+       <br/>
+       Futbol parayla bu kadar içli dışlı olunca futbol kulüpleri de şirketleşti. Avrupa’daki kulüplerin birçoğu şirket ve borsada işlem görüyor. Borsada işlem görenler, reklam, sponsor, seyirci, stadyum, isim, yayın, ürün ve transfer gelirlerini pazarlıyorlar. Avrupa’da borsaya açılan ve tek amaçları daha fazla para kazanmak olan kulüpleri, değerlerine göre şöyle sıralamak mümkün: Manchester United (531 milyon $), Juventus (369 milyon $), Arsenal (152 milyon $), Glasgow Rangers (152 milyon $), Roma (142 milyon $), Lazio (135 milyon $), Galatasaray (131 milyon $), Newcastle United (101 milyon $), Beşiktaş (95 milyon $), Celtic (90 milyon $), Ajax (78 milyon $), Leeds United (77 milyon $), Borussia Dortmund (66 milyon $), Tottenham Hotspurs (64 milyon $), Chelsea (63 milyon $), Manchester City (30 milyon $), Bradford City (30 milyon $).
+       <br/>
+       <br/>
+       Markalar futbolu tercih ediyor
+       <br/>
+       <br/>
+       Futbol, ünlü markaların halka ulaşması için çok önemli bir araç. Bu nedenle birçok marka futbol takımlarına ve futbol organizasyonlarına sponsor olabilmek için mücadele ediyor. Markaların ilginç mücadelesine Çin Futbol Ligi’nden bir örnek verelim. Marlboro, 1994 yılında 1.2 milyon dolar karşılığında Çin Futbol Ligi’ne sponsor oldu. Çin Futbol Federasyonu, 1999 yılında ikinci beş yıllık zaman için bir sponsorluk ihalesi daha açtı. Bu sefer başta Coca-Cola ve Pepsi olmak üzere birçok marka sponsorluk için uğraşırken, Çin Futbol Ligi’nin değeri tam on kat arttı. İhaleyi, 10.5 milyon dolar karşılığında Pepsi kazandı. Pepsi, futbol maçlarını gazetelerden ve televizyonlardan takip eden 400 milyon Çinli’ye bu şekilde ulaşıp en büyük rakibi Coca-Cola’yı geride bırakmanın hesaplarını yapıyor. Coca-Coca ile Pepsi arasındaki rekabeti, Dünya Kupası organizasyonlarında da görmek mümkün. Coca-Cola organizasyonların sponsorluğunu üstlenirken, Pepsi de organizasyona katılan ülkelere sponsorluk yapıyor. Mesela, 2002 Dünya Kupası’nın en büyük sponsorlarından biri Coca-Cola. Pepsi de başta Türk Milli Takımı olmak üzere birçok ülkenin ana sponsoru.
+       <br/>
+       <br/>
+       FIFA, futbolun sektör haline gelmesinden sonra Dünya Kupası organizasyonlarını gelişmiş ülkelere vermeye başladı: 1990 İtalya, 1994 ABD, 1998 Fransa, 2002 Japonya-Güney Kore, 2006 Almanya. Dünya Kupası’nı organize eden ülkeler, çok büyük paralar kazanıyorlar. Bu paraların büyük çoğunluğu da televizyon, reklam ve sponsorlardan elde ediliyor. İki buçuk ay kadar sonra Japonya ve Güney Kore’nin ev sahipliği yapacağı 2002 Dünya Kupası’nın sponsorları da şunlar: Adidas, Budweiser, Fuji, Gillette, JVC, Mastercard, Avaya, Coca-Cola, Fuji, Hyundai, Korea Telecom, Mc Donalds, Philips, Toshiba ve Yahoo. Bu sponsorların organizasyona ödeyecekleri rakam, 69 milyon dolar. Reklamlardan beklenen gelir 12 milyon dolar, biletlerden beklenen gelir de 154 milyon dolar. Ayrıca, FIFA’nın 100 milyon dolarlık yardımının dışında yurt dışından beklenen 440 bin futbolseverin her iki ülkeye 660 milyon dolar bırakacağı tahmin ediliyor.   Japonya Organizasyon Komitesi (JAWOC) ve Güney Kore Organizasyon Komitesi (KAWOC) başkanlarına baktığımız zaman da futbolla paranın ne kadar içli dışlı olduklarını görüyoruz. JAWOC Başkanı Mong Jun Jung, Hyundai’nin sahibi, Güney Kore Futbol Federasyonu Başkanı ve FIFA Başkan Yardımcısı. Jung, aynı zamanda cumhurbaşkanlığına adaylığını koymayı düşünüyor. JAWOC Başkanı Nasi Sho da Tokyo Electric’in sahibi.
+       <br/>
+       <br/>
+       Sponsorların dediği oluyor
+       <br/>
+       <br/>
+       Seyircilere bira içme serbestiyeti, Euro 2000 Avrupa Futbol Şampiyonası’nda başlamıştı. Euro 2000’in ana sponsoru, Liverpool, Fenerbahçe, Beşiktaş ve Galatasaray’a da sponsurluk yapan bira şirketi Carlsberg’di çünkü. Carlsberg, stadyumların altında stand kurmuş ve seyircilere bol bol bira satmıştı. Euro 2000’in ardından 2002 Dünya Kupası’nda da seyircilere alkollü içki içme izni verildi. Çünkü, Dünya Kupası’nın ana sponsorlarından biri de bira şirketi Budweiser. FIFA yetkilileri, 330-350 santilitrelik plastik bardaklarla stadyumlarda ve çevresinde seyircilere alkollü bira satışı yapılacağını açıkladılar.
+       <br/>
+       <br/>
+       2002 ve 2006’nın değeri 3 katrilyon lira
+       <br/>
+       <br/>
+       2002 ve 2006 Dünya Kupası’nın yayın hakkını, Alman Kirch Grubu 1.5 milyar sterline (3.1 katrilyon TL) satın aldı.  Kirch Grubu da bu parayı diğer televizyon kanallarından çıkartmaya çalışıyor. Şu ana kadar Dünya Kupası’nın yayın haklarını şu kanallar aldı: Fransa TF1 148 milyon $ (2002 ve 2006), İngiltere BBC 228 milyon $ (2002 ve 2006), İtalya RAI 92 milyon $ (2002), Güney Kore KSB-MBC-SBS 60 milyon $ (2002 ve 2006), G.Amerika Konsorsiyumu TV Glabo ve Direct TV 860 milyon $ (2002), Malezya- Singapur RTM-TV3 5 milyon $ (2002 ve 2006), Yeni Zelanda Sky 1 milyon $ (2002 ve 2006), İspanya Viadigital 142 milyon $ (2002), Almanya ARD-ZDF 115 milyon $ (2002). Bu arada, TRT ile Kirch yetkilileri arasında hâlâ bir anlaşma sağlanamadı.
+       <br/>
+       <br/>
+       Dünya Kupası’nın ne kadar pahalı bir organizasyon olduğuna karar vermek için bilet fiyatlarına bakmak yeterli. Üç kategoriye ayrılan biletler, her tur için farklı fiyatlara satılacak. Grup maçları biletleri 66, 110 ve 165, 2. tur biletleri 110, 195 ve 250, çeyrek final biletleri 140, 220 ve 330, yarı final biletleri 195, 330 ve 550, üçüncülük maçı biletleri 110, 195 ve 250, final biletleri de 330, 550 ve 825 dolar olarak belirlendi.
+       <br/>
+       <br/>
+       E-mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12524), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225163459/http://www.aksiyon.com.tr:80/detay.php?id=12524)

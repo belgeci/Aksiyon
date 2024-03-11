@@ -1,0 +1,156 @@
+# 7 Haziran dostları
+
+*Adem Özbay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119204518im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119204518im_/http://www.aksiyon.com.tr/resim/498/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Eşi adını koymuş: 7 Haziran dostları. Bu tarih asla unutulmuyor; anma toplantıları, mevlitler, şiir dinletileri ile gazete ve dergilerde eksik olmayan tam sayfa Cahit Zarifoğlu yazıları... Hiçbiri  Zarifoğlu kitaplarının  satışlarını "kıpırdatmaya"  yeterli olmuyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   "O yaz otuz iki yaşında olmanın değil, daha erken bir yaşın, bir yaşamak"ın dengesindeyim. Görebildiğim kadar dağ görmek istiyorum. Yanlarından, içlerinden ve üstlerinden görmek ve her birine isterse birbirinin aynısı olsun, dünyanın binbir meşakkatle varılan tek dağı gibi, elimde olmayan derin bir hayretle bakıyorum..."
+   <br>
+    <br>
+     "Ne kadar çok acı var"la başlayıp, rikkatli bir dervişin dünyayı ve hayatı algılama çabalarıyla, insanlığını kaybetmişlerle aynı gökyüzü altında yaşamanın şaşkınlığıyla ve coğrafyanın dört bir yanına dağılan ızdırapların kodlarını çözerkenki inlemeleriyle devam eden "Yaşamak" adlı günlüğünde hayrete dair düştüğü notlar, yukarıdaki gibi sürer gider Cahit Zarifoğlu"nun. Bir edebiyat adamının çok ince bir değerlendirmesiyle "kendinden öncekileri etkileyen" bir şair-yazar olarak Cahit Zarifoğlu edebiyat tarihimizde saklı kaldığı yerden son yıllarda birileri tarafından ısrarla çıkarılmak isteniyor. O kimilerince "anlaşılmaz şair", kimilerince "keşfedilmemiş bir ada" olmayı ise hâlâ sürdürüyor.
+     <br>
+      <br>
+       Zarifoğlu, toplam 47 yıllık yaşam ağacının çeyrek asrına sığdırdığı yapıtlarıyla bugün Türk edebiyatına inanılmaz bir doğurganlık ve üretkenlik mirası bırakmış durumda. Ahmet Mithat Efendiler gibi onlarca eser değil, özellikle şiirde denediği yeni biçimler ve söyleyişler ile doğurgan bir kalemin sahibi o. Zarifoğlu kendi dönemdaşları tarafından öyle kabul edilse bile ne İkinci Yeni, ne de çağdaş bir şair. O şiirini, bin yılı aşan bir zaman diliminde insanoğlunun payına düşenleri ve yine insanoğlunun kendini bilmez, zaptedilmez, sınırlandıramaz hodbinliği ile tarumar ettiklerini zarif bir sanatkar olarak bir araya getirmeye çalışmış, onları insanlık hamuruyla, yürek aşkınlığıyla yoğurup, gözyaşlarının tuzuyla tatlandırmış, kelimelerle beyaz sayfalara işlemiştir. O binlerce şairle aynı Türkçe sözlüğü kullanmasına karşılık, kelimeleri sözlük anlamlarının çok dışına taşırmıştır. Bugün edebiyat dünyamızda elimizi kimin kitabına, sohbetine, anılarına daldırsak bir Cahit Zarifoğlu"na çarpıyoruz. Kâh şiirlere ilham olan Zarifoğlu, kâh eserlerinden yeni açılımlar yakalanan Zarifoğlu, kâh da edebiyatımızda yeri doldurulamaz boşluklar bırakmış bir Zarifoğlu.
+       <br/>
+       <br/>
+       Kendi çağdaşlarından vefat edenlerin hiçbirine nasip olmamış bir iltifata bugün Zarifoğlu. Her yıldönümünde muntazaman mezarı ziyaret ediliyor, arkadaşları toplanıp onu anıyor, adına şiir geceleri tertipleniyor, ciddi dergilerimiz onun için özel sayılar hazırlıyor, adına şiir ödülü düzenleniyor"  Bu liste böyle uzayıp gidiyor. Dahası adına kütüphaneler, kültür merkezleri açılıyor, caddelere ismi veriliyor. Belgeseli yapılıp, televizyonlarda gösteriliyor, mütemadiyen radyolarda zikrediliyor. "E ne güzel işte, bir edebiyatçımızın kıymeti biliniyor" deyip biz de Cahit Zarifoğlu"nu rahmetle anıp, yazımızı bir iki şiiriyle süsleyip geçebilirdik. Hoş da olurdu. Zira nice kıymetli kalemlerimiz var ki, vefatından sonra iki üç yıl anma merasimleri tertipleniyor, nihayetinde solgun kapaklı kitaplarıyla nadiren ziyaretçi kabul eden kütüphanelerimizin tozlu sayfalarında kayboluyor. Zarifoğlu"nun böylesine bir ilgisizliğe terk edilmemesinden daha güzel ne olabilir diye düşünüyor insan.
+       <br/>
+       <br/>
+       Doğrusunu kabul etmek gerekirse tozlu raflarda kaybolacak bir Zarifoğlu günün birinde şiirin ve kalemin kadri kıymetini bilecek birilerince tekrar keşfedilebilir. Zor olan ise "içi boş bir anmacılık" zihniyetiyle şişirilen Zarifoğlu"nun özünü duyumsayabilecek okurlarının onun satırlarının peşine düşmesi. Sadece vefat yıl dönümünde değil, yılın belli zamanlarında gündeme gelen ve konuşulan, her edebiyat dergisinin iki sayısından birinde mutlaka kendisine vurguda bulunulan bir şair için ne acı verici bir durum: Konuşulmak, konuşulmak ve konuşulmak.
+       <br/>
+       <br/>
+       Ve okunmamak... Bu kadar çok gündeme gelen bir yazarın haliyle çok okunuyor olması da gerekiyor. Fakat Zarifoğlu"nun kitaplarının çoğunluğu hâlâ ilk baskıda. Şiirleri ise yirmi yıllık bir zaman diliminde henüz dördüncü baskıda. Bu da gösteriyor ki, ısrarla Cahit Zarifoğlu diyenlerin içinde birçok kişi onu okumuyor. Doğu ve Batı arasında değil Doğu ile Doğu arasında inşa etmeye çalıştığı o muazzam yapının harcından, tuğlasından kimse haberdar olmak için çaba harcamıyor.
+       <br/>
+       <br/>
+       Zarfioğlu"nun en yakın arkadaşlarından biri olan, Mavera Dergisi"ni de b irlikte çıkardıkları şair Erdem Bayazıt, Zarifoğlu kitaplarının satışlarını kendisine söylediğimizde çok şaşırıyor. Çok sayıda anma programına iştirak ettiğini, orada Zarifoğlu"nu seven kalabalıklara şahit olduğunu, dolayısıyla da o kadar çok sevilen birisinin kitaplarının çok fazla sattığını düşündüğünü belirtiyor. Sadece geçen yılki yarışmaya 150"den fazla başvuru olduğunu, bunun çok yüksek bir katılım olduğunu da ekliyor. "Kaliteli eserler her zaman için az satar" derken bir yandan da "sorunun yayınevlerinin dağıtım politikasından" kaynaklanabileceğini belirtiyor.
+       <br/>
+       <br/>
+       Burada yayınevlerinin Zarifoğlu"nun eserlerini okura ulaştırmak için ne kadar çaba gösterdiğini de tartışmak gerekiyor. Yapı Kredi Yayınları bassaydı farklı mı olurdu? Hatırlanırsa Ahmet Hamdi Tanpınar"ın eserleri Yapı Kredi Yayınlarına geçtikten sonra patlama yapmıştı. Cahit Zarifoğlu"nun kitaplarını Beyan Yayınları basıyor ama çocuk kitaplarının hakları Mustafa Ruhi Şirin"in başında olduğu Çocuk Vakfı"nda. Beyan"ın sahibi Ali Kemal Temizer, "dağıtım sorunu yaşadıklarını, fakat az satmasının buna bağlı olmadığını" söylüyor. Ona göre "çok satanlar hangi nedenle satıyorsa, Zarifoğlu kitapları da o nedenle az satıyor."
+       <br/>
+       <br/>
+       Burada herkesin aklına Zarifoğlu"nun hazmı zor bir yazar olması geliyor. Ümraniye Belediyesi Kültür Müdürlüğü görevindeyken "Cahit Zarifoğlu Kütüphanesi"ni kuran, Zarifoğlu"nu anlamak için paneller düzenleyen bugünün milletvekili Recep Garip de onun zor okunan değil okunması dikkat isteyen bir şair olduğunu söylüyor. Garip, sağlığında Zarifoğlu"yla bunu sık sık konuştuklarını, onun ise Baki ile Fuzuli naatlarını, methiyelerini, kasidelerini nasıl yazmışlarsa ben de öyle yazıyorum" dediğini belirtiyor.
+       <br/>
+       <br/>
+       Onunla şurada şöyle yaparken...
+       <br/>
+       <br/>
+       Recep Garip, bir konuya daha dikkat çekiyor; Zarifoğlu"nu tanıyanlar onunla ilgili çalışmalar üretmiyor. Sadece Alman edebiyatçı Geothe için 22 bin (yazıyla yirmi iki bin) araştırma kitabı yayınlanmışken, Cahit Zarifoğlu"nu bol keseden övenler, onun şiirinin kodlarını çözmeye, ruh dünyasını tahlil etmeye, hikayesinin çözümlemelerini yapmaya zahmet etmemişler. "Onunla şurada şöyle yaparken"le başlayan sayısız cümle kurabilen bu insanlar, genç kuşağın haliyle "anlaşılmaz, kapalı" bulduğu şiirinin kapılarını okurlarına açmaya hiç yanaşmamaktalar. Zarifoğlu"yla birlikte yıllarını geçiren ya da onunla şiir ve sanat sohbetlerinde bulunan dostları, dergidaşları, öğrencileri bugün nerede konaklamaktadırlar? Onun eserlerini, kendisini bizzat yakından tanıyan ve onunla şiir, sanat, fikir, yazı münazaralarında bulunmuşlar kadar derinlikli kim yorumlayabilir? Burada "Cahit Zarifoğlu Şiir ve Edebiyat Girişimi" tarafından çeşitli yazarların görüş ve yazılarının derlendiği "Cahit Zarifoğlu - Yürek Safında Bir Şair" kitabını anmak gerekiyor. Lakin bu çaba çok cılız ve eksik.
+       <br/>
+       <br/>
+       Zarifoğlu"nun eşi Berat Hanım, eşine son yıllarda gösterilen ilgiden dolayı memnun. Ama geçen yıl yapılan ve Kanal 7"de gösterilen belgeseli hazırlayanlara ve 7 Haziran dostlarına kırgın. Mezarı başında toplanıp kendilerine birçok destek sözü veren, çocuklarına burs yardımı sözünde bulunan insanların hiçbirinden destek görmemiş. Sadece Beyan Yayınları"nın telifleri düzenli ödediğini, hatta gerektiğinde maddi katkıda bulunduğunu belirtiyor. Özellikle genç kuşağın onu anlama çabasını takdirle karşılıyor ama kitaplarını okumadan bunu nasıl gerçekleştirebileceklerini de anlayamadığını söylüyor.
+       <br/>
+       <br/>
+       Cahit Zarifoğlu 2004 Şiir Ödülünün sahibi genç şair İsmail Kılıçarslan ise çevresinde "Zarifoğlu"nu seviyorum ama hiç kitabını okumadım" diyen birçok gençle karşılaşmasından sonra "gençler şiirinin değil evliyalığının alıcısı" tespitinde bulunuyor. Yine bir başka yazar Saadettin Acar, bir arkadaşına gelen gençlerin "Abi, Cahit Zarifoğlu"yla ilgili dergiye bir yazı hazırlıyoruz da, ne yazalım, bize birkaç şey söyler misin?" dediğini hayretle naklediyor.
+       <br/>
+       <br/>
+       Yirmi yılda dört baskı (biner biner) yapan şiirleri, 97 yılında basıldıktan bu yana yarısı bile bitmemiş denemeleri, kendi adına düzenlenmiş şiir gecesinde beş yüze yakın kalabalığa sadece üç adet satılabilen kitapları ile Cahit Zarifoğlu hayretle yüzümüze bakmakta. Adına düzenlenen bol resimli dergi özel sayıları kadar bile satamayan kitaplarıyla, Zarifoğlu bir gün Çamlıca"daki dergahların hu"larıyla dinginleştiği Küplüce"deki mezarından kalkıp yürüse kaçımız hayret edeceğiz.
+       <br/>
+       <br/>
+       Yaşanılan ve tecrübe edilen bu hakikatlerden hareketle bugün (tüm bunları gördükleri için midir  bilinmez) sessizlikleriyle konuşan Sezai Karakoç, Nuri Pakdil gibi ustalarının da vefatlarından sonra (Allah uzun ömürler ihsan etsin), edebiyat âleminin kaytan bıyıklı delikanlıları tarafından tekrarlanacak "şöyle azarlandım, şöyle kovuldum" cümlelerinin kutsanmış bir havari edasında önüne gelene anlatılmasıyla anılmaya devam edileceklerini söylemek çok zor bir kehanet olmasa gerek.
+       <br/>
+       <br/>
+       <br/>
+       KİTAPLARININ SATIŞ RAKAMLARI
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       Şiirler                             :            4.baskı (3.baskısı 2000"de basıldı)
+       <br/>
+       <br/>
+       Yaşamak                     :            3. baskı (2.baskısı 1998"de basıldı)
+       <br/>
+       <br/>
+       Hikayeler                    :            2.baskı
+       <br/>
+       <br/>
+       Bir Değirmendir Bu Dünya           :            2.baskı (1.baskısı 1999)
+       <br/>
+       <br/>
+       Konuşmalar                    :            1.baskı (1991 basıldı)
+       <br/>
+       <br/>
+       Romanlar                    :            1.baskı (1991 basıldı)
+       <br/>
+       <br/>
+       Zengin Hayaller Peşinde            :            1.baskı (1999 basıldı)
+       <br/>
+       <br/>
+       Çocuk Kitapları                   :            1. baskı
+       <br/>
+       <br/>
+       <br/>
+       "BEN OKUMAM   AMA ÇOK SEVERİM!"
+       <br/>
+       <br/>
+       <br/>
+       İsmail Kılıçarslan (2004 Cahit
+       <br/>
+       <br/>
+       Zarifoğlu Şiir Ödülü Sahibi):
+       <br/>
+       <br/>
+       "Bir şair değil de devrimciymiş gibi..."
+       <br/>
+       <br/>
+       Bir delikanlı, üstelik şiirle uğraşan bir delikanlı, bana aynen böyle söylemişti Cahit Zarifoğlu için: "Ben Zarifoğlu okumam; ama çok severim."
+       <br/>
+       <br/>
+       Soru biraz da şu: "Zarifoğlu okunmuyor; ama zaten kim okunuyor ki?"
+       <br/>
+       <br/>
+       Şairlerin okunmadığını, şiir dinletilerini 500 kişi izlerken 3 kitabın satıldığını görüyoruz. Ancak hakkında onlarca etkinlik düzenlenen, adını yaşatmak için sürekli girişimlerde bulunulan, yani ismi hep vitrinde duran bir şair olarak Zarifoğlu"nun okunması gerekiyor. Şiir gecelerini takip eden, etkinlik etkinlik dolaşan genç kitle; zora değil de kolaya talip! Onlara, Cahit Zarifoğlu mistifikasyonu yetiyor. İşin daha vahimi, Cahit Zarifoğlu"nu bir şair olarak değil de; bir aksiyon adamı, bir evliya, bir devrimci olarak konumlandıranlar da yazık ki Cahit Zarifoğlu aşkıyla yanıp tutuşan kimi genç şair, yazar ve organizasyoncular. Ben bunu, kimse kusura bakmasın, "nekrofili" olarak isimlendirmek zorundayım. Özetle, yapılan onca özel sayıya, düzenlenen onca etkinliğe rağmen Zarifoğlu"nun (doğru) okunmamasında adına "evliyalaştırma çabası" dediğim bu temel yanlışlığın da etkili olduğunu düşünüyorum. İsmi bilinen, efsaneleri anlatılan, ancak neredeyse hiç (doğru) okunmayan bir şair olmayı kim ister ki Zarifoğlu istesin.
+       <br/>
+       <br/>
+       Erdem Bayazıt (Yakın dostu-şair): "Kitapları satmıyor mu?"
+       <br/>
+       <br/>
+       Kitaplarının bu kadar az satılması benim için sürpriz bir haber oldu. İstediğimiz ölçüde belki satmıyor ama diğer şairler gibi onun kitaplarının da sattığını zannediyorum. Sevildiğinde ve şiirinin içine girildiğinde Cahit Zarifoğlu"nun şiirinin anlaşılmamasına imkan yoktur. Çok sevildiğine inanıyorum. Çağrıldığım her yerde ona gösterilen yoğun ilgi halesiyle karşılaşıyorum. Ama dediğiniz gibi 20 yılda kitaplarının 4 baskı yapmış olması benim için de şaşırtıcı bir durum. Bu üzerinde durulması gereken bir husus.
+       <br/>
+       <br/>
+       Ben ümitliydim satışlardan ama ezbere konuşuyormuşum demek ki. Satış rakamlarının bu kadar düşük olması şaşırtıcı elbette. Çok az. Bütün dünyada aslında bu durum geçerli. Kaliteli edebiyata çok fazla ilgi yok.
+       <br/>
+       <br/>
+       Recep Garip (Cahit Zarifoğlu Kütüphanesi"ni
+       <br/>
+       <br/>
+       açtı, hakkında paneller düzenledi):
+       <br/>
+       <br/>
+       "Arkadaşları onunla ilgili özgün eser üretmeli"
+       <br/>
+       <br/>
+       Cahit Zarifoğlu"yla ilgili, dergilerin özel sayılarının satış rakamlarının fazla olması gündeme taşınmasıyla ilgili bir konudur. Şiir akşamları düzenlenmesi, kütüphanenin açılması, sempozyumların yapılması üniversite gençliği tarafından kendi yaşadığı dönemlerden daha fazla tanınır, bilinir olmasını sağlamıştır. Ancak diğer kitaplarının satmaması düşündürücü bir konudur.
+       <br/>
+       <br/>
+       Ali Kemal Temizer (Beyan Yayınları):
+       <br/>
+       <br/>
+       "Kitapları daha albenili hale getiriyoruz"
+       <br/>
+       <br/>
+       Her şeyden önce yayınladığı kitapların dağıtım ve pazarlaması noktasında başarılı bir yayınevi olduğumuzu söyleyemeyiz. Bu durum Zarifoğlu"nun kitaplarının az satmasındaki faktörlerden biri olabilir. Ama bu belirleyici ve bu durumu açıklayıcı bir faktör değildir. Günümüzde, popüler olanın, medyatik olanın, değerinin değil pazarlamasının iyi yapıldığı ürünlerin çok satıldığı bir vakıa. Bu açıdan bakıldığında Zarifoğlu, ne ürünleriyle ne de duruşuyla popüler, medyatik olmaya ve pazarlanmaya müsait bir çizginin sahibi idi. Cahit Zarifoğlu"nun eserlerinin az satması, bizim için sıradışı bir durum değildir. Çünkü aynı çizgiyi ve duruşu temsil eden yazarların tümü, aynı kaderi yaşıyor. Sezai Karakoç"un, Rasim Özedenören"in de hak ettikleri satış rakamına ulaşabildikleri kanaatinde değilim.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11614), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119204518/http://www.aksiyon.com.tr:80/detay.php?id=11614)

@@ -1,0 +1,70 @@
+# Hangi vatan, hain kim?
+
+*Yasin Aras Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302224201im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302224201im_/http://www.aksiyon.com.tr/resim/293/17.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Acaba Hollandalı Dick Jol, vatan haini olduğunu alnından okuyup, bu adamın milli takımda ne işi var düşüncesiyle mi Alpay’ı oyundan attı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Oysa o milli takımın en iyi defans oyuncusuydu; serseri bir kırmızı kart isabet etmesi sonucu vatan haini ilan edildi ve Abdullah Öcalan’la aynı kefeye konulmaktan kurtulamadı. Aynı Alpay ondan önce oynanan üç maçta takımın en iyisiydi ve vatan kurtaran kahramandı. Bir dakika içinde ise kahramanlıktan vatan hainliğine terfi etti. Arif’in başına gelenler de Alpay’ınkinden farklı olmadı. Oyundan atılmamıştı ama bir penaltıyı gole çeviremeyişinden dolayı Öcalan’la aynı statüye sokuldu. Akşam gazetesinin spor yazarı Kâzım Kanat, CNN Türk’te açık ve net bir şekilde düşündüklerini söylüyordu; “Alpay da, Arif de vatan hainidir.” Bu kadar ağır bir isnada maruz kalmalarının sebebi; bir kırmızı kart ve kalecinin kurtardığı penaltı.
+   <br>
+    <br>
+     Vatan hainliği kavramı, cumhuriyetin ilk yıllarında kurulan İstiklal Mahkemelerinden bu yana hiç bu kadar popüler olmamıştı herhalde. O zamanlar ipleri çekilenlerle şimdikilerin pekçok ortak noktaları var. Tek ayrıldıkları yer idam ediliş tarzları. Şimdilerde vatana ihanet eden kişiler spor sahalarında belli olurken, idamları da gazetelerin spor sayfalarında gerçekleşiyor.
+     <br>
+      <br>
+       “Beni eleştiren haindir”
+       <br/>
+       <br/>
+       Türkiye’nin yakın tarihine baktığımız zaman sürekli birilerinin hainlik yaptığı ve aynı şekilde bu hainleri rezil eden, onları toplumun gözünden düşüren kahramanların olduğu gerçeğiyle karşı karşıya kalıyoruz. Siyaset, spor, politika, sanat farketmiyor ve biz bol bol hain ve kahraman üretiyoruz. A partisinin iktidarında B partisindekiler, B’nin iktidarında ise A partisindekiler vatan hainliği yapıyor. İktidarı eleştiren, halkın çıkarlarını savunan, halktan yana olan insanlara hain damgası vuruluyor: Devletini sevmeyen vatan haini. Devletin temel ilkelerine zarar veriyor diye bütün toplumu dahi hain ilan etmekte bir beis görmüyor ve bazılarımız ülkeyi bunlardan kurtarmak için kahramanlık gösterilerinde bulunmaktan hiç çekinmiyor.
+       <br/>
+       <br/>
+       İçi boşaltılan bu kavram hayatımıza o kadar girdi ki, küçük bir çocuk oyunda mızıkçılık yapan arkadaşına vatan haini dese şaşırmayacak hale geldik. Zaten ünlü şovmen Mehmet Ali Erbil’in Kahpe Bizans filmini eleştiren bir yazara söylediği lafa da şaşırmamıştık. Ne demişti Erbil; “Bunlar vatan haini, Türk sinemasının gelişmesini istemiyor.” Yazar hainlik yapıyor, Erbil ise kahramanlık. Peki sinema ile vatan hainliğinin ilgisi nedir diye hiç düşünmüyor.
+       <br/>
+       <br/>
+       Herşey Denizli’yle başladı
+       <br/>
+       <br/>
+       İhaneti Vataniye serüveni son yıllarda Mustafa Denizli’yle yeniden rating kazanmaya başladı. Denizli “vatan hainleri” lafını direkt söylemeyi tercih etmeyip, Avrupa Şampiyonasına katılmamızı tescil eden maçtan sonra “içimizdeki İrlandalılar” tabirini kullanarak bunu açığa vurdu. Kimse doğru dürüst kazanılan zafere sevinemezken, Denizli’nin “içimizdeki İrlandalılar” sözü Türk futbol literatürüne girdi. Ve sonunda Avrupa Şampiyonasına katıldık... İtalya’yla oynadığımız ilk maçı kaybettik. Medya, başta Mustafa Denizli olmak üzere futbolcuların üzerine gitmeye başladı. İkinci maçta İsveç’le berabere kaldık, eleştiriler biraz yumuşadı. Avrupa Şampiyonası oynanıyordu ama ortada inanılmaz bir soğuk savaş vardı. Tugay tozluklarını fırlattı diye takım kadrosundan atıldı. Sergen’in, “Takımı Denizli değil, medya kuruyor” açıklaması üstü kapalı bir şekilde kadro dışı kalmasını sağladı. Dananın kuyruğu Belçika maçından sonra koptu; iki sıfırlık bir skorla çeyrek finaldeydik ve gözler Mustafa Denizli’nin üzerindeydi, “içimizdeki Belçikalılar!” diye sözlerine başlamasını bekliyordu herkes... Oysa Denizli beklenen açıklamayı yapmadı... Onun yerine sahaya bu sefer Hakan Şükür çıktı ve maçtan hemen sonra TRT—1 ekranlarından milyonlara haykırdı; onlar kendilerini bilir tarzından bir açıklamayla birkaç kişiyi çoktan vatan haini ilan etmişti bile. Daha sonra bir spor yazarının kendisiyle yaptığı röportajda, ayrıntılı bir şekilde vatan hainlerinin isimlerini de söyledi. O listedekilerden biri de Erman Toroğlu’ydu. Kendi tabiriyle daha neler olduğunu anlamadan Hakan Şükür’ün gazabına uğramıştı. İnşallah diyor Erman Hoca: “Bir gün şunların eğlence olduğunu anlayıp, maçlardan sonra tekrar günlük hayatımıza döneriz.” Vatan hainliği çok zor bir kavram Toroğlu’ya göre. Ancak ülkeni başka bir ülkeye, bir çıkar karşılığı satarsan vatan haini olursun: “Şimdi bu tabiri kalkıp futbolda kullanırsan, ortaya tamamen kişiliksiz, eğitimsiz kişilerin kullanacağı bir cümle çıkar.” diyor.
+       <br/>
+       <br/>
+       Politik bir silah
+       <br/>
+       <br/>
+       Vatan haini kavramının toplumda bu kadar değerli olması, tartışmalarda ve kısır çekişmelerde geçer akçe olarak kullanılması, elbette tarihi bir sürece dayanıyor. Belki de bu ülke vatan hainlerinden çok çektiği için ve bunun acısını yanlış kişilerden çıkarmak istediğinden bu kadar zorlanıyor. Tarih araştırmacısı Orhan Koloğlu, çözüm bulmakta zorluk çeken toplumlar, kısa vadeli değerlendirmelerle işin içinden çıkarlar. Bunlar politik değerlendirmelerdir tespitinden sonra tarihi bir örnekle hadiseyi somutlaştırmaya çalışıyor: “İstiklal Savaşı’ndan hemen önce, İstanbul için Ankara hain, Ankara için de İstanbul haindi. Bu durum kısa vadeli bir değerlendirmeye örnektir. Uzun vadeli bir değerlendirmede iki tarafın da kendine göre haklı olduğunu görüyoruz. Sonuçta Ankara girdiği mücadeleden galip çıkmasaydı, İstanbul haklı çıkacaktı. O yüzden kısa vadeli süreçler “vatan hainliği” gibi bir değerlendirmeye tâbi tutma hakkı verebilir. Ama bu hadiselerin üzerinden 70—80 yıl geçmiş, aynı damgaları biz şimdi vurmamalıyız.” Hadiseye tarihçi gözüyle bakıldığında bugünkü söylemlerin, o zamanın yansımaları olduğunun söylenebilmesi, işin içinden çıkılmasını kolaylaştırıyor. Vatan hainliği kavramının politik bir silah olarak kullanıldığı günyüzüne çıkıyor. Dolayısıyla siyasete yakın olan futbolda bu kavramın bu kadar iğdiş edilmesi anormal değil. Tarihi vakâlarda bir daha geriye dönüş yok. Oysa futbol; her karşılaşmada yenilenen bir oyun. Ertesi gün o hain ilan ettiğiniz kişileri kahraman da ilan edebilirsiniz. O yüzden futbola “vatan haini” lafını sokmanın ne kadar inandırıcılıktan uzak olduğunu daha iyi anlayabilir, asıl vatan hainliği kavramına ihanet edildiğini söyleyebiliriz. Vatan hainliği kavramı hakkında kaygı içinde bulunan kişilerden biri de MHP’nin İstanbul Milletvekili Mehmet Gül: “Dünyada yaşanan değişim süreciyle birlikte ülkemizde de bu türden kavramların değişmesi kaçınılmazdı. Fikir akımlarının bakış açılarına göre de “vatan hainliği” farklılık gösteriyor. Fakat bugün vatan hainliği yakıştırmasında öyle bir noktaya gelindi ki; işe yaramaz, içi boşaltılmış bir tepki sözcüğü oldu çıktı. Gün gelip de gerçekten lazım olduğunda bu kavramı kullanmakta zorlanacağız.”
+       <br/>
+       <br/>
+       Sıkışınca cümle içinde kullan!
+       <br/>
+       <br/>
+       Toplum önünde cereyan eden çarpışmalarda belden aşağı vurmak, artık vatan haini demekle sağlanıyor. Hasmını bir daha yerinden kalkamayacak şekilde, oturaklı, hasar verici cümlelerle yere sermeyi planlayan birileri için “vatan hainliği” cümle içinde kullanılabilecek en sevimli tabir. Ama işine gelenlerin dışındaki sonuçların ne olacağının pek çoğu farkında bile değil. Bu noktada ayağa kalkacak suçlu sayısı bir değil, iki tane. Biri siyasetçiler diğeri medya. Toplumun oldukça hassas olduğu bir refleks haline getirdiği kelime grubunun bu kadar fütursuzca kullanılması abesle iştigal değil de nedir? “Hele ki sosyal ve ekonomik işleyişini henüz tamamlamamış, belirli şeyleri aşırı değerlendirme yolunu seçen insanların çoğunlukta yaşadığı bir toplumda hadise göründüğü kadar masum olmaktan çıkar ve tehlikeli bir boyuta doğru göz açıp kapayıncaya kadar sürüklenebilir” ihtimali acaba çok mu abartılıdır? O zaman milli futbolcu Alpay’ın bir taksici tarafından uğradığı tacizi aklınıza getirin!
+       <br/>
+       <br/>
+       Hadi yukardan birileri bilinçsiz söylemlerle içindekini kusuyor olsun. Peki toplumda bu tür abuk—subuk konuşmalar neden değer buluyor sorusunu, psikiyatrist Ender Karaca’ya sorduk; Karaca’ya göre bunun nedeni bireysel reflekslerimiz; “İnsanlar günü birlik sıkıntılar içinde belli bir düşünce tarzı yerine, belirli şeyleri aşırı değerlendirme yolunu seçiyor. İşte Türk Milli Takımı çok iyidir gibi bir aşırı değerlendirme yolu ki bu gerekli olan, haklı olan zeminden daha öte birşey. Bu oturmadığı için bir anda devalüasyon geliyor ve bu sefer reddediyor. Ve Türk Takımı şöyledir, böyledir, Alpay—Arif vatan hainidir şeklinde bunu ortaya koyuyor. Buradaki temel mantık iki şeyden kaynaklanıyor: Birincisi, yapılan işin netliğinin ortaya konulmaması; ikincisi, kişilerin düşünce mantalitesi açısından değer atfettiği şeyle tam bir ilişki içinde bulunamaması.”
+       <br/>
+       <br/>
+       Saded: Futbol sayesinde kavramların içini nasıl boşalttığımızı bir kez daha gördük. Bizim vatan hainliği kilisenin insanları aforoz etmesine benziyor. Kime vatan haini diyeceğimizi, kime vatanperver madalyası takacağımızı şaşırmış vaziyetteyiz.
+       <br/>
+       <br/>
+       E—mail: aksaras@yahoo.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14199), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302224201/http://www.aksiyon.com.tr:80/detay.php?id=14199)

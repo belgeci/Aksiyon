@@ -1,0 +1,86 @@
+# Markası var tescili yok
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Pazarda fark edilmenin altın kuralı yenilik yapmak. Tescilsiz yenilik ise taklitçiler için bulunmaz fırsat… Ancak Türkiye, bin 162 başvuruyla bu fırsatı kaçırmış görünüyor. 10 yılda aldığı patent sayısı ile sadece ABD'nin 20 günde aldığı patent seviyesine yetişebiliyor. Avrupa'da yılda 100 bin, Japonya'da  ise 350 bin  başvuru  yapılıyor.
+   <br/>
+   <br/>
+   Rekabetin yoğun yaşandığı sektörlerde marka, belki de en çok konuşulan konuların başında geliyor. Son zamanlarda ürün ya da hizmet üreten bütün şirketler, marka oluşturmanın pazarda üstünlük elde etmek için önemli bir faktör olduğuna inanmaya başladı. Ürün sahibi, bir çocuk gibi büyüttüğü markasını her türlü tehdide karşı koruma altına almak zorunda. Aksi takdirde bu işin ceremesini firmanın yanı sıra taklit bir mal alan müşteri çekiyor. Tercih edilen bir markanın taklide yakın olması ise tüketici nezdinde itibarını azaltıyor. Piyasadaki pazar payı hakimiyeti göz önüne alındığında markalar bir çok taklitçinin iştahını kabartarak markaya yatırımı da tehlikeye sokuyor.
+   <br>
+    <br>
+     Marka çoğu zaman firmanın isminin önü geçti demiştik. Mesela L.C. Waikiki tişörtlerini Türkiye'de Tema Tekstil, Lee Cooper Jeans'lerini Koniteks firması ürettiği halde tüketiciler bu ürünleri isminden dolayı alıyor. Tüketiciler için önemli olan markanın oluşturduğu imaj ve ona duyulan güven. Kim üretirse üretsin, satış garantisi markanın oluyor. Bir dönem Sana, margarin piyasasında bir markadan çok ürünün adı zannediliyordu. Ancak reklamların dayanılmaz gücü sayesinde zihinlerimize "Selpak" bir mendil olarak kazındı.
+     <br>
+      <br>
+       Kim istemez Mado  yada  Live's zannedilmeyi
+       <br>
+        <br>
+         1995 yılında yapılan yeni düzenleme ile büyük ilerleme sağlayan patent, marka ve endüstriyel tasarım konusunda iş dünyasının yeterli bilgiye sahip olmadığı ortada. Bilindik bir sürü mamül, taklitçileri tarafından ya isim ya da telaffuz benzerliğiyle piyasaya çıkıyor. Mesela en çok bilinen TWEEN-twins, ABBATE-abbase, DUFY-dufny isim benzerliğiyle patent başvurusu yapılıyor. Sınai haklar açısından neler yapılması gerektiği bilinmediği için bu gibi büyük markaların benzerleri piyasada cirit atabiliyor.
+         <br/>
+         <br/>
+         Marka ve patent vekilliğinde Türkiye'nin en büyük şirketi olan Destek Patent Yönetim Kurulu Üyesi Orhan Eriman şunları söylüyor; "1995 yılı mevzuat değişmesinden sonra Türkiye'de marka müracaatında bir patlama oldu. Ama maalesef bu sayı buluşlarda çok düşük. Avrupa veya Uzak Doğudaki bir şirketin bir yılda ürettiği yenilikler, Türkiye'de tüm firmaların bulduklarından çok fazla. Mesela Bosch-Siemens şirketinin icat ettiği patentlerin sayısı Türkiye'deki tüm müracaatlardan fazla." Türkiye'de 1995 yılında 20 bin civarında olan müracaat 2003'e gelindiğinde 37 binlere ulaştı. Şu an tescilli marka sayısı 250 bin civarında. Başvurularda daha çok tekstil ve gıda sektörü başı çekerken kozmetik, kimya onları takip ediyor.
+         <br/>
+         <br/>
+         Üretilen, pazarlaması yapılan ürün ve hizmetlerde kullanılan markanın her şeyden evvel yasal zorunluluk gereği tescilinin alınması gerekiyor. Tescil işlemiyle bir anlamda yasal koruma altına alınıyor. Marka üzerinden hak iddia edebilmek için kullanılmadan ve tanıtımı yapılmadan önce tescilinin alınması çocuğun anne babasının nüfusuna geçirilmesi kadar önemli. Tescil edilmiş olması ise taklit edilemeyeceği anlamına gelmiyor. Koruma altına alındıktan sonra ayrıca izlenmesi gerekiyor. İzleme, tüm tescilli marka sahiplerinin üye olması gereken bir sistem. Türk Patent Enstitüsü müracaatı yapılan tüm yeni markaları yaklaşık 8 ay sonra aylık yayınladığı resmi bülteninde ilan yoluyla itiraza açıyor. Daha sonra da izleme şirketleri sayesinde bültenlerde yayınlanan markaların periyodik olarak benzerlik taraması yapılıyor. Bu taramalarda birbirine yakın markalar tespit ediliyor. Sahibinin izniyle de bu markalar aleyhine geçerli süre içinde itiraz hakkı doğuyor. Her tescilli marka sahibi, hakkını bireysel olarak koruyamadığı için izleme servisleri önem kazanıyor. Resmi markalar bülteni bir nevi resmi gazete kimliği taşıdığından yayınlanan tüm markalar süresinde itiraz edilmediği taktirde geçerli sayılarak tescil işlemleri gerçekleşiyor.
+         <br/>
+         <br/>
+         Türkiye'de yapılmış olan tescil yalnızca Türkiye sınırları içinde geçerliliğini koruyor. Uluslararası piyasalara açılmadan önce mutlaka yurtdışında tescile uygun olup olmadığının araştırılması gerekiyor. Herhangi bir tecavüz halinde kendi markanız üzerinde hak iddia edebilmeniz için ihracat yaptığınız ülkelerde tescil edilmiş olması gerekiyor. Taklit veya tescilsiz marka ile yabancı ülkelere yapılacak ihracat, gümrüklerde mallara el konulması riskini de beraberinde getiriyor. Tüm dünyada geçerli bir tescil sistemi bulunmuyor. Ancak markaların uluslararası tescili ile ilgili Madrid Protokolü uygulaması yurtdışı tescil işlemlerine büyük kolaylık getirdi. Türkiye'nin de üye olduğu bu protokolle tek bir başvuru ile 59 ülkede marka tescil edilmiş oluyor.
+         <br/>
+         <br/>
+         Tescilsiz ürüne AB tokadı
+         <br/>
+         <br/>
+         Tescilsiz veya taklit tasarımlar yurtdışına ihraç edildiğinde gümrüklerde veya ilgili ülkelerde toplatılma riski taşıyor. Bu yüzden ihracat yapan firmaların kendi ürettikleri ambalaj ve etiket tasarımlarını tescil ettirmeleri gerekiyor. Bir marka tescilinin yapılabilmesi için 600 milyon lira harç ödeniyor, danışmanlıkla birlikte 1 milyar lirayı buluyor.
+         <br/>
+         <br/>
+         Diğer bir konu da satılık markalar. Destek Patent Yönetim Kurulu Üyesi Eriman, markalarını tescil ettirip çeşitli nedenlerle satmak isteyenlerin çıktığını söylüyor. Zor duruma düşen firmalar veya haciz işlemiyle baş başa kalan markalar, isteyen müşterilere  satılıyor. Bir ürün 14-15 aydan önce tescil edilmediği için satılık markalar ilgi görebiliyor.
+         <br/>
+         <br/>
+         Dünyayı değiştirmeye gerek yok
+         <br/>
+         <br/>
+         Marka kadar önemli diğer bir konu da patent. Geliştirilen ürünün patent alabilmesi için bilindiğinin aksine dünyayı değiştirecek kadar şaşırtıcı olmasına gerek yok. Teknik bir sorunu çözen en basit unsur bile yeni ise ve sanayide uygulanabiliyorsa patent kapsamında korunabiliyor. Maalesef Türk firmaları bunun önemini fark etmiş gibi görünmüyor. 2001 yılında Türkiye’de yapılmış olan 2 bin 668 patent başvurusunun yüzde 91'ini yabancılara ait.
+         <br/>
+         <br/>
+         Günümüzde, dünya çapında aktif olarak korunan dört milyon patent bulunuyor. Her yıl buna 700 bin buluş için patent başvurusu ekleniyor. Dünya sıralamasında ABD liderliğini korurken  Türkiye, 33. sırada yer alıyor. Avrupa'da 100 bin, Japonya'da 350 bin olan yıllık patent başvurusu Amerika'da ortalama 250 bin adete ulaşıyor. Türkiye'de 10 yılda alınan patent sayısı ABD'de yaklaşık 20 günde alınana eşit. Geçen yıl 3 bin patent tescili yapılan ülkemizde büyük çoğunluğunu ya yabancı şirketler ya da bireysel başvurular oluşturdu.
+         <br/>
+         <br/>
+         ORHAN ERİMAN: MARKA KÜLTÜRÜMÜZ YOK
+         <br/>
+         <br/>
+         Aslında buluşlarımız yok değil. Yaptığımız buluşları küçümsüyoruz. Farkında olmadan bir çok buluş yapılıyor ancak kayıt altına alıp sanayiye kazandıramıyoruz. Sizin patentini aldığınız ürünü ben üretemeyeceğim için daha yenisini bulmak zorundayım. Bu da gelişimi sağlayan bir unsur. Avrupa ve ABD'de gelişmişlik patent sayılarıyla ölçülüyor. İş adamlarımız zengin olmak ya da bu ülkeye katkıda bulunmak istiyorsa kendi buluşlarını yapıp taklitçilikten vazgeçmeli.
+         <br/>
+         <br/>
+         Türkiye'de Odalar ve Borsalar Birliği'ne kayıtlı olan 1 milyon şirket var. Bu şirketlerin yüzde 10'u marka patent kültürüne sahipken diğerlerinde markasını koruma alışkanlığı bulunmuyor. 50 milyon dolarlık büyük bir pasta açıkta bekliyor. Çünkü marka kültürü yok. *Destek Patent Yönetim Kurulu Üyesi
+         <br/>
+         <br/>
+         2003’TE 37 BİN MARKA MÜRACAATI
+         <br/>
+         <br/>
+         *1995 yılında 20 bin civarında olan marka müracaatı 2003 yılında 37 bini aştı. Şu anda tescilli marka sayısı 250 bin civarında. Tekstil ve gıda başı çekerken onları kozmetik, kimya sektörü takip ediyor. Hizmet sektörü ise henüz markalaşmanın bilincine ulaşmış değil.
+         <br/>
+         <br/>
+         *Şu anda Türkiye'de en çok müracaat gerçekleştiren kurum Destek Patent şirketi. Yılda ortalama 300 civarında patentle Türkiye'de yıllık müracaatın yarısını alıyor. Şu an itibariyle ilaçta, kimyasal ürünlerde, petlerde ve makyaj malzemelerinde patent başvuruları daha yoğun. *Yabancılar 2000 yılında 3 bin 800 müracaat yaparken bu rakam 2003'e gelindiğinde bin 800'e düştü.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1440 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14801), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050217132103/http://www.aksiyon.com.tr:80/yazdir.php?id=14801)

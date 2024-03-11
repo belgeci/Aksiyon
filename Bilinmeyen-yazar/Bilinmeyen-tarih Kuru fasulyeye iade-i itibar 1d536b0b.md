@@ -1,0 +1,41 @@
+# Kuru fasulyeye iade-i itibar
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041213074816im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041213074816im_/http://www.aksiyon.com.tr/resim/512/78.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  En revaçta Türk yemeği olmasına rağmen kuru fasulyenin niçin hor görüldüğünü kimse bilmez... Kuru fasulye, fakirin mecburen yemek zorunda kaldığı bir yemek olarak bilinir.
+ </font>
+ <p>
+  <font class="content">
+   Oysa, kıvamında pişirilmiş kuru fasulyenin tadını özlemeyecek biri bu topraklarda yoktur herhalde. Hemen herkesin sevdiğini bir türlü itiraf edemediği kuru fasulyeye itibarını, geçtiğimiz hafta İstanbul’da açılan Fasuli iade ediyor.
+   <br/>
+   <br/>
+   İstanbul’un güzel semtlerinden Tophane’de 5 katlı bir binanın tamamı, kuru fasulyenin hizmetine sunulmuş. Tarihî bir dekora sahip, Boğaz’a nazır Fasuli Restaurant’ın mönüsünde sadece kuru fasulyeye yer verilmiş. Ne yabancı isimli yemekler, ne de bildik kebaplar bu nezih mekanda yer bulabilmiş. Fasuli’de de toplantı salonları ve kafe de mevcut.
+   <br/>
+   <br/>
+   Fasuli Restaurant’ın hatırı sayılır miktarda para sarf ederek niçin kuru fasulyeye yatırım yaptığını sorduğumuzda işletme sahibi Süleyman Tarakçı’dan aldığımız cevap oldukça anlamlı: “Hiçbir ülke tarımını yok sayarak kalkınamaz. Yine hiçbir ülkenin kalkınması kültürünü yok sayarak gerçekleşmez. Biz kuru fasulyeye iyi bir yatırım yaptık çünkü bir tarım ürününün para kazandıracağına inanıyoruz. Fasulye kültürünü restoranımızda tez olarak işliyoruz; çünkü bu yemek bizim.”
+   <br/>
+   <br/>
+   Fasuli’de servis yapılan kuru fasulye her yerde bulunmayacak özelliklere sahip. Erzurum’un meşhur İspir fasulyesi, tereyağı kullanılarak özel metodlarla pişiriliyor. Halk arasında Rize fasulyesi olarak yanlış tanınan İspir fasulyesinin sırrını ise kimse tam olarak bilmiyor. İri ve şeker tadında olan fasulyeler Türkiye’de sadece İspir’deki bir dere yatağında yetişiyor ve üreticisi tarafından herkese satılmıyor. Fasuli’de İspir fasulyesinin yanında verilen pilav, süzme yoğurt ve turşu da leziz. Laz tatlısı ve özel formüllerle üretilen mercimek çorbasının tadı her yerde bulunmayacak cinsten.
+   <br/>
+   <br/>
+   Fasuli’de sadece yeme içme ihtiyacı düşünülmemiş... Yemek yiyip ruhlarında Anadolu’nun binlerce yıllık dinginliğini hissetmek isteyenler müziğin sesine dikkat kesilsin. Çünkü Süleyman Tarakçı, ünlü müzisyen Dr. Adnan Çoban’a Fasuli’ye özel bir CD hazırlatmış.
+   <br/>
+   <br/>
+   Kuru fasulyeye bunca yatırım yapan Süleyman Tarakçı’nın hedefleri ise oldukça büyük. Pişirme formülünü sakladıkları fasulyeyi yurtdışına satmaya hazırlanan Süleyman Tarakçı, gıda mühendislerinin yardımıyla bu işin olabileceğini ispatlamış. Fasulyeler özel kaplarda muhafaza ediliyor, sos ayrıca gönderiliyor ve Avrupa, Türklerin küçümsediği fasulyeyi büyük bir iştahla yiyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16169&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041213074816/http://www.aksiyon.com.tr:80/detay.php?id=16169&yorum_id=1)

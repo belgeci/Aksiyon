@@ -1,0 +1,50 @@
+# Uyuşturucu trafiğinin iki gizli aktörü
+
+*Fuat Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050118065005im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050118065005im_/http://www.aksiyon.com.tr/resim/464/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Biri Rum, diğeri Musevi kökenli iki Türk vatandaşı. İkisi de uyuşturucu trafiğinin büyük isimleri. Ama bugüne kadar gizli kalmayı başardılar. Biri cezaevinden firar etti, diğeri sınır kapısından son anda kaçtı. İşte Kosta Stergiyadis ve Abraham Sardaş"ın sır dolu hikâyeleri...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye"de uyuşturucu deyince akla hemen Urfi Çetinkaya, Hüseyin Baybaşin, Hurşit Han isimleri ile Stoçi, Cantürk ve Çalışkan aileleri gelir. Türkiye üzerinden Avrupa ve Amerika"ya yönelik bu uyuşturucu trafiğinde, bugüne kadar iki kişinin ismi hiç ön plana çıkmadı. Biri Rum diğeri Musevi kökenli olan bu iki Türk vatandaşı, yakın tarihlerde esrarengiz bir şekilde Türkiye"den kaçmayı başardı.
+   <br>
+    <br>
+     İstanbul"daki Rum cemaatine mensup 58 yaşındaki Kosta Stergiyadis, 18 Ocak 2000 günü Edirne"de İpsala Sınır Kapısı"ndan Yunanistan"a kaçtığında Türk narkotik polisi ensesindeydi. Çünkü daha üç gün önce İngiltere"de yakalanmış olan 220 kilo eroinin Türkiye"den çıkışını organize eden kişi oydu. Yakalanması için bütün havalimanları ve sınır kapılarına haber geldiğinde, Kosta Stergiyadis üç saat önce İpsala Sınır Kapısı"ndan "Koço Stergiyadu"  sahte pasaportuyla kaçmayı başarmıştı. Uyuşturucu âleminde ilk ismi olan "Kosta"yla nam salmış olan Stergiyadis,  İpsala Sınır Kapısı"nda yurt dışına gönderilen buzdolaplarının içinde yakalanan 270 kilo eroinin arkasındaki kişi olarak bütün dünyada aranıyor.
+     <br>
+      <br>
+       1945 doğumlu  ve İstanbul Beyoğlu nüfusuna kayıtlı olan Kosta, Türkiye"den kaçtığı tarihe kadar İstanbul Şişli"de, Abideyi Hürriyet Caddesi"nde bulunan evinde ikâmet ediyordu. O tarihten bugüne kadar, Kosta"nın nasıl olup da üç saat farkla polisin elinden kurtulduğu bir türlü anlaşılamadı. Hakkında bilinen tek şey, Türkiye"de olduğu sürece sosyeteyle sıkı ilişkiler içinde bulunması ve bu çevrede çok sık boy göstermesi. Kim bilir, belki de Kosta"nın ilişkilerinin en yakın tanığı, kaçışından hemen önce el konulan "Jaks" isimli yatıydı. Fırsat bulsa, muhtemelen yatıyla kaçacaktı, ama kendini Yunanistan"a zor attığı anlaşılıyor.
+       <br/>
+       <br/>
+       Uyuşturucu dünyasında "İbo" ya da "Erol" kod isimleriyle tanınan Abraham Sardaş"ın namı ve ağırlığı, Kosta Stergiyadis"i aşan boyutlarda. Babası İzmir Musevi cemaatine mensup olan 51 yaşındaki Abraham Sardaş, İstanbul doğumlu. İstanbul"a yerleşen babası Yosef Sardaş, burada nakliyat ambarı işletmeciliği yaptı. Abraham Sardaş"ın hayatındaki ilginç noktalar, onun 1971"de "buzdolabı teknisyeni" olarak İsrail"e gitmesi ile başlıyor. 1983"te eroinle yakalanıyor ve ilk vukuatı duyuluyor. 1989"da yine İsrail"de eroinle yakalanıyor ve tutuklanarak cezaevine konuluyor.
+       <br/>
+       <br/>
+       Üç yıl cezaevinde kalan Abraham, 1992"de firar ederek Türkiye"ye girmeyi başarıyor. Aynı yıl İstanbul"da yakalanarak sınır dışı edilmesine rağmen bir yolunu bulup yine Türkiye"ye geliyor. Nihayet 1995"te külliyetli miktarda eroinle yakalanınca İstanbul"da İmralı Cezaevi"ne konuluyor. Ve 1998"de, Marmara Denizi"nin ortasındaki bu cezaevinden kaçmayı beceriyor. Hem Türkiye"de hem de İsrail"de hapishaneden firar etme başarısını göstererek uyuşturucu âlemine ismini yazdırmış olan "İbo" kod adlı Abraham, bir dönem Baybaşin ailesinin uyuşturucularını yurt dışına sevk etme işini organize etmesiyle de tanıyor.
+       <br/>
+       <br/>
+       Abraham 1995"te İstanbul narkotik polisi tarafından yakalandığında çok ilginç olaylar yaşanıyor. Örneğin suçüstü yapıldığında, "Ne eroini memur bey. Arabam çalınmıştı. Bagajında eroin varsa ne bileyim?" diyor. Sorgusu sırasında ani bir hareketle kolunu betona vurup kırma teşebbüsünde bulunan ve böylece hastaneye sevk edilerek sorgulanmaktan kurtulmayı deneyen Abraham"ın gözaltına alınması ile birlikte İsrail makamları hemen devreye giriyor. İstanbul Emniyeti"ne gelen İsrail güvenlik yetkilileri, Abraham"ın kendilerine teslim edilmesini istiyor. Ancak İstanbul polisi bunu kabul etmiyor. Abraham, mahkemeye sevk edilerek tutuklanıyor ve cezaevine konuluyor. Ve firar ettiği tarihten bu yana da nerede olduğu bilinmiyor. Abraham"ın yargılandığı mahkemenin kayıtları hakkında bilgi veren bir yetkili, "O kadar profesyonel bir adam ki, sorgularında tek bir kişinin ismini vermemiş. O kadar pervasız davranmış ki,  yetkililerle pazarlık etmeye bile kalkışmış" diyor.
+       <br/>
+       <br/>
+       Şu anda hem Kosta Stergiyadis, hem de Abraham Sardaş İstanbul Devlet Güvenlik Mahkemesi tarafından aranıyor. İzlerine ne zaman rastlanacağı ve esrarengiz ilişkilerinin aydınlatılıp aydınlatılamayacağı ise şimdilik bilinmiyor.
+       <br/>
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3113&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050118065005/http://www.aksiyon.com.tr:80/detay.php?id=3113&yorum_id=1)

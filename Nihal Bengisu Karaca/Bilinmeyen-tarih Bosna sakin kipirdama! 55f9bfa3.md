@@ -1,0 +1,52 @@
+# Bosna, sakin kipirdama!
+
+*Nihal Bengisu Karaca Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005401im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005401im_/http://www.aksiyon.com.tr/resim/382/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Savaş filmi denilince ne gelir aklınıza? Er Ryan’ı Kurtarmak gibi tumturaklı, kopma parçalanma sahnelerinin olmazsa olmaz olduğu bir film mi dilersiniz? Black Hawk Down tadında “güzellemeler”in etkisine hayır diyemeyenlerden misiniz? Pearl Harbour gibi içinde azıcık aşk da olsa olur mu? Yoksa usta yönetmen Terrence Malick’in Thin Red Line —İnce Kırmızı Hat’tı gibi savaşın acziyetine yani gerçek yüzüne mi değsin filminiz? Hangisi?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   74. Oscar töreninde Amelie ’yi bile sollayarak “En iyi yabancı film” tahtına oturan No Man’s Land —Tarafsız Bölge savaşın mukaddes sergüzeştine dair bir film değil, dolayısıyla başrollerde kahramanlar yok; nefretle dolu, çaresiz öfkeleri ile kendilerini komik duruma düşüren anti kahramanlar var... Birbirine komşu olan iki halkın kısa bir sürede kanlı bıçaklı hale gelmesi kadar acıklı, Avrupa’nın orta yerinde görücüye çıkan; herkesin bildiği, herkesin orada olduğu ama kimsenin bir şey yapamadığı absürt bir ölüm kalım hikayesi bu: Bosna—Hersek...
+   <br>
+    <br>
+     1993 yılında Bosna savaşında kendilerini düşman hatları arasındaki terk edilmiş bir siperin içinde bulan Bosnalı Ciki ve Çera ile Sırp Nino’nun trajikomik öyküsü anlatılıyor filmde. Ciki saklanıyor, Çera’nın öldüğünü sanan Sırp askerler altına bubi tuzağı yerleştiriyorlar. Ciki ve esir aldığı Sırp asker Nino’nun kaderi Çera’nın kendine gelmeye başlamasıyla yön değiştiriyor. Çera ölmemiştir ama en ufak hareketinde bomba patlayacak ve hayli geniş bir alanı mahvedecektir. Nino ve Ciki arasındaki gerilim film boyunca devam ediyor, geçici mutabakatlar fevri hareketlerle bölünüyor, işbirliği ve bireysel menfaatler sürekli çatışıyor; bir bombanın üzerinde yatan ve hareket edemeyen Çera Bosna Hersek’e ne kadar benziyorsa Boşnak Ciki ile Sırp Nino da öylesine mükemmel bir özdeşlikle temsil ediyorlar halklarını. Çera’nın kıpırdamaması ve yok olmamaları için birlikte hareket etmeleri gerekiyor; ama bu arada öznel varlıklarını bir an olsun unutamıyorlar ve işbirliği halindeyken bile birbirlerini yok etmek için fırsat kolluyorlar. Yönetmen alegorik anlatım biçimini küçük hikayenin özel tadını bozmadan veriyor; başlarında biten ve tv’leri adına sefaletlerini görüntülemeye çalışan basın ordusu ve Birleşmiş Milletler ise birebir temsil ediliyorlar ve filmin getirdiği eleştirel yaklaşımdan paylarını alıyorlar. Film savaşı kimin başlattığı ve aslında kimin haklı olduğu sorununa herhangi bir yanıt vermiyor, iki millet arasındaki bu kızılca kıyametin neden koptuğu ve neden bu kadar çok kan döküldüğüne dair derin tarihsel ve sosyolojik analizler yok; ancak Sırpların ve Boşnakların bir daha kolay kolay biraraya gelemeyeceğine ve ortak menfaat çatısı altında birleşemeyeceğine dair güçlü psikolojik deliller var. BM’ güçlerinin bu olaya nasıl oyun gibi baktığı, orada bulunduğu süre içinde nasıl bir duyarsızlık ve “adam sendecilik” içinde olduğu kimi zaman komik, kimi zaman acıklı dokunuşlarla işleniyor. Filmde bir Fransız çavuş dışında kimse olayın gerçek yönüyle yani kısılıp kalmış çaresiz üç insanın derdiyle ilgilenmiyor: Milliyet, ego, iktidar ve politika ekseninde, Avrapa’nın orta yerinde çıkmış ama Avrupa’nın utancı olmuş; belirsiz ve neredeyse herşeyin mübah olduğu savaşın sözde kahramanlarına, medyaya da gereken cevabı veriyor yönetmen.
+     <br>
+      <br>
+       Hollywood’un Bosna Hersek savaşına anlamlı bir yorum getirebileceğini ve ortaya doğru dürüst bir film çıkaracağını kimse beklemiyordu zaten. Sonunda bu beklentiyi yine “içerden” bir bakış karşıladı. No Man’s Land Bosnalı yönetmen Danis Tanavic’in ilk filmi. Tanavic duyarlı, ironik ve alışılmış savaş klişeleriyle alay eden bir anlatım tutturmuş. Savaş zamanı kameramanlık yapan Tanavic’in bu savaş karşıtı filminde rahatsız edici olan tek şey savaşı Türkiye’den izlemiş ve yüreği ağzına gelmiş bizler için “cani millet” olarak kodlanmış Sırpların yeterince “kötü” görünmemesi. Boşnaklara özgü mizah duygusu ile Avrupa soğukkanlılığı birleşince böyle oluyor demek ki; gerçi, tehlike geçmemişken Bosna hâlâ pimi çekilmiş bir bomba üzerinde hareketsiz yatmaya mahkumken, neyi ne kadar söyleyebilirsiniz ki? Tanavic bir şeyler söylemeyi başarmış, tavsiye olunur.
+       <br/>
+       <br/>
+       Tarafsız Bölge
+       <br/>
+       <br/>
+       Orj. Adı: No man’s land
+       <br/>
+       <br/>
+       Yön: Danis Tanovic
+       <br/>
+       <br/>
+       Oyn: Branco Djuric, Rene Biterajac, Filip Sov Agovic, Georges Slatidis, Katrin Cartlidge
+       <br/>
+       <br/>
+       Sen: Danis Tanovic
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11953), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005401/http://www.aksiyon.com.tr:80/detay.php?id=11953)

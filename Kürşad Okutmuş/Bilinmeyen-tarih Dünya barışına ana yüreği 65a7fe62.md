@@ -1,0 +1,280 @@
+# Dünya barışına ana yüreği
+
+*Kürşad Okutmuş Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Hz. Meryem kimin sorusunun cevabı çok net değil. Hıristiyanlar kadar Müslümanlar da ona değer  verip saygı gösteriyor çünkü. Hatta iki dinin kutsal kitapları karşılaştırıldığı zaman Müslümanların Hz. Meryem’e yüklediği anlamın Hıristiyanlıktan çok daha ilerde olduğu ortaya çıkıyor. Hadislerde dünya kadınlarına örnek gösteriliyor, Kur’an’da ise onun kadınların en üstünü olduğu vurgulanıyor.
+   <br/>
+   <br/>
+   Hıristiyanların çoğu İslam’ı bilmiyor. Biz hep Haçlı Seferlerini dinleyerek büyüdük. Kutsal toprakların nasıl kurtarıldığını öğrendik. Oysaki gerçek böyle değildi. Haçlı Seferleri yağmalardan ibaretti” diyor, Arkansas emekli bölge savcısı Samuel A. Weems. Ayrıntılarını dış haberler sayfalarımız için Celil Sağır arkadaşımıza verdiği röportajda detaylandıran Weems’e göre “Dün Haçlı Seferlerinde olduğu gibi bugün  de Ermeni soykırımı konusunda Hıristiyanlık kullanılıyor. Hıristiyanlar artık bu istismara dur demeli.” Weems gibi düşünen başka kimseler de görüşlerini açıklamaya başladı bugünlerde. Bunlardan biri de  asıl adı Henri Grouès olan Abbé Pierre. 1912 yılında Lyon’da doğan ve bir Katolik din adamı olan Pierre  1944’lü yıllarda Cezayir’de  bulunan General de Gaulle ile de beraber olmuştu. 11 Eylül terör olayından sonra Kur’an okumaya başladığını söyleyen Pierre,  “Okullarımızda bizlere  Haçlı Seferlerinin yüceliğini ve önemini anlattılar. Fakat daha sonraları ilk altı Haçlı Seferinin utanç verici seferler olduğunu öğrendik. Seferler sırasında askerlerin geçtiği güzergahlar üzerinde korkunç suçlar ve günahlar işlendi” diyor. Abbe Pierre aynı zamanda 1992 yılında kendisine verilen Fransa’nın en büyük taltif sembolü Legion d’Honneur ödülünü ülkedeki evsiz göçmenlerin haklarını gündeme taşımak amacıyla reddetmiş bir kişiydi.
+   <br>
+    <br>
+     Bu tür açıklamaların ne önemi var? Geçmişte yapılan yanlışları bugün ifade etmek bir fayda sağlar mı?
+     <br>
+      <br>
+       Bu tür sorulara verilecek cevap eğer bu açıklamalar yarınları kapsayacak yeni bir perspektif getirmeyecekse elbette ki pek bir mana ifade etmeyecek. Oysa tarihte gerçekleşmiş olaylarla sınırlı kalmayıp bugünü ve yarınları etkileyecek yeni fikirler üretmeye ihtiyaç var ve bu ihtiyacın, iktidarın doruğunda yaşayan ABD’de de hissedildiği görülüyor. Amerikan toplumunu içerden yaşayarak gözleyen Peter Kreeft, Ecumenical Jihad adlı eserinde Çağa Agüstinus’ca bir cevap vermek gerektiğini vurguluyor ve Hıristiyanların buna tek başına muvaffak olamayacağını belirtiyor. Kreeft’in teklifi: Hıristiyanların bu konuda Müslümanlarla ve eğer gerekirse Budistelerle işbirliği yapmaları.
+       <br>
+        <br>
+         Weems’in açıklamaları doğrudan dini olmamakla birlikte ulusal çıkarlar için dinlerin istismar edilmesini serzeniş konusu etmesi açısından ilgi çekici. Tabii olarak burada başka sorular da akla geliyor. Asırlardır süregelen “din savaşları”nın aslı neydi? Çıkarları için savaşanlar dinin gücünden yararlanmak için dinin arkasına mı sığındılar? Ya da dinleri için savaşanlar tüm çıkarlarını feda ederek dinlerini yüceltmeye mi çalıştılar? Aydınlanma ile birlikte gelişen düşünce, savaşları ortadan kaldırabildi mi? Mesela, Aydınlanmayı yaşamış ülkelerde ortaya çıkan ve on milyonlarca insanın ölümüne sebep olan birinci ve ikinci dünya savaşları dini sebeplerden mi kaynaklanmıştı? Özellikle 1990’lı yıllarla birlikte telaffuz edilmeye başlayan “İslami terör” ABD’de gerçekleştirilen 11 Eylül terör eylemi ile birlikte iyice pekiştirildikten sonra Müslüman olmak “potansiyel  suçlu” olmakla eşdeğer hale geldi. Hasılı insanların huzursuz edilmesinden beslenen çıkar savaşları tarihteki çatışmaları aratacak boyutlara ulaşmış olarak devam ediyor. Müslümanları terörizmle köşeye sıkıştıran politik atraksiyonlar karşısında diğer inançların durumu farklı mıdır? Dini, hayatın kıyısına yerleştiren seküler düşünceye karşı Kreeft’in dediği gibi dini bir cevap vermenin imkanı var mıdır?
+         <br/>
+         <br/>
+         Belki de 11 Eylül sonrası oluşan ve adeta küresel bir hipnoz halini alan Radikal İslam korkusuna kapılmadan  “Radikal İslam denilen şey bizdeki radikal hristiyanlıkla aynı değildir. İslam dini,  imanı güçlendiren ve  Allah’a bağlı olmayı sağlayan davranışları ve amelleri muhafaza etmiştir. Ramazan ayını takiben, binlerce insanın aynı anda ve çok samimi bir şekilde o’nun huzurunda secdeye gitmesi bunu göstermektedir. Bizler, (Hristiyanlar) ayinlerimizin nasıl olduğunu unuttuk. Noel Baba’ya saygı Hz. İsa’ya olan adanmışlığın, vefanın yerini almıştır” değerlendirmesini yapabilen Abbe Pierre gibi şahısların varlığından haberdar olmak ve iletişim imkanlarının irtibat kurmayı kolaylaştırıyor olması yeni perspektifler oluşturmak için iyi bir şans olabilir.
+         <br/>
+         <br/>
+         Yüzyılımızın başında, Muhammed İkbal, zihinlerimizi kategorize ederek hilal ve haçlı savaşına kodlanmışlığımızdan dolayı yeni tehlikeleri gözden kaçırdığımıza dikkat çekmişti. Bir şair olarak: “Fikrime yoldaş ettim, salip ile hilali. Korkum şudur ki benim, günlerin yüreğinde başka bir fitne gizli” mısralarıyla gelişme alanı bulan sefahetin sadece İslamı değil Hıristiyanlığı da tehdit ettiğini ifade etmişti. Peter Kreeft de Agüstinusça bir cevap vermenin gereğini ifade ederken artan boşanma oranlarını, uyuşturucu bağımlılığını, yalnızlaşmayı, şiddet eğilimindeki artışı.. Hülasa insanın mutsuzluğunu gerekçe gösteriyor. Eğer çağa Agustinusça bir cevap vermekten maksat dini bir cevap oluşturmaksa tarihi enkazı tekrar tekrar kullananlara aldırmadan, saf imanı aramak ve bunu hiç bir çıkar için kullanmamak önem arzeden bir nokta olarak karşımıza çıkıyor.
+         <br/>
+         <br/>
+         Bu konuda Gazeteciler ve Yazarlar Vakfı, Harran’da yaptığı toplantıyla üç semavi din için de önemli bir noktaya dikkatlerimizi çekmişti: Hz. İbrahim. Kalbimizi sevgi ve mehabetle dolduran ve Halilurrahman, Halilullah gibi isimlerle andığımız İbrahim peygamber hem Allah’ın birliğine inanmak, hem de nesep açısından çift yönlü birleşme noktası oluşturuyor.
+         <br/>
+         <br/>
+         Semavi vahyin asırlar boyunca  füruatta farklılıklar gösterse de aslının aynen devam etmesi şüphesiz en önemli uzlaşma alanı olarak karşımızda duruyor. Kur’an, Ehl—i Kitab’ı davet ederken, “Aramızda ortak olan kelimede, (yani) Allah’ın birliğine inanma ve ona ortak koşmama” noktasında buluşalım diyor. Tevrat’ta geçen on emir Kur’an’da da yer alıyor. Müslümanlar beni İsrail peygamberlerini ve diğer peygamberlerin hepsini kabul ediyor. Birinci kaynak olarak Kur’an bize diğer semavi dinlerin peygamberlerini anlatıp inanmamızı emrettiği için Müslümanlar bu konuda hiçbir sıkıntı yaşamıyor. Batı insanının Pierre, Kreeft ve Weems gibi düşünerek dini dünyevi ihtirasların baskısından ayırıp İslamı özgürce inceleme konusunda nasıl davranacağını zaman  gösterecek. Geçmişe baktığımız zaman ise kavgalar kadar saf imanın birleştiriciliğine götüren örneklerin de varlığını görüyoruz.
+         <br/>
+         <br/>
+         Bizim Meryem
+         <br/>
+         <br/>
+         Mesela, İncil ile Kur’an arasında bir karşılaştırma yaptığımız zaman karşımıza ilginç bir sonuç çıkıyor. Hz. Meryem ismi Kur’an—ı Kerim’de tam 34 defa  geçiyor. 114 sureden birinin de adı Meryem. Hz. Musa (169), Hz. İbrahim (69), Hz. Nuh’tan (43) sonra Meryem en çok ismi geçen dördüncü kişi.  Kitab—ı Mukaddes’in ikinci bölümü olan Yeni Ahit, yani İncil’de ise sadece 19 kez Meryem ismi geçiyor.
+         <br/>
+         <br/>
+         Kur’an, İncil’e göre çok daha hassasiyetle duruyor Hz. Meryem konusu üzerinde. Yüceltiyor, namus timsali olarak gösteriyor. Ali İmran suresi 42. Ayette de bunu açıkça ifade ediyor Kur’an—ı Kerim; “Ey Meryem, Allah seni seçti, temizledi ve seni dünya kadınlarına üstün kıldı.” Peygamber Efendimiz de bir hadisinde “Zamanındaki dünya kadınlarının hayırlısı İmran kızı Meryem’dir. Bu ümmetin kadınlarının hayırlısı da Hatice’dir” diyerek, Hz. Meryem ile Hz. Hatice’yi inananlara örnek göstermişti. Bir başka hadiste ise “Fatıma, İmran kızı Meryem dışındaki (Cennet) kadınlarının seyyidesidir” deyip, Hz. Meryem’i İslâmın en değerli kadın kişilikleriyle eşdeğer tutmuş, hatta kimi hadis nakledicilerine göre onlardan üstün olduğunu ifade etmişti.
+         <br/>
+         <br/>
+         Tıpkı kutsal kitaplar Kur’an—ı Kerim ve İncil’de olduğu gibi bugün de Müslümanlar bir çok Hıristiyan mezhebine göre Hz. Meryem’e çok daha fazla önem verip sahip çıkıyor. Marmara Üniversitesi İlahiyat Fakültesi Dinler Tarihi Bölüm Başkanı Prof. Dr. Ömer Faruk Harman özellikle Protestanların Hz. Meryem’in kudsiyetini kabul etmeyerek onu sıradan bir kadın olarak gördüklerini söylüyor. Harman’a göre Hıristiyanlar Hz. Meryem’in kim olduğu, ne olduğu üzerinde anlaşmakta zorluk çekiyor; “Katolikler İsa’yı tanrılaştırdıkları gibi Meryem’e de tanrısal bir güç vermiş. Buna karşılık Protestanlar onun Hz. İsa’yı doğurduktan sonra nişanlısı Yusuf ile evlenerek basit bir hayat sürdüğünü söyler. İslâm ise şahısları yüceltir ama haddi aşmaz. Biz Meryem’in ömrü boyunca bakire kaldığına inanır, Allah tarafından seçilen, temizlenen bir kadın evliya olduğunu düşünürüz.”
+         <br/>
+         <br/>
+         Tam bu noktada verilecek bir örnek var. İslâm başta Hz. Muhammed olmak üzere din büyüklerinin tasvirlerinin yapılmasını yasaklamış. Bu yasak içine Hz. Meryem de giriyor. Ama Batı’da pek çok Hz. Meryem resmine rastlamak mümkün. Geçtiğimiz yıl gazetelere yansıyan bir olay oldu. ABD’li bir grafiker Meryem Ana’nın kişiliğine hiç de uygun olmayacak  bir şekilde poz verdirdi ona. Daha önceki yıllarda da Meryem Ana, Barbi Bebek kılığına sokulmuştu. Bizde ise böyle bir olay hem toplum vicdanında kabul görmez, hem de hukuk kuralları buna izin vermez. Nitekim şair Can Yücel hakkında Meryem Ana ve Hz. İsa ile ilgili yazdığı ve inananların tepki gösterdiği şiiri nedeniyle dinlerce kutsal sayılan kişilikleri alaya aldığı ve hakaret ettiği için dava açılmıştı.
+         <br/>
+         <br/>
+         Hz. Meryem’in Müslümanlar için önemi, Türkler sözkonusu olduğu zaman daha da artıyor. Çünkü bir inanışa göre Hz. Meryem, Hz. İsa’nın çarmıha gerilmesinin ardından, Yahudilerin baskısına dayanamayıp havari St. Juan (Yuhanna) ile birlikte Anadolu’ya gelerek Efes’e yerleşmiş ve hayatının kalan bölmümünü burada geçirmişti. Günümüzde onun yaşadığı yer olarak kabul edilen Efes’teki Meryem Ana Evi, Hıristiyanlarca kutsal kabul ediliyor ve her yıl 2 milyon Hıristiyan Kudüs’e hacı olmak için giderken Türkiye’ye de uğruyor. Özellikle Ortodokslar Meryem Ana’nın mezarının da Efes’te bulunduğuna inanıyor. Buna delil olarak da ilk dönem Hıristiyanların dini kanunlarına göre, sadece azizler ve din uğrunda şehit olanlar için yaşadıkları ya da tanındıkları yerlerde onlar adına kilise inşa edilmesi gösteriliyor. Hz. Meryem’in İsa’nın çarmıha gerilmesinden sonra Kudüs’te kaldığını ve orada vefat ettiğini savunan ikinci bir görüş de var. Efes’e geldiğini savunanlar, onun adına Kudüs’te hiçbir kilise bulunmazken Efes’te böyle bir kilisenin bulunmasını bir delil olarak gösteriyorlar. Vatikan 1967 yılına kadar Meryem Ana Evi’ni tanımamış, bu tarihte ise Papa VI. Paul ve ardından Papa II. John’un ziyaretleri ile burasını resmen hac merkezi olarak kabul etmişti.
+         <br/>
+         <br/>
+         Türkler de Hıristiyanlar kadar olmasa bile Meryem Ana Evi’ni kutsal kabul ediyor, batıl inançları olanlardan dilek dilemeye gelenler oluyor. Dokuz Eylül Üniversitesi İlahiyat Fakültesi Dinler Tarihi Bölümü Başkanı Prof. Ali İhsan Yitik’in konuyla ilgili oldukça geniş bir çalışması var. Bu çalışmaları “Hz. Meryem ve Efes” isimli bir kitapta toplayan Prof. Yitik’e göre Meryem Ana Evi bir nevi Oruç Baba türbesi işlevi görüyor; “Meryem Ana Müslümanlarca da dert anası gibi görülüyor. Belediye tankerleri tarafından doldurulan su bile neredeyse kutsal kabul ediliyor. Peki Hz. Meryem’in sırrı neydi ki, Müslümanların çok saygı gösterdikleri Peygamberimiz’in eşi, annesi ve kızı kadar bizden biri olmuş ve yaşadığına inanılan yer duaların kabulü için gidilen bir makam haline gelmişti. Bu soruların cevabını vermeden önce kısaca Hz. İsa’nın doğumuna kadar olan süreçte yaşadıklarına göz atmakta fayda olsa gerek.
+         <br/>
+         <br/>
+         Örnek mümine Hz. Meryem
+         <br/>
+         <br/>
+         Hz. Meryem'in babasının adı Kur'an’da İmran olarak geçiyor. İslâmi kaynaklar onun ailesini Hz. Harun’a bağlıyor. İmran ailesi o dönemde mabed hizmetleriyle uğraşan bir sülaledendir. İmran’ın karısı Hannan hamile olduğunu hissedince “Ya Rabbi, karnımda taşıdığım çocuğumu her türlü bağdan âzâde olarak senin yoluna hizmet etsin diye adadım. Adağımı lütfen kabul buyur” diye dua eder. Ancak erkek değil kız doğurur. Buna rağmen sözünü yerine getirmek için onun mabede kabul edilmesini ister. Hahamlar bir kızın tek başına bulunamayacağını belirtip aralarında kim hamisi olacak diye kura çekerler ve kura sonrası Hz. Meryem’in bakımı teyzesinin kocası olan Hz. Zekeriya’ya düşer. Hz. Zekeriya mabedde ibadet içinde bir hayat süren Meryem’in yanına her girişinde bir rızık bulur ve şaşırır. “Ey Meryem, bu sana nereden geldi” diye sorunca “Allah tarafından” (Al—i İmran 3/37) cevabını alır. Hıristiyan kaynaklarda, Cebrail’in (as) gelip müjde vermesine kadar olan hayatıyla ilgili bilgi yoktur. Genç kızlık dönemi geldiğinde Hz. Cebrail gelir ve onun Allah tarafından müjdelendiğini belirtip bir çocuk doğuracağını haber verir. Hamilelik döneminde mabedden ayrılıp ıssız bir yere gider ve doğum yapar.
+         <br/>
+         <br/>
+         Peygamber miydi?
+         <br/>
+         <br/>
+         Yeryüzüne kadın peygamber gelip gelmediği tartışmaları arasında kimi İslâm yorumcuları Hz. Meryem’in nebiyye (elçi) olabileceği üzerinde durmuş. Eşari kelamında Hz. Meryem’in nebiyye olabileceğine dair iddialar var. Allah’ın onu seçip temizlemesi ve dünya kadınlarına üstün tutması ve Kur’an’da Hz. Muhammed’e (a), İbrahim’i de an, Davut’u da an derken Meryem’i de an denmesi onun nebiyye olabileceğinin işareti kabul ediliyor. Prof. Ali İhsan Yitik, seçilme ve temizlenmenin peygamberlere has bir özellik olduğuna dikkat çekerek İnşirah suresinde bu özelliklerin paygamberimiz için zikredildiğini vurguluyor ve Hz. Meryem için de aynı şeyin sözkonusu olabileceğine dikkat çekiyor. Cebrail’in (a) sadece peygamberlere görünmesi ve Allah’ın vahiylerini getirmiş olması da bir başka delil olarak öne sürülüyor. Cebrail (a) Kura’n—ı Kerim’de de belirtildiği gibi  Hz. Meryem’e insan suretinde görünmüş ve bir çocuk doğuracağını müjdelemişti. Prof. Ömer Faruk Harman insan suretinde görünmüş olmasının nedenini Hz. Meryem’in bu olağanüstü olay karşısında daha fazla korku duymaması olarak açıklandığını belirtiyor. Peygamber Efendimiz Muhammed Mustafa’nın (a) torunlarından Abdülkerim Ceyli Hazretleri de Meryem Ana’dan “Vahidiyet ilmine sahip bir veli” olarak bahsediyor. Ama Eşarilik, ülkemizde yaygın bir kelami ekol değil. Bizler daha çok inanç hususunda Maturidi yorumunu tercih ediyoruz. Maturidi ekol ise kadınların nübüvveti anlayışına karşı çıkar.
+         <br/>
+         <br/>
+         Meryem’in oğlu
+         <br/>
+         <br/>
+         Kur’an—ı Kerim bir çok yerde Hz. İsa’dan bahsederken “Meryem’in oğlu” ifadesini kullanıyor. Bundaki amaç Hz. Meryem’in tanrılaştırılmasını engellemek ve Hz. İsa’nın Allah’ın değil Hz. Meryem’in oğlu olduğunun vurgulanması idi. İslâm Hz. Meryem’e sadece Hz. İsa’nın annesi olduğu için değil, kutsal bir varlık olarak değer veriyor. Hıristiyanlıkta ise onun önemi sadece İsa’nın annesi olmasından kaynaklanıyor. İslâm ise imanı, itikadı ve temiz bir mümine olması nedeniyle de Meryem’e önem veriyor. Prof. Ali İhsan Yitik, Mesnevi’de Hz. Meryem’in bu özelliklerinin öne çıkarıldığını anlatıyor. Hz. Meryem Hz. İsa’yı uzak bir yerde doğurup kavminin yanına geldiği zaman ona ‘Ya Meryem senin annen de baban da iyi ve namuslu insanlardı, sen ne yaptın’ derler. Hz. Meryem kundaktaki çocuğu işaret eder ve Hz. İsa dile gelerek; ‘Ben Allah’ın kuluyum, Allah beni peygamber kıldı, kitap verdi’ der. Mevlânâ Mesnevi’sinde bu olayı anlatırken “Meryem’in yakarışı ve derde düşüşüydü ki o küçük çocuğu dile getirdi, konuşmaya başladı” diyerek İsa’ya atfedilen bu mucizeyi Hz. Meryem’in sadakat ve Allah’a bağlılığının sonucu olarak gerçekleşen harika bir olay olarak yorumluyor.
+         <br/>
+         <br/>
+         Meryem’de birleşme
+         <br/>
+         <br/>
+         İki kutsal kitap arasındaki yorum farklarına rağmen iki dinin birleştiği en önemli unsurlardan biri olarak Hz. Meryem öne çıkıyor. Hz. İsa’nın 2000. Doğum günü törenlerinde de Papalık Uluslararası Meryem Araştırmaları Akademisi “Maria Mater Mundi” Meryem Dünya’nın Annesi adıyla bir dizi etkinlik gerçekleştirmiş ve İranlı kadınlar Kur’an—ı Kerim’den Meryem suresini okumuş, Vatikan’da Hz. Meryem için dua etmişlerdi. Katolik din adamları da yaptıkları konuşmalarda Meryem Ana’nın İslâm ve Katolik dinini birleştirdiğini, iki din arasında bir diyalog kanalı haline geldiğini belirtmişlerdi.
+         <br/>
+         <br/>
+         Burada tarihi bir anektotu hatırlamakta yarar var: Hz. Meryem vasıtasıyla İslam’ın doğuşunda Müslümanlarla Hıristiyanlar kucaklaşmış ve ilk müminler huzur içinde yaşama ortamı bulmuşlardı. Mekke’deki zulüm dayanılmaz bir hal alınca Hz. Peygamber müminlere Habeşistana gitmelerini söylemişti. Müslümanların ilk hicreti böylece bir Hıristiyan ülkeye gerçekleşti. Bu arada boş durmayan müşrikler Necaşi ile dostluğu olan Amr b. As’ı görevlendirdiler. Amr kıymetli hediyelerle Necaşi’nin huzuruna vardı ve Müslümanların iadesini istedi. Hediyeleri takdim etti ve Necaşi’yi iade için tam ikna etmek üzereydi ki Hz. Cafer ileri atılarak Kur'an'dan Meryem suresini okudu. İyi bir Hıristiyan olan Necaşi, dinlediği kelam karşısında ürpermiş ve “Size bunları Hz. Muhammed mi söylüyor?” Diye sormuştu. Ardında da Amr b. As’a dönerek: “Ey Amr! Önüme altından dağlar yığsan yine bu insanları sana teslim etmem” demişti.
+         <br/>
+         <br/>
+         İslâm ve Hıristiyanlığın kutsalı Hz. Meryem İslamın zuhurunda olduğu gibi bugün de iki din arasında köprü olabilir.  Necaşi gibi inancı sağlam kişiler tarihi ve kültürel tortulardan sıyrılıp, bir de Kur’an’a bakalım diyebilirler belki de. O zaman iki semavi din arasında bir köprü kurulabileceği gibi Huntington’un ünlü medeniyetler çatışması tezini de çürütebilecek bir barış ortamına doğru yol alabiliriz. Din için savaştığını söyleyenlerle, savaş nedenini gizlemek için dini istismar edenlerin dışında, Allah’ın kelamıyla insanları kucaklayıp huzur ve barış ortamına taşıyacak üçüncü bir yol belki de çok yakındır.
+         <br/>
+         <br/>
+         E—Posta: osmaniridag@hotmail.com
+         <br/>
+         <br/>
+         Kursadokutmus@ mynet.com
+         <br/>
+         <br/>
+         Kadınların en hayırlısı
+         <br/>
+         <br/>
+         “Erkeklerin çocuğu (fazilette) kemale erdi. Halbuki kadınlardan yalnız Fir’avn’ın kadını Asiye ile İmran’ın kızı Meryem’den başka hiçbiri kemale erişemedi” (Buhari). “Alemlerin kadınları arasında İmran kızı Meryem yeter “(Ahmed b. Hanbel). “Kureyş kadınları, deveye binen (Arap) kadınlarının hayırlısıdır. Onlar, kadınların çocuğa en şefkatlisi, elindeki zevcinin malını korumak hususunda kocaya en riayetlisidir. Meryem binti İmran asla deveye binmedi” (Ebu Hureyre). Kurtubi bu hadisi, Meryem, zamanındaki kadınlara üstündü, derken, bazı bilginler onun sur üfürülünceye kadar gelecek bütün kadınlardan üstün olduğunu belirtmişlerdir şeklinde açıklıyor. “Peygamber Efendimiz bir gün kızı Fatıma’ya, ‘Allah’a hamdolsun, seni İsrailoğullarının seyyidesine benzer kıldı’ buyurdu (Alusi). “Dünya kadınlarının en hayırlısı şu dört kişidir: İmran kızı Meryem, Firavun’un karısı Asiye b. Müzahim, Huveylid kızı Hatice ve Muhammed kızı Fatma’dır (Ebu Hureyre).
+         <br/>
+         <br/>
+         Hıristiyanlıkta ve İslâmda Hz. Meryem
+         <br/>
+         <br/>
+         Hz. Meryem’in İslâmdaki yeri üzerine en kapsamlı araştırmanın sahibi (Hıristiyanlıkta ve İslâmda Hz. Meryem) Prof. Dr. Günay Tümer, iki dinin Hz. Meryem’e bakışını karşılaştırmış.
+         <br/>
+         <br/>
+         —Hıristiyan kutsal metninde (Yeni Ahid) Meryem ad olarak 19, İslâm’ınkinde 34 defa anılır.
+         <br/>
+         <br/>
+         —Meryem’in ana tarafından şeceresini Müslüman çevreler belirlemişlerdir. Babası, Hıristiyan kitabında bulunmaz.
+         <br/>
+         <br/>
+         —Her iki kutsal metinde de Hz. İsa’nın doğumu Beytlahim’dedir.
+         <br/>
+         <br/>
+         —Meryem’in doğurma olayı, her iki dinde de kötülük sonucu değil, bakire olduğu haldedir.
+         <br/>
+         <br/>
+         —Melek tarafından müjdelenişi pek yakın ifadelerledir. Luka’da “Kadınlar arasında mübarek oldun” şeklinde, Kur’an’da “Ey Meryem, Allah seni seçti, temizledi ve seni dünya kadınlarına üstün kıldı” sözleriyle ifade edilmiş.
+         <br/>
+         <br/>
+         —İncillerde İsa’nın “Kardeşleri” geçer. O, “İlk doğan”dır. Kur’an da yoktur.
+         <br/>
+         <br/>
+         —Kur’an’a göre Meryem ölünceye kadar bakire kalmıştır. Katolik ve Ortodokslar başta geriye kalanların bir kısmı da dahil, aynı inançtadır. Protestanlar ise Meryem’in doğumdan sonra nişanlısı Yusuf ile evlendiğine inanır.
+         <br/>
+         <br/>
+         —Kur’an’daki övgü ifadeleri ve doğum sonrasındaki halini anlatan sahneler (Hz. İsa’nın kundakta konuşması, kavminin Meryem’i iffetsizlikle suçlaması) yoktur.
+         <br/>
+         <br/>
+         —Meryem adı iki dinde ve mezheplerinde ad olarak kullanılır.
+         <br/>
+         <br/>
+         —Her iki dinin edebiyatında Meryem önemli bir konu, figür ve semboldür. Aynı şekilde tasavvuf âleminde Meryem, Allah’a bağlılığın, iffet ve ismetin bir ölçüsü olarak kabul edilmiş.
+         <br/>
+         <br/>
+         İncil’de Hz. Meryem
+         <br/>
+         <br/>
+         Hz. İsa’nın doğumu
+         <br/>
+         <br/>
+         — Gökte olağanüstü bir belirti, güneşe sarınmış bir kadın göründü. Ay ayaklarının altındaydı ve başında on iki yıldızdan oluşmuş bir taç vardı.
+         <br/>
+         <br/>
+         — Kadın gebeydi. Doğum sancıları içinde kıvranıyor, feryat ediyordu.
+         <br/>
+         <br/>
+         — Sonra gökte başka bir belirti göründü: yedi başlı, on boynuzlu ve yedi başında yedi taç olan, kızıl renkli büyük bir ejderhaydı bu.
+         <br/>
+         <br/>
+         — Kuyruğuyla gökteki yıldızların üçte birini sürükleyip yeryüzüne attı. Sonra, doğum yapmak üzere olan kadının önünde durdu. Kadın doğurduğu an ejderha çocuğu yutacaktı.
+         <br/>
+         <br/>
+         — Kadın bir oğul, bütün ulusları demir çomakla güdecek bir erkek çocuk doğurdu. Çocuk hemen alınıp Tanrı’ya, Tanrı’nın tahtına götürüldü.
+         <br/>
+         <br/>
+         — Kadın ise çöle kaçtı. Orada bin iki yüz altmış gün beslenmesi için Tanrı tarafından hazırlanmış bir yeri vardı.
+         <br/>
+         <br/>
+         (Esinlenmeler 12/1-6)
+         <br/>
+         <br/>
+         İsa'nın doğumu önceden bildiriliyor
+         <br/>
+         <br/>
+         — Elizabet’in hamileliğinin altıncı ayında Tanrı, melek Cebrail’i Celile’de bulunan Nasıra adlı kente, Davut’un soyundan Yusuf adındaki adama nişanlı olan bir kıza gönderdi. Kızın adı Meryem’di.
+         <br/>
+         <br/>
+         —  Onun yanına giren melek, «Ey Tanrı’nın lütfuna erişen kız, selam! Rab seninledir» dedi.
+         <br/>
+         <br/>
+         —  Söylenenlere çok şaşıran Meryem, bu selamın ne anlama gelebileceğini düşünmeye başladı.
+         <br/>
+         <br/>
+         — Ama melek ona, «Korkma Meryem» dedi, «Sen Tanrı’nın lütfuna eriştin.
+         <br/>
+         <br/>
+         —  Bak, gebe kalıp bir oğul doğuracaksın, adını İsa koyacaksın.
+         <br/>
+         <br/>
+         — O büyük olacak, kendisine 'En Yüce Olan’ın Oğlu’ denecek. Rab Tanrı o’na, atası Davut’un tahtını verecek.
+         <br/>
+         <br/>
+         — O da sonsuza dek Yakup’un soyu üzerinde egemenlik sürecek, ve egemenliğinin sonu gelmeyecektir.»
+         <br/>
+         <br/>
+         — Meryem meleğe, «Bu nasıl olur? Ben erkeğe varmadım ki» dedi.
+         <br/>
+         <br/>
+         —  Melek ona şöyle cevap verdi: «Kutsal Ruh senin üzerine gelecek, En Yüce Olan’ın gücü senin üstüne gölge salacak. Bunun için doğacak olana kutsal, Tanrı Oğlu denecek.
+         <br/>
+         <br/>
+         — Bak, senin akrabalarından Elizabet de yaşlılığında bir oğula gebe kalmıştır. Kısır bilinen bu kadın şimdi altıncı ayındadır.
+         <br/>
+         <br/>
+         — Tanrı’nın yapamayacağı hiçbir şey yoktur.»
+         <br/>
+         <br/>
+         — «Ben Rab’bin kuluyum» dedi Meryem, «Bana dediğin gibi olsun.» Bundan sonra melek onun yanından ayrıldı.                                           (Luka 1/26-38)
+         <br/>
+         <br/>
+         Kur’an-ı Kerim’de Hz. Meryem
+         <br/>
+         <br/>
+         —Kitap’da Meryem’i de an. Hani o, ailesinden ayrılıp doğu tarafında bir yere çekilmişti.
+         <br/>
+         <br/>
+         —Onlarla arasına bir perde çekti. Derken kendisine ruhumuzu (Cebrail’i) gönderdik de o, düzgün bir insan şeklinde ona göründü.
+         <br/>
+         <br/>
+         —Meryem ona: “Ben bağışlayan Allah’a sığınırım senden, eğer Allah’tan korkan biri isen!” Dedi.
+         <br/>
+         <br/>
+         —Ruh (Cebrail): “Haberin olsun, ben sana tertemiz bir oğlan vermek için Rabbinin elçisiyim sadece!” Dedi.
+         <br/>
+         <br/>
+         —Meryem: “Benim nasıl bir oğlum olabilir? Bana hiçbir insan dokunmadı; ben bir kahpe de değilim!” Dedi.
+         <br/>
+         <br/>
+         —Cebrail: “Öyle! Fakat Rabbin buyurdu ki, o Bana göre kolaydır. Ayrıca onu insanlara gücümüzün bir delili ve tarafımızdan bir rahmet kılacağımız için böyle yapacağız. Hem de o, karara bağlanmış bir iştir.” Dedi.
+         <br/>
+         <br/>
+         —Bu şekilde ona hamile oldu ve bu haliyle uzak bir yere çekildi.
+         <br/>
+         <br/>
+         —Derken sancı onu bir hurma dalına götürdü ve: “Keşke bundan önce ölmüş olsaydım da unutulmuş gitmiş olsaydım.” Dedi.
+         <br/>
+         <br/>
+         —Derken aşağı tarafından ona şöyle seslendi: “Sakın üzülme, Rabbin senin altında bir su arkı yarattı.
+         <br/>
+         <br/>
+         —Hurmanın dalını kendine doğru silkele, üzerine derilmiş taze hurmalar dökülsün.
+         <br/>
+         <br/>
+         —Artık ye, iç, gözün aydın olsun. Eğer insanlardan birini görürsen de ki: “Ben esirgeyen Allah’a oruç adadım, onun için bugün hiçbir kimse ile konuşmayacağım.”
+         <br/>
+         <br/>
+         —Derken onu taşıyarak kavmine getirdi, Onlar: “Hey Meryem, sen Allah biliyor ya yumurcak birşey getirdin!
+         <br/>
+         <br/>
+         —Ey Harun’nun kız kardeşi, baban bir kötülük adamı değildi, annen de kahpe değildi”
+         <br/>
+         <br/>
+         —Bunun üzerine Meryem çocuğu gösterdi: “Beşikteki bir çocukla nasıl konuşuruz?” Dediler.
+         <br/>
+         <br/>
+         —O: “Haberiniz olsun ben Allah’ın kuluyum. O, bana bir kitap verdi ve beni bir peygamber yaptı.
+         <br/>
+         <br/>
+         —Beni her nerede olursam mübarek kıldı ve hayatta kaldığım müddetçe bana namazı ve zekatı tavsiye buyurdu.
+         <br/>
+         <br/>
+         —Beni anneme saygılı kıldı, beni eşkıya bir zorba yapmadı.
+         <br/>
+         <br/>
+         —Selam bana; hem doğduğum gün, hem öleceğim gün, hem de diri olarak kaldırılacağım güne!”
+         <br/>
+         <br/>
+         —İşte hakkında tartışıp durdukları Meryem oğlu İsa. Hak sözü olarak budur!
+         <br/>
+         <br/>
+         (Kur’an 19/16-34)
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 28 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11914), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022710/http://www.aksiyon.com.tr:80/yazdir.php?id=11914)

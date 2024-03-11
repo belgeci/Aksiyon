@@ -1,0 +1,70 @@
+# Rekabet kapıya kadar!
+
+*İbrahim Doğan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ergin-Nazlı İmre çifti hem iş dünyasının başarılı birer yöneticisi hem de Türkiye"nin en aktif yat yarışçıları. Ancak akşam birlikte geldikleri evden, sabah yarışmak için rakip olarak ayrılıyorlar. Denizde birbirlerinin gözünün yaşına bakmayan ikili, eş olmalarının kimseye ayrıcalık sağlamadığını düşünüyor.
+   <br/>
+   <br/>
+   Evlilikle ilgili yazılmış yazılarda ya da konunun uzmanlarının kaleme aldığı makalelerde "evliliğinin bir dayanışma" olduğu dile getirilir, evli çiftlere tavsiye olarak "eşinizi rakip olarak görmeyin" uyarısında bulunulur. Bazı istisnalar olmakla birlikte bu kabul görmüş bir kaidedir ve toplumun farklı kesimlerince titizlikle uygulanır. İşte bu istisna sınıfına giren ilginç bir çift, Ergin- Nazlı İmre. Yelken sporu ile ilgilenenlerin yakından tanıdığı Ergin-Nazlı İmre çifti birbirlerine acımasızca rakip olmuş birer sporcu. İş dünyasında ve evde birbirlerine destek olan bu ikili yelken ve açık denizler sözkonusu olunca profesyonel birer yarışçı haline geliyorlar. Yaklaşık 2 saat süren ve saatte 18 mil hıza ulaşan yelkenlilerle yapılan yarışlar sona erdiğinde ise rekabet, yerini karı koca desteğine bırakıyor.
+   <br>
+    <br>
+     "Yarışta işlere hiç karışmam"
+     <br>
+      <br>
+       Nazlı İmre, Türkiye Yelken Federasyonu Başkanı. Eşi Ergin İmre ise Türkiye Açıkdeniz Yarış Kulübü Komadörü ve Mercedes Benz"in Türkiye Ana Bayii AVM Holding"in Yönetim Kurulu Başkanı. Ergin İmre"nin yat macerası 1990 yılında dönemin ünlü yarışçılarından Levent Karabeyoğlu"nun Proveza isimli teknesini almasıyla başlar. Yarışlara katılır, turnuvalarda boy gösterir. Ergin İmre hayatından çok memnundur ancak eşi Nazlı İmre için aynı şeyler söylenemez. Kendisi için en kötü şeyin yarıştan dönecek birisini beklemek olduğuna karar vererek "Madem öyle ben de yelkenci olurum" der ve Yunanistan"daki yarışları izlemeye gider. Ancak bu da sıkıcı bir iştir; "Ağırlığımca altın verseniz yelken yarışının bekleyenler kısmına katılmam" diyerek bir daha yarışları izlemeye gitmez.
+       <br>
+        <br>
+         Bu arada yat yarışlarında profesyonel bir sporcu haline gelen Ergin İmre Provezza"nın ağır kalmasından dolayı 1992"de kendine yeni bir yat alır. Eski yatını da yarışlara katılması için eşine teklif eder. Önce kararsız kalan Nazlı Hanım, eşini evde beklemektense ona rakip olmayı tercih eder. Artık ikilinin birer yatı vardır ve karşılıklı mücadele etmek için hiçbir engel kalmamıştır. Yeni yatın adı Provezza olarak belirlenir. Bunun üzerine emektar Proveza"nın adının değiştirilmesi kaçınılmazdır. İkili yat yarışlarına başlamalarının "özü" olarak gördükleri bu teknenin adını özprovezza olarak belirler. Bayan İmre, önce yat yarışlarının kurallarını öğrenir, küçük bir ekip kurar ve 35 yaşından sonra yaşamındaki yat macerası başlar.
+         <br/>
+         <br/>
+         Alışılagelen, tekne sahibinin yarışta dümen tutmasıdır. Ancak birbirlerine rakip ikili, teknelerin sahipleri olmalarına rağmen bugüne kadar ne dümen tutmuş ne de manevraları belirlemiş. Strateji belirlemede geminin kaptanının işine karışılmadığından skipper (kaptan) ile hiç çatışmıyorlar. Nazlı Hanım, "Bana ne söylediyseler yaptım. Hiçbir zaman onlarla tartışmadım. Uyumlu oldum. Böylece ekibin içindeki yerimi bulmam kolay oldu" diyor. Dümen tutmayı "saatlerce iki tüye bakıp performans göstermek" olarak niteleyen Nazlı Hanım"ın yarışlardaki görevi manevralarda pit denilen yerde belirli iplerin boşaltılarak alınması. Zaman zaman dinlenme ve etrafı izleme fırsatı bulduğu bu işi severek yapıyor. Ancak yaptığı işte zorlandığından bayanların bu sporla uğraşacaklarsa sürekli antrenman yapması gerektiğini düşünüyor. Eşinin işi ise teknede ipi çekmek için vinç çevirmek. Nazlı İmre, iş hayatındaki yoğunluktan ötürü bazen yarışlara katılamıyor.
+         <br/>
+         <br/>
+         Eşim değil rakibim
+         <br/>
+         <br/>
+         Bugüne kadar hiç aynı ekipte yarışmayan İmre çifti, yarışlar esnasında birbirlerini pek de merak etmiyor. Yarışlara kendilerini kaptıran ikili birbirlerini ciddi birer rakip olarak görüyor. Nazlı Hanım bir tehlike anında eşini aramayacağını söylüyor; "Yarışa gidiyoruz. Herkes kendi sorumluluğunda. Sadece işine bakıyorsun. Çok çok onlar nerede, kaç dakika önce döndü onu hesaplıyorsun ama teknenin üzerinden eşini falan görmüyorsun. O da rakiplerden birisi."
+         <br/>
+         <br/>
+         Ergin Bey de eş olmalarının denizde kimseye ayrıcalık sağlamadığı kanısında. Kendilerinin karı-koca olarak mücadelelerini Galatasaraylı Bülent Korkmaz ile kardeşi Malatatyasporlu Mert"in durumuna benzeten Ergin İmre, bu sene eşinin ekibinin daha iyi olduğunu kabul ediyor: "10 yarışın birkaçını biz kazanıyorsak 7-8"ini de onlar kazanıyor."
+         <br/>
+         <br/>
+         Nazlı Hamım"ın ekibinin yaş ortalaması eşinin ekibininkine göre daha düşük. Nazlı Hanım"ın yeni yatı Idefix II"nin daha iyi olmasını İmre çifti buna bağlıyor. Şu an lider durumda bulunan Idefix II ile eşinin Provezza"sı arasında oldukça puan farkı oluşmuş. Genel sıralamada Idefex II birinci durumda iken, ikinciliği Oğuzhan Too elinde bulunduruyor. Provezza ise ancak 3. sırada yer bulabilmiş. Nazlı İmre de bu yıl kendi ekibinin daha iyi olduğu fikrinde. "Sessiz ve derinden" gelen Nazlı Hanım, eşinin ekibinden bir şeyler öğrendiklerini yarışlarda gösterdiklerini kaydediyor. Eşine geçilen ancak yatlar konusunda daha fazla tecrübeye sahip Ergin İmre ise zaman zaman rakibine evde taktik de veriyor. Ancak denizdeki tatlı sert mücadele denizde kalıyor. Bir bakıma denizde mücadele, evde sulh yaşanıyor. Bayan İmre, "Başka şeyleri riske almaya gerek yok. Ama ayrı teknelerde birbirimize karşı yarışmak da asla ev hayatına yansımıyor. Yarış orada bitiyor" diyor. Asıl çekişme ekipler arasında oluyor. Rakip çift bazen ekipler arasındaki atışmayı da frenlemek zorunda kalıyor. Seslerin yükseldiği anda ikili, ekipleri zaman zaman susturmakta zorlanıyor.
+         <br/>
+         <br/>
+         Nazlı Hanım eşine rakip olarak yarıştığı Yunanistan"da Ergin İmre"nin kendini denizin ortasında bırakmasını unutamıyor. Rüzgar çukuruna yakalanan Nazlı İmre"nin teknesi denizin ortasında kalır. Ergin İmre ise yanından geçerek yarışı bitirir ancak eşinin puan farkının açılması için birkaç saat orda kalmasını ister. Nazlı Hanım, yarışı uzun süre sonra bitirerek eşinin odasına gider. Ergin İmre eşine dönerek: "Yani o çukurda geberin demiştik ama bu kadarını da istememiştik" der. Donup kalan Nazlı İmre hiç cevap vermez. Bugüne gelindiğinde "O kadar istememişler, ancak olmuş!" diyor.
+         <br/>
+         <br/>
+         İstanbul"da yaşayanlar şehrin trafiğinden, bunaltıcı havasından kaçmayı arzular. Devam eden iş hayatı ancak bir iki günlük kaçamaklara müsaade edebilir. İş yoğunluğundan dinlenme fırsatı bulamayan Nazlı-Ergin İmre çifti için yat yarışları en sevdikleri spor. İstanbul"dan ayrılmadan denizde iş hayatının stresini atmak onlar için bulunmaz fırsat olmuş. Yarışlarda yüksek adrenalin ortaya çıktığını belirten ikiliden Nazlı İmre, teknenin üzerinde duyduğu heyecanı ve rahatlamayı başka yerde bulamayacağını belirtiyor. Ergin İmre de yat yarışlarındaki takım oyununun kendini cezbettiğini ve yaşamını olumlu etkilediğini söylüyor.
+         <br/>
+         <br/>
+         Türkiye şampiyonası olan Trofe Yarışları yarış, gezi, gezi-yarış sınıfı olmak üzere üç ayrı kategoriden oluşuyor. Yatların puanlama sistemi uzunluklarına göre yapılıyor. Büyük teknelerin puan katsayısı daha düşükken eş tekneler için bir fark sözkonusu değil. Ancak eş teknelerde yarışmak "senin teknen uzun, benimki kısa, sen ondan dolayı kazandın" bahanesini ortadan kaldırıyor.
+         <br/>
+         <br/>
+         Girit"te düzenlenen Avrupa Şampiyonası"na ikilinin ekiplerinden beşer kişi katıldı. Eşi yarışmaya katılamazken Nazlı İmre, ekibinden 4 kişiyle birlikte şampiyonada yarışan 10 yelkenciden biriydi. Bu ekibe antrenman veren grup ise kendine yer bulamadı. Şampiyonada bu karma üçüncü olmayı başardı. Kendilerini bir aile olarak tanımlayan ekip, küçük bir "aşiret" haline bile gelmiş. Yarışlardan eğlenmeye, gezmeden yemeğe kadar birlikte hareket ediliyor. Her ne kadar "aşireti" ile birlikte hareket de etse Nazlı İmre, iş ve başkanlığı bir arada zor götürüyor. 2004 yılında Yelken Federasyonu"ndaki görevinden ayrılacağını açıklarken, "Başkanlığı bıraktıktan sonra altı ay sudan uzak yaşayacağım. Herhalde dağa falan çıkarım. Su ile ilgili bir şey görmek istemiyorum" diyor. Bunun bir bayrak yarışı olduğunu anlatan Bayan İmre için başkanlık Türkiye"yi ve çeşitli yörelerin insanlarını tanıma açısından çok faydalı olmuş.
+         <br/>
+         <br/>
+         Daha önceden sadece İstanbul"da yapılan yat yarışları artık Çeşme, Bodrum, Marmaris gibi tatil kentlerinde de yapılıyor. Ancak Fransa"da 4 milyon yelken sporcusunun olmasına karşılık Türkiye"de sadece 1500 kişi bu sporla ilgileniyor. Türkiye"de 18 bin yat, 600 kadar da yarış teknesi var. Yarış teknelerinin yaklaşık 130"u İstanbul"da bulunuyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 810 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=3004), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050128142805/http://www.aksiyon.com.tr:80/yazdir.php?id=3004)

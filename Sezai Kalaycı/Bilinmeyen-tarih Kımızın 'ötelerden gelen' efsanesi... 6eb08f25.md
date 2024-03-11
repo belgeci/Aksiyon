@@ -1,0 +1,91 @@
+# Kımızın ‘ötelerden gelen’ efsanesi...
+
+*Sezai Kalaycı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302230141im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302230141im_/http://www.aksiyon.com.tr/resim/300/8.JPG" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Tarih boyunca insanoğlu birçok göçler yaşadı ve bu yaşananlara kimi zaman ağıtlar yakıldı, kimi zaman da türküler. Türkler de göçlerden ve bunun doğurduğu acılardan fazlasıyla nasibini alan bir millettir.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Orta Asya’dan dünyanın birçok yerine dağılan ve geriye asla dönmeyen bir millet Türkler. Sevinçlerini, hüzünlerini, aşklarını ölüleri ile birlikte Orta Asya’nın ucsuz bucaksız bozkırlarına gömüp, yeni sevdalanacak toprakların peşine düşen Türk milleti, yanlarında ister istemez hep acıyı da taşımışlar. Bu acı kendi içinde nice ermişler, erenler ve büyük alimler çıkmasına vesile olmuş. Zira, sevgiler tembeldir, acılar üretken. Göçlerle birlikte taşınan acıların üretken olduğunu biraz sonra okuyacağınız bir Doğu Türkistanlı’nın yaşam serüveninde daha iyi anlayacaksınız. Doğu Türkistan’dan Kemalpaşa’ya taşınan otağı ve kımızı ile bir yaşam öyküsü bu. Türkiye’de ilk ve tek olan bir vadiden söz edeceğiz aynı zamanda.
+   <br>
+    <br>
+     İdrar içerek hayatta kaldılar
+     <br>
+      <br>
+       Yıl 1935. Henüz Çinliler Doğu Türkistan’ı işgal etmemiş ve bu topraklarda yaşayan insanlar, ileride görecekleri büyük acılardan habersiz mütevazı hayatlarını sürdürüyorlardı. Şirzat Doğru hayata gözlerini tam da bu sırada açar. 14 yıl boyunca ülkesinde mutlu bir çocukluk dönemi yaşar. Ancak sene 1949’u gösterdiğinde büyük felaket baş gösterir ve doğudan Çinliler, batıdan Ruslar bu ülkeyi işgale girişir. Üç koldan karşı atak geliştiren Kazaklar, karşı tarafın çok güçlü ve donanımlı olmasından dolayı topraklarını terk etmekten başka bir çare bulamazlar. Şirzat Bey ve ailesi, Alibeg Hakim önderliğinde gözleri yaşlarla dolu olarak yola koyulur. Üç kız kardeşini ve vatanını geride bırakmak zorunda kalmıştır, Şirzat Bey. Geriye dönüp onları almalarına imkan yoktur tıpkı anılarını almalarının mümkün olmadığı gibi.
+       <br/>
+       <br/>
+       Büyük bir göç başlamıştı Doğu Türkistan’dan. Düşmanlardan kaçan yüzbini aşkın insan önce Taklamakan Çölü’ne vurdu kendilerini. Çölde onbinlerce kişi yaşamını yitirdi. Hayatta kalanlar ise geceleri yanlarında götürdükleri hayvanları keserek kanlarını içiyorlardı. Bu sayede gerek su, gerekse vitamin ihtiyaçlarını karşılıyorlardı.
+       <br/>
+       <br/>
+       Taklamakan Çölü’nü çok zorlu ve acılı bir şekilde geçen Doğu Türkistanlılar ve Şirzat Bey ikinci büyük engel olan Himalaya dağlarına yöneldiler. Yükseklere tırmandıkça insanlar şişip, patlayarak ölüyorlardı. Şirzat Doğru, “5 yaşındaki çocuklar 80, 90 kg. kadar oluyorlardı. Daha sonra ise bu yavrular patlıyor yaşamlarını yitiriyorlardı” diyor. Bu hastalıkla nasıl mücadele edeceklerini oranın yerli halkına sorduklarında önce kulaklarına inanamadılar ama yapacakları başka birşey de yoktu. ‘Alkol içmelisiniz. Alkol yoksa birbirinizin idrarını için’ diyordu oranın yerlisi. Hayatta kalmak esastı. Alkol yoktu bu göçebe insanlarda. İkinci şıkkı uygulamaktan başka çareleri de.
+       <br/>
+       <br/>
+       İki sene yaya olarak süren bu zorunlu göç nihayet Himalayalar’ı aştıktan sonra bitmişti. Hindistan’da iki yıl kalan Şirzat Bey ve onlarla hareket edenler buradan Türkiye’ye Kızılhaç’ın yardımı ile 1954 yılında gelirler.
+       <br/>
+       <br/>
+       Artık kendilerini güvende hissedecekleri topraklara ulaşmışlardır. Devlet bu gelenlere ev ve iş imkanı verir ama herbirini bir yerlere yerleştirerek. Şirzat Doğru ve ailesi de Salihli’ye yerleştirilen aileler arasındadı.
+       <br/>
+       <br/>
+       Salihli’de iş bulma imkanının kısıtlı olması Şirzat Bey’i İzmir’e sürükler ve yabancı dili olduğu için otellerde iş bulur. Birkaç otelde tercümanlık görevinden sonra NATO’da sivil olarak çalışmaya başlar. NATO, Şirzat Doğru’yu önce Amerika’ya, ardından Almanya’ya göndererek buralarda gıda ve pazarlama üzerine kurs almasını sağlar. Tam 23 yıl NATO’da sivil görevli olarak çalışan Şirzat Doğru, kendi işini kurmak ister. Şirzat Bey, “Kazakların çoğunluğunun yapmış olduğu deri işini babam da yapıyordu. Deri işini bizimkiler Türkiye’ye getirdi desem pek yanılmış olmam. 1978 senesinde, NATO’dan kendi işimi kurmak için ayrıldım. Ve Allah’ın yardımı ile biraz para kazanınca şimdi gördüğünüz bu araziyi 1988’de aldım ve Kazak Vadisi’ni kurdum” diyor.
+       <br/>
+       <br/>
+       Yakınları arasında 1949 yılında Doğu Türkistan’da bırakmak zorunda kaldıkları ablalarıyla görüşme imkanını bulmuşlar bulmalarına ama ablalarından birini kaybetmiş Şirzat Doğru. “Üç ablam orada kalmıştı. Bırakın geri dönüp onları almayı nasıl olduklarından bile haberdar değildik. Bu habersizlik tam 38 sene sürdü. 38 sene sonunda haber aldık o da ancak komünizmin yıkılmasıyla oldu” diyor. Yıllardan sonra ablalarını Türkiye’ye davet eden Şirzat Doğru, bundan sonra kardeşleri ile tam bir iletişim kuramıyor.
+       <br/>
+       <br/>
+       İzmir’in Kemalpaşa ilçesinde Nif Dağı eteklerinde, Altay dağları ve yaylalarına benzer bir coğrafya üzerinde kurulan Kazak Vadisi, etrafı ormanla kaplı cennetten bir köşe. Bu vadide bulunan otağın iç motifleri Türkistan’dan davet edilen ünlü Kazak ressam Aman Abzalbek tarafından yapılmış. Aşkana’nın (aşhane) kubbeleri ve otağın iskeletini andıran pencerelerinin her biri yedi bağımsız Türk cumhuriyetinden birini temsil ediyor.
+       <br/>
+       <br/>
+       Türkiye’de böyle vadi ilk ve tek
+       <br/>
+       <br/>
+       Bilinen ismiyle Kazak Vadisi’nin gerçek ismi Alaş Kımız Üretme Çiftliği. Kendi alanında Türkiye’de ilk ve tek. Çiftlikte hem insanlar ata biniyor, hem kımız içiliyor, hem de otağ ya da restoranda Türk boylarına özgün yemekler verilebiliyor. 300 dönümlük arazi üzerinde ve ormanla kaplı çevresiyle cennetten bir köşe olan bu vadi, İzmir’in Kemalpaşa ilçesine arabayla 15 dakikalık mesafede.
+       <br/>
+       <br/>
+       Kazak Vadisi’nin sahibi olan Şirzat Doğru’ya neden böyle bir çiftlik kurduklarını sorduğumuzda şöyle cevap veriyor; “Atalarımızın mesleği atçılıktı. Gerçi böyle vadi kurmuyorlardı ama otlaklarda hayvanlara bakıyorlardı. Çoçukluğumuzda, biz kımız içerek büyüdük. Yani damarımızda akan kanda kımız vardır. Bu kan bizi böyle bir yola itmiştir.”
+       <br/>
+       <br/>
+       Kımız ve otağ Türkler’in köklü geçmişlerinden gelen bir kültür. Bu kültürün Türkiye’de yavaş yavaş unutulmaya yüz tutmuş olması Şirzat Bey’i bir hayli rahatsız etmiş olmalı ki, Kazak Vadisi’nde hem kımız, hem de otağı yaşatmak için çalışıyor. Şirzat Bey, “Alibeg Hakim, Türkiye’ye gelince kımızı tanıtmak ve yaşatmak için at yetiştirdi ancak pek muvaffak olamadı. Bizlere hem memleketimizi tanıtmak hem de kımızı Anadolu’da yaşatmak için bunu üretmemiz yönünde tavsiyelerde bulunurdu” diyor. Bu tavsiyelere uyarak kısraklarından sağılan sütleri İzmir halkına ve başka illerden gelen insanların beğenisine sunuyor Şirzat Doğru.
+       <br/>
+       <br/>
+       Şirzat Bey ile yaptığımız sohbette sık sık kımızın faydalarını anlatmaya çalışıyor ve Anadolu insanının neden bu içeceğe soğuk durduğunu anlayamadığını söylüyor. Kımızın insanı iyileştirmesine dair efsanelerin varlığından sözediyor Şirzat Doğru. Ancak bilinen bir gerçek var ki o da kımızın beklemesi halinde alkol ürettiğidir. Şirzat Bey onu da şöyle açıklıyor, “Kımızın bekleyince alkol ürettiği doğrudur. Fakat limonlu çayı da bekletirseniz o da alkol üretir. Orta Asya’daki Müslümanlar kımızı içmekte bir sakınca görmüyorlar ama Anadolu’da buna pek yanaşmıyorlar” diyor.
+       <br/>
+       <br/>
+       Kımız birçok derde deva
+       <br/>
+       <br/>
+       Kımızın, Orta Asya Türklerinin beşikten mezara kadar kullandıkları içkileri olmasının yanında; ihtiyarlık, dermansızlık, karaciğer, akciğer, böbrek, şeker ve daha nice hastalıklara iyi geldiği söyleniyor. Bununla ilgili olarak Avrupa’nın çeşitli ülkelerinde değişik amaçlar için kımız üretme çiftlikleri kurulduğu da bir gerçek. Avrupa üretme çiftliklerinde kımız hem sağlık hem de kozmetik sanayiinde kullanılıyor.
+       <br/>
+       <br/>
+       Kısrak sütünden elde edilen kımız, Dede Korkut Hikayeleri’nde bile anlatılır; “Tepe gibi et yığdırdım, göl gibi kımız sağdırdım” diye. Kısrak sütü ayrıca az yağlı, albüminli sütler grubundan olup, bileşim ve özellik bakımından anne sütüne en yakın süt. Bu nedenle de en şifalı olanı.
+       <br/>
+       <br/>
+       Kazak Vadisi’nde 45 tane Haflinger cinsi at yetiştiren ve bu atların bakımı için Orta Asya ülkelerinden bakıcı getiren Şirzat Doğru, Anadolu insanının bu atları bakmaya pek yanaşmadıklarını, zira bu işin çok zor ve çok emek gerektirdiğini söylüyor. Vadide atların hem sütünden faydalanılıyor hem de burayı ziyarete gelen insanların ormanda ya da çit alanı dahilinde gezmelerine imkan sağlanıyor.
+       <br/>
+       <br/>
+       Kımızın özellikleri böyle... Şirzat Doğru’ya göre kımız çok sağlıklı bir içecek. Gerisi size kalmış, ne diyelim...
+       <br/>
+       <br/>
+       E—mail: kalayci@mail.zaman.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14035), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302230141/http://www.aksiyon.com.tr:80/detay.php?id=14035)

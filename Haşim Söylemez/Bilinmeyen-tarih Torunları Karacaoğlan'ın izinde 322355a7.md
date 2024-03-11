@@ -1,0 +1,84 @@
+# Torunları Karacaoğlan’ın izinde
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226075629im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226075629im_/http://www.aksiyon.com.tr/resim/403/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ala gözlü benli dilber
+  <br>
+   Sen’d olasın benim gibi
+   <br>
+    Zülfün dökük boynun bükük
+    <br>
+     Sen’d olasın benim gibi
+     <br/>
+     <br/>
+     Bahçende güller bitmesin
+     <br/>
+     Dalında bülbül ötmesin
+     <br/>
+     Kapından cerrah girmesin
+     <br/>
+     Sen’d olasın benim gibi
+     <br/>
+     ....
+    </br>
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk Halk Edebiyatı’nda koşma, semai, varsağı türündeki şiirleriyle çığır açan ve yaşadığı çağdan günümüze kadar halkın gönlüne taht kuran aşık Karacaoğlan tartışılmaya devam ediyor. Basına yansımasa da bu tartışmaları beldelerin kendi aralarındaki çekişmelerinde görmek mümkün. Şairliğine, aşıklığına, sazına söz yok elbette, tartışılan; nereli ve kimlerden olduğu. Ancak polemiklere fazla girmeyen, kendilerini tartışmaların içine sokmayan sadece onun aşıklık geleneğini sürdürmeye çalışan insanlar da yok değil. Karacaoğlan köyündeki Hasan Ağa, Mehmet Emmi, Emin Dayı sanki birer Karacaoğlan; dokunursan dökülüyor çatlamış dudaklarından aşk şiirleri veya ünlü aşığa ait varsağılar. Bu köyde herkes Karacaoğlan’la yatıp Karacaoğlan’la kalkıyor. Amaçları halk ozanını gelecek kuşaklara sadece ismen değil, varsağıları ve onun getirmiş olduğu gelenekleriyle aktarmak. Anlaşılan o ki, Karacaoğlan geleneği hep canlı bir hazine olarak kalacak. Aşığın soyundan gelen Varsaklar şiirleri, aşıklık geleneği ile seslerini asırlar ötesine ulaştırıp Karacaoğlan’a ses veriyorlar.
+   <br>
+    <br/>
+    Her yerde Karacaoğlan
+    <br/>
+    <br/>
+    Osmaniye’ye bağlı Düziçi ilçesinde Karacoğlan’a olan sevgiyi gösteren ve kendisinin o beldeden olduğunu kanıtlayan sayısız belirti bulunuyor. Düziçi’nde Karacaoğlan Kültür Derneği, aşığın geleneğini sürdürmek için faaliyet gösteriyor. Dernekte Karacaoğlan ve onun soyu olan Varsaklara ait olduğu söylenen eserler, dokumalar, kilimler, kap—kacak sergileniyor. Dernekte hemen hemen her akşam toplanan Varsaklar aşıktan şiirler söylüyor, saz çalıp gençlere bu geleneği sevdiriyorlar. Sadece dernek değil, Karacaoğlan’nın adını taşıyan ve 1971 yılında kurulan Karacaoğlan köyünde de aynı şeyler geçerli. Aşığın mezarının bulunduğu Düldül Dağı’nın eteğine kurulan köyde yaşayan 7’den 70’e herkes mutlaka Karacaoğlan’dan bir dörtlüğü ezbere biliyor. Köyün yaşlıları kendi aralarında koşma, varsağı türlerinde yarışmalar yapıyor en iyi ve en çok söyleyen kişi daima el üstünde tutulan aşık lakabını alıyor. Oldukça misafirperver olan Karacaoğlan köylüleri gelen misafirlerini türkülerle karşılıyorlar. Karacaoğlan köyüne vardığımızda bizi karşılayan köylüler hoşgeldinden sonra bir ağacın gölgesinde toplanarak atalarının ruhunu şad edercesine sırayla varsağıları dile getirip yanık sesleriyle Düldül dağına bakıp geleceğe ses verdiler. Karacaoğlan’ın torunları olan köylüler, bu geleneği asırlar boyu sürdüreceklerini söylüyorlar.
+    <br/>
+    <br/>
+    70 yaşındaki Aşık Ahmet Dede de tam bir Karacaoğlan hayranı. Aşığa göre Karacaoğlan yaşatılmazsa edebiyatın bir kolu kırık olur. Aşık Ahmet’in gönlünde ve dilinde en çok varsağı yankı buluyor; “Karacoğlan bir isim ve sıradan bir aşık olmaktan çok onun geleneği bize aktarmış olduğu kültürü önemli. Biz daima bu kültürü canlı tutmaya çalışacağız. Eğer Karacaoğlan sadece kitaplarda kalırsa o zaman ölür. Biz bunun için uğraşacağız, şimdi binlerce Karacaoğlan var” diyor. Sadece köy değil Karacaoğlan adına mahalle, okul, hatta cami bile var. Karacaoğlan İlköğretim Okulunda ise okumak öyle kolay değil. Karacaoğlan Derneği Başkanı ve Karacaoğlan İlköğretim Okulu Müdürü aşığın öz torunlarından Halil Koç okulun her tarafını ozanın birer özelliği ile donatmış. Okul girişinde Karacaoğlan’a ait temsili resim bulunuyor. Sınıflarda Karacaoğlan köşesi yer alırken şiirlerini de duvarlarda görmek mümkün. Bu okulda okuyan herkes önce Karacaoğlan’ı öğreniyor ondan sonra eğitim—öğretime ait bilgileri alıyor.
+    <br/>
+    <br/>
+    Gelenek yayılıyor
+    <br/>
+    <br/>
+    Karacaoğlan’dan sonra Osmaniye ve civarında aşıklar adeta boy atmaya başladı. Dadaloğlu, sonra yavaş yavaş Has Yusuf, Kul Bekir, Mehmet Koç (İspiroğlu) Karacaoğlan geleneğini sürdürmeye çalıştılar. Aşık Feymani, Kır İsmail, İspir Onbaşı, Aşık Dursun da günümüzde Karacaoğlan’ın geleneğini sürdüren ünlenmiş isimler. Ancak burada ismini sayamadığımız, daha doğrusu sadece yöresel olarak tanınan sayısız aşık Karacaoğlan’ın varsağılarını dile getirdiği gibi sazlarıyla da kendilerine ait koşma, semai ve varsağıları geleneğin bir parçası olarak çalıyor, söylüyorlar. Düziçi gibi küçük bir yerde bağlama kurslarına olan ilgi de Karacaoğlan’dan kaynaklanıyor. Şüphesiz Karacoğlan geleneğini sürdürmenin maddi olarak pek fazla bir getirisi yok ama çalıp söylemek, duygusunu dile getirmek ve aşığın torunları olmanın onuruna erişmek için bu tarz müzik tercih ediliyor. Sıradan klasik bir türküyü söylemek değil genç kuşağın derdi; içinde eleştiri olan, öğüt olan, aşk olan, ağıt olan varsağıyı yani Karacaoğlan’ı yaşatmak önemli. Karacaoğlan Derneği Başkanı Halil Koç sadece Karacaoğlan ve onun varsağılarını yaşatma çabasında olduklarını söylerken devletin bu halk şairine olan ilgisizliğine de isyan ediyor. Aşığın mezarının harap halde olduğunu ancak Kültür Bakanlığı’nın bu konuda bir çalışma yapmadığını söylüyor. Herşeye rağmen Karacaoğlan’ı yeni kuşaklara aktarmak için gayret edeceklerini söylüyor. Koç; “İlk iş aşığın mezarını onarmaktan geçiyor. Burayı onarıp ziyarete açabilirsek o zaman belki resmî anlamda Karacaoğlan’a olan ilgiyi artırabiliriz. Biz yıllardır Karacaoğlan geleneğini sürdürmeye çalışıyoruz. Aşıklarımız var, varsağılar söyleyip saz çalıyorlar. Okulumuzda öğrencilere Karacaoğlan’ı öğretmek, onu tanıtmak için çaba gösteriyoruz. Ama resmi anlamda olmazsa da Karacaoğlan geleneği bizde yüzyıllardır sürüyor, bundan sonra da sürecek. Dedelerimizden biz bu görevi aldık şimdi de çocuklarımız, torunlarımız bu işi yapacak. Karacaoğlan sıradan bir halk ozanı değil, o aynı zamanda bir kültür mirasıdır. Karacaoğlan’sız bir edebiyatı düşünmek mümkün değil. İsmini birçok yere verip hafızalarda canlı kalmasını da sağlıyoruz” diyor.
+    <br/>
+    <br/>
+    Karacaoğlan ile ilgili olarak değişik kitaplar, çalışmalar bulunuyor. Ancak resmi anlamda Karacaoğlan ile ilgili ilk ciddi çalışma geçtiğimiz yılda Çanakkale 18 Mart Üniversitesi Edebiyat Bölümü Halk Edebiyatı öğretim üyelerinin denetiminde hazırlandı. Bu çalışmada Karacaoğlan ile ilgili olarak her türlü konu açıklığa kavuşturulmuş. Yani Karacoğlan konusunda bütün tartışmalara bu çalışma son noktayı koyuyor.
+    <br/>
+    <br/>
+    Karacaoğlan nereli?
+    <br/>
+    <br/>
+    16. yüzyıl sonları, 17. yüzyıl başlarında yaşadığı tahmin edilen Karacaoğlan’ın nereli olduğu konusu sürekli tartışma konusu oldu, olmaya devam ediyor. Karacaoğlan’ın Feke ilçesinin Gökçe köyünde, Kilis’in Musabeyli bucağının Zobular köyünde veya Gökçeli’de doğduğuna dair iddialar hep ileri sürüldü. Ancak bu zamana kadar bu iddiaları belgelendirmek ya da doğrulamak konusunda hiçbir delil ortaya konulamadı. Söylentiler bunlarla da sınırlı kalmıyor. W. Radlaf isimli bir araştırmacı da ozanın Belgradlı olduğu ve asıl adının Simayil olduğu görüşünü ileri sürdü. Gaziantep’te yaşayan Barak Türkmenleri de Karacaoğlan’ı kendilerinden sayarlar. Bunlardan başka, Silifke, Gülnar, Mut ilçeleri de onu kendilerinden sayıp her yıl aşık adına şenlikler düzenliyorlar. Bütün bu söylentilerin dışında Karacaoğlan’ın Osmaniye’nin Düziçi ilçesine bağlı Farsak (Varsak) Türkmenlerinden olduğu konusu ise en doğru ve geçerli tez sayılıyor. Karacaoğlan’ın şiirleri, hayat hikayesine ait bilgiler hep Düziçi’nde buluşuyor. Varsak (Farsak) köyünden olan Karacaoğlan’ın soyunun bir kısmı Karacaoğlan adını taşıyan köyü kuranlar. Akşehirli Ahmet Hamdi Efendi neredeyse birbuçuk asır önce yaptığı araştırmada konuyu aydınlatıyor. Ahmet Hamdi Efendi’ye göre Karacaoğlan Düziçi’nin Varsak (Farsak) köyünden ve babasının adı Kara İlyas. Hamdi Efendi’ye ait hatıra defterinde ayrıca Karacaoğlan’ın gerçek adının Hasan olduğu, kara, ince ve zayıf olduğu için kendisine Karacaoğlan denildiği yazılı. Türkmen aşiretinden olan babası, Kazan beylerinden Hüsam Bey’in sayıl adıyla asker devşirdiği dönemde askere alınır ve bir daha da geri gelmez, bu yüzden bu soya Sayıloğulları denilmeye başlanır. Zaten Karacaoğlan bir varsağında, “Karacaoğlan der ciğerim dağlı/Yerim belli derler Sayiloğlu” derken, kendi adının Hasan olduğunu da şöyle dile getiriyor; “Karacaoğlan Hasan adım/ Güzellerde kaldı dadım...” Karacaoğlan ayrıca bazı şiirlerinde kendisinin nereli ve kimlerden olduğunu da söyler. Düziçinde bulunan Düldül dağı, Çatak mevkii, Devret, Baltalı, Damlalı isimleri şiirlerinde şöyle geçiyor; “...Sana derim sana şol koca Düldül/Çekildi Seyilden yaylaya bülbül...”
+    <br/>
+    <br/>
+    “Kalkın Bekir Ağam burdan göçelim/Baltalı’ya çıkınca bayrak açalım/Devret’e varınca yiğit seçelim/Bir yurdumuz Çatak olsun aşiret/Yoz sığırlar şu Çatak’ta sulanır/Büyük kızlar Damlalı’ya dolanır...”
+    <br/>
+    <br/>
+    1876’da Karacaoğlan’ın köyünü ziyaret eden Ahmet Hamdi Efendi o dönemde köyde Karacaoğlan’ın ailesinden Sayıloğlu Mehmet Efendi adında bir kişinin yaşamakta olduğunu bildiriyor. Şu anda bile Düziçi’nde Sayıloğlu ailesi mensupları aynı adla biliniyor. Sadece bu değil Karacaoğlan’ın soyundan olan ancak başka soyadlarla anılan aileler de günümüzde yaşıyor.
+    <br/>
+    <br/>
+    80 yaşındaki Aşık İspir Onbaşı, Karacaoğlan’ın Düziçili olduğunu söylüyor. Aşık, dedesinden öğrendiği, dedesinin de dedesinden aldığı bilgileri şöyle aktarıyor: “Karacoğlan’ın babası ölünce amcası İspir’in yanında yaşadı. 15 yaşına gelince de Hoğdu dağına göçtüler. Burada Bekir amcasının kızını ister ancak amcası kızı vermez. Bunun üzerine Karacoğlan obayı ve aşireti terk eder. Bundan sonra bir pir ile karşılaşır ve sonrasında aşık olur. Artık herkes kısa sürede onun varsağılarını duymaya başlar. Yeri yurdu burasıdır. Zaten şiirlerinde bunu görmek mümkün. Hemen hemen bütün şiirlerinde memleketinden sözeder.”
+    <br/>
+    <br/>
+    Aslında Karacaoğlan’ın nereli olduğu tartışmalarını bir yana bırakıp, onun geleneğini geleceğe taşımak önemli. Düziçili torunları da kendi kıt imkanlarıyla bu aşıklık ruhunu genç kuşaklara aktarmak için çaba harcıyor. Böyle devam ederlerse bir yerine binlerce Karacaoğlan yurtta ve dünyada ses verecek. Çünkü artık dünya da Karacaoğlan’ı tanıyor, biliyor.
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1757), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226075629/http://www.aksiyon.com.tr:80/detay.php?id=1757)

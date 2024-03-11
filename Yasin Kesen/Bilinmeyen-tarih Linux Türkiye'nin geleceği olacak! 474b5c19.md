@@ -1,0 +1,30 @@
+# Linux, Türkiye’nin geleceği olacak!
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Linux’un Türkiye’deki en güçlü temsilcisi olan Gelecek A.Ş, daha geniş bir kitleye ulaşabilmek amacıyla Linux üzerinde geliştireceği yeni ürünlerinin platformdan bağımsız ve kolay bir şekilde kullanılmasını sağlayacak.
+   <br/>
+   <br/>
+   2003 yılı için yapılan öngörüler ve bağımsız araştırma şirketlerinin yaptığı araştırma sonuçlarına göre Linux, yükselen bir grafik çiziyor. Büyük bilişim şirketlerinin bu alana ayırdığı kaynak ve yatırımlar da bu eğilimi destekleyen en sağlam göstergelerden biri. Bu eğilimin, çok önceden bilincine varıp yıllar önce harekete geçen Gelecek A.Ş, şimdiye kadar bilinç konusunda özverili çalışmalara imza atarak, Linux’un bir trend olmasının ötesinde, ticari değer kazanmasında da başarılı uygulamalar gerçekleştirdi. Önümüzdeki dönem de bu misyonunu sürdürecek olan şirket, kurumların ihtiyaçları doğrultusunda aldığı stratejik kararları da uygulamaya koyacak. Şirketin bundan böyle izleyeceği stratejide, daha geniş bir kesimin daha az maliyetli, kararlı ve güvenli sistemlerden yararlanabilmelerini sağlamak amacıyla, Linux üzerinde geliştirilen ve platformdan bağımsız şekilde de kullanılabilen ürünlere de yer verilecek. Şirketin yeni vizyonu ile ilgili açıklama yapan Gelecek A.Ş Genel Müdürü Mustafa Akgün, bireysel ve kurumsal alanda yaptıkları çalışmaların, Linux trendinin büyümesine, belli bir tutarlılığa ve çeşitliliğe ulaşmasına destek olduğunu kaydetti. Konuşmasında dünyadaki eğilimlere ve kurumsal uygulamalara değinen Akgün, “Kurumlar ve kurumların yöneticileri, alışageldikleri çözümleri daha düşük maliyetle, daha hızlı, daha kararlı ve güvenli bir şekilde elde etme imkanına sahip olacaklar” dedi. Böylelikle tercih edilme nedenlerinin de artacağını vurgulayan Akgün, Linux üzerinde verilecek tüm ürün ve hizmetlerle Linux’un Türkiye için eksiksiz bir platform haline getirileceğini ve yeni vizyon doğrultusunda geliştirilecek çeşitli ürün ve hizmetlerle tüm bilişim dünyasını buluşturmayı amaçladıklarını söyledi.
+   <br>
+    “Özgürlük” felsefesi ile beslenen Linux’un, sahipsiz gibi algılanmasının önüne geçmeyi hedefleyen Gelecek A.Ş, tüm destek ve eğitim çalışmalarını daha yoğun bir şekilde sürdürmeye devam edecek. Kurumların ve bireylerin ihtiyacına göre tasarlanan eğitim seminerlerine, ilk defa Linux ile tanışacak ve Linux altyapısını geliştirmek isteyen herkes katılabilecek.
+    <br>
+     (www.geleceklinux.com)
+     <br/>
+     <br/>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 163 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2288), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043627/http://www.aksiyon.com.tr:80/yazdir.php?id=2288)

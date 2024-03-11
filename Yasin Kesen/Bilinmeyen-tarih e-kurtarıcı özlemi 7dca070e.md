@@ -1,0 +1,64 @@
+# e-kurtarıcı özlemi
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Devletlerin, toplumların, halkların belli bir düzenlilik içinde yaşamını sürdürebilmesi için kendi iç düzenlerini sağlayacak kurallara ihtiyacı var. Bu her toplulukta da mevcut. Eski çağlardan beri. Küçük toplumlarda töreler hakim olmuş, büyüklerde de kanunlar.
+   <br/>
+   <br/>
+   21. yüzyılın devletlerinde de yönetim sisteminde kanunlar var. Ancak kanunlar içine yerleştirilen tabirlerdeki muğlak ifadeler bulunulan teknoloji çağına yakışmayabiliyor. Zira, bu muğlak ifadeler kanun uygulayıcının elinde, onun istediği biçime dönüşebiliyor. Ve bu tür kanunlar, yönetmelikler, hükümler ülkemizde ne yazık ki çok sayıda bulunuyor.
+   <br>
+    <br>
+     Kanun yapıcıların bu tür ifadeleri baştan kanun yapılırken kullanmaları da tabii ki yanlışlıktan değil kasıttan kaynaklanıyor. Bunu da herkesin hem fikir olduğu kanun değişikliklerinin yapılmamasından anlıyoruz...
+     <br>
+      <br>
+       ABD gibi gelişmiş dünya ülkelerinde e—hukuk, e—ticaret gibi ifadelerin gündemden düşmediğine şöyle bir bakarsak, insanların artık yoruma açık ifadelerden bıktığını ve herşeyin bir anlama sahip olmasını benimsediğini ve bu anlama binaen uygulamaya konulmasının talep edildiğini görüyoruz. İzah edelim. Elektronik ortama dökülen her türlü faaliyet kendisine verilen talimatların tam karşılığını istediği için her ifade en baştan bir anlam kazanmış oluyor. Verilen görevleri ise baştan belli olan ifadelere göre uygulayan cihazlar, programlar insanları incitecek kararlar verme durumunu ortaya çıkarmıyor.
+       <br>
+        <br>
+         ABD’de bugünlerde biriken hukuk davalarının çetrefilli olmayanlarının bilgisayar programlarınca görülmesi tartışılıyor. Dava edilen konudaki tüm veriler girilerek ve de uygulanacak kanunlardaki tüm anlamlar net ifade edilerek uygulamaya konulacak bu işleyişe insanlar da sıcak bakıyor doğrusu. Çünkü saatler süren basit davalar için bekleme süreleri ortadan kalkmış olacak. Ayrıca, hakimlerin yapacağı yorum hataları da ortadan kalkmış olacak.
+         <br/>
+         <br/>
+         Bu tür düşünceler, projeler bizde ne zaman telaffuz edilecek diye düşünüyorsanız pek ümitlenmemenizi tavsiye ederim. Zira, web sayfalarına dans eden penguen resimleri koyacak kadar internete ve teknolojiye uzak bakanlıklarımızın ve siyasilerin, 312 türünden kanunlarla insanları mahkum etmekten dünyaya bakmaya vakitleri kalmıyor!
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Sydney’de heyecan zamanı
+         <br/>
+         <br/>
+         2000 olimpiyatlarının start aldığı Avustralya’nın Sydney şehrinde şimdi heyecan zamanı. Binlerce sporcunun ve milyonlarca sporseverin Sydney’de iştirak ettiği olimpiyatları bizler de internetten izleyebiliriz. Yaklaşık 30 spor dalında yapılan olimpiyat yarışlarının günlük programları ve sonuçları olimpiyatları konu alan sitelerden yayınlanıyor. www.olympics.com ve www.sydney2000.com adreslerinden yayınlanan siteler tasarım olarak da doyurucu seviyede. En iyisi vakit kaybetmeyin, kangurular ülkesindeki heyecana siz de katılın...
+         <br/>
+         <br/>
+         OAL’den çaldım, @net’e giydirdim!
+         <br/>
+         <br/>
+         Amerika'nın dünya çapında ünlü en büyük internet servis sağlayıcı şirketi AOL'nin web sitesini bilmeyeniniz yoktur (www.aol.com). Amerika'daki Nasdaq teknoloji borsasında bile hisseleri satılan bu firmanın portalı olarak kullandığı siteyi yerli internet şirketimiz @net (www.anet.com.tr) kopyalayıp aynen kendine uydurunca böyle bir başlık attık.
+         <br/>
+         <br/>
+         @net'in akıllı tasarımcıları, kişisel sitelerde sık sık karşılaştığımız tasarım kopyalamayı kurumsal hizmet veren kendi sayfasında gerçekleştirince yerli internet şirketlerine karşı şüpheler oluşmaya başladı. Bu kadar bilinen bir siteyi bile hiç çekinmeden ve hele hele renklerini bile değiştirmeden kopya edip kendi sitelerinde kullanmaları doğrusu takdire şayan(!).
+         <br/>
+         <br/>
+         Kişisel sayfa tasarımcılarının, kabiliyetlerini geliştirme adına hazır tasarımları kullanıp çalışma yapmalarının normal karşılanabileceğinin altını çizerek kurumsal hizmet veren @net’in sitesinin ne zaman değişeceğini merakla bekliyoruz...
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13922), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043930/http://www.aksiyon.com.tr:80/yazdir.php?id=13922)

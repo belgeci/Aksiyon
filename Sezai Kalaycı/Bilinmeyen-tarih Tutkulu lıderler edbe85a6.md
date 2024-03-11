@@ -1,0 +1,118 @@
+# Tutkulu lıderler
+
+*Sezai Kalaycı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302224206im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302224206im_/http://www.aksiyon.com.tr/resim/295/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye Cumhuriyeti’nin kuruluşundan bu yana siyaset ülkenin her zaman için ilk gündem maddesini oluşturdu. Siyaset her ortamda, hemen her vakitte insanlarımız arasında konuşulur ve ülkeyi ‘kurtarma’ adına herkes bir ‘uzman’ edasıyla fikrini söyler; amaç yalpalayan geminin durgun sulara taşınmasıdır.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Herkesin her ortamda konuştuğu bu siyaset ister istemez günlük yaşantımızın bir parçası haline geldi. Doktorundan esnafına, şoföründen bilgisayar uzmanına, avukatından köylüsüne kadar herkes parti lideri gibi ‘memleket meselelerine’ zamanının önemli bölümünü sarfediyor.
+   <br>
+    <br>
+     Türkiye’nin çıkmazlarından birisi olarak gösterilen ve hemen hemen bütün toplum bilimcilerin üzerinde mutabık olduğu bir gerçek ise; ‘insanlarımızın kendi işlerinde ya da mesleklerinde uzman olmak yerine siyasi birer uzman olma arzusu, yaptıkları işi de buna endekslemeleri sonucu istenilen verimin hiçbir zaman alınamaması.’
+     <br>
+      <br>
+       İşadamından kapıcısına kadar herkesin bir siyasi tercihi olması kadar doğal birşey olamaz. Ancak, insanların yaptıkları ve siyasetle uzaktan yakından bir ilişkisi olmayan işlere bile parti zihniyeti ile yaklaşılması bu ülkenin çıkmazlarının başında geliyor. Kutsal Kitabımız ‘İşi ehline veriniz’ der. Ancak buna sağcısı da solcusu da hiç kulak asmaz ve ‘partili olmak’ her zaman için en öncelikli aranan vasıftır. ‘Partili olma’ diplomadan bile çoğu kez (neredeyse her zaman) önde gelir. Bu denli ekmek ve rant kaynağı olan partiler, zamanla neredeyse bir ulvilik bile kazanırlar. Hal böyle olunca da partidaşlar kendilerinden daha çok, tuttukları parti liderine güvenirler ve onun her yaptığının doğru olduğunu varsayarlar ve liderlerinin yanılmayacağını düşünürler.
+       <br/>
+       <br/>
+       Hazreti Ali’den liderlere...
+       <br/>
+       <br/>
+       Kimi zaman istikrar adına, kimi zaman tecrübe, deneyim gerekçesiyle parti liderleri ölünceye kadar o koltuğu bırakmazlar. Çünkü onların yerleri asla ‘doldurulamaz’, onlar bu iş için seçilmişlerdir. Koltuğa göz dikenlerin kellesi derhal alınır. Yani kıymeti kendilerinden menkul siyasilerimiz hep ‘üstün insan’ rollerini oynarlar ya da oynamaya çalışırlar. Oysa onlar da her insan gibi hatalarıyla vardırlar ve diğer insanlar gibi zayıf ve güçlü yanları olan, zaman zaman hata yapan, herkes kadar sevinen ve üzülen insanlardır.
+       <br/>
+       <br/>
+       Ancak lider insanın kendine has birtakım özellikleri ve kabileyetlerinin olması da gerekir. Zira liderlerin üstlendikleri görevler sorumluluk ve işlev olarak ayrı bir yere sahiptir. Hz. Ali’nin liderlere söylediği şu ölümsüz sözlerini herkes kendine düstur etmeli; “Taraf tutmayın, bazı insanları kayırmayın. Bu tür davranışlar sizi zulme ve despotluğa götürür.” Şeyh Edebali ise, “Ey oğul; Unutma ki, yüksekte yer tutanlar, aşağıdakiler kadar emniyette değildir” diyor. Lider vasıflarını saymakla bitmez. Ancak lider kimselerin bulundukları yerde rüzgarlar çok sert eser, işte bu noktada o makamda bulunan insanın lider vasıfları ortaya çıkar. Allah şüphesiz her insana farklı bir yetenek vermiştir.
+       <br/>
+       <br/>
+       Hep bildik ve tanıdık Demirel
+       <br/>
+       <br/>
+       Biz gazeteciler yıllar boyu Türk siyasi liderlerini takip etmekle onların tutkularını, özelliklerini, sevdiklerini ve sevmediklerini yakından gözlemleme imkanı elde ediyoruz. Liderlerimizin alışkanlıklarının da toplumun diğer fertlerinden çok farklı olduğunu söylemek pek mümkün değil. Çünkü bu kişiler de bu toplumun birer ferdidir. Demirel yıllardır Türkiye’yi karış karış gezen her gittiği yere şapkasını ve Nazmiyesi’ni almadan gitmeyen bir insan. Devletin en üst makamına kadar gidebilmiş olan Demirel’in, eğitim hayatında en başarılı dersi matematik. Demirel’in ilkokul arkadaşları, ‘Hesap işlerine kafası çok çalışırdı. Biz onun ileride büyük bir ticaret adamı olacağını sanıyorduk’ diyorlar. Mühendis diplomalı olması ve cumhurbaşkanlığı koltuğuna kadar çıkmış olması da Demirel’in hesap işlerine kafasının çok çalıştığının bir tescili olsa gerek. Türk siyasi tarihinde birçok renkli sözlerle yer edinen Demirel, İslamköy’de kendi adına yaptırılan Külliye’nin elektronik sayacında şöyle diyor; “Sene 1935; ben kurumuş bir buğday başağının peşinden giden adamım.”
+       <br/>
+       <br/>
+       Demirel ‘baba’ olarak adlandırılmasının dışında, gittiği yerlerde ‘barajlar kralı’ olarak da anons edilir ama ne hikmetse 2000 yılına girmemize rağmen bu ülke hâlâ enerji sıkıntısı çekiyor.
+       <br/>
+       <br/>
+       Türkiye yıllardır siyasi liderlerini değiştiremeyen ve liderler konusunda oldukça istikrarlı olan bir ülke. Ancak bu istikrarı ekonomide ve demokraside bir türlü yakalayabilmiş değil. Demokrasinin vazgeçilmez unsurlarından olan seçme ve seçilme hakkı ülkemizde hep seçilenleri, seçilen, seçenleri de seçen konumunda tutmuş. Oysa gelişmiş ülkelerde seçim kaybeden liderler ertesi günün sabahında istifa edip kendi köşelerine çekilmesini bilmişlerdir. Bu demokrasi geleneği bizde bir türlü yerleşmedi.
+       <br/>
+       <br/>
+       Ak güvercinin konduğu daktilo
+       <br/>
+       <br/>
+       Yıllar boyu içtiği sigarayı bile ancak o markada üretim yapan fabrikanın kapanmasıyla değiştiren Ecevit, bütün konuşmalarını eski daktilolarında yazar. Bir dönemin Karaoğlanı olarak adlandırılan ak güvercinli DSP’nin lideri Ecevit, Rahşan hanımla birlikte zikredilir siyasi kulislerde. Ecevit’in vazgeçemediklerinin en başında Rahşan hanım gelir. Bunun dışında şiire olan düşkünlüğü ve şairlik yönü ile sıkı bir sigara tiryakisi olması da Ecevit’in belli başlı özelliklerinden. Ecevit’in hükümet ortaklarından olan MHP lideri Devlet Bahçeli de sigara ve çaya düşkünlüğü ile başbakanla uyum içerisinde olduğunu gösteriyor. Zira Bahçeli de sıkı bir sigara tiryakisi. Ancak Başbakan gibi evli olmayıp bekar hayatı yaşayan ve bunu ‘sultanlık’ olarak gören Bahçeli, eti burçak ile bisküvi yemeyi çok sever. Hiç gülmeyen yüzü ile ekranlarda devlet ciddiyetini yansıtan Bahçeli, Volvo marka arabası ile Ecevit’in aksine yerli araç kullanmamayı tercih eder.
+       <br/>
+       <br/>
+       Hükümetin üçüncü kanadını oluşturan ANAP lideri Mesut Yılmaz, tatillerinde yurtdışına ve Rize’ye gitmeyi ihmal etmez. Sigarasını ağızlık olmadan içmeyen Yılmaz’ın hasmı olan Çiller gibi börek favori yiyeceğidir. Asık görünen suratı ve donuk konuşması ile eleştirilere maruz kalan Yılmaz, neşeli olduğu zamanlarda son derece esprili bir insan da oluveriyor.
+       <br/>
+       <br/>
+       Daima gülümseyen ve yeri gelince de göz yaşı dökmesini çok iyi beceren DYP lideri Çiller, her girdiği ortamda güzelliği ile dikkat çekmesini bilir ve gerek parti içinde gerekse parti dışında birçok gizli aşığının olduğundan söz edilir. Çiller, etkilemek istediği insanların hemen yanı başına oturtur, istediğini o yanında bulunan insandan kopardığı da söylentiler arasındadır.
+       <br/>
+       <br/>
+       Ankara kulislerinde liderlerin özellikleri hep konuşulur ve bunlara kimi zaman fıkralar bile uydurulur. Her partili kendi liderinin özelliklerini gazetecilere ya da halka anlatırken ona biraz da birşeyler ekleyerek anlatmayı ihmal etmez.
+       <br/>
+       <br/>
+       FP’nin sempatik lideri Recai Kutan, cana yakınlığı ve hoşgörüsü ile Meclis kulislerinde herkesin takdirini kazanmış bir insandır. Yüzünden gülümsemeyi ihmal etmeyen Kutan, BBP lideri Yazıcıoğlu gibi türkü ve şarkı söylemeyi fırsat buldukça ihmal etmez. Kapatılan RP’nin eski lideri Erbakan ise memlekette ‘altı kızarmış kadayıfı’ ile bilinse de en sevdiği tatlı güllaçtır.
+       <br/>
+       <br/>
+       Siyasetin bir diğer asık suratlı görünen eski liderlerinden Deniz Baykal, bu görüntüsünden biraz rahatsız olmalı ki, “Kaş yapım böyle. Aslında göründüğüm kadar sert değilim” açıklamasını yapmak zorunda hissediyor kendini.
+       <br/>
+       <br/>
+       Büyüklerin küçük sırları
+       <br/>
+       <br/>
+       Demirel, cumhurbaşkanı olduktan sonra heyet beklerken sağ elini sürekli pantolonunun cebinde tutmasına kimse önceleri bir anlam veremedi. Ancak zamanla anlaşıldı ki Demirel’in cebinde 33’lük bir tesbih var ve can sıkıntısını gidermek için çekiyormuş. Demirel, içecek konusunda hassastır. Özellikle ada çayı, çay ve en önemlisi de viski içmeyi sever. Zaman buldukça da sorti yapar.
+       <br/>
+       <br/>
+       Mühendis diplomalı olan Demirel, mesleğinin aksine teknoloji ile pek içli dışlı değildir. Cep telefonu bulundurmayan, bilgisayar kullanmayan ve ehliyeti olmayan Demirel, sabahları erken kalkmayı ve kendisi hakkında gazetelerde çıkmış olan haberleri arşivlemeyi ihmal etmez.
+       <br/>
+       <br/>
+       Duygusal bir kişiliği olan Başbakan Ecevit, şiir kitabı olan tek liderdir. Şairlik ruhunun besleyicisi olarak da çay ve sigaraya düşkündür. Best marka sigara piyasadan kalkana kadar bunu içerdi. Şimdilerde ise Ballıca’yı tercih ediyor. Rahşan Hanım’ın yemeklerini yiyebilmek için yemek saatinde Konut’tan evine gider. Yurtiçi ve yurtdışı konuşmalarını Başbakanlık’ta ya da evinde bulunan daktilolarında yazar Ecevit.
+       <br/>
+       <br/>
+       Müzik tercihi ise tasavvuf ve klasikten yanadır.
+       <br/>
+       <br/>
+       MHP lideri Bahçeli çay ve sigara bağımlısıdır. Favori yemeği acılı Adana’dır. Acılı Adana’nın yanında şalgam olunca Bahçeli için tam bir ziyafet anlamına gelir.  Uzun yolculuklarında Ferdi Tayfur, evinde ise Münir Nurettin’in o eşsiz eserlerini dinlemeyi sever.
+       <br/>
+       <br/>
+       Mesut Yılmaz ağızlığı ile sigara içmeyi hiç ihmal etmez. Cappucino içmeyi sever. Yiyeceklerde ise su böreği favorisidir. Sinirlendiği zaman karşısındaki insana ‘kardeşim’ diye hitap eder. Mozart hayranı olan Yılmaz, Mahsun Kırmızıgül’ün parçalarını dinlemeyi tercih eder. Teknoloji ile arası ne iyi ne kötüdür. Bilgisayarı ajanda olarak kullanır ve bunun başında pek vakit harcamaz.
+       <br/>
+       <br/>
+       FP lideri Kutan, edebiyat ve müziğe çok tutkundur. Ud eşliğinde şarkı söylemenin yanında enerji konusunda sohbet etmeye bayılan Kutan, ‘eski dostlar’ ile ‘dönülmez akşamın ufkundayım’ şarkılarını çok sever. Muazzez Ersoy dinler.
+       <br/>
+       <br/>
+       Malatyalı olan Kutan, kayısıya çok düşkündür. Kayısıyı o kadar çok sever ki, her toplantısında masasının üzerinde bir tabak bulundurur. Bununla da yetinmez, ziyaret ettiği herkese paket paket kayısı hediye eder.
+       <br/>
+       <br/>
+       Çiller, her gittiği yerde kuşburnu ister. Kuşburnu çayını bir söylentiye göre cildine iyi geldiği için içer. Yiyeceklerden Sarıyer böreğini çok sever, müzikte yabancı pop ile Lorenna Mckenitt dinlemeyi tercih eder.
+       <br/>
+       <br/>
+       Çok iyi resim yapan BBP lideri Yazıcıoğlu, sesi güzel olduğu için de fırsat buldukça türkü söylemeyi sever. Ata binmeyi, dalmayı, halay çekmeyi de sever. Çocuklarını çok sever, onlara geceleri kendi elleriyle hazırladığı ballı sütü içirmeden yatırmaz. Yemeklerden, mantı ve içli köfteyi çok sever.
+       <br/>
+       <br/>
+       Asık suratlı olarak tanınır Deniz Baykal. Buna kendisi şöyle açıklama getiriyor: “Ben göründüğüm kadar sert değilim. Ne yapabilirim ki, benim kaş yapım böyle.” En büyük tutkusu, iki torunu ile Antalya. Hemen her tatilde torunları ile Antalya’ya gider. Yiyeceklerden yoğurt ile salatayı çok sever. Tatlılardan ise sütlacı tercih eden Baykal, gittiği her şehrin hangi yemeğinin meşhur olduğunu ve nerede yenilebileceğini bilir.
+       <br/>
+       <br/>
+       İyi bir Bach dinleyicisi olan Erbakan, lükse ve aristokratça yaşamaya düşkün biridir. Bulunduğu odaya nezleli birisi giriverirse onu gördüğü andan itibaren nezle olacak kadar hassas bir bünyeye sahiptir. Yemeklerden mantı, taze fasulye ile patlıcanı çok sever, her ne kadar ‘altı kızarmış kadayıfı’ ile bilinse de tatlılardan güllaçı tercih eder. Çayı limonsuz içmeyen Hoca, bilgisayar kullanmasını fazla bilmez.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14149), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302224206/http://www.aksiyon.com.tr:80/detay.php?id=14149)

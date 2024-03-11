@@ -1,0 +1,82 @@
+# Düşmanımın teröristi dostumdur
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093500im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093500im_/http://www.aksiyon.com.tr/resim/357/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Birlikte zihinlerimizi biraz yoklayalım. Ülke olarak 15 yıl terörle yatıp terörle kalktık. Kansız, şehitsiz, eylemsiz haber bülteni seyretmek bizim için adeta büyük lüks oldu
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Terörün safında ya da ona karşı güvenlik güçleri safında binlerce vatan evladı arkalarında en keskin acılar bırakarak aramızdan ayrıldılar. Anadolu’daki nice talihsiz gelinlerin yüzü soldu, nice bebeler yetim kaldı. Biz her gece bu kabusla yatağa girerken, komşularımızdan başlamak üzere koca dünya kendilerini bizim yerimize koymak bir yana teröristlerle sıkı fıkı ilişkiler geliştirmişlerdi.
+   <br>
+    <br>
+     Bir savaş durumunda kader birliği yapmak üzere sözleştiğimiz sözde müttefiklerimiz teröre her türlü askeri, lojistik ve moral desteği sağlamakta gecikmiyorlardı. Batı ülkelerinde cirit atan PKK, yoğun mücadelelerden sonra terörist örgüt kabul edilip yasaklandı, ama ne gam. Yan kuruluşları her yerde tıkır tıkır çarkı işletmeye devam ettiler. Batı bloku içinde Türkiye ile en yakın dayanışma sergileyen ABD bile Akın adlı PKK uzantısı kuruluşa müsamahayla yaklaşmıştı.
+     <br>
+      <br>
+       Uyuşturucu ticareti terör örgütünü ihya ediyordu. Yandaşlarından aidat toplama, vermeyenlerden haraç alma gibi olaylar, Avrupa’da mahkeme kararlarıyla tesbit edilmiş adiyattan hadiselerdi.
+       <br/>
+       <br/>
+       Bu yaptıkları kendilerine en ince yollarla hatırlatıldığında havaya bakıyorlardı. Teröre karşı savaşta ülkeler içine düştüğü zor durumdan kurtarmak için Türkiye’ye diplomatik, askeri, siyasi, ekonomik destek vermek bir yana, kendi canlarını yakmadığı için insan hakları pardesi arkasında ense yapıyorlardı. Türk Dışişleri bütün uluslararası toplantılarda terörle mücadelenin uluslararası boyutta ele alınması gerektiğini bıkmadan tekrar edip duruyor, ama asla bir destek bulamıyordu. Terörle mücadele sürecinde elbette insan hakları ihlalleri oldu. Nitekim Avrupa İnsan Hakları Mahkemesi birçok kararıyla atılan yanlış adımlardan dolayı Türkiye’yi mahkum ediyor. İnsan hakları eleştirileri, bu eleştirileri yapanların teröre karşı açık ve net bir tavır almış olmaları halinde inandırıcı olabilirdi.
+       <br/>
+       <br/>
+       Şimdi bu acı dönemde Türkiye’yi ziyarete gelmiş resmi, sivil istisnasız bütün Batılı yetkililerin verdiği mesajı, bir de 11 Eylül sonrasında yaşananları gözümüzün önüne getirelim. Türkiye’ye teröre karşı siyasi çözümün şart olduğu, askeri yöntemlerle bu işin çözülemeyeceği söyleniyordu hep. Ama şimdi yine bir terör eylemi var ortada ve ABD ordularını harekete geçiriyor. Yetmiyor NATO tarihinde ilk kez 5’inci maddeyi devreye sokuyor. Güvenlik konseyi teröre karşı bütün üyelerini mecburen bağlayacak önemli kararlar alıyor.
+       <br/>
+       <br/>
+       Amerika’ya yapılan terörü tüm dünya lanetliyor, işbirliği yapıyor da, teröre maruz kalan Türkiye olunca özellikle Avrupa neden üç maymunu oynuyordu? Acaba sorun “terörün” ve “terörist” kavramının tanımında mıydı yoksa Soli Özel’in de belirttiği gibi ‘kirli ilişkiler yumağı’ olarak tanımlanan “Uluslararası İlişkiler”in olağan bir yansıması mıydı bu durum?
+       <br/>
+       <br/>
+       Marmara Üniversitesi öğretim üyelerinden Prof. Dr. Aslan Gündüz bu soruya kısa ve net bir cevap veriyor: “Teröre karşı Avrupa hep iki yüzlü davrandı.” Terörün haklı nedenlerinin olmayacağını söyleyen Gündüz şöyle devam ediyor: “Ladin’e ortada delil yokken savaş açanlar, güvenlik konseyinden karar çıkartanlar, 5 maddeyi hemen yürürlüğe koyanlar binlerce insanın canına mal olan PKK terörü karşısında tamamen çifte standartlı davrandılar. Hukuk yokmuş gibi davrandılar. Uluslararası anlaşmalara, karşılıklı sözleşmelere aykırı davrandılar. Bu, kavram karmaşasından da kaynaklanmadı. Bu tamamen çifte standardın bir ürünüydü”.
+       <br/>
+       <br/>
+       PKK köy basıp kundaktaki bebeğe kadar katlederken, İstanbul’un göbeğinde iş merkezlerini kundaklayıp 12 masum insanın diri diri yanarak ölmesine neden olurken maalesef Avrupa olayı ciddiye almadı ya da görmezden geldi.
+       <br/>
+       <br/>
+       Uluslararası ilişkilerin doğasındaki çifte standartlar ötesinde karmaşanın altında terörle ilgili ortak bir tanımın hâlâ olmayışının da rolü büyük. 20 yıl öcesinde Ruslar komünist Afgan hükümetini devirmeye çalışanlara “ terörist” diyordu, onların “ terörist” saydıklarının Batı medyasındaki adı ise “ Afgan Mücahitler”di. Filistin lideri Arafat 1970’lerde Batı’nın gözünde ‘terör örgütü lideri”ydi. Bugün ise Arafat “Filistin Devlet Başkanı” sıfatıyla tanınıyor. Cephenin İsrail tarafında da farklı bir manzara yok. Dünün “ Şatila Katliamcısı” Şaron, bugün başbakan ve ‘saygın lider’. Irkçı Güney Afrika hükümetinin “terörist” ilan ettiği Mandela, bugün saygın bir dünya lideri, Nikaragua’da Sandinist gerillalar, Somoza’yı devirip bir gecede “bürokrat” oldular. Uluslararası arenada yaşanan bu durumu Bilgi Üniversitesi öğretim üyelerinden Uluslararası İlişkiler Uzmanı Soli Özel şöyle açıklıyor: “Devletlerarası ilişkiler kirli ilişkiler yumağı gibidir. Çıkarlara göre şekillenir. PKK ve Öcalan’a karşı takınılan tavır da bu bağlamda değerlendirilebilir”.
+       <br/>
+       <br/>
+       Bu konuda farklı görüşlere sahip olanlar da var. Örneğin terör karşısında Türkiye’nin devlet olarak PKK terörünü dünyaya anlatamadığını savunan Prof. Dr. Doğu Ergil, “PKK terörüne karşı tavırla Ladin’e karşı takınılan tavır arasında bizim açımızdan şöyle bir eksiklik var. Biz mağduru olduğumuz bir konuyu anlatamadık. PKK Avrupa’da çok güzel lobi yaptı. Ülke ülke derdini anlattı. Avrupa bizi ‘masum insanları öldüren devlet’ olarak gördü. Bu açıdan ben Avrupa’nın PKK terörüne bakışında artniyet aramıyorum. Daha çok bizim hatamızdı” diyor.
+       <br/>
+       <br/>
+       Meşru müdaafa ile terör arasındaki fark konusunda da benzer kafa karışıklığı sürüyor. Amerika tarihin en büyük saldırısına uğrayıp, can evinden vurulduktan sonra ilk günden bu yana ‘meşru müdafaa’yı sık sık dile getirip bundan sonra yapacağı saldırılar için zemin hazırladı. Halbuki bir dönem önce hem Üsame’nin, hem de Taliban’ın arkasında ABD’nin açık desteği vardı. O dönemde Amerikan medyası ve hükümeti kendi elleriyle besleyip büyüttükleri örgütlerin Sovyetler’e karşı mücadelesini ‘özgürlük savaşı’ ya da ‘meşru müdafaa’ olarak görüyordu. Aynı şey İsrail için de geçerli. Bugün İsrailli yetkililer bile HAMAS’ı başlangıçta FKÖ’yü parçalamak için desteklediklerini gizlemiyorlar. Bu devletler başlangıçta destekledikleri, göz yumdukları gruplar kendi aleyhine dönünce, onları terörist ilan ettiler.
+       <br/>
+       <br/>
+       Çifte standartlar ve tanım zorluğu yüzünden şimdiye kadar terörle ilgili dişe dokunur ortak bir tavır alınamıyordu. İngiliz yasaları “terör”ü “politik amaçla şiddet kullanmak” diye tanımlıyor. Bu tanımla Hitler’i de, Miloseviç’i de “terörist” saymak mümkün. Arafat 1974’te BM’de “Adil bir amaç için, mesela ülkesinin özgürlüğü için savaşan biri terörist sayılamaz” diyordu. Peki hangi amacın “adil” olduğuna kim, nasıl karar verecek? Politik şiddet, ne zaman “terör eylemi”, ne zaman haksızlığa uğramış bir halkın “meşru direniş”i sayılacak?
+       <br/>
+       <br/>
+       İstanbul Barosu Başkanı Yücel Sayman meselenin kavram karmaşasından değil ülkelerin çıkarları doğrultusunda iki yüzlü davranmasından kaynaklandığını söylüyor: “Dünün özgürlük savaşçıları bugün terörist oluyor. Siz örgütleri besleyip, büyütüp başka ülkelerde terör estirirken iyi, size dönünce terörist oluveriyorlar. Bize göre terörist olup masum insanları öldüren örgütlere demokrasi dersi veren insanlara pasaport veriyor, liderine villa, üyesine silah veriyor. Kime göre terördür kime göre meşru müdafaadır. Herkesin şapkasını önüne koyup düşünmesi ve ortak bir konsensüs sağlanması için çalışması gerekli”.
+       <br/>
+       <br/>
+       İstanbul Bilgi Üniversitesi öğretim üyelerinden Doç. Dr. Turgut Tarhanlı da terörün yeniden tanımlanmasının gerekli olduğunu ısrarla vurguluyor ve halihazırdaki hukuk düzenine göre Amerika’ya yapılan saldırının bir tanımının olmadığını söylüyor.
+       <br/>
+       <br/>
+       Eski Dışişleri bakanlarından emekli Büyükelçi İlter Türkmen ise Ladin ile PKK terörü arasında benzerlik olmadığı kanaatinde: “Ladin tarafından yapılan terör bir anda ve büyük çapta. Bu yüzden pek benzerlikleri yok, benzer tepkiler görmemesi de normal. Ayrıca dünyanın PKK terörüne sırt çevirdiğini söylemek de mümkün değil. Unutmayın Öcalan’ı paket olarak veren de Amerika’ydı.”
+       <br/>
+       <br/>
+       ABD’nin Kuzey Irak’ta oluşturduğu siyasi boşluk ve Çekiç Güç’ün bizzat teröristlere destek sağladığı iddiaları dikkate alınırsa aslında Batı’nın terör konusundaki tutumunun berrak olmadığı sonucuna varılabilir. 11 Eylül sonrasında yapılan terör karşıtı faaliyet ve alınan kararlarda da tanım boşluğu sürdürülüyor. Çünkü herkesin terörden anladığı başka. Pakistan, Keşmir’de mücadele verenleri mücahit, Hindistan terörist görüyor. Özgürlük mücadelesi veren Çeçenler, Moskova’ya göre terörist. Çin, Doğu Türkistan’daki özgürlük taleplerini terör olarak görüyor.
+       <br/>
+       <br/>
+       Listenin dışında tuttuğumuz devlet terörünü de işin içine katarsak, teröre karşı küresel bir mücadele verilip verilemeyeceği hayli kuşkulu oluyor. Çünkü bu mücadelede başarı, dünya sistemine yön veren paradigmaların değişmesine bağlı.
+       <br/>
+       <br/>
+       e—mail: a.yavuz@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12783), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093500/http://www.aksiyon.com.tr:80/detay.php?id=12783)

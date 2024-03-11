@@ -1,0 +1,85 @@
+# Gece 04:00. Aloo... Nassınız, sayın bakanım?
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031605im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031605im_/http://www.aksiyon.com.tr/resim/361/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Aldığı maaşlarla gündeme getirilen milletvekillerinin yaptığı iş esasen çok müşkül bir iştir. Yüklendikleri ağır yükün ötesinde vatandaşla ilişkileri de birebirdir vekillerin. Hele bir tanesi var ki zaman zaman tüy diktirir.İşte vekillerin ağzından ‘geceyarısı’ telefonları...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Gecenin saat üçü... Telefonunuz acı acı çalıyor. Ahizeyi endişeyle kaldırıyorsunuz. Çünkü o saatte çalan telefon büyük ihtimalle yaşanan elim bir olayla ilgili sizi bilgilendirecek. Fakat tam tersi oluyor. Karşınızdaki, pişkin pişkin ‘geçiyordum, aradım’ türünden cümleler sarfediyor. Büyük bir nefes alıyor, rahatlıyorsunuz. Ama içinizden de söylemedik söz bırakmıyorsunuz...
+   <br>
+    <br>
+     Ankara’ya gelmişken...
+     <br>
+      <br>
+       Bu cümleler bir senaryo değil. Şu sıralarda anayasa değişikliği dolayısıyla yoğun olarak, aldıkları maaşların gündemde tutulduğu milletvekillerinin başına gelen rutin olaylardan birisi, belki de. Gerçekten de gecenin bir yarısı çalan telefonlar vekiller için sıradan bir olay haline geldi. İçinizden birileri de bunu ‘Yaptıkları işin gereği doğal bir şeyler’ olarak nitelendiriyor olabilir. Öyle ya da böyle, ama kolay birşey olmadığı da bir gerçek. En iyisi vekillerin kendi ağızlarından dinlemek, bunun nasıl birşey olduğunu...
+       <br/>
+       <br/>
+       Devlet eski bakanlarından, DYP Milletvekili Ayvaz Gökdemir’in başına gelen olay buna sadece bir örnek; “Saat sabahın dördü. Telefon sürekli çalıyor. Belki on defa çaldı, bırakır dedim ama bırakmadı. En sonunda açtım. Karşımda birisi boğuk sesle konuşuyor. Ne konuşması bağırıyor; ‘Sayın Bakanım Kayseri’den İstanbul’a gidiyorduk. Ankara’dan geçerken siz aklıma geldiniz. Şimdi Ankara’dan geçerken sayın Bakanımı aramadan olmaz dedim ve aradım. Nasılsınız, iyi misiniz? Geçtiğimiz günlerde arkadaşlarla birlikte oturmuş konuşuyorduk sizin de adınız geçti, herhalde kulağınız çınlamıştır.” Bu cümleden sonra Gökdemir fazlaca bozuntuya vermek istemez. Ancak konuşmanın sonunda eski Bakan’ın da birkaç sorusu vardır, Kayserili seçmene; “Kardeşim sen benim seçmenim misin?”, “Ne demek sayın Bakanım, biz aile olarak da Demokrat Parti’den bu yana bu geleneğin insanlarıyız”, “Peki son seçimde DYP’ye oy verdiniz mi?”, “Tabii sayın Bakanım başka hangi partiye oy verebiliriz ki?”, “Peki kardeşim bundan sonra beni geceyarısı telefondan arama, bundan sonra senin oyunu da istemiyorum.” Böyle bir cümleyi sarfetmek bir politikacı için kolay değildir ama ‘siyasi’ de olsa iradenin bir dayanma gücü vardır. Ayvaz bey de sonunda dayanamamış ve bu beyanını seçmenine zor da olsa belirtmek zorunda kalmıştır.
+       <br/>
+       <br/>
+       Geceyarısı telefonlarına maruz kalan sadece Ayvaz Gökdemir değildi kuşkusuz. Yine Gökdemir gibi eski devlet bakanı olan, geçtiğimiz cumhurbaşkanlığı seçimine aday olması sebebiyle MHP’li bazı vekillerin tepkisini çeken MHP Aksaray Milletvekili Sadi Somuncuoğlu da bunlardan birisiydi.
+       <br/>
+       <br/>
+       Ne olacak bu memleketin hali?
+       <br/>
+       <br/>
+       Ancak bu kez durum biraz farklıydı. Somuncuoğlu’nu arayan, yoldan değil, yerleşik bir mekandan arıyordu. Saat gece üç sularındaydı; “Sayın Bakanım biz şu anda birkaç arkadaş biraraya geldik. Memleket meselelerini konuşuyoruz. Durumdan hiç memnun değiliz. Ya sahiden sayın Bakanım ne olacak bu memleketin hali, bizim durumumuz ne olacak? Daha dün bir arkadaşımız iflas bayrağını çekti, öteki arkadaşlarımızın yarınının ne olacağını ise bilemiyoruz. Siz Ankara’dasınız, belki neler yapılabileceğini siz söylersiniz diye düşündük. Hiç olmazsa orada devlet büyükleriyle her zaman görüşebiliyorsunuz, siz birşeyler söyleyin, ne olur...” Somuncuoğlu, konuşmanın bu minvalde devam ettiğini belirtiyordu; “Ama baktım ki konuşma bitmiyor. Bazen kendi aralarında konuşarak benimle yeniden konuşmaya başlıyorlar. Sabırla bekliyorum. Merak ettim. Biraz daha konuştum ama anladım ki orada bulunanların hiçbirisi ayık değildi.” Durum anlaşılmıştı; meyhanede birkaç kafadar buluşarak önce bol miktarda alkol almışlar, ardından da Somuncuoğlu’nu aramaya karar vermişlerdi. Ne de olsa Bakan Somuncuoğlu’nun ev telefonu hemen herkeste vardı. Somuncuoğlu’nun başından geçen ‘geceyarısı telefonları’ bundan ibaret değildi. Eski Bakan, öğretmen olduğunu söyleyen bir Ankaralı şahsın geceyarısından sonra sürekli kendisini aradığını, Türkiye ile ilgili meseleleri aktardığını belirtiyordu; “Bu öğretmen bazen öyle olurdu ki telefonla bir saat konuşurdu. En son dayanamadım bir keresinde dedim ki, ya sen bu kadar parayı nasıl buluyorsun, nihayetinde bir öğretmensin. Cevabı beni de şaşırtmıştı. ‘Sayın Bakanım’ dedi, ‘Ben maaşımın hemen tümünü telefon parası olarak yatırıyorum’. Sadi Somuncuoğlu, aynı öğretmenin ayrı partilerden farklı milletvekillerini de geceyarısı arayarak saatlerce konuştuğunu daha sonra öğrendiğini, bunlardan birisinin de DSP’li Uluç Gürkan olduğunu ifade ediyordu.
+       <br/>
+       <br/>
+       Sen Çebi’yi de ara!
+       <br/>
+       <br/>
+       Geceyarısı evden telefonla arananlar kervanına katılanlardan birisi de geçtiğimiz günlerde sürpriz yaparak Doğru Yol Partisi saflarına katılan, ANAP’ın son kongresinde Mesut Yılmaz’ın karşısına Genel Başkan adayı olarak çıkan Trabzon milletvekili, eski Devlet Bakanı Eyüp Aşık’tı. Eyüp Aşık’la karşısındaki seçmeni arasında geçen geceyarısı konuşması ise tabiri caizse ‘kuyruklu’ bir konuşmaydı. Sabaha doğru Aşık’ı evinden arayan Trabzonlu bir seçmen, Ayvaz Gökdemir’in başına geldiği gibi Başkent’ten geçerken, Aşık’ın ev telefonunun tuşlarını çevirir; “Sayın Bakanım yanlış anlamayun. Ankara’dan geçiyirduk. Herhangi bir isteğimuz da pulunmamaktadur. Ama bakanumuza bir selam vermeden de edemeduk. Sonra Bakanumuz ‘Ankara’ya kadar gelmuşler de pana selam vermedular’ der diye araduk. Gönlün hoş olsun isteduk sayın Bakanum.” Eyüp Aşık önce bir ‘lahavle’ çeker içinden. Sonra aralarında gerçekten de hoş bir sohbet başlar. Trabzon’dan girerler, Çaykara’dan çıkarlar, artık kangren yarası haline gelmiş olan Çaykara’nın incisi Uzungöl meselelerine dalarlar. Ancak, Eyüp Aşık da bir ‘hin’lik düşünmektedir, konuşmanın sonunda; “Bak hemşerim, sen beni bu saatte aradın, uyandırdın, çok da güzel bir sohbet oldu. Ama hemşehrimiz, milletvekilimiz İbrahim Çebi’yi de ara. Telefonu şu. Aramazsanız Çebi cidden gönül koyar. Hadi iyi sabahlar.”
+       <br/>
+       <br/>
+       Karadenizli ilginç seçmen İbrahim Çebi’yi de aramış mıdır bilinmez ama Eyüp bey, kendisini geceyarısı yatağından kaldırarak muhabbet etmek zorunda bırakan hemşehrisine esprisini yapmadan edememiştir.
+       <br/>
+       <br/>
+       İlginç istekler
+       <br/>
+       <br/>
+       Milletvekillerini geceyarısı arayanların tümü hal hatır sormak ya da memleket meselelerini konuşmak için aramıyordu. Bazı isteklerini iletmek ve yardım talep etmek için telefonun tuşlarına basanlar da yok değildi. Hem de ilginç istekler için... Öyle ya geceyarısı milletvekili evinde olmayacaktı da nerede olacaktı? Çoğu kez seçmenler ‘Vekilimiz neredeler acaba, görüşmemiz mümkün mü?’ diye sorduklarında, sekreterlerinden ‘Şu an Meclis grubundalar, ya da Genel Kurul’a geçtiler veya şu an toplantı halindeler, bir notunuz varsa biz alalım’ cevabını alıyorlardı. Böyle bir durumda sekreter de direkt olarak devreden çıkmış oluyor, telefona direkt vekilin kendisi bakıyordu. İşte böyle bir geceyarısı istek telefonuyla, DYP’nin kadın ve gençlikten sorumlu Genel Başkan Yardımcısı, Edirne eski milletvekili Ümran Akkan karşı karşıya kalmıştı. Arayan cezaevinden bir erkek hükümlüydü. Hoş beşten sonra seçmen ilginç isteğini Ümran Akkan hanıma iletiyordu; “Sayın milletvekilim giyecek hiç iç çamaşırım kalmadı, bana bir miktar iç çamaşırı gönderebilir misiniz?”. Ümran hanım bir an kulaklarına kadar kızardığını hisseder. Öyle ya, seçim bölgesinden tek kadın milletvekili kendisiydi ve böyle bir istek niçin özellikle kendisine yapılmıştı? Ancak biraz daha konuştuktan sonra Ümran Akkan bu seçmeninin isteğini yerine getirmeye karar verir ve ertesi gün Meclis danışmanına talimat vererek bir takım iç çamaşırının bu kişiye gönderilmesini sağlar. Ümran Akkan, yayın hazırlığı süren hatıralarında bu anekdota da yer vermeye karar verir.
+       <br/>
+       <br/>
+       Sadece gece değil
+       <br/>
+       <br/>
+       ‘Vekiller geceyarısı üstelik de evlerinden telefonla aranabiliyorsa gündüz kimbilir nasıl bir tablo vardır?’ sorusunu duyar gibiyim. Doğrudur; milletvekillerinin gündüz telefon trafiğini hayal etmek bile mümkün değil. Telefonun kullanılmasının ilkesel olarak doğru olmadığı, yasa çalışmalarının gerçekleştirildiği Meclis Genel Kurul Salonu’nda bile kimi vekiller, canlı yayına yakalanmamak için ağızlarını siper ederek cep telefonlarını kullanmak zorunda kalıyorlar. Bazılarının bu trafikten bıktığı da oluyor. Enis Öksüz’den sonra Ulaştırma Bakanlığı koltuğuna oturan, MHP eski Meclis Grup Başkanvekili Oktay Vural buna bir örnek. Oktay bey, Bakanlık koltuğuna oturduktan hemen sonra iki cep telefonunun numarasını ‘istediğiniz gibi arayabilirsiniz’ diyerek seçmenlerine vermişti. Ama zamanla cep telefonlarından gelen seslerin tonu ve rengi değişip iş talepleri ve nakil, kıdem vb. gibi istekler yoğunluk kazanınca Bakan Vural bu uygulamasından vazgeçmek zorunda kaldı. Şimdi bu telefonlarından biri danışmanında, diğeri ise özel kalem müdüründe. Kendisine ise ‘secret’ bir cep telefonu aldı.
+       <br/>
+       <br/>
+       Bürokratı aramak mümkün değil
+       <br/>
+       <br/>
+       Kamuoyu araştırmalarında ‘güvenilirlik’ sıralamasında epey aşağılarda seyreden, aldıkları maaş sıralamada neredeyse 40. kademede olmasına karşılık haksız eleştirilere uğrayan Türkiye Büyük Millet Meclisi ve üyeleri böyle bir uygulamayla karşı karşıya, çoğu kez. Bunları dinledikten sonra insan şöyle bir değerlendirmeyi dillendirmeden edemiyor; “Acaba devletin hangi kademesinde yer alanlar bu şekilde, geceyarısı telefonla hem de evinden aranabiliyor? Mesela bir genel müdürü, yönetim kurulu üyesini, ya da bir başka bürokratı evinden, üstelik de gece vakti arayabilir misiniz? Mümkün değil.”
+       <br/>
+       <br/>
+       Şöyle ya da böyle geceyarısı telefonları vekilleri de bir noktaya kadar rahatsız ediyor. Milletvekili de bir insan netice olarak. Onların da aileleri ve çocukları var. Ama hemen her milletvekili bu anekdotları anlattıktan sonra şunu de eklemeyi ihmal etmiyor; “Ne yapacaksınız? Memleketin hali belli. Bir de telefonla vatandaşla konuşmazsanız, vatandaş sizi istediği zaman arayamazsa işte asıl patlama o zaman gerçekleşir”.
+       <br/>
+       <br/>
+       Ne diyelim, darısı ‘yüksek’ bürokratların başına...
+       <br/>
+       <br/>
+       e—mail: a.oksuz@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12407), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031605/http://www.aksiyon.com.tr:80/detay.php?id=12407)

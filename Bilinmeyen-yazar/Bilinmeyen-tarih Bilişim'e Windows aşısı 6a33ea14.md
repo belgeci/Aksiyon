@@ -1,0 +1,37 @@
+# Bilişim’e Windows aşısı
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031529im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031529im_/http://www.aksiyon.com.tr/resim/361/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Microsoft, heyecan ve merakla beklenen yeni iletim sistemi Windows XP’yi tüm dünyadaki yüz binlerce bilgisayar kullanıcısıyla buluşturdu. Başta Amerika Birleşik Devletleri’nin New York kenti olmak üzere dünyanın birçok ülkesinde yapılan tanıtım etkinlikleriyle piyasaya sunulan Windows XP’nin Türkiye lansmanı da dijital çağın heyecanının hissedildiği bir kutlamaya dönüştü. İletişimde yeni bir çağın habercisi olarak nitelendirilen Windows XP’nin Türkiye lansmanına katılan yaklaşık 3 bin kişi bu coşkuyu tüm dünya ile aynı anda yaşama firsatı buldu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Mydonose Showland’de gerçekleştirilen lansmanda açılış konuşmasını yapan Microsoft Türkiye Genel Müdürü Haluk Maga, yeni işletim sisteminin ortaya çıkaracağı heyecanın bilgisayar endüstrisi için de büyük firsatlar taşıdığına dikkat çekti. Maga, “Windows XP, cihaz ve uygulamaların yeteneklerini geliştirerek bilgisayar kullanıcıları için daha iyi sistemler oluşturuyor. Sunduğu kullanım kolaylığı ile kitlelerin bilgisayarla tanışmalarını sağlayan ve böylece internet devrimini de hızlandıran Windows 95’ten sonra, endüstri, bilgisayar kullanıcıları, BT profesyonelleri ve müşterilerimiz için heyecan verici bir dönüm noktasındayız. Bu dönemin yapı taşı da Windows XP olacak. 3—5 yıl sonra evlerde bütün işler için tek bir cihaz kullanılacak ve bu cihaz da bilgisayardan başka bir şey değil. İnternet bilgisayar endüstrisine nasıl ivme kazandırdıysa Windows XP’nin de aynı etkiyi yaratacağına inanıyoruz” diye konuştu.
+   <br>
+    <br>
+     Krize rağmen yatırıma devam
+     <br>
+      <br>
+       Haluk Maga konuşmasında basın mensuplarının sıklıkla “Ekonomik krizde neden yatırım yapıyorsunuz?” sorusunu yönelttiklerini belirterek, “Ekonomik krizde Türk BT pazarı yüzde 60 daraldı. Bu kriz, sektörü 5 yıl geriye götürdü. Fakat Türkiye’de evlerin sadece yüzde 3’ünde, KOBI’lerin ise yüzde 20’sinde PC var. Biz yeni ürünlerimizi piyasaya sunarak yatırım yapmaya devam ediyoruz; çünkü, Türkiye’nin verimliliğine ve rekabet gücüne katkıda bulunacak katma değer ve servisleri BT sektörü geliştirecek. Windows XP de bu hedefe ulaşmada çok önemli bir rol üstlenecek” dedi.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12397), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031529/http://www.aksiyon.com.tr:80/detay.php?id=12397)

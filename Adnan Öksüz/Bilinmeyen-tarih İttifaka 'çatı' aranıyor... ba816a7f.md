@@ -1,0 +1,100 @@
+# İttifaka ‘çatı’ aranıyor...
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Yüzde 10 barajı AKP dışındaki partilerin önündeki en büyük korku. Mevcut Seçim Yasasına göre ittifak yapmaları mümkün değil. Liderler partilerini Meclis dışında bırakacak böyle bir sistemle seçime girmek istemeseler de artık çok geç, seçim süreci başladı. Geriye ise bir tek alternatif kalıyor; örtülü ittifaklar.
+   <br/>
+   <br/>
+   Her seçim öncesi gündeme gelen ‘ittifak’ konusu yine popüler. Yıllardır Siyasi Partiler ve Seçim Sistemi’nde yapılması gereken değişikliklere kulaklarını tıkayan partiler birden hareketlendi. Zira, liderleri baraj korkusu sardı. Anketler AKP dışındaki partilerin rahat olmadığını ortaya koyuyor. Yüzde 10 ülke barajı partilerin kâbusu. İttifakların en isteklisi ANAP lideri Mesut Yılmaz, partisini Meclis dışında bırakacak böyle bir sistemle seçime gitmek istemiyor. Olası Irak operasyonu kuşkusuz seçimlerin ertelenmesini sağlayacak. Pekçok milletvekili bunun yakınlaşmasını temenni ediyor. Ancak, seçim süreci başladı ve paldır küldür sandığa koşuyoruz. Yüksek Seçim Kurulu seçim takvimini açıkladı. Aday olacak memurlar istifalarını verdi. Partilerin ittifak yaparak seçime katılmalarına imkan tanımayan SPY’nin değişmesi için zaman çok daraldı.
+   <br>
+    <br>
+     Yasa değişmese de YTP ile DTP kurumsal kimliklerini koruyarak ittifak yapacaklarını açıkladı. Seçimlere AB ekseniyle katılma taraftarı olan ANAP ise bu ittifaka katılmakta hâlâ kararsız. Şayet gerçekleşirse iki sağ, bir sol partinin birlikteliği epey renkli olacak. Ama önemli olan seçmenin bu fotoğrafa vereceği tepki...
+     <br>
+      <br>
+       Aslında bu konuda ilk uyarıyı Başbakan Bülent Ecevit yapmış, erken seçimin öncelikle iktidar partilerini vuracağını söylemişti. Yılların politikacısı Ecevit, krizin faturasının koalisyonun üç ortağına çıkacağını görmüş, zamanında seçim yapılmasında ısrar etmişti. Bugün yaşanan panik başbakanı haklı çıkardı.
+       <br>
+        <br>
+         Mevcut yasa böyle bir yolu meşru kılmıyor. Partiler örtülü ittifakı seçiyor.
+         <br/>
+         <br/>
+         12 Eylül’den sonraki en ilginç seçim ittifakı 1991 yılında yaşanmıştı. O dönem Refah Partisi, Milliyetçi Çalışma Partisi ile Islahatçı Demokrasi Partisi bu yola başvurarak yüzde 10 barajını geçmişler ve Meclis’e girmeyi başarmışlardı. Daha sonra ise herkes kendi partisine geri dönmüştü. 1995’te bu kez ANAP ile BBP benzer bir yola başvurdu.
+         <br/>
+         <br/>
+         Şimdi gündemde olan ittifak arayışları ise biraz farklı. Hazineden sorumlu Devlet Bakanı Kemal Derviş ortanın solunu biraraya getirme çabasında. Ne kadar başarılı olacağı belirsiz. Ancak derin kulislerde yapılan değerlendirme şu şekilde; “Merkezin sağı ve solu mutlaka bir şekilde ittifak yapmalı.” Bu saatten sonra bunun bir tek yolu var; aynı çatı altında seçime girmek. Ancak kimin ve hangi partinin çatısı altında? Cevabı şimdilik bulunamayan soru bu. 4 Kasım sabahı için ileri sürülen ve Ankara’nın birçok köşesinde konuşulan ‘kabus senaryosu’nun yaşanmaması için derinden derine kulisler devam ediyor. Ancak herkesin bir hesabı bulunuyor. Ve sanıldığı gibi bu hesapların birçoğu da son anda bozuluyor. Seçime daha çok var. Siyasette dengelerin saniye saniye değiştiği Türkiye’de yarın için kesin bir yargıda bulunmak güç.
+         <br/>
+         <br/>
+         Bir ittifakın öyküsü
+         <br/>
+         <br/>
+         1991 yılının sonbahar ayları... ANAP Genel Başkanlığına yeni seçilen Mesut Yılmaz, muhalefet partisi lideri DYP Genel Başkanı Süleyman Demirel’le de anlaşarak ‘erken seçim’ kararı almış ve ülke büyük bir hızla seçim atmosferine girmişti. 1991 yılının 20 Ekim’inde yapılan erken seçimlerde ANAP iktidar partisi, DYP ise muhalefet partisi olarak belli bir havayı arkalarına aldıkları için sözkonusu partiler bakımından bir problem gözükmüyordu. Ancak dönemin Necmettin Erbakan‘ın Genel Başkanlığındaki Refah Partisi, merhum Alparslan Türkeş’in liderliğindeki Milliyetçi Çalışma Partisi ile Aykut Edibali’nin Genel Başkanlığını yürüttüğü Islahatçı Demokrasi Partisi açısından hiç de içaçıcı bir hava mevcut değildi. En azından konjonktür böyle bir ortamı meydana getirmişti. Hemen çalışmalara başlandı. Genel Başkanların haricinde Refah Partisi adına Melih Gökçek, Hasan Hüseyin Ceylan, Oğuzhan Asiltürk, MÇP adına Koray Aydın, IDP’den de Recep Kırış ve Bayram Girayhan ön çalışmaları tamamlayarak Genel Başkanların önüne götürdüler. Refah Partisi’nin Güneydoğulu milletvekili adayları karara isyan etti. Refah Partisi’nin Balgat’taki Genel Merkezi heyetlerin baskınına uğradı. Ancak RP’nin etkili ismi ve o dönemki Genel Sekreteri Oğuzhan Asiltürk son kararı verdi ve açıklamayı da kendisi bir gece yarısı yaptı.
+         <br/>
+         <br/>
+         Üçlü ittifak kararı alındıktan itibaren Türkiye’de çok farklı bir hava oluştu. Büyükşehirlerdeki mitinglere Erbakan, Türkeş ve Edibali birlikte katılıyor; Türkeş, Erbakan için ‘benim kardeşim’ ifadelerini kullanıyordu. Bu beraberlik üç partinin teşkilatlarına kadar yansıyordu. Neticede 20 Ekim’de istenilen olmuş ve üçlü ittifak yüzde 15’ten fazla oy alarak parlamentoya girmeyi başarmıştı. Seçimden hemen sonra Türkeş ve Edibali’ye Refah Partisi genel merkezinde oda ayarlanacağı ve artık liste birlikteliğinden daha radikal birlikteliğe gidileceği söylentileri yayıldıysa da sonrasında her partinin milletvekilleri kendi partilerine dönmüşlerdi.
+         <br/>
+         <br/>
+         SHP—HEP birlikteliği..
+         <br/>
+         <br/>
+         Aynı seçimlerde bir başka ittifak da sessiz sedasız gerçekleşmişti. 1991 seçimleri propaganda çalışmalarında ‘Partimizin sloganlarını söyleyelim de kopya çeksinler, öyle mi?’ diyerek ünlenen zamanın Sosyal Demokrat Halkçı Parti (SHP) Genel Başkanı Prof. Erdal İnönü de, —günümüzün HADEP’i— Halkın Emek Partisi (HEP) ile seçim ittifakına gidiyordu. HEP özellikle Güneydoğu illerinde ve Büyükşehirlerin horlanmış, geri kalmış varoşlarında etkin bir oy potansiyeline sahipti. SHP bunu değerlendirmek istiyordu. Hedefine ulaşan İnönü seçimden sonra koalisyon ortağı olmuştu.
+         <br/>
+         <br/>
+         Türkiye’nin sekizinci Cumhurbaşkanı Turgut Özal’ın vefatıyla boşalan Cumhurbaşkanlığı makamına Demirel’in çıkmasıyla Meclis’te dengeler değişmiş ve Çiller’in Başbakanlık yolunun açılmasıyla birlikte HEP milletvekilleri için de alarm zilleri çalmaya başlamıştı. Sonuçta seçim sürecinde Meclis’te HEP milletvekillerinin vekillikleri sona erdirilmiş ve hapse girmişlerdi. SHP—HEP seçim ittifakı başarıyla başlamış, sonuçlanmış ancak farklı bitmişti.
+         <br/>
+         <br/>
+         Derviş’in misyonu
+         <br/>
+         <br/>
+         Yüksek Seçim Kurulu’nun seçime girecek partileri belirlemesinden sonra bu tarihten itibaren yürütülecek ittifak çalışmaları ancak yukarıdaki örneklerde olduğu gibi seçime yönelik liste ittifakları olabilir. Bu tarihten sonra yapılacak başka bir şey yok. Seçim itifaklarında ön plana çıkan isim ise Türkiye’nin son bir yılına damgasını vuran Hazine’den sorumlu Devlet Bakanı Kemal Derviş. Derviş’in ABD seyahati sonrasında İsmail Cem’in liderliğindeki Yeni Türkiye Partisi’ne (YTP) katılması bekleniyordu ama o acele etmiyor. Acele etmemekle birlikte bir şey daha yapıyor; kendisini sosyal demokrat olarak ya da liberal sol olarak tanımlayan parti, isim ve kesimlerle buluşarak görüşlerini paylaşıyor. Derviş’in bu temaslarının siyasi pratikte bir anlamı ve değeri bulunmuyor. Çünkü Bakan Derviş herhangi bir partinin üyesi değil, yetkilisi değil. Dolayısıyla bu temasları temenniden ibaret kalıyor. Ama Türkiye genelindeki bir arayışın sembolü olması bakımından önem kazanıyor.
+         <br/>
+         <br/>
+         Derviş’in işadamı Nejat Eczacıbaşı, CHP lideri Baykal, Arı Hareketi mensupları, Prof. Erdal İnönü vb. gibi isimlerle biraraya gelip görüşmelerde bulunması birçok kesim açısından önemli görülüyor. Katılacağı partiye yüzde 3—5 puan kazandıracağı ümidiyle herkes kendisine kucağını açmış durumda. Ama onun beklentisi seçim sonrası kurulacak güçlü hükümette söz sahibi olmak. Onun için de her ne kadar YTP’ye katılacağı İsmail Cem tarafından deklare edilse de kararını netleştirmiş değil.
+         <br/>
+         <br/>
+         En istekli parti ANAP
+         <br/>
+         <br/>
+         İttifak, aylarca önce ANAP MKYK’da tartışılmış, programa alınmıştı. Bu konuda en açık görüş sergileyen parti kuşkusuz ANAP. Liderlere ulaşan kamuoyu araştırmaları da merkez partileri için tehlike çanlarının çaldığını gösterdi. Geçen hafta ekranların müdavimi olan Mesut Yılmaz açık bir çağrı yaparak merkezde bulunan partilerin —DYP—DSP—YTP— tümüyle seçim ittifakına gidebileceklerini açık açık dile getirdi. Yılmaz’ın yıllardan beri arasının iyi olmadığı bilinen ve 1991’deki Kongrede Yıldırım Akbulut’a destek verdiği için ANAP’tan ayrılmasına sebep olduğu Demokrat Partili, Ankara Büyükşehir Belediye Başkanı Melih Gökçek’le uzun bir görüşme yapması bunun en son göstergesi olarak değerlendiriliyor, Başkent kulislerinde. Gökçek’in Demokrat Parti olarak mı yoksa kişisel olarak mı ANAP’la seçim işbirliğine gidip gitmeyeceği de kesinlik kazanmış değil. Ancak Yılmaz’ın bu çağrısına ne DSP ne de Çiller olumlu cevap verdi. DSP başından beri ittifaklara soğuk bakarken, Çiller’in teklifi daha radikaldi; “İttifak olmaz ama parti katılımlarına açığız.” DYP Genel Başkanı açık olmasa bile ANAP liderine ‘kepenklerinizi indirin, bize katılın’ mesajı veriyordu. Buna da ANAP’ın evet demeyeceği aşikârdı. O halde ANAP ve Genel Başkanı Mesut Yılmaz için DYP ve DSP ile seçim ittifakı kapalı görülüyor. ANAP’ın, Avrupa Birliği’ne uyum yasalarına karşı çıkan ve koalisyon çalışmalarında birçok kez karşı karşıya geldiği Milliyetçi Hareket Partisi ile de seçim ittifakı yapmayacağı biliniyor.
+         <br/>
+         <br/>
+         Zaten MHP şu aşamada ittifaka kesinlikle karşı.
+         <br/>
+         <br/>
+         İtifaka yanaşmayan bir başka parti ise Adalet ve Kalkınma Partisi(AKP). AKP’liler arkalarına iyi bir seçim havası aldıklarına inanıyorlar. Diğer taraftan Saadet Partisi de ANAP’ta olduğu gibi ‘her türlü seçim ittifakına’ açık olduğunu, Genel Başkan yardımcısı Mehmet Bekaroğlu’nun açıklamalarıyla ortaya koymuş bulunuyor. Kısacası şu an AKP, DYP, DSP ve MHP seçim ittifaklarına soğuk yaklaşan partiler olarak gözüküyor. Bu blokun karşısında ittifaktan yana olan partiler ise ANAP, Saadet ve YTP.
+         <br/>
+         <br/>
+         Popüler isimler dönemi bitti
+         <br/>
+         <br/>
+         Her seçimde partilerin birbirleriyle yarış haline girdikleri popüler isimleri milletvekili adayı yapma esprisi bu kez zayıf bir ihtimal olarak görülüyor. Çünkü yapılan araştırmalar bu seçimlerde partilerin gösterecekleri adayların niteliğinden ve popülaritesinden ziyade verecekleri mesajların ve programların daha ön plana çıkaracağını ortaya koyuyor. Her ne kadar ANAP’tan Ahmet Mete Işıkara, DYP’den Talat Şalk ve AKP’den Kürşat Tüzmen gibi isimler ilk planda açıklandılarsa da bunun geneli kapsamayacağı ifade ediliyor. Bu yüzden partiler seçim ittifaklarına giderken bu faktörü de gözönünde tutacaklar. Ve özellikle son yıllarda ağırlıklı olarak gündeme gelen ekonomik konular partilerin mesajlarında önemli yer tutacak.
+         <br/>
+         <br/>
+         Derin kulislerde neler konuşuluyor?
+         <br/>
+         <br/>
+         Seçim itifaklarıyla ilgili Ankara’da bunlar yaşanırken bir de derin kulislerde nasıl hesap yapıldığına bakmak gerekiyor; hedef, merkez sağ ve merkez sol aynı çatı altında seçime girsin. Bu öngörü yeni de değil zaten. ANAP’la DYP’nin biraraya gelmesi gerektiğini, aynı çevreler yıllardan beri ifade ediyorlardı. Bu çevrelere göre kısa vadede yapılması gereken ‘seçime güçlü bir partinin çatısı altında ve güçlü isimlerle’ gitmek. 4 Kasım sabahı için ileri sürülen ve Ankara’nın birçok köşesinde konuşulan ‘kabus senaryosu’nun yaşanmaması için derinden derine kulisler devam ediyor. Ancak herkesin bir hesabı bulunuyor. Ve sanıldığı gibi bu hesapların birçoğu da son anda bozuluyor.
+         <br/>
+         <br/>
+         Seçime daha çok var. Siyasette dengelerin saniye saniye değiştiği Türkiye’de yarın için kesin bir yargıda bulunmak güç. Bekleyip göreceğiz.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 243 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1691), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301173406/http://www.aksiyon.com.tr:80/yazdir.php?id=1691)

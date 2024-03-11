@@ -1,0 +1,79 @@
+# Yenı nesıl atla tanışıyor
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227030610im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227030610im_/http://www.aksiyon.com.tr/resim/373/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Pony midilliye benzeyen köpek boyunda cins bir at. Öyle aşırı tepkileri olmaması çocukların korkmadan binmelerinde etkili oluyor. Atla eğitimin çocuğa kazandırdığı ilk özellikler sosyalleşme ve el göz koordinasyonunda gelişmeler. Otistik ve spastik çocuklarda da atla eğitim çok etkilidir. Çocuklar ata eyersiz bindiriliyor. Atın tabii sıcaklığı çocuktaki bütün kasları gevşetiyor ve hareket kabiliyeti sağlıyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Geçtiğimiz aylarda bir gazetede yer alan özel bir haber hayli şaşırtmıştı bizi. Habere göre otistik bir çocuk, ata bindirilerek yapılan bir tedavinin yardımıyla sağlığına kavuşmuştu. Haberde annenin çok özel ve etkili ilgisi ile beslenme konusundaki titiz davranışlarından da bahsediliyordu. Ancak atla ilgili bölüm dikkat çekiciydi. Bazı hayvanlarla tensel temasın çocuklarda birçok duygunun gelişimini sağladığını duymuştuk ama ‘otistizm’gibi önemli ve tedavisi neredeyse imkansız bir hastalıkta atın etkili olması çok ilginç gelmişti bize.
+   <br>
+    <br>
+     Türk halk hikayeleri ve destanlarda atın, kahramanın en önemli yardımcısı olduğu bilgisi yer alır. Atın doğuşu, yetişmesi, kahramanla katıldığı serüvenler zengin motifler oluşturur. Hz. Muhammed’in (s.a.v) Miraç’a çıktığı Burak, Miraçname ve benzeri dini edebiyat ürünlerinde ata benzer bir canlı olarak tanımlanmış, Hz. Ali’nin Düldül’üne Gazavat’ı Ali’de geniş yer verilmiş. Battal Gazi’nin atı Aşkar da kutsal bir canlı olarak zikredilmiş; hatta Battalname’de Aşkar’ın İslam dininin yayılması için ona yardımcı olmak üzere Allah tarafından gönderildiği anlatılmış. Bamsı Beyrek’in Boz Aygır’ı, Köroğlu’nun Kırat’ı, Şah İsmail’in Kamer Tay’ı efsanelerde olağanüstü yetenekleri olan, hatta ab-ı hayat içmiş atlar olarak tanımlanırmış. Hz. Hızır’ın kanatlı Boz At’ının ise sahibi gibi ölümsüz olduğu söylenir.          Özetle at kahramanlıklarla dolu tarihimizde sahipleriyle birlikte hep var olmuş değerli ve binek olmaktan öte anlamlar taşıyan bir canlı olarak varlığını sürdürmüş.  Yüzyıllarca binek olarak ve tarım işlerinde kullanılan atın kullanımı Avrupa’da İkinci Dünya Savaşı’nın ardından sona ermiş. Buna öncül sebepler olarak savaşlar, demiryolunun doğuşu ve tarımda makineleşme dalgası gösterilebilir. Fakat son savaş gerek günlük yaşamda, gerekse düşünce biçimlerinde köklü bir değişikliğin koşullarını biraraya getirmişti.
+     <br>
+      <br>
+       Böylece at makineleşmenin yayılmasıyla doğru orantılı olarak dünya üzerindeki kullanım alanlarını kaybetmeye başladı. Soyunun tükenme tehlikesine karşılık bizde cumhuriyet döneminde at yetiştiriciliğine, at soyunun ıslahına önem verildi. Bu amaca yönelik olarak birçok yerde haralar açıldı ve Türkiye Jokey Kulübü kuruldu. Ancak hiçbirşey atalarımızın sırtından inmediği atı bize gerektiği kadar yaklaştıramadı. Uzun yıllar süvari birlikleri milli bayramlarda ordu mensubu gençlerin şovlarıyla bize zevkli anlar yaşattıysa da ata binmek artık birçoğumuzun zihninde lüks bir hobi. Çünkü at eğitimi almak da, at çiftliklerinden yararlanmak da oldukça pahalı bir uğraş halini aldı.
+       <br/>
+       <br/>
+       Oysa biz gözardı etsek de, atın beden ve ruh sağlığımıza çok önemli katkılarından bahsediliyor şimdi. Ancak ne yazık ki bu konuda pek fazla çaba yok. Yani ne ata binmeyi cazip ve ulaşılabilir kılan kurumlar yeterli, ne de insanımız atın insan üzerindeki sosyal ve fiziksel etkilerinin farkında. İşte bu yüzden SABER’in ( Sağlık, Eğitim ve Danışmanlık Merkezi) organize ettiği atla eğitim çalışmaları, atın otistik hastalar üzerindeki etkilerini öğrendiğimiz şu günlerde dikkatimizi çekti. Atın çocuk yetiştirmedeki etkilerinden yararlanma amacıyla başlatılmış bu organizasyon hakkında Genel Koordinatör Osman Kurtkan Kapıcıoğlu ile görüştük.
+       <br/>
+       <br/>
+       Kendisi de iyi bir binici
+       <br/>
+       <br/>
+       Ebeveynle yapılan mutad buluşmalarla çocuk ve eğitimi üzerine konuşan hatta belirli sağlık sorunları varsa ilgili yerlere yönlendiren Kapıcıoğlu’nun danışmanlık hizmetlerinin bir bölümünü binicilik oluşturuyor. Emekli bir süvarinin oğlu olan Kapıcıoğlu’nun atla ilgili geniş tecrübeleri var. Sekiz dokuz yaşlarından itibaren atın hayatında yer aldığı Kapıcıoğlu, atın kişilik gelişimi üzerindeki etkilerinin önemine dikkat çekiyor. Literatüre ‘Therapatic Riding’ adıyla geçmiş ata binme eğitiminin yararları ise saymakla bitmez gibi görünüyor. Binicilik sporunun diğer spor branşlarından ayrılan en önemli özelliği at ile beraber yapılıyor olması. Dolayısıyla atla yapılan eğitimin temelinde şu var: Bir canlıyla birlikte olmak ve başarınızın ona bağlı olması onu çok iyi anlamanızı gerekli kılıyor. Tabii bu anlayış içerisine giren binici hem atı hem de kendini daha iyi tanıma ve bu yönde kendini geliştirme çabası içine giriyor. Biniciliğin bir başka özelliği ise hemen her insan tarafından her yaşta yapılabilir olması. Özellikle vücudun esnekliğini kaybettiği ileri yaşlarda beden sağlığı yönünden çok olumlu katkılarının olduğu bizzat binicilik ile ilgilenenler tarafından ortaya konuyor.
+       <br/>
+       <br/>
+       Atın, sezgileri güçlü bir hayvan olmasının bu eğitimdeki önemi de büyük. Ayrıca Kapıcıoğlu’nun verdiği bilgiye göre atın bilişsel, duyuşsal ve psikomotor gelişim üzerindeki etkisi de çok fazla.
+       <br/>
+       <br/>
+       Örneğin çocuk at sırtında çevresindeki kuvvetli uyaranları, daha az kuvvetli uyaranlardan ayırdedebilmeyi öğreniyor. Burada at ona en büyük yardımcıdır. Çünkü atlar oldukça hassas hayvanlar olup çevresindeki herşeye dikkat ederler ve bunu hareketleriyle belli ederler. Atın tepkileri çocuğun da etrafına karşı daha dikkatli ve uyanık olmasını sağlar ki bütün bunlar çocuğun bilişsel kazanımları hanesine yazılır. Duyuşsal kazanımlarına örnek olarak ise çocuğun ata binip onu eğitebilmesini böylece kendini iyi hissetmesini, özgüveninin artmasını gösterebiliriz. Kendisinden daha büyük, güçlü ve hızlı bir hayvanı kontrol edebilme becerisi çocuğun özgüvenini artırıyor. Ayrıca kendi hayatına ve dış dünyaya ilginin artması da duyuşsal kazanımlara örnek sayılabilir. Ata binişin verdiği heyecan ve ata tam hakimiyet kuralı çocuk için uyarıcı etki yapıyor. Çünkü hem atını iyi hissetmesi, hem de çevresinde olan bitene dikkat etmesi gerekiyor. Böylece algı ve duyarlılığında artış sağlanmış oluyor. Binicilik riskli bir spordur. Çocuk at sırtındayken kaygıyı öğrenir. Ama bu öğretici bir kaygıdır. Durum havuzda da aynıdır. Ayakları yere değmeyen kişi başta bir kaygı duyar ama bu kaygının yardımıyla su üzerinde durmayı öğreniyor. Burada da çocuk at sırtındayken endişe ve korku ile başa çıkma yönünde kazanımlar geliştiriyor. Atın zaman zaman binicinin isteklerine cevap vermemesi temel biniş tekniklerinin ata tekrar tekrar uygulanmasını gerektiriyor. Bu eğitim çerçevesinde ata belli hareketleri şiddet kullanmadan yaptırmanız gerekiyor. Bu da çocuğa sabrı öğretiyor. Çocuk at sırtındayken kendi kontrolünü kaybettiği an atın da kontrolünün kaybolduğunu görüyor. Böylece duygularını mutlaka kontrol etme zorunluluğu hissediyor, sonuç olarak çocuk duygu kontrolü ve öz disiplin kazanıyor. Ayrıca at üzerindeki değişken ortam, algıda seçicilikle birlikte normal hakkında da izlenim uyandırıyor.
+       <br/>
+       <br/>
+       Bütün bunların yanısıra çocukların biniş eğitimi sayesinde çeşitli sosyal kazanımlarından da bahsedilebilir. Grup halinde yapılan çalışmalar sayesinde arkadaşlık ve hayvan sevgisi geliştiği gibi yaşantı zenginliği ve tecrübenin artması da olumlu bir gelişmedir çocuklar adına. Binici yaparak ve yaşayarak öğrenir. Bu da eğitimde çok önemlidir. Çünkü bir öğrenmede ne kadar çok duyu organı öğrenme faaliyetine katılırsa öğrenme o kadar kalıcı ve uzun süreli olur; unutma gecikir. Atla meşgul olmak, onu temizlemek, binmek, binerken hakim olmak, binerken düşmek, gezmek biniciye yaşantı zenginliği sağlıyor.
+       <br/>
+       <br/>
+       Tabii ki binicilik aynı zamanda oldukça eğlenceli bir spordur. Binici doğal hayatın içinde eğlenerek farkında olmadan pek çok özelliği kazanmış oluyor.
+       <br/>
+       <br/>
+       SABER, bu eğitimi danışmanlık yaptığı ailelerin çocuklarına sağlamak için Kemer Country Club ve Maslak’taki Galatasaray Spor Kulübü Binicilik Şubesi’yle ortaklaşa çalışmalar içine girmiş. Bu programlar dahilinde ‘Pony’ türündeki atlarla çocuklar buluşturuluyor. Pony, midilliye benzeyen, köpek boyunda cins bir at. Öyle aşırı tepkileri olmaması çocukların korkmadan binmelerinde etkili oluyor.
+       <br/>
+       <br/>
+       Özürlü çocuklar atla tedavi edilecek
+       <br/>
+       <br/>
+       Yazının girişinde verdiğimiz örnekten de anlaşılacağı gibi özürlü çocukların tedavisinde de at eğitiminin çok büyük etkisi var. Otistik, spastik ya da hiperaktif çocukların tedavisinde ata binme çok etkili. Bu özel çocuklar ata eyersiz bindiriliyor. Atın tabii sıcaklığı çocuktaki bütün kasları gevşetiyor ve  hareket kabiliyeti kazandırıyor. Bu tedavi türü özürlü çocukların bilişsel, duyuşsal, sosyal ve bedensel becerilerini geliştirmeye odaklanmış. Dolayısıyla at terapist olarak kullanılıyor. Bu çocukların tedavisinde at kullanımı Türkiye’de henüz yaygın değil. Atla eğitimin bu tür etkilerine dikkat çeken Kapıcıoğlu, ata binmenin aslında ülkemizde daha fazla yaygınlaşması taraftarı. Ayrıca ona göre ata binme kısa süreli bir hobi yerine bir hayat tarzı, bir spor dalı olarak hayatımıza girmeli. Küçük yaşlarından itibaren ata ilgi duyan Kapıcıoğlu bu ilginin atla ilgili herşeyi yapmayı öğrenecek kadar yoğun olduğunu ifade ediyor. Ve “Biz küçüklüğümüzde ata ilgi duyduk ama at eğitiminin ilk başında bizi ata bindirmediler. Atın önce pisliğini temizledik; bize atı tımar etmeyi, atın ayaklarını temizlemeyi öğrettiler. İyi ki öğretmişler. Şimdi ben atı temizlerim, besler bakarım, koşumlarını kuşatırım, binerim. Çok zengin insanlar ata sadece biner ve gider ama bizim istediğimiz bu değil. Ata tümüyle bakarak binmek gerekir ki sosyaliteniz artsın, özgüveniniz artsın” diyor.
+       <br/>
+       <br/>
+       Ata binmek sabrı, paylaşımı ve yönetmeyi öğretiyor
+       <br/>
+       <br/>
+       Pony Club’da verilen bu eğitimlerde çocuklara atın üzerinde çeşitli hareketler yaptırılıyor. At üzerinde basketbol oynatılıyor,  ata manevra yaptırılıyor ve bunların hepsi eğitim adına oluyor. Burada verilen eğitimin kazandırdıklarını ise gündelik hayatta gözleme imkanı hemen ortaya çıkıyor. Çocuğun davranışlarında ve el becerilerinde bir gelişim gözlemlemeniz mümkün. Onun kendini tanıyan, sosyal, özgüven sahibi, duygularını ifade edebilen ve kendi kararlarını verebilen bir çocuk olduğunu görmeniz ise an meselesi.
+       <br/>
+       <br/>
+       Bu bilgileri edindikten sonra Galatasaray Spor Kulübü’nün Maslak’taki binicilik şubesine yaptığımız ziyarette, orada bu eğitimin ne denli zevkli bir hale getirilerek çocukların ilgisine sunulduğunu gözlemleme şansı bulduk. Pony Club’ın kurucu yöneticisi Tulya Kurtulan 140’ı çocuk olan 150 öğrenciye ata binme eğitimi verdiklerini ifade etti. İngilizce, Fransızca, Almanca ve Türkçe dillerinde at bilgisi verilen çocuklara at üzerinde de binicilik dersleri veriliyor. Tesisin kendi eğitimcileri var ve genelde birer aylık programlar belirleniyor. Okul öncesi eğitim de haftada bir gün, bir saat. Üstelik üç yaşından itibaren bu eğitim verilebiliyor. Şimdilik gelir seviyesi hayli yüksek ailelerin çocuklarına sunabildiği bu eğitim, umarız yakında yaygınlaşır. Çünkü çocukların at üzerindeki mutlu ve kendine güvenen tavırları her anne babanın görmeyi özlediği bir manzara...
+       <br/>
+       <br/>
+       e.bilici@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12204), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227030610/http://www.aksiyon.com.tr:80/detay.php?id=12204)

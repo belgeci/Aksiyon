@@ -1,0 +1,51 @@
+# Tasavvufun gönül dünyasında kalbın zümrüt tepelerı
+
+*Hasan Kamil Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092309im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092309im_/http://www.aksiyon.com.tr/resim/364/55.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kalbin Zümrüt Tepeleri, kalbî hayatına yeni bir yön vermek isteyen herkese önemli ipuçları veren, İslâmiyet’in modern hayat içinde belki de biraz ihmâl edilen mânevî boyutlarını detaylarıyla önümüze seren bir mürâcaat kaynağı ve bir edebiyat bahçesi
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tasavvuf, öncelikle bir rûhî tecrübe ve gönül işidir. Bu rûhî tecrübeler zamanla terimler şeklinde söylenir olmuştur. Tasavvufun âbide şahsiyetlerinden Kuşeyrî, tasavvufî ıstılahların ortaya çıkışını iki ana temele dayandırmaktadır: 1. Anlaşılması zor konuların daha kolay anlaşılmasını sağlamak, 2. İşe liyâkati bulunmayan kimselerde tasavvufî sırlara merak uyandırmamak.
+   <br>
+    <br>
+     Sûfîler sünûhât-ı kalbiyye tarzında gönüllerine düşen ledünnî ve keşfî bilgileri Kur’ân ve sünnet imbiğinden geçirerek adlandırıp sınıflandırmışlar (makâm, hâl, menzil, vakt vs.) ve bu sûretle bir tasavvuf ıstılâhâtı oluşturmuşlardır. Bu ıstılahlardan önce tasavvuf tarihinin klasik eserleri içinde bir bölüm olarak kalbin yaşadığı rûhî ve mânevî tecrübelerden bahsedilmiş, sonraları bu konuda müstakil eserler de kaleme alınmıştır. Abdullah Ensârî Herevî’nin Menâzilü’s-sâirîn ve Sad Meydân adlı eserleri, Rûzbihân Baklî’nin Meşrabü’l-ervâh’ı ve Abdurrezzâk Kâşânî’nin Mu’cemu Istılâhâti’s-sûfiyye’si tasavvuf terimlerini açıklayan eserlerin önde gelenleridir. Tasavvuf bir kalp eğitimi ve ahlâk okulu olduğu için tasavvuf terimlerinin bir çoğu kalbî hayatla ilgilidir. Hem kalbî hayatını, hem de okuduğu tasavvufî eserleri anlamak isteyenler için bu terimlerin ifâde ettiği mânâları bilmek fevkalâde önemlidir.
+     <br>
+      <br>
+       Son yıllarda Süleyman Uludağ ile Ethem Cebecioğlu beylerin hazırladıkları tasavvuf terimleri sözlükleri araştırmacılara ve tasavvufa ilgi duyan kesimlere önemli bir katkı sağlamış ise de, çok sayıda terimi kısa ve öz olarak ifâde eden bu eserler bir sohbet havası içinde okunmaya pek müsâit değildi. Bu konudaki ihtiyâcı dolduracak yeni bir eser, muhterem M. Fethullah Gülen Hocaefendi’den Kalbin Zümrüt Tepeleri adı ile geldi. Daha önce birinci cildi yayınlanan bu eserin geçen ay ikinci cildi de neşredildi ve okuyucu ile buluştu.
+       <br/>
+       <br/>
+       Kalbin Zümrüt Tepeleri’nde özellikle kalbî hayatı ilgilendiren terimler ele alınmış, konular derin bir vukûfiyet içinde işlenirken akıcı bir üslûb kullanılmış, ayrıca Türkçe ve Farsça şiirlerle bir sohbet iklimi temin edilmiştir. Farsça şiirler çoğunlukla Mevlânâ Celâleddîn, Abdurrahman Câmî ve Şebüsterî’den, Türkçe şiirler de Yunus Emre, Niyâzî-i Mısrî, Hüdâyî, Erzurumlu İbrâhim Hakkı, Gedâî, Nesîmî ve M. Lütfi gibi büyük mutasavvıfların asırlara mâl olmuş eserlerinden seçilerek sunulmuştur. İstidlal ve konuyu açıklamak için kullanılan âyetlerin sûreleri ve hadislerin kaynağı gösterilmiştir. Kitaptaki her bölümün sonunda güzel bir Arapça dua bulunmaktadır. Müellifin telbis konusunu anlatırken kaydettiği “Herevi’nin onu Hakk’a isnat etmedeki ifratını da, İbn Kayyim ve taraftarlarının tefritini de bir tarafa bırakarak bir kere daha hatırlatmak isteriz ki...” (II, s. 175) diye başlayan cümlesi, istifade ettiği kaynakları çok dikkatli tedkik ettiğinin ve nakillerle yetinmeyip yeni tesbit ve sentezler yaptığının göstergesidir. Ayrıca eserin sonundaki indeksler okuyucular için büyük bir kolaylık sağlayacaktır.
+       <br/>
+       <br/>
+       Tasavvuf İslâmın ruh hayatıdır. Diğer dinlerde adına Mistisizm denen bu kalbî hayat, her dönemde insanların ilgi odağı olmuştur. 11 Eylül’de Amerika’da meydana gelen olay sebebiyle bütün dünyada Vahhâbist ve radikal söylemler tartışma zeminine çekildi. Gelişen şartlar öyle gösteriyor ki, ancak tasavvufî hoşgörüye sâhip İslâmî anlayış tartışma zemininden uzak kalabilecektir. Amerika’da bu olaydan önce de “best seller” (en çok satan kitap) olan Mevlânâ’nın Mesnevî’si ve Mevlânâ’nın bizzat kendisi bu tarihten sonra daha yoğun biçimde ilgi odağı hâline gelmiş bulunmaktadır. Tasavvufun kalbî hayatı öne çıkaran ve bütün insanlara aynı gözle yaklaşan duygusal boyutu çok pirim yapacağa benziyor. Dolayısıyla değerli müellif Fethullah Gülen Hocaefendi engin bir önsezi ile bugünleri görmüş ve günümüz insanının ilgi duyacağı ve muhtaç olduğu bir konuyu gündeme taşımıştır, hem de edîbâne ve anlaşılır bir üslub ile. Tasavvufun anlaşılması zor, anlatılması bir o kadar daha güç cem-fark, fenâ-bakâ, vücûd ve tevhid gibi meselelerini bir mütehassıs hazâkati ile ifâde etmesini bilmiştir. Onun, eserin hemen ilk sayfalarında yer alan kalp ile ilgili değerlendirmeleri selîs üslubunun ve veciz beyanının canlı şâhididir: “İnsanı Hakk’a ulaştırmada en aldanmaz vesilelerden biri kalptir ve kalbin en büyük ameli de ihsândır. İhsân, ihlas yamaçlarına açılmanın en emin yolu. Rıdvân tepelerine ulaşmanın en sıhhatli vâsıtası ve Şâhid-i Ezelî’ye karşı da bir temkin şuurudur. Ona doğru hergün imanla donanmış, amelle kanatlanmış ve takvâ ile derinleşmiş yüzler-binler “şedd-i rihâl” eder, yolculuğa koyulurlar ama; o zirveye ya birkaç insan ulaşır ya da ulaşamaz. Ulaşamayanlar, ulaşma adına didinmelerini sürdüredursunlar; ulaşanlar, orada Allah’ın sevmediği şeyleri bütün çirkinlikleriyle duyar, hisseder ve onlara karşı kapanır; Allah’ın güzel gördüğü şeylerle de fıtratlarının gereği imişcesine birleşir, bütünleşir ve sürekli “ma’rûf” soluklarlar”.
+       <br/>
+       <br/>
+       Kalbin Zümrüt Tepeleri, kalbî hayatına yeni bir yön vermek isteyen herkese önemli ipuçları veren, İslâmiyet’in modern hayat içinde belki de biraz ihmâl edilen mânevî boyutlarını detaylarıyla önümüze seren bir mürâcaat kaynağı ve bir edebiyat bahçesi. Mâneviyata susamış gönüllere bir yaz yağmuru gibi gelen bu değerli eserinden dolayı muhterem müellifi tebrik ederiz.
+       <br/>
+       <br/>
+       * Prof. Dr., Marmara İlahiyat Fakültesi
+       <br/>
+       Öğretim Görevlisi
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12447), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092309/http://www.aksiyon.com.tr:80/detay.php?id=12447)

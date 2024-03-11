@@ -1,0 +1,64 @@
+# Web sitelerinde strateji eksikliği
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Son iki yılda gerek internetin kullanımı ve gerekse firmaların açtırdığı web sitelerinin sayısında müthiş bir patlama olduğu herkesin kabul ettiği bir gerçek. Bu gerçeğin yanında web sitesi sahiplerinin gönülsüz şekilde kabul ettikleri bir başka gerçek daha var. Web sitelerinden umdukları faydayı görememe gerçeği.
+   <br/>
+   <br/>
+   Bilişim projelerinin uygulanması konusunda yeterli bilgi ya da eğitime sahip olmayan bir çok işletme sahibi, web sitesinin, işlerin akışındaki birçok şeyin hızını artıracağı inancında. Bunun nedeni biraz da medyada çıkan marjinal örnekler. Basit bir web sitesi ile aklın almayacağı kadar kısa zamanda gerçekleştirilen büyük başarı örnekleri… Veya diğer bir ifadeyle web sitesi açmanın, işlerin açılması yolunda sihirli bir değnek gibi gösterilmesi. Halbuki, işletmelerin pazarda tutunabilmeleri için ürettikleri strateji kadar internette tutunabilme stratejisi üretmeleri gerekiyor. Hatta daha bile fazlası gerekiyor.
+   <br>
+    <br>
+     “Bizim de web sitemiz olsun” mantığı ile açılan birçok web sitesi, bir müddet sonra işletme sahipleri için gereksiz bir gider olarak görülmeye başlıyor. Bir kısmı ise artık o güne kadar hiç bulaşmadığı internetin tamamen bir hayal dünyası olduğuna inanmaya başlıyor.
+     <br>
+      <br>
+       Olması gereken ise, web sitesi açmakla yapılan yatırımın belli bir plan dahilinde yapılması. Bu planlama için işletmelerin bilgi eksiği bulunduğu durumlarda ise, bilgiyi web sitesini yapan ajans veya bireylerden talep etmek yerine işin gerçekten uzmanı olanlar insanlarla dirsek temasına geçmesi.
+       <br>
+        <br>
+         Web sitesi sahibi işletmelerin, bu yatırımı zaman içinde kâra dönüştürebilmesi için ise şu temel aşamaları mutlaka gerçekleştirmesi gerekiyor.
+         <br/>
+         <br/>
+         — İşletmenin yapısına uygun bir altyapıda web sitesi hazırlanması
+         <br/>
+         <br/>
+         — Hedef müşteri kitlesinin dikkatinin siteye çekilmesi için reklam, duyuru veya kampanya yapılması
+         <br/>
+         <br/>
+         — Site ziyaretçilerinin firmayla ilgili aradıkları herşeyi bulabilecekleri bir sistem sağlanması
+         <br/>
+         <br/>
+         — Müşterinin web sitesinde kendine özel bir yer bulabilmesi. Kendi tercihlerine göre sitenin görünümünü vs. değiştirebilmesi
+         <br/>
+         <br/>
+         — Müşterinin, sipariş aşamasında internet ortamından işletme yöneticileri ile temasa geçebilmesi
+         <br/>
+         <br/>
+         — Müşterilerden gelecek soruların cevaplandırılması
+         <br/>
+         <br/>
+         — Ödeme, teslimat ve satış sonrası hizmet ile ilgili doyurucu bilgi sunulması
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 8 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12462), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043804/http://www.aksiyon.com.tr:80/yazdir.php?id=12462)

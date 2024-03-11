@@ -1,0 +1,40 @@
+# Atanlar mi, tutanlar mi?
+
+*Fatih Uraz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Futbolda değişen kurallardan en fazla etkilenenler kaleciler. Herşey gole endekslendiği için bu durum hem kaçınılmaz, hem de mantıklı. Bir zamanlar kalecilerden sadece topu tutmaları istenirdi. Sonra topu oyuna iyi sokmaları da istendi, oyuncuları yönlendirmeleri de.
+   <br/>
+   <br/>
+   Derken geri pası elle tutmaları yasaklandı, yetmedi, taçları da ellerine alamaz oldular. Ceza sahası dışında topu elle oynamaları ile rakibe müdahalede bulunmaları da takımlarını eksik bırakmalarına sebep olmaya başladı. Anlayacağınız, günümüzde topu tutmak yetmiyor. Hem iyi tutacaksın, hem iyi vuracaksın, hem de uyanık olacaksın. Bu da çok zor olduğu için iyi kaleciye rastlamak artık hayli zor.
+   <br>
+    <br>
+     Geçmiş Dünya Kupası organizasyonlarında görüyorsunuz ki birçok kaleci sonuca direkt etki etmiş. 1974’te Maier, 1982’de Zoff, 1990’da Goygoçeha, 1998’de de Barthez gibi... Peki, bu Dünya Kupası’nda sivrilen kaleci olabilir mi? Pek sanmıyorum. Çünkü, klas kaleci şu an çok az. Hatta yok diyenler bile var. Gerçekten de Schmeichel’dan sonra dünya onun klasında bir kaleciyle karşılaşmadı. Tabii ki Danimarkalı kalecinin son üç yılını değerlendirme dışı tutuyoruz. İtalya’nın kalecisi Buffon, bence en olmadık pozisyonları çıkarabilecek tek kaleci. Kaleciler arasındaki transfer rekorunu onun kırmasına şaşmamalı. Ama yan toplar, libero özelliği ve takımı yönetme gibi özellikler de devreye girince o bile yıldız olur diyemiyorum. Dünyanın en iyi kalecileri arasında gösterilen Oliver Kahn ise bence bu unvanı hak etmiyor. Maier, Schumacher, Köpke gibi eski Alman kalecilerle karşılaştırdığımızda onların yanında sönük kalıyor. Oyuna iyi konsantre olması ve karşı karşıyalardaki başarısı ise artıları.
+     <br>
+      <br>
+       Manchester’da hayal kırıklığı yaratan Barthez, Uzakdoğu’da toparlanabilir. Çok çabuk bir kaleci olan Barthez’in en büyük avantajı ise takımı Fransa’nın gücü. Bir kaleci için hatalarını kolaylıkla telafi edebilen bir takımda oynamaktan daha keyifli ne olabilir ki?
+       <br>
+        <br>
+         İngiltere’de Seaman artık yaşlı. Yeri de garanti değil. Portekizli Vitor Baya da grafiğini bir türlü yükseltemediği için çoktan ülkesine döndü. Keza, geçmişte Nkono gibi kaliteli kalecilerini gördüğümüz Afrika takımlarında gözümüze çarpan ekstra isimler yok. Bizim kalecimiz ise çok çabuk, kendine güveniyor; fakat belirli bir vasatı yok. Zor topları kolay kurtarabildiği gibi, kolayları da hediye edebiliyor. Gerçekte ise inanılmaz bir yetenek; ancak rakipsizlik en büyük dezavantajı. İyi çalışmaması da cabası. Favori Arjantin’in kalecisi Bonano da vasat bir isim. Keza, 24 seneden beri (Leao’dan bu yana) iyi kaleciye hasret Brezilya da kalesinde rahat değil. Bütün bunları alt alta koyunca da diyorum ki 2002’de sonucu topu tutanlar değil, atanlar belirleyecek.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11866), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227214510/http://www.aksiyon.com.tr:80/yazdir.php?id=11866)

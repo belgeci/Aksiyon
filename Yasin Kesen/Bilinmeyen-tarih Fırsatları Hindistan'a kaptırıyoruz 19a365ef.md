@@ -1,0 +1,68 @@
+# Fırsatları Hindistan’a kaptırıyoruz
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Hükümet kuruldu, Avrupa Birliği görüşmeleri bitti, sıra geldi yatırımlara, geleceğe bakmaya. Ancak, geçen zaman sürekli aleyhimize işliyor. Yazılım geliştiricilerimiz birbirinden habersiz dolaşırken, onları yönlendirmesi gerekenler Microsoft’un 400 milyon dolarlık son yatırım fırsatını da elden kaçırdı
+   <br/>
+   <br/>
+   Son yıllarda yazılım sektörü içerisinde ismi öne çıkmaya başlayan Hindistan, yazılım geliştiriciler için oluşturduğu inkubasyon (kuluçka) merkezleri sayesinde dünya devi yazılım şirketlerinin gözde yatırım merkezi haline geldi. Yabancılara sağlanan yatırım imkanları ve işgücü ile entelektüel sermayenin dünya ortalamasından daha düşük fiyatlarla satın alınabilmesi, yabancı yazılım şirketleri için Hindistan’ı bir cazibe merkezi haline getirdi.
+   <br>
+    <br>
+     Hindistan’ın yakaladığı son fırsat yine Microsoft’un bir yatırım projesi. 400 milyon dolarlık projenin temelinde Bill Gates’in Linux’la mücadele fikri de yatıyor. Linux’un hızlı gelişmesinde ve yayılmasında emeği olan Hindistanlı yazılımcıları bünyesinde toplamayı hedefleyen Microsoft, yeni yatırım projesi ile birlikte en büyük rakibi Linux’a karşı da ciddi bir önlem almayı hedefliyor.
+     <br>
+      <br>
+       Microsoft’un Hindistan’a yönelik projesi, eğitim kurumlarında bilgisayar ve yazılım eğitiminin sağlam bir temele oturtulmasını kapsıyor. İleride ihtiyaç duyulacak bilişimcileri temelden yetiştirmeyi amaçlayan Microsoft, devletin eğitim birimlerinde 10 bilgisayar merkezi ile toplam 2 bin okulda bilgisayar merkezi kuracak. Microsoft, bilgisayar merkezlerinin kurulması aşamasında, sektörün önde gelen firmalarından da destek sağlayacak.
+       <br>
+        <br>
+         Projenin başlangıç ayağını oluşturan bilgisayar merkezleri ile bir yıl içerisinde 80 bin öğretmen ile 3.5 milyon öğrenciye ulaşılması hedefleniyor. Bilgisayar merkezlerinin kurulması aşamasında, yerel sektörü de desteklemek amacıyla, birlikte çalışılacak. Böylece iç pazar, bu yatırım hamlesinden menfi yönde etkilenmiş olmayacak.
+         <br/>
+         <br/>
+         Microsoft’un bu bölgeye yaptığı yatırımla birlikte gerçekleştirmeyi hedeflediği ilk çalışma, Windows XP ve Microsoft Office XP’nin Hindu sürümlerinin çıkarılması. Hali hazırda 9 dile çevrilmiş olan bu yazılımlara bir yenisi daha eklenmiş olacak. Kurulan yazılım merkezlerinden bazıları, Microsoft yazılımlarını diğer yerel dillere de çevirecek.
+         <br/>
+         <br/>
+         1999’da 40 kişilik bir kadro ile Hindistan’da faaliyet göstermeye başlayan Microsoft, bu sayıyı 2005 yılına kadar 500 kişiye çıkaracağını da vaad etti.
+         <br/>
+         <br/>
+         Bu projeden Hindistan’ın kazancı ne olacak?
+         <br/>
+         <br/>
+         Hindistan bu proje sayesinde, “Know how” stratejisi ile hareket ederek, Microsoft’un yazılım stratejilerine aşina olacak. Böylece, yerli yazılım firmaları kendilerine daha kolay hedef belirleyebilecek. Ürettikleri yazılımların, Microsoft’un gelecekte çıkaracağı yazılımlarla uyum problemi çok daha önceden giderilmiş olacak. Bu da, yazılımların test süresini kısaltacağı için Hindistanlı yazılım firmalarının diğer ülkelerdeki yazılım firmalarından birkaç adım daha önde gidiyor olmasını sağlayacak. Yani rekabette avantaj sağlayacak.
+         <br/>
+         <br/>
+         Diğer bir kazanç, Microsoft’un Hindistan’daki çekirdek kadrosunu genişletmesi ile çok daha fazla bir nüfusa istihdam sağlayacak olması. Geleceğe yönelik en önemli kazanç ise, 3.5 milyon öğrencinin şimdiden entelektüel sermaye ile donatılmaya başlanması olacak. Bizzat Microsoft’un liderliğinde kurulacak bilgisayar merkezleri sayesinde, öğrenciler bilgisayarı daha etkin kullanmayı öğrenmiş olacak. Bu nesil gelecekte emsallerine göre çok büyük avantaja sahip olacak.
+         <br/>
+         <br/>
+         Bizim beklentilerimiz...
+         <br/>
+         <br/>
+         Yeni hükümete, önceki haftalarda yapılan çağrılar, Avrupa Birliği görüşmeleri arasında sıkışıp kaldı. Şimdi bu çağrıların yeniden seslendirilerek bundan sonraki fırsatların kaçırılmaması için harekete geçilmesi gerekiyor.
+         <br/>
+         <br/>
+         KOSGEB ve Sanayi Bakanlığı tarafından yerli yazılımcıların desteklenmesi ve Ar—ge çalışması yapanlara bazı kolaylıklar ve vergi muafiyetleri tanınması gerekiyor. Yabancı yazılım şirketlerinin yazılım geliştirme merkezleri kurmaları için yatırım kolaylığı sağlanması gerekiyor. Yazılım otoriteleri ile temasa geçilip, Türkiye’de yatırım yapmaları yönünde çağrıda bulunulması gerekiyor.
+         <br/>
+         <br/>
+         BSA ile işbirliği sayesinde satış hacminde aşırı oranda bir artış sağlayan Microsoft Türkiye’nin, merkez ile temasa geçip Türkiye’de yatırım yapmaya zorlanması gerekiyor. Microsoft’un yazılımlarının lisans hakkını korumak için çıkarılan kanunların karşılığında Microsoft’un da aynı duyarlılığı sergileyip Türkiye’de yatırım yapması gerekiyor. Biz kaçırılan fırsatları ve bu talepleri seslendirmeye devam edeceğiz, ta ki etkili ve yetkili kişiler bilişimcileri duyup harekete geçinceye kadar...
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 379 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2237), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043510/http://www.aksiyon.com.tr:80/yazdir.php?id=2237)

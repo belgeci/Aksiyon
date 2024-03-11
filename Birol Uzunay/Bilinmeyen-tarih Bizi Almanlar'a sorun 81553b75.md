@@ -1,0 +1,47 @@
+# Bizi Almanlar’a sorun
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010109im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010109im_/http://www.aksiyon.com.tr/resim/396/metro.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dünyanın en büyük şirketlerinden olan Metro Ag Holding, Türkiye’ye özel bir önem veriyor. Türkiye’nin dışarıdan bakıldığında çok daha büyük bir ülke imajını verdiğini tesbit eden Metro Ag Holding, ülkemizi “işlenecek potansiyeli olan bir derya” olarak tanımlıyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Dünya Kupası’ndan sonra bir kez daha fark ettik ki, Türkiye zannettiğimizden çok daha büyük bir ülke. Balkanlar’da, Orta Asya ülkelerinde, İslam coğrafyasında, hatta Avrupa ülkelerinde yaşanan Türkiye sevincini ırk ve dinle açıklayabiliriz belki; ama Güney Kore ve Japonya’nın Türkiye sevgisini açıklamak çok zor. Türkiye’nin büyüklüğünü içeriden bir bakışla anlamak mümkün değil; çünkü “titreyen bir yönetim” insanlara karamsarlık aşılıyor...
+   <br/>
+   <br/>
+   Türkiye’nin dışarıdan nasıl algılandığını, bir dış dünya yatırımcısı olan Metro Ag Holding’e  sorduk. Metro Emlak Yönetim Genel Müdürü Gündüz Bayer, Almanya’dan baktıklarında Türkiye’nin çok daha büyük bir ülke görünümünde olduğunu, bu yüzden de grup olarak Türkiye yatırımlarını artırdıklarını söylüyor.
+   <br/>
+   <br/>
+   “İçeriye fazla bakıyorsunuz, hayat dışarıda”
+   <br/>
+   <br/>
+   Almanya kökenli Metro Ag Holding, ülkemizde Pratiker, Real Marketler ve Grosmarket şirketleriyle faaliyet gösteriyor. Almanya’nın yedinci, dünyanın en büyük 75. şirketi olan Metro Ag Holding, yatırım yapacağı ülkelerin her türlü analizini yaptırıyor. Gündüz Bayer, ortaya çıkan analizleri şöyle açıklıyor: “25 ülkede 230 bin personel çalıştıran bir grubuz. Türkiye’ye özel önem vermemizin sebebi ise, genç nüfus, stratejik coğrafya ve bunların oluşturduğu gelecekteki büyük ülke imajıdır. Metro AG Holding’in 2001 Türkiye cirosu 620 milyon euro, demek ki bu ülkede herşey kötü değilmiş, rakam ortada!”
+   <br/>
+   <br/>
+   Bir çok ülkede yatırım ve tüketim potansiyelinin bittiğini söyleyen Gündüz Bayer, Türkiye’nin atağa tam bu zamanda kalkması gerektiğini belirtiyor: “Dünya Kupası’nda alınan 3.lük bile bu ülkeyi hareketlendirebiliyor. Yapılacak küçük değişiklikler bile bu ülkeyi şaha kaldırır. Türkiye’deki dinamizm, bir kıskançlık sebebidir. Alışveriş merkezlerine koyduğum tüm yenilikler hemen tüketiliyor. Bir çok ülkede bu yeniliklerin farkına bile varılmaz.”
+   <br/>
+   <br/>
+   Metro Ag Holding’in birçok şirketiyle  gelmesine rağmen, diğer uluslararası şirketlerin niçin Türkiye’yi tercih etmediğini ise Gündüz Bayer şöyle açıklıyor: “Bürokrasi, güvensizlik gibi etkenler önemli handikap, kabul. Ancak kâr yapacağını anlayan uluslararası firmalar bunlara aldırmaz. Türkiye fazlasıyla içe dönük. Dışa bakıp, ‘ben buyum’ dese, yabancı yatırımcı fazlasıyla artar.”
+   <br/>
+   <br/>
+   Gündüz Bayer’in, Türk tüketicisini Metro AG Holdig’in yatırım yaptığı 25 ülke tüketicisiyle kıyaslamasında ilginç sonuçlar çıkıyor: “Büyük alışveriş merkezlerine gezmek için gelen, mağazalara bakmayı seven bir tüketicimiz var. Büyük alışveriş merkezlerimizde dükkan satın almak birkaç sene öncesine kadar bir modaydı ya da kıskançlık sebebiydi. Dükkan kiraladığım insanlar, metrekareyi, ısıtmayı, satış oranlarını sormazlardı; bugünse her türlü ayrıntı araştırılıyor.”
+   <br/>
+   <br/>
+   Konya, Antep, Adana gibi Anadolu şehirlerine binlerce metrekarelik alışveriş merkezi açan Metro Ag Holding’in yeni mağazalarının da açılacağını belirten Gündüz Bayer; “Konya mağazamıza gösterilen ilgi Almanya’daki yöneticilerimizi çok şaşırttı. Anadolu illerindeki tüketim potansiyeli zannettiğimizden çok daha fazla” diyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1494), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010109/http://www.aksiyon.com.tr:80/detay.php?id=1494)

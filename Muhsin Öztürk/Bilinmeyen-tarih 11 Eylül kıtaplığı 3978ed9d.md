@@ -1,0 +1,61 @@
+# 11 Eylül kıtaplığı
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093322im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093322im_/http://www.aksiyon.com.tr/resim/358/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  New York’taki İkiz Kuleler’e düşen iki uçağın bir süre sonra bomba ve Cruise füzesi olarak geri döneceğini ve üstelik yakınımıza düşeceğini elbette tahmin edemezdik.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Amerika’nın simgesi bu yapının tamamen yok edilmesiyle birlikte 3. dünya savaşının eşiğine geldiğimizi de bilemezdik tabii. Sözgelimi savaş kavramının 21. yüzyılda biçim değiştireceği, “postmodern” bir hal alacağı, artık elektronik savaşların olacağı genel bir varsayımdı.  İleri teknolojinin bir savaş aracı olduğu kesin fakat bu teknoloji siberteknik değil. İleri düzeyde geliştirilmiş “top–tüfek” olduğu görülüyor şimdilik.
+   <br>
+    <br>
+     Uçağın ve bombanın nereye düşeceğini tahmin etme zorluğu yayın piyasası için de geçerli. Bir yıl önce oldukça sıkı ve akademik bir çalışmayla savaş konusunu irdeleyen bir kitabın bu günlerde büyük talep göreceğini yayıncı elbette bilemezdi. 11 Eylül kitaplığı başlığı altında toplanmaya başlayan kitapların içinde savaş kavramıyla ilgili kitaplar olduğu gibi terör, Ortadoğu, Afganistan, Pakistan, Asya, strateji kitapları, anti–küreselleşmeci tezleri içeren muhalif kitaplar ve tabii ki İslami hareketleri konu alan kitaplar da ağırlıklı olarak yer alıyor. Alfa Yayınları 2000 yılında Chris Hables Gray’ın “Postmodern Savaş” kitabı çıktığında bu kitabı tanıtmış ama “Kim ilgilenir ki bununla” diye düşünmüştük. Şu anda en popüler kitaplardan biri. 1990 yılında Yöneliş Yayınları’ndan çıkan Oliver Roy’un “Afanistan’da Direniş ve İslam” kitabı, yayınevi yetkilisinden öğrendiğimize göre iki yıldır hiç bir talep görmezken, yani çoktan unutulmaya yüz tuttuğu bir dönemde tozlu raflardan çıkıp kitabevi vitrinlerini süslüyor bugün.
+     <br>
+      <br>
+       Yıllar önce çıkmış kitaplar tekrar gün yüzüne çıkıyor, yayınevinin, gündemi düşünmeksizin yayınladığı fakat ‘taşı gediğine koyan’ kitaplar büyük ilgi görüyor ve gündemle ilgili kitap çalışmaları büyük hızla devam ediyor. ABD’de yaşayan ama ABD’ye olan muhalefetiyle tanınan Yahudi asıllı Naom Chomsky’nin Yeni Dünya Düzeni’ne karşı duruşunun sergilendiği kitapları revaçta olanlardan. Nasıl ilgi görmesin ki; “Terör Kültürü (ABD Terörü) başlıklı bir kitabı bile var Chomsky’nin. Chomsky bugünlerde Doğan Kitap’tan çıkan “Bir Muhalifin Yaşamı” başlığındaki kitabıyla da gündemde. Bu arada Tarihin Sonu tezinin sahibi Francis Fukayama ve Medeniyetler Çatışması tezinin teorisyeni Samuel Huntington’un ilgi gören yazarlar olduğunu söylemek mümkün.
+       <br/>
+       <br/>
+       Yorumcular ve kitapları
+       <br/>
+       <br/>
+       Konu uzmanlarınca medyada konuşulmaya, tartışılmaya başlandığında kitaplarda da bir kıpırdama oluyor. Cağaloğlu’nda hem yayınevi hem de dağıtım firması olan bir yayıncı “Her kriz satışı artırır” diyor. Sözgelimi 17 Ağustos depremi sonrasında yayın piyasası büyük bir kriz beklentisi içindeyken dini içerikli kitapların büyük ilgi görmesi onu şaşırtmış.
+       <br/>
+       <br/>
+       Televizyonlarda boy gösteren 11 Eylül yorumcularının içinde en aklı başında ve konusuna hakim görüntüsü veren Prof. Dr. Ahmet Davutoğlu’nun Küre Yayınları’ndan çıkan “Stratejik Derinlik: Türkiye’nin Uluslararası Konumu” adlı kitabı haklı bir ilgiye mazhar olan kitapların başında geliyor. 11 Eylül öncesinde Doğan Kitap’tan çıkan Cihat adlı kitabıyla dikkat çeken Giles Kepel’i son olay çerçevesinde yakından tanıma fırsatı elde ettik. İslam ülkelerindeki ‘cihat’ kavramını ve İslami hareketleri inceleyen Giles Kepel bu arada Türkiye’ye de geldi, dolayısıyla son zamanların ilgi gören kitaplar köşesine “Cihat” da eklendi. Bu arada Aydoğan Vatandaş’ın elektronik savaşı konu alan “Agartha”sı ve Timaş’ın 1994’te çıkarttığı “Türk–Arap İlişkileri” derlemesi ilgi gören kitaplardan. Özellikle modernleşme sonrası İslami hareketleri anlamaya çalışan kitaplara bünyesinde yer veren Yöneliş Yayınları son olaydan olumlu olarak etkilenen yayınevlerinden. Yayın Yönetmeni Fahrettin Altun, yıllar önce çıkmış gündemle ilgili kitapların son yirmi gün içinde yoğun spariş aldığını söylüyor. Yakınlarda yayınladıkları dünya tarihi içinde İslam tarihinin yerini irdeleyen “Dünya Tarihini Yeniden Tanımak” isimli kitabı da dolaylı olarak gündeme gelen kitaplardan. Espesido’nun “Güçlenen İslamın Yankıları”, İbrahim Aburabi’nin “İslami Hareketlerin Entellektüel Kökenleri”, Turani’nin “Avrupa ve Ortadoğu” isimli kitapları da tozlu raflardan kitapçı raflarına inen kitaplardan. Fahrettin Altun, Sovyetler döneminde yayınlanan hamasi Afganistan yanlısı kitapların duygusallıkla sınırlı kaldığı için uzun ömürlü olamadığını, kendilerinin ise modernleşme karşısında İslamın ve Müslümanların tavrının ne olacağı konusundaki çalışmalara yer veren, ayakları yere basan ciddi eserlere önem verdiklerini söylüyor. “Orijinal bilgiyi içeriyor ve perspektif uyuşması varsa yayınlarız” diyor. Oliver Roy’un “Afganistan’da Direniş ve İslam” kitabını yayınlamalarına karşılık “Siyasal İslamın İflası” kitabını yayınlamamalarını da şöyle izah ediyor Yöneliş Yayınları Yayın Yönetmeni: “Bu kitap Afganistan örneğinden yola çıkarak yazılmıştı. Dolayısıyla gerçeği yansıttığını düşünmüyorduk. Üstelik biz Türkiye tecrübesini daha çok önemsiyoruz.”
+       <br/>
+       <br/>
+       Pınar Yayınları Yönetmeni Metin Çığrıkçı son 20 gün içinde ilgiye mazhar olan kitaplarını şöyle sıralıyor. Naom Chomsky’den “Terörist Kültür ( ABD Terörü)” ve “Demokrasi, Gelecek ve Hayal”, Paul Findley’den “ABD’de İsrail Lobisi”, Graudy’den “İsrail, Mitler ve Terör” ve “Siyonizm”, H. Fadlullah’dan “İslami Söylem ve Gelecek.” Kitabevi’nin konuyla ilgili tekrar gündeme gelen kitabı Mehmet Saray’ın “Afganistan ve Türkler”.
+       <br/>
+       <br/>
+       Yeni kriz kitapları
+       <br/>
+       <br/>
+       Alfa Yayınları 11 Eylül kitaplığına yeni 5 kitapla katkıda bulunuyor. Eski ABD Dışişleri Bakanı Henri Kissinger’ın hayatını konu alan “Kissinger’ın Yargılanması” adlı kitap (Christopher Hitchens) “delilsiz vurma”nın tarihine eğiliyor. Yakın zamanda piyasaya çıkartacakları “Taliban: İslamiyet, Petrol ve Orta Asya’da Yeni Büyük Oyun”, Pakistanlı bir gazeteci olan Ahmed Raşid’in Afganistan’daki 21 yıllık gözlemlerini ve çalışmalarını içeriyor. Bu eser, Afganistan’ın eski çağlardan beri yaşadığı tarihsel–siyasal süreçleri, Ruslar ve Britanya gibi iki büyük imparatorlukla başa çıkmaya çalışmasını, Taliban hareketinin öncesi, doğuşu, yükselişi ve karakteristik yapısını, uluslararası ABD şirketleri başta olmak üzere Yeni Büyük Oyun’un Orta Asya petrolleri ve Afganistan üzerinden geçecek petrol boru hattının esas savaş alanını oluşturduğunu anlatıyor. Üçüncü kitap “Yeni Çakallar” (Simon Reeves). 1993’te İkiz Kuleler’e yapılan ilk saldırının öyküsüyle başlayan bu çalışma da, Yusuf Rıza ve Üsame bin Ladin’le birlikte uluslararası kapışmanın yeni aktörlerini ortaya koyuyor. Alfa Yayınları’nın “Düşmanını Arayan Savaş” ve “Esas Milenyum Savaşı” başlığı altında yayınlanacak kitapları yerli ve yabancı analistlerin son olayı değerlendiren yazılarını bir araya topluyor.
+       <br/>
+       <br/>
+       Kriz kütüphanesi insanların ideolojilerine ve ilgilerine göre şekilleniyor şüphesiz. Fakat konjonktür bizi ortak kitaplarla buluşturmuyor da değil. Tıpkı savaşın insanları ortak bir kadere mahkum etmesi gibi...
+       <br/>
+       <br/>
+       m.ozturk@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12759), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093322/http://www.aksiyon.com.tr:80/detay.php?id=12759)

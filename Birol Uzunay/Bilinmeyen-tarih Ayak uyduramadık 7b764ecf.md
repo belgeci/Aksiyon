@@ -1,0 +1,74 @@
+# Ayak uyduramadık
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050121013413im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050121013413im_/http://www.aksiyon.com.tr/resim/473/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  AB Uyum Yasaları"nı uygulatmamakta kararlı kesimler son günlerde atağa geçtiler. Kültürel ve etnik özellikleri düzenleyen uyum yasalarını uygulamamak isteyen AB karşıtlarının asıl muhalefeti inanç özgürlüklerini düzenleyen yasaların yürürlüğe girmesinden sonra başlayacak.
+  <br>
+   Pek farkında olmasak da Türkiye"de bir değişim yaşanıyor. İnsan hakları ve kültürel söylemler konusunda iki yıl öncesine kadar seslendirilmesine bile izin verilmeyen birçok uygulama, AB uyum paketleriyle yasalaştı.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ancak asıl sorun aşılamadı: Kamu bürokrasisinin önemli bölümü Avrupa Uyum Yasaları"nı uygulatmamakta kararlı. Batman"daki Kürtçe kursunun önüne çıkartılan engeller, Van"daki afiş inatlaşması, Kayseri ve İzmir"de insan hakları toplantısına yapılan baskınlar, Gerede"de ev baskını gibi uygulamalar medyaya yansıyanlardan birkaçı. İnsan haklarına ve kültürel özgürlüklere karşı direnen bürokrasinin gücünü küçümsememek gerekiyor. Adalet eski Bakanı Hikmet Sami Türk"ün verdiği örnek oldukça düşündürücü: "Geçtiğimiz yıl adalet bakanı olarak AB uyum yasaları çerçevesinde 312. maddeyi değiştirdik; Tayyip Erdoğan aday olabilir, diye feryat ediyordum. Bu yasaları tanımayan kesimler, benim bile uyarılarımı dinlemedi ve mahkeme kararıyla Erdoğan"ın adaylığını iptal ettirdi."
+   <br>
+    <br>
+     Yasa yönetmelikle "kadük" olur mu?
+     <br>
+      <br/>
+      Türkiye"deki insan haklarını düzetmek için bugüne kadar TBMM"de 7 uyum paketi yasalaştırıldı. Bu paketlerden 3"ü Bülent Ecevit, 4"ü de Tayyip Erdoğan"ın başbakanlığında çıkartıldı. Uyum paketlerinin ana konusu "insan hakları" olsa da; düzenlemeler daha çok etnik ve kültürel özellikleri kapsıyor. İnanç özgürlükleri konusunda bugüne kadar yasal düzenleme yapılmadı.
+      <br/>
+      <br/>
+      Kamu bürokrasisindeki direncin netleşmesinden sonra başbakanlık bünyesinde İnsan Hakları Başkanlığı ve İnsan Hakları Danışma Kurulu ismiyle yeni birimler kuruldu. Bu birimler başta hakimler olmak üzere bürokratlara yeni yasaları öğretmekle yükümlü. Bu kanunların uygulanabilirliğini sağlamak için kurulan en üst yetkili birim ise Reformları İzleme Komitesi. Dışişleri Bakanı Abdullah Gül"ün başkanlığını yürüttüğü komitede adalet ve içişleri bakanları da bulunuyor.
+      <br/>
+      <br/>
+      Uygulamadaki aksaklıkların en büyük sebebi ise yasalara uygun yönetmeliklerin çıkartılamaması. Bu durumda uyum yasaları kendiliğinden "kadük" konumuna düşerek uygulanamıyor. Milli Güvenlik Kurulu"nun yapısını değiştiren devrim niteliğindeki yasalar çıktı; ancak MGK yönetmeliği olmadığı için yasa halen uygulanamıyor. Yönetmelikler hazırlanmadığı için savunma harcamaları Meclis denetimine giremiyor. MGK"nın icracı yetkileri hâlâ kullanılmak zorunda kalınıyor.
+      <br/>
+      <br/>
+      Aynı şekilde başta Sayıştay, RTÜK, TRT gibi kurumlar çıkartılamayan yönetmeliklerin arkasına saklanarak uyum yasalarının kendilerini ilgilendiren bölümlerini görmezden geliyor. Yasalara göre Kürtçe televizyon yayını yapılabiliyor; ancak TRT ve RTÜK bu yayını yaptırmıyor. Meclis İnsan Hakları Komisyonu üyesi Diyarbakır AKP Milletvekili Cavit Torun, bu tutumun oldukça manidar olduğunu belirtiyor: "Biz 3 saatte yasa çıkartıyoruz; koskoca kurumlar oturup bu yasanın yönetmeliğini hazırlayamıyor. 3 aydır yönetmelik bekliyoruz; ortada bir çalışma yok. Amaç işi uzatmak, yasaları uygulatmamak."
+      <br/>
+      <br/>
+      Bugünlerde yargının siyasallaştığı tartışması yapılırken Adalet eski Bakanı Hikmet Sami Türk"ün açıklamaları bambaşka bir sorunu önümüze getiriyor: " Adalet mekanizmasında çalışanlar eski alışkanlıklarını bırakmak istemiyor. Memurun yargılanmasını düzenleyen bir yasayı çıkarttım; bir müddet sonra verilen kararların eski sisteme dayandırıldığını fark ettim. Yine Türk medeni hukuku birçok hakimce eski yasalara göre işletiliyor. Bugün uyum yasaları adı altında yapılan yasal değişiklikler büyük bir devrimdir. Hakimlerin ve savcıların bu devrime ayak uydurabilmesi hayli zor görünüyor."
+      <br/>
+      <br/>
+      Başbakanlığa bağlı İnsan Hakları Eğitimi Ulusal Komitesi Başkanı Prof. Dr. İbrahim Kabaoğlu, yargı mensuplarına uyum paketleriyle oluşan yasal değişimleri anlatmak için görevli. Ancak Kabaoğlu"nun yargı mensuplarına düzenlediği eğitim seminerlerinde ilginç manzaralar oluşuyor. Seminere katılan hakimler, katılımcı listesine isim yazdırmaya çekiniyor. Yine aynı seminere katılan kaymakam ve valiler polis kontrolünden geçiriliyor. Son olarak Kayseri"de düzenlenen insan hakları seminerine katılan 30 kaymakam ile mülkiye ve polis müfettişlerine, 1. Sulh Ceza Mahkemesi karar çıkartarak silah aranması kararını uyguladı, hem de valiye rağmen. Aynı uygulamaya İzmir"de şahit olan Başbakanlık İnsan Hakları Başkanı Vahit Bıçak, "İnsan haklarını korurken insan hakkı mağduru olabiliyoruz" diyor.
+      <br/>
+      <br/>
+      Prof. Dr. İbrahim Kabaoğlu, hakim ve savcıların yeni uyum yasalarını niçin uygulamakta zorlandıklarını ise şöyle açıklıyor: "En büyük zorluğu, bireylerin devlet anlayışında yaşıyoruz. Bürokratlarımız hâlâ insan hakkı verilecekse bunu da devlet verir anlayışında. Devlette kendileri olduğu için görev sırasında keyfilik yapabiliyorlar. Devlet, suçlu konumdayken kendini sorgulayamaz. Devletten şikayetçi birisi hakim karşısına çıktığında devleti değil adaleti görmeli. Maalesef devletgörevlilerimiz yasal reformların devlet için yapıldığını zannediyor. Kültürel hak, inanç hakkı gibi kavramlar, devlet hakkından sonra geliyor."
+      <br/>
+      <br/>
+      "Yasayı uygulamayanlar suç işliyor"
+      <br/>
+      <br/>
+      Mazlum-Der Başkanı Yılmaz Ensarioğlu, uyum yasalarının uygulanmasını hemen beklemediklerini, mevcut yasaların bile uygulanmadığı bir ülkede geçişin zaman alacağını belirterek, "Bakanların hatta başbakanların konuşmaları kaydediliyor. Özgürlük hiç de kolay değil" diyor.
+      <br/>
+      <br/>
+      Van"da Kürtçe afişlerin indirilmesi Türkiye"yi uluslararası platformda tartışılır kıldı. Adalet Bakanı Cemil Çiçek, özel emirle mahkeme kararını tashih etti ve afiş olayı büyümedi. 2004 yılında AB yasalarının takibi için bir dizi etkinlik düzenlemeye hazırlanan Türk Demokrasi Vakfı"nın başkanı Emre Kocaoğlu"na göre önce yasayı uygulamamanın bir suç olduğunu kamuoyuna anlatmak gerekiyor. Meclis"in çıkarttığı bir yasanın uygulanmayarak eski sistemin devam ettirilmesinin bir suç olduğunu söyleyen Kocaoğlu, "Demokratik bir ülkede yasanın uygulanmasının nazı olmaz; uygulamamanın suçu olur. Hükümeti ve aydın savcıları uyarıyorum, yasal değişiklikleri uygulamayanlar suç işliyor" diye konuşuyor.
+      <br/>
+      <br/>
+      Kıbrıs insan haklarının savaş sebebi olacak
+      <br/>
+      <br/>
+      Diyarbakır Milletvekili ve Meclis İnsan Hakları Komisyonu Üyesi Cavit Torun, Kıbrıs"ın çatışma için bir zemin olacağını belirterek "Kıbrıs"ta AB yanlısı ve AB düşmanı diye iki kesim var. Bu kesimlerin taraftarlığı Türkiye"ye yansıyacak. Türkiye AB"den yana tercihini yaptı. AB karşıtlarının tek bir silahı kaldı: Hükümeti Kıbrıs düşmanı gösterip uyum yasalarını uygulatmamak" ifadesini kullanıyor.
+      <br/>
+      <br/>
+      AB ülkeleri Türkiye"deki kültürel ve etnik hakları arttırırken inanç özgürlüklerine hiçbir şekilde müdahale etmiyor. Çıkartılan 7 uyum yasasının hiçbirinde inançların insan hakları kapsamına girdiğinden bahsedilmedi. Bu tezadı Mazlum-Der Başkanı Yılmaz Ensarioğlu şöyle açıklıyor: "Avrupa Konseyi İnsan Hakları Komiserliği"ne Türkiye"deki inanç haklarına niçin değinmediklerini sorduğumuzda "yeteri kadar bilgi gelmiyor" cevabını almıştık. Yeterinden fazla bilgiyi biz gönderdik. Sadece bir yılda 30 binden fazla başörtüsü mağduru oluşuyor dedik. Bir şey değişmedi. Son raporları önümde duruyor, hiçbir satırda inanç kelimesi yok. Avrupa da insan hakları konusunda çifte standartlı. Din özgürlüğü konusunda AB"nin de kafası karışık."
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3333&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050121013413/http://www.aksiyon.com.tr:80/detay.php?id=3333&yorum_id=1)

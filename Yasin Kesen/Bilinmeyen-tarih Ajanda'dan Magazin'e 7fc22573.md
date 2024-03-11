@@ -1,0 +1,76 @@
+# Ajanda’dan Magazin’e
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türkçe sanal dergicilikte ilk isimlerden biri olan NetMagazin de bir müddet ara verdikten sonra 2000 ile sörfçülere yeniden merhaba dedi.
+   <br/>
+   <br/>
+   İlk olarak Ajanda ismi ile yayına başlayan sanal dergiyi M.Gökhan Bayhan yayına hazırlıyor. Özellikle kültür—sanat konularında zenginlik arzeden site ilk zamanlarında değişik free adresler altında yayınlanıyordu. Yayın periyodu ve içerik tarzı oturduğu için olsa gerek artık kendi ismini taşıyan domain üzerinden yayın yapıyor. (www.netmagazin.com)
+   <br>
+    <br>
+     Dergide Sinema, Müzik, Mizah ve Gönül âlemi adlı bölümler öne çıkıyor. Özellikle müzik bölümünde oldukça zengin yerli ve yabancı MP3 arşivi var.
+     <br>
+      <br>
+       Sinema bölümünde filmlerle ilgili değerlendirmelerin yanısıra filmlere ait afişler, istatistiki bilgiler ve sinema sitelerine linkler de bulunuyor.
+       <br>
+        <br>
+         Gönül Aleminde ise Şiirler, Mesnevi, Güzel Sözler ve Öyküler istifadenize sunulmuş...
+         <br/>
+         <br/>
+         Sıkıldım bu ICQ’dan...
+         <br/>
+         <br/>
+         ICQ’nuzun çehresini değiştirmek, monotonlaşan internet kullanımınıza renk katmak istemez misiniz?
+         <br/>
+         <br/>
+         www.1001icqskins.com, ICQ’nuza renk katmak için alternatifler sunuyor. Eğer henüz ICQ programını çekip kullanmaya başlamamışsanız programı bu siteden direkt olarak indirmeniz de mümkün.
+         <br/>
+         <br/>
+         ICQ’nuzun görünümünde değişiklikler yapmanızı sağlayan skinler markalar, kutlamalar, manzaralar, sinema, doğa, spor ana başlıkları altında kategorilerde yer alıyor.
+         <br/>
+         <br/>
+         Yüklediğiniz skinleri aktif hale getirmek için ICQ Plus adlı yama bir program gerekiyor. Evet tahmin ettiğiniz gibi bu programı çekmeniz için gerekli link, sayfanın girişinde yer alıyor. ICQ Plus’u çalıştırdıktan sonra çektiğiniz skinlerden beğendiğinizi istediğiniz zaman aktif hale getirmek artık elinizde.
+         <br/>
+         <br/>
+         Listenizdeki ICQ kullanıcıları ile telefon görüşmesi yapabileceğiniz buddyPhone programını da bu siteden indirebilirsiniz.
+         <br/>
+         <br/>
+         Bayramda sanal olmayın!
+         <br/>
+         <br/>
+         1900’lü yılları geride bırakıp onbir ayın sultanı Ramazan’ı idrak etmenin ardından buruk bir neşe içerisinde bayrama ulaştık.
+         <br/>
+         <br/>
+         Dijital kaos senaryolarının ayyuka çıkarılmasının ardından 99’un son günlerine doğru insanları panik moduna iyice yaklaştıran medya kuruluşları, abarttıkları gibi oynanmayan bir senaryonun ardından kendilerine nasıl bir malzeme bulurlar bilemiyoruz. Belki de şimdiden 11. milenyum için dijital kaos senaryoları üretmeye başlayanları bile vardır. :)
+         <br/>
+         <br/>
+         *
+         <br/>
+         <br/>
+         Günlük yaşamımızda belli bir zaman dilimini ipotek altına alan internet kullanımından geri dönüş elbette ki akıldan geçirilmeyecek bir olgudur. Lakin, biraraya gelip hasret gidermenin iyice kıymet kazandığı günümüzde böyle fırsatları ancak bayramlarda yakalayabiliyoruz. Bu noktadan hareketle bayramda kendinizi internete fazla kaptırmamanızı tavsiye ediyor, hepinize iyi bayramlar diliyorum...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 6 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14904), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151547/http://www.aksiyon.com.tr:80/yazdir.php?id=14904)

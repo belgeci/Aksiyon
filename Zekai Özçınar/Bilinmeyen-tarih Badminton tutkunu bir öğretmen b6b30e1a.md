@@ -1,0 +1,85 @@
+# “Badminton” tutkunu bir öğretmen
+
+*Zekai Özçınar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050213050146im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050213050146im_/http://www.aksiyon.com.tr/resim/529/64.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Murat Özmekik, din dersi öğretmeni. 350 YTL’si ev kirasına giden maaşıyla kıt kanaat geçiniyor. Spor sevdası, tenisin ikiz kardeşi sayılan ‘badminton’a çekmiş onu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Şimdi, Babminton Federasyonu Başkanı. Ülkemizde pek de bilinmeyen bu spor dalı, çiçeği burnunda başkanıyla popüler olmaya aday.
+   <br>
+    <br>
+     Spor branşlarının tepe örgütlenmesi federasyonlar, geçtiğimiz ay kıran kırana seçimlere sahne oldu. Seçimlerden çıkan sürpriz bir netice ise bu hengâme içinde gözlerden kaçtı. Din Kültürü ve Ahlak Bilgisi Öğretmeni Murat Özmekik, beklenmedik bir şekilde Badminton Federasyonu Başkanlığı’nı kazandı. Tenisin ikiz kardeşi sayılan ‘badminton’,pek bilinmese de, 350 milyon lirası (350 YTL) ev kirasına giden maaşıyla kıt kanaat geçinen renkli başkanı sayesinde sıçrama yapmaya aday. Çiçeği burnunda Badminton Federasyonu Başkanı Murat Özmekik’in Zonguldak’ın Devrek İlçesi’nde başlayan ilginç öyküsü, sadece ‘badminton’un Türkiye serüvenini değil, sosyolojik bir vakayı da gözler önüne seriyor.
+     <br>
+      <br>
+       Murat Özmekik, orta ve liseyi dışardan bitirerek Ankara İlahiyat Fakültesi’ni kazanır. Hayatının tutku derecesinde ayrılmaz parçası haline gelecek olan ‘badminton’ ile bu dönem tanışır. Kendini antrenörlük kursunda bulur, çok geçmeden işi kavrar. Mezun olduğu 1993’te, Ankara Büyükşehir Belediye Başkanı Melih Gökçek’i ikna eder, Keçiören’deki Anıttepe Kapalı Spor Salonu’nun anahtarını alır. Burada, varoşların çocuklarına ‘badminton’u öğretir; onlar arasından milli takıma yükselecek ve uluslararası dereceler alacak sporcular yetiştirir. Çalıştırdığı Badminton Genç Milli Takımı’nı Balkan 3.lüğüne bile taşır.
+       <br/>
+       <br/>
+       Babam parayı kesti
+       <br/>
+       <br/>
+       ‘Badminton’a dair her şey yolunda gider; ama hayat bundan ibaret değildi elbet. Ter döktüğü bu uğraşından tek kuruş alamaz Murat Özmekik. Oysa, evlidir ve evini babasının gönderdiği parayla kıt kanaat geçindirmektedir. Zaten, bir süre sonra “Memlekete dönmezsen, parayı keserim.” restini çeken babası da, dediğini yapar. Özmekik, “Bir yıl maddi sıkıntı çektim. Elektrik ocağında yumurta pişirdiğimizi hatırlıyorum. Eşimin altınlarını bozdurarak bir süre devam ettik. Yetiştirdiğim öğrenciler vardı. Onları, daha doğrusu artık bu sporu bırakamazdım.” diyor o günleri hatırlatırken.
+       <br/>
+       <br/>
+       Neyse ki imdadına öğretmenlik yetişir. Milli Eğitim Bakanlığı tarafından Din Kültürü ve Ahlak Bilgisi öğretmeni olarak atanır. Kurada, Kastamonu-Taşköprü çıkar çıkmasına da, gözü hâlâ ‘badminton’u bıraktığı yerdedir. Haftanın dört günü Ankara’ya kaçar. Yüksek lisans programı sayesinde tayininin çıkmasıyla son bulur firarları. Okul takımları, Keçiörengücü derken önü açılır. Ankara Belediyesi-EGO Badminton Takımı’nın başına geçtiğinde ise tutkusu ilk kez paraya dönüşür. Takımına beş kez Türkiye şampiyonluğu kazandıran Özmekik, “Yanılmıyorsam 30 milyon alıyordum. Parayı, ancak o zaman görebildik.” diyor.
+       <br/>
+       <br/>
+       Ardından, zirveyle tanışır; milli takım antrenörlüğüne ulaşır, yetiştirdiği sporcular ulusal ve uluslararası arenada dereceye girer. Artık, ona ‘badmintonun efendisi’ dense yeridir. Bu arada, Özmekik, neredeyse bütün spor dallarıyla ilgilidir. “Atletizm antrenörü, güreş hakemi, spor masörü, paletli yüzme hakemi, paraşütçü ve herkes için spor lideri (antrenörü)” payelerini de alır art arda.
+       <br/>
+       <br/>
+       Ve federasyon başkanı
+       <br/>
+       <br/>
+       Özmekik, zorluklarla dolu ‘badminton’ serüvenini burada noktalamaya hiç de niyetli değildir. Nitekim, 2004’ün son günlerine gelindiğinde yeni bir maceraya soyunur ve Badminton Federasyonu Başkanlığı’na aday olur. Karşısında ise dişli bir rakip vardır. Gazi Üniversitesi Beden Eğitimi ve Spor Yüksekokulu Müdürü Prof. Dr. A. Faik İmamoğlu, 4 yıldır bu federasyonun başkanlığını yürütüyordur. Özmekik, 5 oy farkla ‘hoca’nın elinden koltuğu kapar. Ancak, hiç de kolay olmamıştır çetin geçen yılların semeresini almak. “Başlangıçta etrafımda kimse yoktu. Kazanınca herkes şaşırdı. 15 milyar lira biriktirmiştim, onu harcadım. Arkadaşımdan emanet aldığım araba da bozuldu. Onun tamiriyle uğraşıyorum.” diyor.
+       <br/>
+       <br/>
+       Hem din dersi öğretmeni olacaksın hem 350 YTL’si ev kirasına giden maaşınla kıt kanaat geçineceksin hem de maddi güç isteyen bir koltuğa oturacaksın. Yine, maddi imkanları sınırlı bir spor dalının sorunlarıyla uğraşacaksın. Federasyon Başkanı Murat Özmekik, sohbetimizin geri kalan bölümünde bütün bunlara açıklık getiriyor. Öncelikle, din dersi öğretmeni olmasının sıkıntı oluşturmadığını belirterek, “Öyle ki, beni, beden eğitimi öğretmeni sanıyorlar genelde. Bu işe adadım kendimi.” diyor.
+       <br/>
+       <br/>
+       Ardından, heyecanını, iddiasını ve hedeflerini ortaya koyuyor: “Badminton 81 ilde yaygınlaştırılacak. 3 bin olan sporcu sayısı artırılacak. Kaynağımız daha çok okullar, oralara gireceğiz. Milli Eğitim Bakanlığı ile görüşüp “malzeme ve antrenör bizden, salon sizden” kampanyası başlatacağız. Belediyelerden, çocuklara raket ve tüytopu dağıtmasını isteyeceğiz. Sporcularımız daha çok dar gelirli ailelerin çocukları, bir süre sonra bırakmak zorunda kalıyorlar. Onlara burs ve iyi bir gelir sağlamalıyız. Rekreasyon (boş zaman), hobi amaçlı bir spora dönüştüreceğiz badmintonu, hem zenginlere hem de mahalle aralarına kadar yayacağız.”
+       <br/>
+       <br/>
+       Hülya’ya karşı Gülben
+       <br/>
+       <br/>
+       Hedefe ulaşmanın, iyi bir reklam ve tanıtım işi olduğunun da bilincinde Özmekik. Bu konuda adımlar atılacağını, futbol ve sanatın popüler isimlerinden yararlanılacağını belirtiyor. Bu noktada, tenisin tanıtımında önemli rol oynayan Hülya Avşar’ın karşısına Gülben Ergen’i çıkarmayı düşündüğünü de gizlemiyor: “Sanattaki rekabeti buraya taşıyabiliriz. Yönetime girmesi için Gülben Ergen’e teklif götürdük. Bizim için iyi bir tanıtım olur kabul etmesi. O olmazsa, Petek Dinçöz var sırada.”
+       <br/>
+       <br/>
+       Özmekik’in bir diğer projesi de, 2008 Pekin Olimpiyatları’yla ilgili. Badminton’da ileri ülkeler Çin, Endonezya, Malezya ve Kore’den sporcu transfer etmek var kafasında. “Puan toplamamız için bu gerekiyor. Önümüzde 4 sene var.” diyor. Projelerin hayata geçmesi ise tabii ki, daha çok parayla ilgili. Federasyonun 500 milyar liralık bütçesinin yetersiz kalacağı da tartışma götürmez bir gerçek. Özmekik, bunun için sponsor arayışında ve büyük şirketlerin, zenginlerin kapısını çalmaya hazırlanıyor.
+       <br/>
+       <br/>
+       Güney Kıbrıs sınavı
+       <br/>
+       <br/>
+       Özmekik’in ilk ciddi sınavını, Güney Kıbrıs’ta (Rum kesimi) yapılacak Avrupa B Grubu Şampiyonası’nda vereceğini öğreniyoruz. Turnuvaya katılmalarının Gençlik ve Spor Genel Müdürülüğü’nün iznine bağlı olduğunu belirterek, “Dışişleri Bakanlığı olur vermiş, bekliyoruz. AB süreci açısından önemli bir olay. Sponsorumuzun temin edeceği kıyafetlerle katılacağız ve iyi netice alacağız.” diyor.
+       <br/>
+       <br/>
+       Evet, diğer ülkelerde daha çok varlıklı sporu olarak bilinen badminton, Türkiye’de Tarhuncu Ahmet Paşa İlköğretim Okulu din dersi öğretmeninin kollarında, varoşlardan yükseliyor. Kelime anlamı ‘soğuk mevye suyu’, siz de var mısınız ‘badminton’a?
+       <br/>
+       <br/>
+       BADMINTON NEDİR?
+       <br/>
+       <br/>
+       Badminton’un tarihi oldukça eskilere dayanıyor. Hindistan’daki kazılarda bulunan raket ve tüytopundan esinlenilerek, bugünkü haliyle ilk kez Badminton Kasabası’nda (İngiltere) oynanmış. Tenise benziyor ama ondan farklı. Kaz tüyünden yapılan topu rüzgardan kolayca etkilendiği için resmi müsabakalar kapalı salonlarda yapılıyor. Dinlenme ve eğlenme amaçlı yapıldığında ise raket, top ve ortada bir file yeterli oluyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=19437), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050213050146/http://www.aksiyon.com.tr:80/detay.php?id=19437)

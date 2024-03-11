@@ -1,0 +1,124 @@
+# GAP’ta soğuk savaş
+
+*Yasin Yağcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175623im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175623im_/http://www.aksiyon.com.tr/resim/303/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yayınlandığı dönemler hayli ilgi çeken bir reklamdı. Bir holding tarafından yayınlanan bu reklam filminin ilk bölümünde son model bir Mercedes uçsuz bucaksız Harran’da yol aldıktan sonra duruyor ve içinden iki çekik gözlü Japon iniyordu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sonradan anlaşılıyordu ki bu Japonlar Harran’a GAP porjesi çerçevesinde arazi satın almaya gelmişler. Reklam filminin ikinci bölümü de aynıydı, yalnız tek farkla; bu sefer Japonların yerini Amerikalılar almıştı. Ve bu reklamın akılda kalıcı önemli yeri en sonda verilen mesajı: “Japonlar, Amerikalılar Güneydoğu’da toprak satın alıyorlar, peki Güneydoğulular nerede?”
+   <br>
+    <br>
+     Her ne kadar reklam da olsa araştırınca gerçeği yansıttığını görüyorsunuz bu filmin. Peki sahiden Güneydoğulular neredeydi ya da Türkiye? Reklamda da belirtildiği gibi gerçekten bizim olan GAP’a bu kadar uzak mıyız?
+     <br>
+      <br>
+       1970’li yıllarda temelleri atılan ve dünyanın en büyük dokuz projesi sıralamasında sekizinci, dünyanın en harika projesi sıralamasında ise ikinci sırada yer alan GAP, öncellikle güneydoğu bölgesinin ve tabii ki Türkiye kalkınmasının mihenk taşlarından. Güneydoğu Anadolu Projesi tıpkı reklamdaki senaryo gibi elden çıkmak üzere. Biz bu dosyayı hazırlarken ne yabancı sermaye düşmanlığı gibi bir kaygı güttük, ne de hamaset duygularıyla hareket ettik. Yapmaya çalıştığımız sadece ve sadece olup biteni tahlil etmek ve görünenleri yazmak.
+       <br/>
+       <br/>
+       Güneydoğu Anadolu Projesi gerek coğrafi konumu, gerekse burada elde edilecek ürünler itibariyle iştah kabartan bir proje. Coğrafi konumu hepimizin ma’lumu. Ama projenin hayatiyet kazanmasıyla birlikte burada elde edilecek ürünler son derece stratejik öneme sahip olacak. Başbakanlığa bağlı olarak kurulan Güneydoğu Anadolu Projesi İdaresine göre gelecekte statejik öneme sahip ürünler şöyle sıralanıyor: “Buğdayla ilişkili sanayi: Buğday unu, makarna, irmik, şehriye. Pamukla ilişkili sanayi: Çırçır, pamuk ipliği, yünlü ve pamuklu dokumalar, giyim. Yemeklik yağ sanayii: Ham ve rafine yemeklik yağlar, hayvan yemi. Hayvansal ürünler sanayii: Hayvan kesimi, postlar ve deriler, et ve süt mamülleri, deri ürünleri. İnşaat malzemeleri sanayii: Beton bloklar, kiremit ve tuğla, su boruları. Diğer sanayiler: Basın ve yayın, ambalaj malzemeleri, ambalajlama”.
+       <br/>
+       <br/>
+       Projenin hayata geçmesiyle birlikte bu ürünlerin hepsi bölgede üretilebilecek.
+       <br/>
+       <br/>
+       Böylesine geniş bir albeniye sahip projenin ilgi çekmemesi zaten düşünülemezdi. Bir mahsuru da yok. Tam tersi bunun bir övünç kaynağı olması gerekir. Fakat bu övünçte gurur kırıcı bir yön var ki insanı hayrete düşürüyor. Övündüğümüz bu projeyi deyim yerindeyse kaybetmek üzereyiz. Çünkü GAP’ta satılan toprakların büyük bir kısmını yabancı firmalar almış durumda.
+       <br/>
+       <br/>
+       GAP’a yabancıların ilgisini çeken etkenlerin en başında geleceğin dünyası için stratejik önemi haiz ürünlerin hemen hemen hepsinin bu bölgede yetişme imkanına sahip olması.
+       <br/>
+       <br/>
+       Yabancı firmaların yatırımlarını bu bölgeye kaydırdıklarını Güneydoğu Anadolu Projesi İdaresi de doğruluyor. Yakın zamana kadar bazı satış temsilcilikleri ve petrol şirketlerinin dışında yabancı sermayeli yatırım bulunmadığını belirten GAP İdaresi son yıllarda bu durumun değiştiğine dair şu örneği veriyor: “Bugün üç yabancı sermayeli büyük yatırım inşaat halinde olup, birinin ise anlaşması imzalanmış bulunmaktadır. Bu yatırımlardan biri tekstil (% 33 İsviçre), biri inşaat malzemesi (% 50 Alman), biri cam elyaflı boru (% 50 Amerikan) ve biri de gıda (% 50 İsrail) yatırımlarıdır.”
+       <br/>
+       <br/>
+       İsrail başı çekiyor
+       <br/>
+       <br/>
+       Güneydoğu Anadolu Projesi kapsamında bölge topraklarını satın alan dış ülkelerin başında İsrail geliyor. İsrail’in önde gelen ülke olması akla çeşitli soru işaretlerini getirmiyor değil. Şu ana kadar 67 İsrail firması toprak satın almış, en az bu kadarının da gizli bir şekilde pazarlıklar yürüttüğü kaydediliyor.
+       <br/>
+       <br/>
+       Oysa bu bölgedeki toprak satışları Milli Güvenlik Kurulunun ilgi alanı içinde bulunuyor. Uygulamaya göre Tarım Reformu Genel Müdürlüğüne yapılan satın almalara ilişkin talepler ilgili müdürlük tarafından Milli Güvenlik Kurulu Genel Sekreterliğine iletiliyor. MGK Sekreterliği ise Milli İstihbarat Teşkilatından ve Emniyet’ten bu firmalara ilişkin istihbarat raporlarını aldıktan sonra satışa onay veya red kararı veriyor. Dolayısıyla kurulun, PKK’ya yakın gördüğü birçok yöre insanının toprak satın alma talebini bu raporlara dayanarak geri çevirdiği dilden dile dolaşan bir iddia. Fakat PKK yandaşlarına toprak satışını engelleyen bir kurulun ülke için stratejik öneme sahip bir bölgede belki de egemenliği yabancılara bırakacak tarzda toprak satın alan İsrailli firmalara gereken özeni göstermemesi akla soru işaretleri getirmiyor değil. Yabancı ülkelerin Milli Güvenlik Kurulunun bu engelinden kurtulmak için buldukları yol ise çok basit: Bazı yerli firmalar ile ortalık kurmak. Yerli firmalarla ortak olan onlarca yabancı şirket dolaylı olarak toprak satın almış durumda. Bu ince hile devletin de elini kolunu bir nevi bağlamış durumda. Yabancı devletlerin ve özellikle de İsrail’in böyle bir yol takip ettiğine dair duyumları, görev yaptığı dönemde kendisinin de aldığını belirten Urfa eski Valisi Şahabettin Harput şöyle konuşuyor: “Somut olarak büyük oranda yabancıların yatırımları sözkonusu değil. Ama yabancıların değişik şekillerde bölgeye çok yoğun bir biçimde tevecühlerinin olduğuna şahit olduk. Gerçekten başta İsrail olmak üzere bu teveccüh çok fazla. Değişik biçim derken şunu demek istiyorum; kimi direkt bölgede doğrudan uzun vadede yatırım yapma, kimi bölgedeki bazı sanayiciler ile işbirliği halinde yatırım yapma şeklinde ortaya çıkıyor”. Bütün satışları denetlemenin mümkün olamayacağını belirten Harput ortaklık yoluyla toprak satışlarının olduğuna da dikkat çekiyor: “Yabancı firmaların özellikle İsrail’in yerli şirketlerle ortaklık kurup arazi satın aldığı söyleniyor. Yani şimdi vatandaş Mehmet ile Hans ortak olmuş olabilir, bunu bilebilmem mümkün değil. Böyle satışlar var. Hepsini denetlemem mümkün değil. Çok duyumlar var bu konuda. Zaten vatandaşlar bana gelip, yabancılar gelirse ne olur bize getirin, onlarla ortaklık kuralım diye ricada bulunuyorlardı. Bizim insanımızın genel bir zaafiyeti vardır. Milli menfaatlerden ziyade kişisel menfaatlerini öne çıkarır”.
+       <br/>
+       <br/>
+       GAP’ta hakimiyet mi?
+       <br/>
+       <br/>
+       Toprak satın alan veya talepte bulanan İsrailli firmaların çoğunun kamu kuruluşu statüsünde olması ve İsrail’in Filistin topraklarında devlet kurma olayları gözönünde bulundurulduğunda acaba İsrail GAP’ta da bir hakimiyet mi kurmak istiyor sorusu akıllara geliyor.
+       <br/>
+       <br/>
+       Bu konuda ortalıkta dolaşan çokça iddia var. Bunlardan en ilginç olanı şöyle: Apo’nun Kenya’da yakalanmasına yardım eden İsrail buna karşılık GAP’ta toprak satın alınmasına kolaylık sağlanmasını şart koştu ve bu şartı kabul eden Türkiye şimdi bunu yerine getiriyor. 8 Nisan 1999 tarihli Özgür Politika gazetesi bu iddiayı daha da ileri götürerek şunları dile getiriyordu: “GAP İdaresi’nden alınan bilgiye göre, 1 Mart’tan itibaren İsrailli iş adamları Ankara’da. İşadamları Ankara’yı kendilerine mesken tutmuşlar ve Girişimcileri Destekleme Merkezi’ne başvurup GAP’tan hisse almak istediklerini söylüyorlar. Ancak yaptıkları bu işleri “gizli” yapıyorlar. GAP İdaresi’nde herhangi bir karışıklık olunca da “Sonra görüşürüz” deyip ayrılıyorlar. Aradan birkaç saat geçtikten sonra başbakanlıktan gelen bir telefon GAP İdaresi’ni harekete geçiriyor ve İsrailli işadamları gelip görüşmelerini sürdürüyorlar. İsrailli yetkililer arkalarına aldıkları devlet desteğini iyi kullandıkları için pazarlık yapmaktan çekinmiyorlar. Sonuçta GAP İdaresi 5 dese de onlar 3’e pazarlığı kazanıyor. Bu oyunun birinci perdesi.” Oyunun son perdesinde görünen ise GAP’ın büyük bölümünün elden çıkmış olması.
+       <br/>
+       <br/>
+       Herşey 1998’de başladı
+       <br/>
+       <br/>
+       İsrail ile yakın ilişkiler çok eskilere dayanmıyor. Her şey 1998 yılının sonlarında İsrail Cumhurbaşkanı Ezer Weizman’ın Türkiye’ye gelmesiyle başladı. İsrail Cumhurbaşkanı gezisinin önemli bir kısmını Güneydoğu yani GAP konusuna ayırmıştı. Ve bu doğrultuda bölgede incelemelerde bulunmuştu. Hemen sonrasında ise bu sefer Türk yetkililerin İsrail çıkarmasına şahit olmuştu kamuoyu. Önce Cumhurbaşkanı Süleyman Demirel, ardından Dışişleri Bakanı İsmail Cem, ardından zamanın Genelkurmay Başkanı İsmail Hakkı Karadayı’nın birer gezisi gerçekleşti. İsrail’e geziler salt bunlarla sınırlı kalmadı. Karadayı’dan sonra ise zamanın Tarım ve Köyişleri Bakanı Mustafa Taşar ve Genelkurmay İkinci Başkanı Orgeneral Çevik Bir’in gezilerine şahit olmuştuk.
+       <br/>
+       <br/>
+       İddialara göre İsrail Cumhurbaşkanı ile birlikte gelen teknik heyet geri dönmeyerek GAP bölgesinde çalışmalar yaptı. Ve bu geniş çalışmalarının sonrasında hazırladığı raporları İsrail’e gönderdi. Bu rapor sonrasında ise toprak alımına hız verildi. Bu olaydan iki yıl sonra tarihler 28 Ağustos 2000’i gösterirken Ankara’nın bu seferki misafiri ise İsrail Başbakanı Ehud Barak’tı. Her ne kadar geliş sebebi Ortadoğu barışı idiyse de Barak basın toplantısında “GAP’taki altı ihâleye talibiz” cümlesini sözlerinin arasına sıkıştırmadan edemiyordu. Nihayet bir gün sonraki Milliyet gazetesinde Sami Kohen de Barak’ın barış görüşmelerine ilaveten aslında ihâlelerle ilgili olarak geldiğini yazmaktaydı.
+       <br/>
+       <br/>
+       Aslında yabancıların gözlerinin GAP’ta olduğu bilinmiyor değildi. Bölgede çeşitli dönemlerde yapılan fuarlara en çok ilgiyi yabancı ülkeler göstermişti. Tıpkı 1998 yılında yapılanda olduğu gibi. Fuarı izeleyen gazeteci Serpil Yılmaz 10 Nisan 1999 tarihli Sabah’taki yazısında yabancıların GAP’a bu denli ilgi göstermelerine hayret ettiğini belirtiyordu: “Uluslararası Tarım Fuarı—AGRO GAP’99” için Duygu Asena, Mehmet Yaşin ve Ceyda Eren ile birlikte gittik. Fuara katılan İsrail firmaları ilgimi çekti.” İsrailli firmalarla işbirlikleri de bu tarihten itibaren hız kazanmaya başladı. Mesela GAP’ta sulama projelerinde İsrail ile ortaklık tam da bu tarihe denk geliyor. Bu dönem işbirliği yapan ilk iki isim Tahal ve Zinkal şirketleriydi.
+       <br/>
+       <br/>
+       Oysa 28 Şubat sürecinden önce hazırlanan Milli Askeri Stratejik Konseptlerde İsrail bir dış tehlike olarak algınlanmaktaydı.
+       <br/>
+       <br/>
+       Yaklaşık üç katrilyon liraya mal olan Güneydoğu Anadolu Projesinin Türkiye’yi çekemeyen dış güçlerin iştahını kabarttığı öteden beri söylenegeldi hep. Bu iştah kabartmanın dış güçler nezdinde pratiğe dökülmesine karar verildiğinden olacak ki, özellikle İsrail ve Suriye bölgeyi çeşitli şekillerde parsellemeye çalışıyor.
+       <br/>
+       <br/>
+       GAP İdaresi doğruluyor
+       <br/>
+       <br/>
+       İsrail’in bölgede çalışmalar yapmasını meşrulaştıran gerekçeler de yok değil. Mesela basınçlı sulama sistemleri konusunda dünyanın ileri ülkelerinden birisi İsrail. Onun burada teknik çalışmalar yapması da bu gelişmişlik özelliğine bağlanıyor. Nitekim Anasol/D’nin GAP’tan sorumlu Devlet Bakanı Salih Yıldırım bu konuda verilen bir soru önergesine şu cevabı veriyordu Meclis oturumunda: “GAP İdaresi olarak İsrail Hükümeti ile teknik konulardaki işbirliği çalışmaları diğer ülkeler ve uluslararası kuruluşlar ile olduğu gibi yürütülmektedir. GAP idaresi tarla içi basınçla sulama sistemlerinde dünyada söz sahibi olan İsrail firmaları ile işbirliği yapmış ve bu firmalar tarafından kendisine hibe edilen ekipmanlarla 1998 yılında bölgede on iki adet çiftçi şartlarında demonstrasyon kurulmuştur. Ayrıca bölgede çalışmakta olan kamu personeline hizmetiçi eğitim kapsamında çeşitli konularda seminerler düzenlenmesi ile ilgili olarak GAP idaresi, İsrail hükümet kuruluşu MASHAV ile işbirliğine gitmiştir”.
+       <br/>
+       <br/>
+       Modern tarım teknolojisi alanında İsrail dünyanın en gelişmiş ülkelerinden birisi. Özellikle İsrail’in geliştirdiği seracılık ve sulama metodları birçok ülke tarafından kullanılıyor. Böylesi bir avantajdan hareketle bölgede geniş imkanlar elde etmeye çalışan İsrailli iş adamlarının Türkiye pazarına duydukları ilgi son yıllarda gözle görülür derecede artmış durumda. İşbirliği önerileri karşılıklı mal alım satımının yanısıra GAP çerçevesinde tarıma dayalı sanayilerin geliştirilmesinde sulama sistemleri, tohum ıslah birimleri ve verimlilik artırıcı diğer tekniklerin yerleştirilmesi gibi konuları da kapsıyor. Nitekim GAP kapsamında bölgede alüminyum sulama boru ve ekipmanlarını üretmek üzere bir Türk—İsrail Ortak Yatırımı hususunda girişimler de sözkonusu. Bunun yanısıra, seracılık, hayvancılık, tarımsal mekanizasyon, müşterek çiftlikler kurulması yolunda işbirliği çalışmaları da sürdürülüyor. İsrail özellikle GAP projesinin yarım kalan sulama sistemleri ile çok ilgilenmekte ve bunları tamamlamaya hazır olduklarını belirtmektedirler.
+       <br/>
+       <br/>
+       İsrail’i bölgede yatırım yapmaya sevkeden sadece elinde bulundurduğu tarım teknolojisi değil. Onu bölgeye yönelten bir başka neden ise ileride kendi ülkesinde doğması muhtemel tarım arazilerinin azalması tehlikesi. İsrail Tarım Bakanlığının tahminlerine göre 2020 yılında İsrail’in nüfusu yüzde 42 oranında artarak sekiz buçuk milyona ulaşacak. Buna bağlı olarak şehir nüfusunun artışı ile birlikte doğacak konut ihtiyacı sebebiyle tarım arazilerinin en az yüzde on sekizi kaybedilecek. Ayrıca bugün için de tarımda kullanılabilen yedi yüz milyon metreküp suyun da en az yarısının artık tarımda değerlendirilemeyeceği düşünülürse İsail’in tarım üretiminde gelecekte oldukça zorluklar çekeceği düşünülebilir. Uzmanlara göre 2020 yılına kadar ülke tarım üretiminin de en az nüfus artışı kadar artacağını tahmin ediyorlar. Ancak bugün ihracat gerçekleştiren İsrail’in sahip olduğu 360 bin hektarlık arazi ve yetersiz su potansiyeli göz önüne alındığında ileriki yıllarda ülke tüketimini karşılayamayacağı anlaşılıyor. Dış Politika yazarı Ferruh Sezgin de buna benzer bir tespitte bulunuyor. İsrail’in düzenli bir şekilde istediği nüfusa ulaşmak için gayret sarf ettiğini belirten Sezgin şöyle devam ediyor: “İsrail devletinin birtakım milli hedeflerinin olduğu kesin. Bu milli hedefleri Nil’den Fırat’a kadar büyük ülke şeklinde özetleniyor. Şimdi İsrail bugünkü askeri teknolojisi ve kabiliyetleri ile bu hedeflerin çoğunu elde etme kudretine sahip ama, ele geçirdiği bu hedefleri uzun süre elde tutma kudretine sahip değil, nüfusu ve ordusunun azlığı sebebiyle. Şimdi bunu gerçekleştirmesi için yapması gereken tek şey ordusunu büyütmek, peki ordusunu büyütmek için ne yapmalı? Nüfusunu artırmalı. Ne kadar sağlıklı bilemiyorum ama deniliyor ki yapılan optimizasyonlar neticesinde İsrail’in ele geçirdiği askeri siyasi hedeflerini elde tutacak orduyu kendisine çıkaracak nüfusu yirmi milyon olarak hesaplamış. Bunu yapmak dünya kapitaline, dünya iletişim organlarına sahip İsrail gibi bir ülke için çok kolay. Kritik noktaya gelelim. Bu kadar nüfusu topladınız peki nasıl besleyeceksiniz? Bu kadar nüfusun bugünkü İsrail sınırları içinde beslenme imkanları bulması mümkün değil. Nereden beslenecekler? Bakın çevreye bir tek GAP var. Önce altyapıyı hazırlayacak yani GAP bölgesinde toprak sahiplenecek, burada üretim elde edecek ve sonrasında ise istediği nüfusa ulaşmaya çalışacak.”
+       <br/>
+       <br/>
+       Urfa Valisi neden merkeze alındı?
+       <br/>
+       <br/>
+       GAP toprak alımının salt İsrail ile sınırlı olması sözkonusu değil. Toprakların belirli bir kısmının bazı engellemelere rağmen PKK yandaşları tarafından alındığı söyleniyor. Bir taraftan PKK, diğer taraftan İsrail, başka yabancı ülkeler ve Türk vatandaşı bazı Güneydoğulu azınlıkların toprak alımları karşısında devletin yetkili organlarını derin bir düşüncenin aldığı belirtiliyor. GAP çerçevesindeki etkinliğini doğal olarak kaybetmek istemeyen yöneticilerimizin henüz satılmayan bazı kamu arazilerini orada güvenebilecekleri Türkmenlere satmaktan yana tavır koydukları da dillendirilen bir başka görüş.
+       <br/>
+       <br/>
+       Yabancı devletlerin ve özellikle de İsrail’in bu ilgisine ilk anlamda bir teşhis koyamadığını belirten emekli binbaşı, stratejist ve dış politika yazarı Ferruh Sezgin bunu “hasımlarımız çok profesyonel davranıyorlar” sözü ile açıklıyor ve şöyle devam ediyor: “Profesyonel oldukları için de işi yapılması gerektiği şekilde yapıyorlar: Birtakım paravan Türk firmaları üzerinden toprak sahibi olmaya başlıyorlar. İşte bu durumda siz de şu ülkeler şu kadar toprak satın aldılar ve bu bizim bütünlüğümüzü tehdit ediyor diye kamuoyunun önüne bir belge de sunamıyorsunuz. Eliniz kolunuz bağlanıyor”.
+       <br/>
+       <br/>
+       Devamında ise şu çarpıcı iddiayı aktarıyor Sezgin: “Orada bu işleri engellemeye çalışan bir Urfa valisi vardı ama onu da merkez valisi olarak geri çektiler. Bu olayla bağlantısı var mı bilinmez? Ama kendi bölgesinde cereyan eden bazı işlere karşı çıktığı yolunda bilgiler geldi bize. Kendisinin Ecevit’in konvoyunu engellediği söylendi ama bu mümkün değil, hangi vali başbakanı bir şehre sokmak istemez ki? Düşünüyorum, acaba bu adam birilerinin tekerine çomak soktuğu için mi bu oyun oynandı da merkeze alındı?”
+       <br/>
+       <br/>
+       Urfa eski Valisi Şahabettin Harput da merkeze alınmasını bazı güç odaklarına bağlıyor. Bu odakların öteden beri kendisinden rahatsızlık duyduğunu belirten Harput şöyle devam ediyor: “Ben Urfa’ya gittiğim günden beri belli çevreler alınmam için ellerinden geleni yaptılar. Sayın Başbakan’ın gelişi ve orada kopartılan fırtına zahiri bir gerekçe sayıldı ve merkeze alındık. Demek ki hayırlısı böyleymiş. Ben bir misyonun temsilcisiyim, ideallerim var. Dün neysem bugün de oyum. Birileri beni hiç bir zaman hazmedememiş olabilir, bu ülkenin inancı ve mefkûreleri karşısında olan gruplar var. Bu kimseler beni Urfa’da da bir tehlike olarak görmüş olabilirler, bu doğaldır da”. Merkeze alınma gerekçesini üstü örtülü bir şekilde açıklayan Harput, GAP’taki yabancı ülkelerin faaliyetleri ile ilgili sınırın çok iyi tanzim edilmesini de sözlerine eklemeden edemiyor: “Ben yabancı firmaların, özellikle İsrailli firmaların burada yüksek oranda yatırım yapmalarını ülke stratejisi açısından doğru bulmuyorum. Çünkü bölgenin stratejik durumu herkesin malumu. Özellikle İsrail’in bölge üzerindeki uzun vadeli politikaları ve stratejilerini de herkes biliyor. Türkiye herkes ile işbirliği yapmalı, İsrail ile de yapmalı. Ama bu arazi vererek, toprak vererek değil teknolojik manada olmalı. Bunun sınırı orada kalmalı. Biz bunu her zaman dile getirdik”.
+       <br/>
+       <br/>
+       Oysa bölgede gerek toprak satışı gerekse yatırım yapan yabancı devletlerin bu durumunu normal bulanlar da yok değil. Marmara Üniversitesi öğretim üyesi Doç. Dr. Kamil Uslu bu isimler arasında. Yabancı firmaların bölgedeki faaliyetlerini ilk anda art niyetli değerlendirmemek gerektiğini belirten Uslu sözlerine şöyle devam ediyor: “Biz zaten yabancı sermayeye muhtaç bir ülkeyiz, yabancı sermayeyi istememe gibi bir lüksümüz olmamalı bence. Dünyanın tarımsal bilgi birikimi bakımından en gelişmiş ülkesi İsrail’dir. Atık suları dahi üç defa kullanan bir teknolojiye sahip, varın gerisini siz düşünün. İsrail kendi topraklarında elde ettiği bu bilgi birikimlerini aynı iklim koşullarına sahip olan GAP bölgesinde kullanmak istiyor. Çünkü kendi topraklarında kullanacağı alan kalmadı artık. Evet İsrail’deki bazı fanatiklerin düşüncesi İsrail topraklarını genişletmek ve Güneydoğu’ya kadar yaymaktır ama genel kanatin bu yönde olduğuna ben inanmıyorum.”
+       <br/>
+       <br/>
+       Son bir hatırlatma; peki sorun bu denli çetrefilli bir hâl alırken, yani tabiri caizse toprak satışı bir nevi iş işten geçti noktasına gelirken Türkiye neden kılını kıpırdatmadı? Dış politika yazarı Ferruh Sezgin’e göre; “Çok yüksek stratejileri olan bir planlama. Türk devletinin bu plandan habersiz olması mümkün değil.”
+       <br/>
+       <br/>
+       E—mail: yasin2003@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13924), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175623/http://www.aksiyon.com.tr:80/detay.php?id=13924)

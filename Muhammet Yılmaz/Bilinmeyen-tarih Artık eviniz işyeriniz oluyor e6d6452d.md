@@ -1,0 +1,31 @@
+# Artık eviniz işyeriniz oluyor
+
+*Muhammet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Turkcell’in kurumsal abonelerine iletişim altyapısını sunduğu, yazılım altyapısı Microsoft tarafından geliştirilen ‘ofismobil’ servisi ile ofise bağlı çalışma dönemi bitiyor. Turkcell ile Microsoft arasındaki işbirliğinin ilk adımı olan ofismobil Servisi, Wap ya da GPRS uyumlu cep telefonlarından, GPRS, gsmdata ve SMS ortamlarını kullanarak ofis dışından ana bilgisayar sistemi üzerinden kişisel bilgisayara bağlanma olanağı veriyor.
+   <br/>
+   <br/>
+   Microsoft gibi bir dünya yazılım liderinin geliştirdiği çözümden yararlanarak, abonelerin hayatını kolaylaştıran ve kurumların verimini artıracak bir ürün daha sunmaktan mutluluk duyduklarını ifade eden Turkcell Kurumsal Sektör Bölüm Yöneticisi Hakan Erenoğlu, çalışanların artan iş yoğunluğu içerisinde, e—postalarına her an ve her yerden ulaşmak istediklerini, ofismobil çözümüyle bu talebin karşılanacağını söyledi. Microsoft Türkiye Telekomünikasyon Sektör Müdürü Hakan Dülge ise, dünyada teknoloji üreten firmalarla işbirliği yaparak kullanıcılara en mükemmel çözümleri sunmak için güçlü stratejiler oluşturduğunu belirtti.
+   <br>
+    <br>
+     Mobil iletişim teknolojilerindeki hızlı değişimin bir sonucu olan ofismobil Servisi ile bilgisayara bağlanabilen kurumsal abonelerin çalışanları, e—postalarını dakikası dakikasına takip ediyor, yanıtlıyor ve yönlendirebiliyor. Şirket intranetine bağlanabiliyor, iş programına ekleme yapabiliyor ve kişisel bilgisayarındaki ajandasına ulaşabiliyor.
+     <br>
+      <br/>
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 9 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11925), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022752/http://www.aksiyon.com.tr:80/yazdir.php?id=11925)

@@ -1,0 +1,49 @@
+# Sanal dünya 63 milyon adrese sığıyor
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   İnternet adresi ya da alan adı olarak bilinen "domain" sayısı rekorunu tazeledi. ABD"de domain kayıt işlemlerini organize eden VeriSign, internet alan adı sayısının 63 milyona ulaştığını açıkladı.
+   <br>
+    <br/>
+    <br/>
+    Reklam karşılığı ücretsiz hizmet veren firmalar yardımıyla sayısı milyarları bulan web sayfaları, 63 milyon alandan kullanıcıların ekranlarına ulaşıyor. Daha çok kişisel web sayfalarını barındıran ücretsiz servisler, her kullanıcıya özel bir "domain" yani alan adı tahsis etmediği için, aslında site olarak sayılmıyor. Sadece bağlı bulundukları alan adı altında yayın yapan site olarak tanımlanıyorlar. Gerçek alan adı sayısını dünya nüfusu ile oranladığımızda, her yüz kişiye bir internet adresi düşüyor.
+    <br>
+     <br>
+      En fazla bilinen ve tercih edilen com, net ve org uzantılı alan adları aslında ABD"ye ait adresler. Her ülkenin kendisine ait uzantısı olmasına rağmen, ABD"li domain şirketlerinin pazarlama taktikleri ve sektördeki liberalizasyon sayesinde en çok adres ABD"den alınıyor.
+      <br>
+       <br>
+        ABD"nin California eyaletinde faaliyet gösteren Mountain View şirketi tarafından yapılan araştırmaya göre, üçer aylık dönemlerde ortalama 4 milyon alan adı kaydı yapılırken, 2004"ün ilk çeyreğinde bu rakam 4,7 milyona çıktı.
+        <br>
+         <br/>
+         Network Solutions sitesi üzerinden perakende alan adı satışı yapan VeriSign"ın yaptırdığı araştırmaya göre, web siteleri geçmişe göre çok daha güncelleniyor ve daha sık ziyaret ediliyor. Alan adı sayısının çoğalmasına, Arap, Çin ve Rus alfabesiyle yazılan adreslerin entegre edilmesinin de katkı sağladığı belirtiliyor. Ayrıca, 2003 başından beri gerçek kullanıcılara ait alan adı sayısında da artış olduğuna dikkat çekiliyor.
+         <br/>
+         <br/>
+         Sayısı 63 milyona ulaşan alan adlarının tümü aktif durumda değil. Yaklaşık 39 milyon tanesi aktif olan adreslerin sadece yarısı Amerikalılara ait sitelere hizmet veriyor. Türkiye"de olduğu gibi diğer birçok ülkede de "com" uzantılı adresler öncelikli olarak tercih ediliyor.
+         <br/>
+         <br/>
+         Türkiye"de kullanılan "tr" uzantılı alan adlarının kayıt işlemlerini gerçekleştiren ODTÜ"ye bağlı DNS Yönetimince şimdiye kadar kaydı yapılan adres sayısı 63 bin civarında. Geçen yıl mayıs ayında ücret ve işleyiş sistemi değişmeden önce 35-40 bin dolayında olan "tr" uzantılı adres sayısı, bürokratik işlemlerin azaltılması ve ücretlerin düşürülmesi sonucu artmaya başladı. Web sunucularla ilgili sürekli analiz ve istatistik yapan Webhosting.info sitesinin araştırmasına göre, Türkiye"de "tr" uzantılı adresler hariç yaklaşık 180 bin web sitesi daha var.
+         <br/>
+         <br/>
+         Nüfusa göre belirlenen internet kullanım oranında (penetrasyon seviyesi) yüzde 55 ile ABD ilk sırada geliyor. Asya"da 223 milyon, Avrupa"da 173 milyon ve Kuzey Amerika"da ise 175 milyon internet kullanıcısı olduğu tahmin ediliyor.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1403 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11579), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050211234720/http://www.aksiyon.com.tr:80/yazdir.php?id=11579)

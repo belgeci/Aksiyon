@@ -1,0 +1,193 @@
+# Çözüm ortak değerlerde
+
+*Mustafa Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119205024im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119205024im_/http://www.aksiyon.com.tr/resim/498/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Aralık"ta AB"den müzakere tarihi almaya hazırlanan Türkiye, birbiri ardına önemli adımlar atıyor. TRT"de Kürtçe yayının başladığı gün DEP eski milletvekilleri serbest bırakıldı. Terör örgütü PKK"nın ateşkesi bozduğu bir dönemde bölgenin ihtiyaç duyduğu huzurun anahtarı, tarihi geçmiş ve ortak değerlerde saklı.
+  <br>
+   Cumhuriyet tarihinin en önemli günleri yaşanıyor. Aralık ayında Avrupa Birliği"nden müzakere tarihi almayı hedefleyen Ankara, birbiri ardına önemli kararlara imza atıyor. AB"ye uyum yasaları çıkarılıyor, Kürtçe dil kursları açılıyor, devlet televizyonunda Türkçe dışındaki dillerde yayın yapılıyor.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ankara"da alınan son karar, Yargıtay 9. Ceza Dairesi"ne ait. Demokrasi Partisi"nin (DEP) 1994 yılında mahkum edilen 4 eski milletvekili Leyla Zana, Hatip Dicle, Selim Sadak ve Orhan Doğan"ın 10 yıl kaldıkları Ulucanlar Cezaevi"nden tahliyeleri ile sonuçlanan süreci başlatan mahkeme kararı, Türkiye"de yeni bir dönemin başladığını işaret ediyor.
+   <br>
+    <br>
+     Başbakan Yardımcısı Abdullah Gül ile görüşen, CHP Genel Başkanı Deniz Baykal tarafından kabul edilen DEP eski milletvekilleri, Diyarbakır"da yapılan mitingde barış çağrıları yaptı ve kırgınlıkların unutulması temennisinde bulundu. "Büyük acılar çekildi, büyük yaralar açıldı. Bunların kapanması için zamana ihtiyaç var" diyen Leyla Zana, "Bu coğrafya Filistin, Lübnan olmamalı. Hele Yugoslavya hiç olmamalı" dedi. Benzer mesajlar veren Hatip Dicle de Kürtlerin ve Türklerin bin yıldır birlikte yaşadığını, bunun 950 senesini barış içerisinde geçirdiğini hatırlatarak "Dinimiz ortak olduğu için kardeşliğimiz bin yıl sürdü. Kardeş kardeşe hâlâ yaşayabiliriz" diye konuştu. Zana ve Dicle"nin vurguladıkları bir başka husus ise kendilerinin artık olgunlaştığı, bundan sonra kimseyi incitmeden haklarını arayacaklarını söylemeleriydi.
+     <br>
+      <br/>
+      Dört eski siyasiden bu "sağduyulu" açıklamalar gelirken öbür tarafta terör örgütü PKK her gün bir askerimizi şehit ediyordu. Zana ve arkadaşlarının altı ay ateşkes istemesi, hele DEHAP Genel Başkanı Tuncer Bakırhan"ın "hükümet ile PKK/KONGRA GEL"e aynı yakınlıktayız" diyerek hakemlik rolüne bürünmesi büyük tepkilere yol açıyordu. Şüphesiz Türkiye"de terör örgütü PKK"nın açtığı yaralar kapanmış değil. 1978 yılında, Urfa"nın bir köyünde bir grup genç tarafından kurulan örgüt, hâlâ ciddi bir tehdit unsuru. Şubat 2000 tarihinde aldıkları ateşkes kararının 1 Haziran 2004"ten itibaren geçersiz olduğunu ilan ederek, bu özelliğini bir kez daha gözler önüne serdi.
+      <br/>
+      <br/>
+      1990 Körfez Krizi sonrası Irak"ın kuzeyinde meydana gelen boşluktan yararlanan terör örgütü için yolun sonu görünmüş durumda. AB"ye uyum çerçevesinde çıkarılan yasalar, terör örgütünün varlık sebebini ortadan kaldıracak niteliğe sahip. Ancak, insanların hislerini akıllarının önüne geçiren etnik milliyetçiliğin meydana getirdiği bir anaforun olduğu da bir gerçek. Türkiye"nin, sosyal dokusuna zarar vermeden bu meseleyi çözmesi kaçınılmaz görünüyor. Elbette, tarihî tecrübeyi dikkate alarak...
+      <br/>
+      <br/>
+      Çözüm için kaynaklardan biri: Osmanlı tecrübesi
+      <br/>
+      <br/>
+      Binlerce yıldır Ortadoğu"da yaşayan bir halk olan Kürtlerin, Türklerle olan ortak tarihini anlamak için 16. yüzyılın başlarına, Yavuz Sultan Selim devrine uzanmak gerekiyor. Osmanlı devletinin sınırlarını doğuya doğru genişleterek Ortadoğu"nun büyük bir bölümüne hakim olan Yavuz Selim"in karşılaştığı en büyük tehlike Safavilerdi. Liderleri Şah İsmail, sürekli olarak Anadolu"daki isyanları körüklüyor ve Osmanlı için askeri bir tehdit oluşturuyordu. 1514 tarihli Çaldıran Savaşı ile Yavuz, Safavi tehlikesini önemli ölçüde püskürttü. O zamana kadar Safavilerden rahatsız olan Sünni Kürt ve Türkmen aşiret beyleri, bu savaşta Osmanlı ordusuna büyük destek verdi.
+      <br/>
+      <br/>
+      Bu, Osmanlı ile Kürt beyleri arasında doğal bir ittifakın oluşması anlamına geliyordu. Ancak Çaldıran savaşı, Güneydoğu Anadolu"nun Osmanlı tarafından fethedilmesi anlamına gelmiyordu. Savaştan sonra da bölge, aralarında herhangi bir birlik olmayan Kürt beylerinin egemenliği altında ve Safavi tehlikesine açık kalmıştı. Savaştan sadece iki yıl sonra bu sorun da halledilecek ve Kürtlerin yaşadığı bölgeler Osmanlı toprağı haline gelecekti. Bunu sağlayan en önemli aktör ise "İdris-i Bitlisî" adlı Kürt din âlimidir.
+      <br/>
+      <br/>
+      Yirmi yıl kadar Akkoyunlu devletinin hizmetinde çalışan İdris-i Bitlisî"nin babası soylu Kürt ailelerinden Mevlânâ Şeyh Hüsameddin El Bitlisî"ydi. İdris, Kürtçe gibi Türkçeyi de çok iyi biliyordu. Sühreverdi tarikatına bağlıydı. Akkoyunlu Türkmen devletinin başkenti Diyarbakır iken, burada hükümdar Uzun Hasan Beğ"in sarayında şehzadelerin hocası ve katip olarak çalışmıştı. Şah İsmail, Tebriz"i fethederek Akkoyunlu devletini yıkınca İdris de İstanbul"a gelip II. Bayezid"le görüştü. Padişah bu Kürt din âlimine büyük saygı gösterdi ve onu Osmanlı sarayında tarih yazıcılığıyla görevlendirdi. İdris, Osmanlı"nın ilk sekiz padişahının hayatını anlatan Heşt Behişt (Sekiz Cennet) adlı ünlü eserini burada yazarak Sultan"a sundu.
+      <br/>
+      <br/>
+      Sultan Bayezid"in yerine Yavuz Selim tahta geçince, İdris, yeni sultanın Doğu siyasetinin danışmanı oldu. Yavuz"la birlikte Çaldıran seferine katıldı, savaş sonunda Osmanlı egemenliğine geçen Tebriz"de bir süre kalarak Ulu Cami"de halka vaazlar verdi. 1516 yılında, Şah İsmail"in Doğu ve Güneydoğu Anadolu"yu yeniden istila etme hazırlığında olduğu ortaya çıktı. Şah, Çaldıran savaşında öldürülen komutanı Mehmed Han"ın yerine onun kardeşi Karahan"ı tekrar Anadolu"ya gönderdi. Bu komutan Diyarbakır ve çevresini kuşatma altına aldı.
+      <br/>
+      <br/>
+      Osmanlı"ya sığınan Kürt beyleri
+      <br/>
+      <br/>
+      Bu tehlike karşısında, bölgedeki Kürt aşiretlerinin beyleri bir araya gelerek Osmanlı"ya katılma kararı aldı. Bu talebi de "Ariza" adlı bir metinde anlattılar. "Ariza"yı Kürt beylerini temsilen Sultan"a götüren kişi İdris-i Bitlisî"den başkası değildi. İdris, ayrıca, kendisinin Farsça kaleme aldığı İstimaletname"de "Bilad-ı Ekrad" yani "Kürt beldeleri" hakkında bilgiler verdi. Yavuz Sultan Selim, kendisine başvuran Kürtlerin isteğini geri çevirmedi ve bu "bendeleri" Safavi tehdidinden kurtarmaya karar verdi. Yavuz"un emriyle, Konya Beylerbeyi Hüsrev Paşa, İdris-i Bitlisi"nin manevi desteğiyle 10 bin kişilik bir gönüllü ordusu topladı ve Diyarbakır"ı Safavilerden kurtardı. Safavi kumandanı Karahan, Mardin"e kaçtı. Osmanlı ordusu, Mardin üzerine yürüdü sonuçta bu kenti de aldı.
+      <br/>
+      <br/>
+      Bu tarihten itibaren, Diyarbakır ve Mardin Osmanlı topraklarına dahil edildiği gibi, İdris"in Yavuz Selim adına bölgenin Kürt-Türk beyleriyle anlaşması sayesinde Bitlis, Urmiye, İtak, İmadiye, Cizre, Eğil, Hizran, Garzan, Palu, Siirt, Hısn-ı Keyfa (Hasankeyf), Meyyafarikin ve Cezire-i İbn Ömer gibi toplam 25 mıntıka barışçı yollarla Osmanlı idaresine bağlandı. Bu üstün başarılarından dolayı Yavuz Selim, İdris-i Bitlisî"yi ödüllendirdi. Kendisine bir ferman göndererek Diyarbakır bölgesini ona "temlik" olarak verdi. Ayrıca merkezi Diyarbakır olan ve Yavuz Selim"in 1516 yılında yeni kurduğu "Arab Kazaskerliği" kendisine bahşedildi. Böylece İdris-i Bitlisi Osmanlıların en büyük siyasi rütbelerinden biri olan kazaskerlik rütbesiyle taltif edilmiş oldu.
+      <br/>
+      <br/>
+      Uzun Osmanlı yılları
+      <br/>
+      <br/>
+      Bölge Osmanlı"ya bağlandıktan sonra Kürt aşiret ve beyliklerine otonomi tanındı. Kurulan "Diyarbekir Vilayeti" bünyesinde 11 sancak Türk idarecilerine, 8 sancak yerli (Kürt) beylere verildi. Osmanlı"nın idari sisteminde en büyük birim "vilayet" idi. Tek bir Diyarbekir vilayeti tüm Güneydoğu Anadolu"yu içine alıyordu. Vilayetin altında livalar, onun da altında sancaklar vardı. 1520 yılındaki bir Osmanlı belgesinde, "Vilayet-i Diyarbekir" başlığı altında 9 liva, bunların da altında 28 "Ekrad sancağı" (Kürt sancağı) sayılıyordu. 1526 yılına ait bir belgede ise, "Diyarbekir Vilayeti Livaları" başlığı altında önce 10 Osmanlı sancağı, sonra da Vilayet-i Kürdistan başlığı altında "Ekrad sancakları" denilen 17 sancak sayılmıştı.
+      <br/>
+      <br/>
+      Belgeleri yorumlayan tarih profesörü Ahmet Akgündüz, Diyarbekir vilayeti içindeki sancakların 35"i geçtiğini; bunların 16"sının tımar düzenine tâbi klasik Osmanlı sancakları olduğunu; kalanların ise "yurtluk-ocaklık" ve "hükümet" diye de tasnif edilen "Kürdistan vilayeti livaları" olduğunu söylüyor. Bunun anlamı, söz konusu Kürt bölgelerinin belirli bir otonomiye sahip olduklarıdır. Bu düzende Kürtler kendi hayatlarını sürdürdü. Bu durum onlara kimliklerini koruma imkanı verdiği gibi, feodal düzenin sürmesini kolaylaştıran bir hukuki düzen de getirmiş oldu.
+      <br/>
+      <br/>
+      Türklerle Kürtlerin kaynaşması
+      <br/>
+      <br/>
+      Osmanlı tarihi bakımından belirtilmesi gereken bir diğer olgu da, Kürtler ile Türklerin kaynaşmış olmalarıdır. Kürtlerin tarihi konusundaki en önemli uzmanlardan biri olan David McDowall, The Kurds adlı kitabında bu hususun altını çiziyor: "Kuşku yok ki, geç dönemde, bazı Arap ve Türkmen aşiretleri kültürel anlamda Kürtleştiler. Kürt ve Türkmen kabileleri bir arada yaşadı, bazı durumlarda birbirleri ile karıştı, bazı Türk liderler Kürtleri cezbetti veya bunun tam tersi oldu." David McDowall"a göre, aynı şekilde çok sayıda Kürt, özellikle Müslüman ordularında profesyonel asker olanlarla, Türk veya Arapların yoğun yaşadığı bölgelere göçen köylüler ve aşiretler, Kürt kimliklerini kaybetti.
+      <br/>
+      <br/>
+      Kürtler için Osmanlı ordusunun ilgi çekici olduğunu dile getiren David McDowall, Kürtlerin sabit ordunun süvarileri arasında Türklerin yanında yer aldığını söylüyor. Kürtlerin en önemli katkısının, özellikle merkezden uzaktaki birliklerde olduğunu hatırlatan McDowall, 1630"ların ortalarında İran"a yapılan bir Osmanlı seferinde Hakkari ve Mahmudi Kürtlerinin ana ordunun önünde yer aldığını, Bitlis"ten gelen piyadelerin ise arka birlikleri oluşturduğunu belirtiyor.
+      <br/>
+      <br/>
+      Bedirhan efsanesinin aslı
+      <br/>
+      <br/>
+      Kürtler arasında, 1840"lardan itibaren bazı isyanlar baş gösterdi. Kürt tarihinde önemli bir yere sahip olan Bedirhan ailesine, bu isyanlardaki öncü rolü sebebiyle hâlâ pek çok Kürt milliyetçisi tarafından efsanevi anlam yüklenir. Halbuki, ne Bedirhan ailesinin isyanlarında ne de o dönemdeki diğer Kürt kalkışmalarının herhangi birinde milliyetçi motif yoktu. Bunlar, 1839 yılındaki "Gülhane Hatt-ı Hümayunu" ile başlayan Tanzimat dönemine tepki olarak gelişmiş hareketlerdi. Osmanlı, Tanzimat"la birlikte, daha önce geniş bir otonomi verdiği bölgeleri merkeze sıkı biçimde bağlamaya çalışıyordu. Buna tepki gösteren yerel liderler de ayaklanıyordu. Bunların kimisi Kürt, kimisi de Türkmen"di.
+      <br/>
+      <br/>
+      Tanzimat süreci ile Osmanlı idarecileri, merkezi yönetimi güçlendirmek, etkili biçimde vergi toplamak ve kuvvetli ordular kurmak niyetindeydi. O dönemde pek çok eyalette vergi Osmanlı memurları tarafından değil, yerel yöneticiler tarafından toplanıyor, bunlar da topladıkları verginin ancak bir kısmını merkeze aktarıyordu. Merkezin güçlenmesi için etkili bir bürokratik yapının kurulması ve bu yolla eyaletlerin kontrol altına alınması gerekiyordu. Bu işi en iyi başaran kişi, devleti 1876-1909 yılları arasında yöneten Sultan II. Abdülhamid oldu.
+      <br/>
+      <br/>
+      Hamidiye Alayları ve Abdülhamid"in
+      <br/>
+      <br/>
+      Kürt politikası
+      <br/>
+      <br/>
+      Sultan II. Abdülhamid, devletin Müslüman halklarını bir arada tutmaya büyük önem verdi. Doğudaki Ermeniler arasında gelişen fanatik milliyetçi çeteler, Abdülhamid"in bu bölgeye özel bir şekilde eğilmesine vesile oldu. Abdülhamid"in getirdiği çözümün çatısını da "Hamidiye Alayları" oluşturdu. Abdülhamid"in ismine kurulan bu alaylar, Güneydoğu"daki Kürt aşiretlerinden adam devşirilerek bölgeyi Osmanlı devleti adına korumak amacıyla kurulan yarı askeri birliklerdi. Giderek büyüyen Rus tehdidine ve Ermeniler arasındaki milliyetçi örgütlenmeye karşı güvenlik unsuru olan Hamidiye Alayları, aynı zamanda Kürtlerin devlete olan sadakatlerini pekiştirmek gibi bir amaç da taşıyordu.
+      <br/>
+      <br/>
+      Aslında alaylar, Sultan Abdülhamid"in Kürtleri devlete daha da ısındırmak ve bağlılıklarını artırmak için yürüttüğü kapsamlı projenin parçasıydı. Projede Kürt önde gelenlerinin çocuklarının İstanbul"da eğitilmesi, bölgeye gönderilen din adamları yoluyla "Osmanlı" bilincinin güçlendirilmesi gibi unsurlar da vardı. İstanbul"da "aşiret mektepleri"nin açılması, bölgedeki medreselere maddi destek verilmesi bu projenin ayaklarını oluşturuyordu. Abdülhamid, ayrıca, yöreye gezici öğretmenler ve vaizler göndererek halkın eğitimine de önem verdi.
+      <br/>
+      <br/>
+      Prof. Dr. Ercüment Kuran, Kürt aşiret reislerinin çocuklarının askeri okullarda okutulması ve bunlardan Harbiye mektebinden mezun olanlarının nizamiye ordusuna tayin edilmesinin önemine işaret eder ve hükmünü "Doğu Anadolu halkının devletle bütünleşmesinde Abdülhamid"in hizmeti büyüktür" şeklinde verir. Askeri bir misyonu da yerine getiren alaylar, doğudaki Rus destekli Ermeni çetelerine karşı koyar, gerilla tipi savaş verir.
+      <br/>
+      <br/>
+      Kürtlerin milliyetçiliğe yüz çevirişi
+      <br/>
+      <br/>
+      Milliyetçilik, modern çağda doğan bir olgu. Modernizm öncesi dönemde, milliyetçilik yoktu. İnsanlar kendilerini şu veya bu milletin bir ferdi olarak değil, bağlı oldukları siyasi otoritenin (çoğunlukla bir kralın, padişahın veya derebeyinin) tebaası ve ait oldukları dini cemaatin bir parçası olarak görüyordu. Osmanlı tarihinde, devletin son birkaç on yılı sayılmaz ise kayda değer bir milliyetçilik bulmak mümkün değil. 19. yüzyıl sonlarında Osmanlı devletinin tebaası, kendini daha çok dinî temelde tanımlıyordu. Kürtler, kendilerini "Kürt"ten ziyade "Müslüman" olarak görüyordu.
+      <br/>
+      <br/>
+      Jön Türk hareketiyle birlikte Kürt entelektüeller tarafından başlatılan milli bilinç oluşturma çabaları geniş Kürt kitleleri üzerinde etkili olmadı. The Kurds adlı kitabın yazarı Derk Kinane"ye göre Kürt ağaları, hanları, şeyhleri bu modern Kürtlerin milliyetçi çabalarından hiç etkilenmedi. Çünkü, onları "dinsiz ve devrimci fikirlerin taşıyıcısı" olarak gördü ve kuşkuyla değerlendirdi. Kuşkuyla bakılanlar arasında elbette Türk milliyetçileri de vardı. 1909 yılında Sultan Abdülhamid"e karşı düzenlenen Jön Türk darbesinden ve bunun ardından iktidarı ele geçiren milliyetçi kadrodan rahatsız oldular. Yine de bu huzursuzluklar isyana dönüşmedi ve Kürtlerin Osmanlı devletine olan sadakati sürdü.
+      <br/>
+      <br/>
+      Kürtlerin Osmanlı"ya sadakatinin en çarpıcı göstergesi, 1912"den 1918"ye kadar aralıksız devam eden kanlı savaş yıllarıdır. Trablusgarp, Yemen ve Balkan Savaşları ile Birinci Dünya Savaşı"nda pek çok Kürt, Osmanlı ordusunda görev aldı. David McDowall, düzenli orduda görev yapmaya karşı evrensel bir gönülsüzlük olmasına rağmen binlerce Kürt"ün silah altına girdiğini belirtiyor. Kürtler tüm bu savaşlarda, resmi dili Türkçe olan Osmanlı devleti adına savaşmıştı. Peki bu sadakat nereden geliyordu? McDowall"a göre, en önemli faktör Müslüman kimliğiydi.
+      <br/>
+      <br/>
+      Kurtuluş Savaşı"nda Kürtler
+      <br/>
+      <br/>
+      Atatürk"ün Kurtuluş Savaşı"nda gösterdiği en büyük başarılarından biri, Anadolu"daki farklı unsurları ortak bir dava için birleştirmesiydi. Bunu da, tıpkı Sultan Abdülhamid gibi, söz konusu unsurların ortak kimliğine vurgu yaparak gerçekleştirdi. Bu kimlik özellikle de Kürtlere hitap ediyordu. Mustafa Kemal Paşa, 1916 yılında Diyarbakır"da 16. Ordu"da görev yapmış, bu sırada pek çok önemli Kürt aşiret lideri ile yakınlık kurmuştu. Nitekim Samsun"a çıktıktan sonra "doğu vilayetleri"nden aldığı sinyallere güvenerek, Kürt vilayetlerindeki bazı önde gelen isimlere, örneğin Cemil Paşazade Kasım Bey"e, Milli Mücadele konusunda bilgilendiren ve yardımlarını talep eden telgraflar gönderdi. Zaten Kürt aşiretleri de, "din ve vatan uğrunda açılacak mücadeleye katılmaya hazır olduklarını" Kazım Karabekir Paşa"ya bildirmişlerdi.
+      <br/>
+      <br/>
+      Mustafa Kemal Paşa, telgraflarında kullandığı "anasır-ı İslam" yani "İslam unsurları" kavramına Milli Mücadele boyunca büyük vurgu yaptı. 1 Mayıs 1920 tarihli Meclis konuşmasında, "Meclis-i alinizi teşkil eden zevat yalnız Türk, yalnız Çerkes, yalnız Kürt, yalnız Laz değildir. Fakat hepsinden mürekkep (oluşan) anasır-ı İslamiye"dir, samimi bir mecmuadır" diyerek milletin bu unsurlardan oluştuğunu açıklamıştı. Bu politika Kürtler arasında olumlu etki meydana getirdi.
+      <br/>
+      <br/>
+      Sevr"i protesto eden aşiret liderleri
+      <br/>
+      <br/>
+      Anadolu"da bunlar olurken, Avrupa"da ise başka bir gelişme yaşandı. Osmanlı mirası üzerinde paylaşım kavgasının verildiği Sevr Konferansı"na, milliyetçi entelektüellerden oluşan bir grup Kürt temsilci de katıldı. Başlarında Osmanlı ordusunda görev yapmış bir Kürt olan Şerif Paşa vardı. Amaçları Ermenilerle anlaşarak bir "Kürt Devleti" kurmak için Avrupalı devletlerden onay almaktı. Ağustos 1920"de imzalanan Sevr Antlaşması"nın 62. maddesi, "Kürtlerin yoğun olarak yaşadığı bölgelere yerel otonomi" verilmesini öngörüyordu. 64. madde ise "Kürt halkları"nın "Türkiye"den bağımsızlık elde etmeleri"nin yolunu açıyordu.
+      <br/>
+      <br/>
+      Ne var ki "Jön" Kürtler, Avrupalı diplomatlardan aldıkları desteğin bir benzerini güneydoğu Anadolu"da bulamadı. Kürtler arasında bu habere duyulan şiddetli tepki, Paris"e bir seri telgrafın yollanmasına sebep oldu. Bu telgraflarda Kürtlerin Türklerden ayrılmak istemediği, iki halkın soy ve din itibarıyla kardeş olduğu savunuluyordu. Erzincan"dan 10 ayrı Kürt aşiret lideri, Fransız Yüksek Komiserliğine, Şerif Paşa"nın hareketlerini protesto eden bir telgraf yolladı. Benzer telgraflar Ocak 1920"de, Milli Misak"ın kabulünden iki gün önce, Osmanlı Parlamentosu"na da yollandı. Mart 1920"de İslami dayanışmayı vurgulayan ve Kürtlerle Türkleri ayırma çabalarına karşı çıkan bir deklarasyon, 22 Kürt aşiretinin lideri tarafından imzalandı.
+      <br/>
+      <br/>
+      Dönemin Vakit gazetesinde Bediüzzaman Said-i Nursi, Ahmet Arif ve Mehmet Sıddık, Kürtler adına yayınladıkları ortak yazıyla, Türklerin ve Kürtlerin birlikte maruz kaldıkları Rus ve Ermeni terörüne atıfta bulunarak, Şerif Paşa"yı şiddetle kınıyorlardı. Kısacası sonradan ulusal hafızamızda "sendrom" olarak yerini alacak olan Sevr Antlaşması"nı protesto edenler arasında Kürtler ön saftaydı. Kürtlerin Milli Mücadele"ye verdiği destek sonuna kadar sürdü. Urfa ve Maraş"ın düşman işgalinden kurtarılmasında önemli roller üstlendiler.
+      <br/>
+      <br/>
+      Benzer işbirliği Lozan görüşmeleri sırasında da yaşandı. Lozan"da Avrupalı devletler Kürtlerin "azınlık" olduğunda ısrar edince, İsmet Paşa "Türkler ve Kürtler Türkiye Cumhuriyeti"nin ana unsurlarıdır. Kürtler bir azınlık değil bir millettir; Ankara Hükümeti hem Türklerin hem de Kürtlerin hükümetidir" diyerek karşı çıktı. Meclis"teki Kürt vekiller de İsmet Paşa"ya tam destek verdi. Bitlis milletvekili Yusuf Ziya Bey, 3 Kasım 1922"de Meclis kürsüsünden yaptığı konuşmada, Sevr"i bir "paçavra" olarak niteledi, Türk-Kürt kardeşliğini vurguladı. Bir sonraki celsede ise, Bitlis, Erzurum, Kastamonu, Mardin, Muş, Siirt, Urfa, Pozan, Diyarbakır ve Van milletvekillerinin hepsi, Türklerle Kürtlerin tek bir kütle olduğunu belirten ortak bir açıklamaya imza attı.
+      <br/>
+      <br/>
+      Kürt meselesinin doğuşu
+      <br/>
+      <br/>
+      Peki Osmanlı"ya büyük sadakat gösteren, Milli Mücadele"ye canla başla destek veren, Sevr"i protesto edip Lozan"da "Türklerden ayrılmak istemeyiz" diyen Kürtler arasından nasıl oldu da bir "Kürt sorunu" doğdu? Bu sorunun cevabı, bir yönüyle Kürt milliyetçiliği ile ilgili. Osmanlı devletinin son döneminde ortaya çıkan Kürt milliyetçiliği her ne kadar geniş kitleleri etkilemese de varlığını sürdürdü; cumhuriyet döneminde, özellikle de tek parti döneminde büyüdü. Atatürk"ün milliyetçilik anlayışı, hiç kimsenin etnik kökenine önem vermeksizin, "Türküm" diyen herkesi eşit vatandaş kabul etme esasına dayalıydı. Ancak uygulama her zaman böyle olmadı. Tek parti döneminde kimi bürokratlar, etnik temelli bir Türk milliyetçiliği geliştirdi.
+      <br/>
+      <br/>
+      Kürt sorununun kırılma noktası ise, 1925 baharında patlak veren Şeyh Said isyanı oldu. İsyan, Kürtler arasında çok sınırlı bir destek buldu; Bediüzzaman Said Nursi gibi önde gelen Kürt din adamları isyana karşı çıktı. Ama isyanı bastırmak ve "kökünden halletmek" için başlatılan Takrir-i Sükun döneminde sert yöntemlere başvuruldu. Bu tarihten itibaren 1930"ların sonuna kadar "bölge"de hemen her yıl ayaklanma yaşandı. Türkler ve Kürtler arasındaki birliği sağlayan Müslüman kimliğine yapılan vurgunun azalması sorunun çözümünün en etkin yolunu da ortadan kaldırmış oldu.
+      <br/>
+      <br/>
+      Kazım Karabekir"in alternatif projesi
+      <br/>
+      <br/>
+      Acaba Şeyh Said isyanı sonrasında daha farklı bir "doğu politikası" uygulanabilir miydi? Kurtuluş Savaşı"nın kahramanlarından Kazım Karabekir Paşa, farklı bir politika geliştirmiş ve önermişti. İsmet İnönü hükümetinin "Takrir-i Sükun" politikalarındaki sertliği eleştiren Karabekir, temeli eğitim ve ekonomik entegrasyona dayalı alternatif bir proje sunmuştu. Proje 4 temele dayanıyordu: 12 yaşından küçük çocukları gece yatılı mekteplerine almak; Hamidiye Alayları"nın devamı olan Aşiret Süvari Fırkaları"nı tarımsal müfrezeler haline getirerek bunları tarımsal kalkınma ve yol çalışmalarında üretici hale getirmek; bölgedeki din adamlarını, Kürtçeyi de iyi bilen üniversite mezunu hocalar ve hukukçular ile harmanlamak. Böylece, bölge insanının dini temelden kopmadan modern bir eğitim almasını sağlamak; özellikle Van Gölü havzasından başlamak üzere, bölgedeki diğer aşiret unsurlarını küçük parçalara ayırarak yerel kalkınmada çalıştırmak, bölgedeki Ermeni propagandalarını ve Kürtçülük hareketlerini etkisiz hale getirmek için üst kültürlü, temsil yetenekli, çevresindeki yerli halka sosyal hayatta ve üretimde örnek olacak Türk kanalları açmak.
+      <br/>
+      <br/>
+      Karabekir, Kürtlerin dini hassasiyetlerini gözetecek, onları modern eğitimle tanıştırırken bir yandan da üretime teşvik edecek ve böylece ülke geneliyle ekonomik entegrasyonlarını artıracak çözüm öneriyordu. 1926 yılında Meclis tarafından bölgeye gönderilerek durum hakkında rapor hazırlaması istenen Bursa Milletvekili Emin Bey de "sıkı yönetim yerine ılımlı, yumuşak bir politika uygulanması, Sultan II. Abdülhamid"in bölgede uyguladığı politikalara ağırlık verilmesini" öneriyor ve "güvenliği sağlamak için bölgede bulunan silahlı kuvvetlere yapılacak masrafın yarısı kadar bir masrafla bölgeye önemli hizmetler götürülebileceğine" dikkat çekiyordu.
+      <br/>
+      <br/>
+      İsmet İnönü hükümetlerinin uyguladığı politikalar ise, "radikal devrimcilik" vizyonuna göre şekillenmişti. Bu vizyonda ekonomiye ve yerleşik kültürel değerlere fazla önem verilmiyor, sorunun Kürtlere Türk kimliğini kabul ettirmek ve tepkileri bastırmakla çözümleneceği umuluyordu. Ancak bu politika ters tepti. Muhafazakar Kürtleri Türk kimliğine kazandırmak, ancak ortak dini ve kültürel değerler ekseninde yürütülecek politikayla mümkün olabilirdi. Bunun aksi bir çizgide oluşturulan Halkevleri, Köy Enstitüleri gibi projeler başarılı olamadı.
+      <br/>
+      <br/>
+      Dr. Hüseyin Koca"nın ifadesiyle "halk zaten sınırlı olan eğitim imkanlarından "çocuklarımız gavurlaşacak" diye faydalanmak istemedi." Oysa, Dr. Koca"ya göre, "Kazım Karabekir Paşa"nın ziraat projesine kulak verilseydi, sosyal bütünleşme sağlanabilecekti."
+      <br/>
+      <br/>
+      Tek parti döneminden sonra gerek Demokrat Parti döneminde, gerekse Anavatan Partisi iktidarında bir takım olumlu adımlar atıldı. Ancak, bu adımlar başarılı olamadı ve sorun günümüze kadar büyüyerek geldi. Şimdi, yeni bir dönemin başında kapsayıcı projelere ihtiyaç olduğu anlaşılıyor. Yanı başında Irak gibi istikrarsız bir yapının olduğu bir dönemde Türkiye"nin, tıpkı Osmanlı zamanında olduğu gibi ülkede yaşayan bütün unsurları ortak manevi değerlere dayalı, kardeşlik duygusuyla kucaklayacak politikaları hayata geçirmesi gerekiyor.
+      <br/>
+      <br/>
+      <br/>
+      BEDİÜZZAMAN SAİD NURSİ: İSLAM KARDEŞLİĞİ ESASTIR
+      <br/>
+      <br/>
+      <br/>
+      "Ben Van"da iken, hamiyetli Kürd bir talebeme dedim ki: "Türkler İslâmiyete çok hizmet etmişler. Sen onlara ne niyetle bakıyorsun?" Dedi: "Ben Müslüman bir Türk"ü, fâsık bir kardeşime tercih ediyorum. Belki babamdan ziyade ona alâkadarım. Çünki tam imana hizmet ediyorlar." Bir zaman geçti (Allah rahmet etsin) o talebem, ben esarette iken, İstanbul"da mektebe girmiş. Esaretten geldikten sonra gördüm. Bazı ırkçı muallimlerden aldığı aksü"l amel ile, o da Kürdçülük damarı ile başka bir mesleğe girmiş. Bana dedi: "Ben şimdi gayet fâsık, hattâ dinsiz de olsa bir Kürd"ü, sâlih bir Türk"e tercih ediyorum." Sonra ben onu birkaç sohbette kurtardım. Tam kanaatı geldi ki: Türkler, bu millet-i İslâmiyenin kahraman bir ordusudur."
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### ibrahim ozturk, 26-Haziran-2004
+> ust kimlik ve kurtler: 
+> Tebrik ederim, konuyu gercekten iyi bir sekilde sentezlemissiniz. Ama Kazim Karabekir`in projesini ornek  olarak vermeniz cok isabetli  degil. Cunku o da bazılarınınkine göre daha yumusak olsa da temelde toplum muhendisligine dayanan ve bolge insanini istegine ragmen sekillendirilecek bir kitle olarak boren bir yaklasim. Gelecekte hala bolunmemis bir turkiye olarak kalmak istiyorsak bir turk veya turkiyeli  ust kimligi yaratmak zorundayiz ama bu tek tarafli toplum muhendisligi projeleri ile degil, bolge insaninin riza ve guvenine dayali projelerle olur. Onun icinde oncelikle yapilmasi gerek birincisi son yillarda bolge insaninda devlete karsi olusan tepki ve guvensizligin   ortadan kaldirilmasi veya en azindan azaltilmasi. Ikincisi de bolge insaninin geleclerinin turkiye icinde olduguna ikna edilmeleri. bunun icin tabiki turkiye insanhaklari ve ekonomik acidan yasanabilir bir ulke haline gelmelidir.  tabi bir de artik Turkculugu biraklamiyiz.
+
+### alp aydınalp, 24-Haziran-2004
+> Meelting poot: 
+> TÜRKİYE AVRUPA ÖLÇÜLERİNDE BİR MİLLİ DEVLET HALİNE GELEMEMİŞTİR. TÜRK OLMAK BİYOLOJİK ÖZELLİKLERLE DEĞİL; DİN, DİL, TARİH, ÖRF VE ADETLERLE KÜLTÜREL BİR TEMEL DAYANIR. AMERİKALILAR MEELTING POOT DEDİKLERİ ANGLO-SAKSON BEYAZ PROTESTANLIĞI BİR ÜST KİMLİK OLARAK OLUŞTURMUŞLAR VE DİĞER KİMLİKLER BU ÜST KİMLİĞİN PARÇASI HALİNE GETİRMİŞLERDİR.DOĞAL BİR SÜREÇ İÇİNDE CEREYAN EDEN BİR ERİTMEDİR BU. KÜLTÜRÜN MAHALLİ HUSUSİYETLERİNİ YAŞATMASI NORMALDİR. FAKAT DEVLETİ VE MİLLETİ AYAKTA TUTACAK  BİR ÜST KİMLİĞİN OLUŞTURULMASI ÜLKELERİN ONTOLOJİK GERÇEKLİKLERİNİ MUHAFAZA EDEBİLMELERİ İÇİN ZARURİDİR. BÜTÜN GELİŞMİŞ ÜLKELERDE OLAN BUDUR. AKILCALAŞMAYI, ŞEHİRLEŞMEYİ, SANAYİLEŞMEYİ, HERKES İÇİN ASGARİ BİR MİLLİ KİMLİĞİNİ OLUŞTURMAMIŞ TÜRKİYE DE KÜLTÜREL AÇIDAN TÜRK ÜST KİMLİĞİNDEN AYRI OLAN GRUPLARI AZINLIK GİBİ ALGILAMAK ÜLKE MENFAATİNE DEĞİLDİR; ÖRNEKLERE BAKILDIĞINDA RASYONEL DE DEĞİLDİR. YİNE OSMANLI ETNİSİTE KONUSUNDA TÜRKİYE'YE BÜTÜNÜYLE ÖRNEK TEŞKİL EDEMEZ. OSMANLI ÇOĞULCU BİR TOPLUMDU.
+
+### dogu dogan, 23-Haziran-2004
+> inşallah...: 
+> kürtlerin  ne kadar muhafazakar vatansever olduklarını din kardeşlerini kendi  kardeşlerinden üstün gördüklerini. diğer milletler gibi osmanlıyı sırtından hançerlemediğni .ki (benim iki büyük dedemde yemende ve allah u ekber dağlarında şehit olmuşlardır).ama  maallesef cumhuryet döneminden sonra rüzgar tersine dönmüştür ve bence bu rüzgarın her yeri kavurp yakmasında ve kan gölüne dönmesinde o dönemin insanların büyük hattaları olduğunu ve.... inşallah bundan sonra belkide daha birlik ve beraberlik içinde yaşarızz.çünkü bende kürdüm ve üstad bediüzzamanın sölediklerine katılmamak elde değil..herses huzrlu ve güzel bi yaşam dilyorum
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11629&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119205024/http://www.aksiyon.com.tr:80/detay.php?id=11629&yorum_id=1)

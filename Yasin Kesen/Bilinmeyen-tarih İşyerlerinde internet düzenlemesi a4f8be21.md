@@ -1,0 +1,49 @@
+# İşyerlerinde internet düzenlemesi
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Kaliteli işgücünün çalışma zamanlarının planlanması, herhangi bir zaman israfının oluşmaması için önlemler alınması profesyonel yapılanan kurumlar için önemli bir koordinasyon çalışmasını oluşturuyor.
+   <br/>
+   <br/>
+   İnternet ile kapılarını dünyaya açan kurumların yabancı dil ve akademik eğitim yönüyle iyi yetişmiş elemanlarını işbaşında iken iyi muhafaza etmeleri gerekiyor. Özellikle spam mailler ve maillerle birlikte gönderilen resim, video, müzik veya sunum dosyalarının, kurumların internet altyapısında bir kısım düzenlemelerle filtre edilmesi, çalışanların işyerlerindeki zamanlarının tasarruf edilmesi açısından oldukça önemli.
+   <br>
+    <br>
+     Bu yazdığım satırları okuyanların bir kısmı muhtemelen “iş sırasında, arasıra neşelenmemizi sağlayan dökümanlarla ne alıp veremediğin var?” diyebilir... Ancak, iş dünyasında saniyelerin bile çok kıymetli olduğu düşünülürse, iş sırasında eğlenceye mahal verecek unsurların azami ölçüde sınırlanması gerekir. Böylece, iş esnasında, konsantre olmaya engel teşkil eden etkenler minimum düzeye indirilmiş olur.
+     <br>
+      <br>
+       Yapılan bir araştırmaya göre, yazışmaları bu şekilde filtre edilenlerin sayısı ABD’de 14, dünyada da 27 milyon.
+       <br>
+        <br>
+         Türkiye’de ise henüz bazı holdingler ile birlikte bankaların kullandığı e—mail filtreleme sistemi ile, e—mail gruplarından gelen tekrarlı ve gereksiz mailler, virüsler ve Abdullah Güçlü gibi mail tacirlerinin reklam maillerinden kurtulunabiliyor.
+         <br/>
+         <br/>
+         E—maillerin filtrelenmesi sisteminde yanlış anlaşılabilecek bir konu da, bu sistemin çeşitli yazılımlar aracılığıyla yapılması. Yani, “büyük birader” görevini üstlenen bir yetkili tarafından sansürlenmesi değil... Yüksek hacimli mesajları temizleyip, internet bağlantısını azami ölçüde verimli kullanabilmeyi sağlayan bir sistem...
+         <br/>
+         <br/>
+         İşverenlerin, elemanlarının zamanlarından tasarruf etmelerine imkan sağlayacak bu tür yatırımlar için ise masraftan kaçınmamaları gerekiyor. Zira, yazılıma masraf etmekten kaçınırken, bünyede her dakikası için ücret ödenen insanların bir hayli zamanı israf olma riskiyle karşı karşıya kalabiliyor...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 5 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12578), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043828/http://www.aksiyon.com.tr:80/yazdir.php?id=12578)

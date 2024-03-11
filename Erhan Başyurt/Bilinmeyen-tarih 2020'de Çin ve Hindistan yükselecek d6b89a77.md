@@ -1,0 +1,157 @@
+# 2020’de Çin ve Hindistan yükselecek
+
+*Erhan Başyurt Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Amerikan istihbarat teşkilatı CIA’ye bağlı çalışan Ulusal İstihbarat Konseyi, 2020 yılı tahminlerini içeren raporunu yayınladı. Dünyanın yarısı nüfus artış problemi yaşarken, enerji talebi patlayacak.
+   <br/>
+   <br/>
+   Amerikan Ulusal İstihbarat Konseyi (National Intelligence Council - NSC) sık sık tekrarladığı gelecek projeksiyonlarına bir yenisi daha ekledi. NSC, Aralık 2004’te tamamladığı “Küresel Geleceğin Haritası - 2020 Tahmini” raporunu yayımladı. Amerikan Merkezi İstihbarat Ajansı (CIA)’na bağlı faaliyet gösteren kuruluş, daha önce de Küresel Trendler 2010 ve Küresel Trendler 2015 gibi çok tartışılan raporlar yayımlamıştı.
+   <br>
+    <br>
+     123 sayfalık rapor, 2020 yılına kadar dünyayı bekleyen siyasi, askeri ve teknolojik gelişmelere yönelik tahminlere yer veriyor. Rapor, farklı ülkelerden çok sayıdaki akademisyen ve think-tank kuruluşunun öngörüleri ve ortak seminerleri sonucu hazırlanmış. Rapora göre, 21’inci yüzyılın yükselen yıldızları Çin ve Hindistan. Ancak onları da bekleyen sorunlar var. Amerika’nın, 2020 yılında askeri, ekonomik ve teknolojik olarak önde olacağı, ama asimetrik saldırılara maruz kalacağı ifade ediliyor. Rapor, Avrasya, Ortadoğu ve İslam konusunda da ilginç tahminlerde bulunuyor. El-Kaide’nin 2020 yılına kadar yok olacağını, ancak yerini daha yerel terör örgütlerinin alacağını iddia ediyor. Rapor, Afganistan’ın artık terör elemanlarının eğitim üssü olmaktan çıktığını, ancak Irak’ın bu konumu almaya başladığını vurguluyor. Amerikan’ın ‘pax-Americana’ peşinde olmasının yanlış olduğuna, ABD’nin izlediği politikalar sebebiyle özellikle İslam dünyasında ABD karşıtlığının arttığına işaret ediyor.
+     <br>
+      <br>
+       Rapor, üç kurgu olaya da yer veriyor. Bunlardan biri de, Usame bin Ladin’in torununun, kuzenine “Hilafetin yeniden kurulmasını” müteakip yaşananları değerlendirdiği bir mektup. Rapor, ABD siyasi çevrelerince dikkate alınıyor. Mesela, Condoleezza Rice’a göreve gelmeden önce Kongre’de sorulan sorulardan bazıları bu raporun öngörüleri üzerine bina edilmişti. İşte CIA için hazırlanan 2020 raporundan konu başlıklarına göre bazı öngörüler:
+       <br>
+        <br>
+         ÇİN VE HİNDİSTAN YÜKSELECEK
+         <br/>
+         <br/>
+         Doğu-Batı ayrımı gibi Kuzey-Güney ayrımı da 2020 yılına kadar varlığını yitirecek. Özellikle Çin ve Hindistan’ın, gösterecekleri hızlı yükselişle bu durum değişecek. Çin, dolar bazında ekonomik büyüklükte dünyanın ikinci, Hindistan üçüncü ülkesi olacak. Endonezya ve Brezilya da, Avrupa Birliği’nin bütün büyük ülkelerini geride bırakacaklar. Yükselmekte olan ülkelerin en büyük avantajı, genç nüfusları, dinamik ve ucuz işgüçleri olacak.
+         <br/>
+         <br/>
+         DİN ÇATIŞMALARI
+         <br/>
+         <br/>
+         Dünyayı ekonomi değil, dini bölünmeler şekillendirecek. İnsanların kendilerini hangi dini kimlikle tanıdıkları önem kazanacak. Birçok toplum için dinler ve din içi gruplar arası bölünme, ulusal sınırlardan önemli hale gelecek. Özellikle Güney Asya’da Hıristiyan-Müslüman ayrımı, Müslümanlar arasında Sünni-Şii ayrımını göreceğiz. Avrupa, Rusya ve Çin’de, etnik ve dini potansiyel husumet adaları öne çıkacak.
+         <br/>
+         <br/>
+         DÜNYADA GELİR ARTACAK
+         <br/>
+         <br/>
+         Dünya ekonomisi 1980-2000 arasında yüzde 80, kişi başına milli gelir de yaklaşık yüzde 50 artacak. Dünya nüfusunun üçte ikisi halihazırda küreselleşen ekonomiyle bağlantılı. Ancak, dünya ekonomisi büyük gelişme gösterse de, teknolojik, ekonomik ve sosyal olarak istifade edemeyenlerin oranı önümüzdeki 15 yılda azalma gösterecek. Küreselleşmenin en büyük faydasını, yeni teknolojilere en iyi uyum gösteren ülkeler elde edecek.
+         <br/>
+         <br/>
+         DOLAR REZERVİ AZALACAK
+         <br/>
+         <br/>
+         Asya ülkeleri ekonomi bakanları, IMF benzeri bir Asya para fonu kurma çabasındalar. Bundan amaç, Asya ekonomilerini “Washington’ın makro-ekonomik uzlaşmasından” kurtararak, hareket serbestisi sağlamak. Asya ülkeleri halihazırda dünya dolar rezervinin dörtte üçünü ellerinde bulunduruyorlar. Halihazırda Japonya 850 milyar dolar, Çin 500, Güney Kore 190, Hindistan da 120 milyar dolar rezerve sahip. Asya ülkeleri, giderek rezerv parası olarak daha çok Yen, renminbi ve rupi gibi ulusal paralara yönelecekler.
+         <br/>
+         <br/>
+         21. ASIR ASYANIN
+         <br/>
+         <br/>
+         19’uncu yüzyıl Almanya’nın, 20’nci yüzyıl Amerika’nın olduğu gibi, 21’inci yüzyıl Çin ve Hindistan’ın başını çektiği gelişmekte olan ülkelerin olacak. Avrupa ve Rusya’da nüfus azalırken, gelişmekte olan ülkelerde nüfus artışı sürecek. Çin, Hindistan, belki Endonezya ve Brezilya gibi ülkelerin yükselmesi, İkinci Dünya Savaşı sonrası oluşan uluslararası sistemi yeniden yapılanmaya zorlayacak. Çin ve Hindistan’ın sürekli yüksek ekonomik büyüme sağlamaları, askeri kabiliyetlerini genişletmeleri, yüksek teknolojilerin aktif promosyonu ve genç nüfusları, her iki ülkenin ekonomik ve politik güç olarak hızla yükselmelerinin temellerini oluşturacak.
+         <br/>
+         <br/>
+         ÇİN’İN İKİ SIKINTISI
+         <br/>
+         <br/>
+         Çin, ekonomik büyümesine paralel 15 yıl içinde ABD’den sonra en fazla savunma harcaması yapan ülke haline gelecek. Japonya, Tayvan ve bazı Güney Asya ülkeleri, Çin’in askeri gücünü dengeleyebilmek için Amerika’dan destek isteyecek. Ancak Çin’in iki sıkıntısı olacak. Çin’in, ihtiyaca cevap verecek kadar iş imkanı oluşturamamış olması politik isyanlara sebep olabilir. İkinci olarak, “tek çocuk” uygulaması sebebi ile, aniden genç nüfus sorunu yaşanacak. Çin, Avrupa benzeri sosyal korumalar oluşturmadığı için, bu ciddi bir sorun haline gelecek. Çin’in gücü düşüşe geçecek.
+         <br/>
+         <br/>
+         TÜRKİYE SİLİK KALMIŞ
+         <br/>
+         <br/>
+         Türkiye’nin Avrupa Birliği üyeliği nüfusunun büyüklüğü, dini ve kültürel farklılığı sebebiyle sorun potansiyeli kadar, fırsatlar da taşıyor. Türkiye’nin üyeliği, Avrupa’nın artan Müslüman nüfusunun entegrasyonu ve uyumunu kolaylaştırabilir. Rapor, Türkiye’yi yakından ilgilendiren birçok konuya parmak basmasına karşın, Türkiye’ye direkt atıfta bulunmuyor. Türkiye yükselmekte olan ülkeler arasında zikredilmiyor ve nüfus artışı azalan gelişmekte olan ülkeler gibi, satır aralarında adı geçiyor.
+         <br/>
+         <br/>
+         NÜFUSU AB’Yİ YAKACAK
+         <br/>
+         <br/>
+         Avrupa Birliği, askeri harcamalarda Çin’in gerisine düşebilir. AB’nin askeri birlik oluşturma gayreti de, NATO’yu dublike ettiği için başarılı olmakta zorlanacak. Ama, AB’yi bekleyen asıl sorun, yaşlanan nüfusu ve daralan çalışma gücü. AB, 1,4 nüfus artış ortalaması ile, ölüm-doğum dengesini sağlamak için gerekli 2,1’lik artışın gerisinde kalıyor. Bu sebeple, sürekli sosyal reformlar ve yabancı göçlere ihtiyaç duyacak. Çoğunluğu Müslüman olması ihtimali yüksek göçmenlerin entegrasyonu sorunu yaşanacak. Bu durum, AB için ekonomik ve sosyal sorunlara sebep olacak. Avrupa için, NATO değil, AB öncelikli kurum haline gelecek.
+         <br/>
+         <br/>
+         DÜNYANIN DERDİ AYNI
+         <br/>
+         <br/>
+         Dünya nüfusunun yarısı, doğum oranları bugünkü nüfuslarını koruyamayacak kadar düşük olan ülke ve topraklarda yaşıyor. Bu liste sadece Avrupa, Rusya ve Japonya’yı içermiyor. Gelişmiş ülkeler Avusturalya, Yeni Zelanda ve Kuzey Amerika, Uzakdoğu ülkeleri Singapur, Tayvan ve Güney Kore. Bu listede yer alan gelişmekte olan ülkeler arasında Cezayir, Tunus ve Lübnan ile birlikte Türkiye de var. Çin ise, 2020 yılında 400 milyonu aşkın 65 yaş üzeri nüfusu ile nesiller arası dengesizlikte özel bir yer edinecek.
+         <br/>
+         <br/>
+         ENERJİ PATLAYACAK
+         <br/>
+         <br/>
+         Yükselen güçler sebebi ile enerji tüketimi de artacak. 1980-2000 arası dünya enerji tüketimi yüzde 34 artarken, 2000-2020 arasında yüzde 50 artması bekleniyor. Rüzgar, güneş ve hidrojen gibi yenilenebilir enerji kaynaklarının arzının, 2020 yılına kadar yüzde 8 civarında olması bekleniyor. Çin, ekonomik büyümesini sabit olarak artırabilmek için 2020 yılına kadar enerji tüketimini yüzde 150, Hindistan ise iki kat artırmak zorunda. Enerji, her ülkenin deniz gücü gibi askeri kapasitesini de şekillendirecek.
+         <br/>
+         <br/>
+         RUSYA GAZLA BÜYÜYECEK
+         <br/>
+         <br/>
+         Rusya, doğalgaz ve petrol ihracatçısı ülke olarak, yükselen ülkeler arasında yer alabilir. Rusya, AB’nin doğalgaz tüketiminin halihazırda yüzde 27’sini karşılarken, 2020 yılına kadar bu oran yüzde 31’e yükselecek. Rusya, AB’nin kendisi ile ekonomik olarak “özel ilişki” kuracağına inandığı için, eski Doğu Bloku üyesi ülkelerin AB’ye daha da yaklaşmalarına tolerans gösterecek. Ancak Rusya, ekonomik gelirlerinde çeşitlenmeye gitmediği takdirde, petro-dolara dayalı ekonomik kalkınmamanın dengesizliklerini yaşayacak. Büyük gelir adaletsizlikleri, sermaye kaçışı ve sosyal sorunlarla yüz yüze kalacak.
+         <br/>
+         <br/>
+         DIŞ GÜÇLER AVRASYA’DA
+         <br/>
+         <br/>
+         Avrasya, özellikle de Orta Asya ve Kafkaslar, çok sayıdaki başarısız devlet, İslami radikalizm ve Doğu-Batı hattında enerji arz edicisi veya güzergahı olarak, ilgi odağı olacak. Bu ülkelerin geleceği, istikrar sağlamayı da hedefleyebilecek Rusya, ABD, Çin, Hindistan ve Avrupa gibi dış oyuncuların etkisine göre şekillenecek. Hususen Rusya, kendi iç sorunlarına rağmen, bu bölgelerde bir kaynamayı önlemek için elinden geleni yapacak. En batıdakiler, Ukrayna, Belarus ve Moldova, kırılganlıklarını aşma yolu olarak, AB’ye daha çok yakınlaşmayı deneyecekler.
+         <br/>
+         <br/>
+         ABD-KARŞITLIĞI ARTACAK
+         <br/>
+         <br/>
+         ABD karşıtlığı, özellikle Ortadoğu ve geniş İslam dünyasında artıyor. Birçok insan, ‘Ülkemizin kaynaklarını ABD kontrol ediyor’ inancında. Artan güvensizlik, uluslararası platformlarda ABD çıkarlarına karşı direnişe ve ABD karşıtı asimetrik askeri güçle mücadeleye destek vermek şeklinde tezahür edebilir. Birçok ülke, ABD ile işbirliğini durdurma tehdidini, Washington’a karşı bir yaptırım elde etmenin en güvenli yolu olarak görüyor. ABD, ‘pax-Amerikana’yı gerçekleştirebilmek için özellikle Avrupa’nın desteğine sahip olmalı. Ancak “pax-Americana”, ABD için hoş bir uğraş olmayacak. 2020 yılına kadar, askeri olarak ABD ile boy ölçüşecek ülkeler olmayacak. Teknolojik ve ekonomik olarak da ABD öncü olmaya devam edecek.
+         <br/>
+         <br/>
+         ORTADOĞU’YA DEMOKRASİ
+         <br/>
+         <br/>
+         Ortadoğu ülkelerinde demokratik gelişimler zemin kazanacak. Afganistan, Irak ve Endonezya’da başarı ile işleyen demokratik sistemlerin kurulması, Ortadoğu ve İslam ülkeleri için model olacak ve üzerlerinde değişim için baskı oluşturacak. Ancak, Freedom House tarafından 2001’de yapılan bir çalışmaya göre, özgürlük ve demokrasi seviyesi olarak İslam ülkeleri ile dünyanın geri kalanı arasında ciddi farklar var. Ortadoğu’da, enerji dışında önemli bir ekonomik gelirin olmaması bunda ana faktör. Bu sebeple bazı ülkelerde, demokrasinin kendiliğinden gelişmesine zayıf ihtimal olarak bakılıyor.
+         <br/>
+         <br/>
+         RADİKALLİK ARTACAK
+         <br/>
+         <br/>
+         Radikal İslam, yayılacak. Din müntesiplerinin arttığı yerlerde, genç nüfus artışı dikkat çekiyor. Bu süreçte aşırı uçlar ve radikaller de artacak. Genç nüfus artışı, özellikle Kuzey Afrika ve Ortadoğu’da dikkat çekiyor. İslam dünyası dünya ekonomisine tam olarak entegre olana kadar, radikal İslamın temelini oluşturan kolektif yabancılaşma hissinin aşılması zor görünüyor. Radikal İslam, özellikle yurt dışındaki göçmen veya işçi Müslüman gençler üzerinde de etkisini gösterecek. Bu durum, ikinci ve üçüncü kuşak gençlerin de yaşadıkları topluma entegrasyonlarını menfi etkileyecek.
+         <br/>
+         <br/>
+         HİLAFET BÜYÜK SORUN
+         <br/>
+         <br/>
+         Rapor, Usame bin Ladin’in torununun kaleminden kurgu bir mektup da yayınlıyor. Mektuba göre, Halifeliğin ilanı gerçekleştiriliyor, ama İslam dünyasındaki sorunlar ve bölünmüşlük sona ermiyor. Aksine, Şii-Sünni güç çatışması söz konusu oluyor. Kurgu mektup üzerine değerlendirme yapan uzmanlar da, Halifeliğin ilanı ile terör eylemlerinin sona ermeyeceğini, aksine Halifelik karşıtlarına yönelik saldırıların artacağını ifade ediyor. Her şeye rağmen, yeni Halife senaryosunun, dünya kurulu düzenini alt-üst edeceği ve ABD ile diğer güç merkezleri arasında çıkar çatışmaları ve bölünmelere sebep olacağı kaydediliyor.
+         <br/>
+         <br/>
+         KÜRESELLEŞME DURABİLİR
+         <br/>
+         <br/>
+         Terörizm ve iç çatışmalar, küreselleşme sürecini durdurabilir. Özellikle uluslararası ticarete güvenlik sebebi ile uygulanacak sınırlayıcı gümrük kontrolleri ve artan güvenlik maliyetleri bunda etkili olacak. İç çatışmalar değil, ama büyük güçler arasındaki çatışmalar, dünyada güvenliği tehdit edecek. Kitle imha silahlarının potansiyel kullanımı da yaygın psikolojik korkuyu besleyecek. Fiziksel tehditlerin oluşturduğu yaygın psikolojik korkular, komşu ve çok nüfuslu ülkelerden gelecek göçlerle oluşacak işsizlik endişesini de içeriyor.
+         <br/>
+         <br/>
+         TERÖR SÜRECEK
+         <br/>
+         <br/>
+         Önümüzdeki 15 yılda, uluslararası terör örgütleri radikal İslam kimliğiyle tanımlanmaya devam edecek. İslami uyanışa paralel, Filistin, Keşmir, Çeçenistan, Irak, Mindanao ve Güney Tayland gibi ulusal ve bölgesel ayrılıkçı savaşlara olan destek artacak. Ortadoğu’da bir İslam ülkesinde meydana gelecek radikal devrim, terörün bölgeye yayılmasına sebep olacak ve diğer ülkelere yeni Hilafetin kurulmasının mümkün olduğu güvenini verecek. Radikallerin, kukla hükümetlerini devirmek için sınırları aşan bir direniş peşinde oldukları biliniyor. Küreselleşme karşıtlığı ve ABD politikaları düşmanlığı bunun çimentosu olabilir.
+         <br/>
+         <br/>
+         EL-KAİDE BİTECEK
+         <br/>
+         <br/>
+         El Kaide’nin çekirdek kadrosuna üyelikler azalmaya devam edecek. Ancak el-Kaide’den ilhamını alan yerel örgütler ve bireylerin saldırıları sürecek. Afganistan’da eğitim görerek el-Kaide üyesi olma ayrıcalığı neredeyse sona erdi. Ancak, Irak savaşından tecrübe edinerek yayılanlar bunların yerini alacak. 2020 yılına kadar el-Kaide’nin yerini küreselleşmenin bir çok açıdan İslamı etkilemesine karşı olan daha radikal parçalanmış gruplar alacak. Irak veya ileride çıkması muhtemel savaş bölgeleri, terör örgütlerinin  teknik beceri edinme, profesyonelleşme,  eleman kazanma, eğitme alanları olacak.
+         <br/>
+         <br/>
+         İNTERNET DE TEHDİT
+         <br/>
+         <br/>
+         Eleman sayıları azalsa da, terör örgütlerinin tehdidi devam edecek. İnternet ve diğer kablosuz iletişim teknolojileri üzerinden hastalıklı eğilimleri olan kişiler, görünmeden hızlı bir şekilde, hatta küresel boyutta taraftar toplayabilir. Biyolojik silahların hızla yayılması ve diğer öldürücü teknolojik formüller, hiçbir grup ile bağlantısı olmayan insanların hayatlarını kaybetmeleri potansiyelini yükseltiyor. Teröristler, güçlü biyolojik silahlar, nükleer ve kimyasal silahlar üretme gayretinde olacaklar. Ancak, saldırıların çoğunluğu klasik silahlarla olmaya devam edecek. Teröristler, eş zamanlı çok noktalı saldırılar deneyebilir. Bombalı araçlar yine gözde olacak, ama daha etkili yeni bombaların kullanılması söz konusu olabilir.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1071 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19445), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050217130821/http://www.aksiyon.com.tr:80/yazdir.php?id=19445)

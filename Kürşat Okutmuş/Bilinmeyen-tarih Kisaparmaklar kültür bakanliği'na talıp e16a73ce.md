@@ -1,0 +1,70 @@
+# Kisaparmaklar kültür bakanliği’na talıp
+
+*Kürşat Okutmuş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092353im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092353im_/http://www.aksiyon.com.tr/resim/364/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Fatih ve Şebnem Kısaparmak ciddi ciddi siyaseti düşünmeye başlamış. Fatih Kısaparmak’ın gözü Kültür Bakanlığı’nda. Bu amaçla partilerini kurmuş ve sloganlarını hazırlamışlar bile; “Söylenmeyelim, söyleyelim”
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sanatçı tanımının ne olduğunda hâlâ tam olarak anlaşabilmiş değiliz. Bu camianın içinde yer alan şovmenler, türkücüler, şarkıcılar ve dizi oyuncuları kendilerine ön unvan olarak ‘sanatçı’ kelimesini kullanmakta bir çekince görmeseler bile bunun böyle olmadığı ortada. Gün aşırı televole vb programlarda izlettirilen aşk, flört, kaçamak, kavga, ayrılık, dedikodu gibi ‘saçmalıkların’ aktörleri olan ve sanatçı diye tanımlanan insanlar, bir yandan yaşadıkları hayatı Avrupai ve modern olarak görürken diğer yandan ise; çocuklarını bu hayatın dışında tutmak istiyor. Tıpkı İbrahim Tatlıses’in yaptığı gibi. Şov dünyasının en önemli aktörlerinden olan Tatlıses, Perihan Savaş’tan olan kızı Zübeyde’yi “dışarıda” tutabilmek için medyayı karşısına alabiliyor bu yüzden. Mehmet Ali Erbil yaşam felsefesinin tersine “Eli kimsenin eline değmeyen” biriyle evleniyor.
+   <br>
+    <br>
+     Peki yaşadığımız bu çifte standarttan kurtulabilecek miyiz? Bize sunulan bu ortamı nasıl ve neden kabulleniyoruz? Niye tepki göstermiyor, eleştirmiyoruz? Bütün bu soruları Kısaparmak ailesine sorduk.
+     <br>
+      <br>
+       Bugünkü medya toplumun aynası olamaz...
+       <br/>
+       <br/>
+       Kirlenmenin, yozlaşmanın, yitirilen değer ve beğeni yargılarının baş aktörü olan televizyonu yani medyayı ülkenin aynası olarak gören Fatih Kısaparmak’ a göre; medyadan şikayetçi olmak kişinin kendisinden de şikayetçi olması anlamına geliyor. Çünkü medya da bizim içimizden çıkan insanlar tarafından kontrol ediliyor ve kötü yayınlara pirim veriliyor. Televizyonlar reyting için yayın yapıyor, insanlar da şikayet ettikleri programları daha çok izliyor. Her kuşağı bir önceki kuşaktan daha şanslı gören Şebnem Kısaparmak, geriye doğru giden kültür ve eğitim seviyesinden şikayetçi. Sanat adına alternatiflerin çoğaldığından fakat tüm bu alternatiflerin ağırlıklı olarak kötü olduğundan yakınan Şebnem Kısaparmak’a göre; kötüye alışmak, iyiye alışmaktan daha beter. Televizyon dünyamıza haber spikeri olarak giren Şebnem Kısaparmak, kendisinin haber programlarında gerekli mercileri sorgulayabildiğinden örnek vererek, halkın gerektiği zaman hesap sorması gerektiği zaman ise tepki göstermesi gerektiğine dikkat çekiyor. Medyada bir çok kişiye olan tepkisini onların isimlerini anmayarak gösteren Şebnem Kısaparmak, herkesin bunu yapabileceğini, sevmediği bir insanı görmezden gelerek tepki gösterebileceğini düşünüyor.
+       <br/>
+       <br/>
+       Toplumun farklı kesimlerinin ‘bizden’ dediği ve kendilerine yakın bulduğu sanatçı Fatih Kısaparmak’tan ‘özeleştiri’ istiyoruz: “Bir toplumsal bellek yitimini yaşıyoruz maalesef. Umarım geçici bir hafıza kaybıdır yaşadığımız. Yıllarca Rus mezalimi altında ezilen bugünkü Türki cumhuriyetler bile, bizim bugün yaşadığımız kadar hafıza kaybı yaşamadılar. Akrep gibi kendini sokan bir millet olma yolunda ilerlemeye devam ediyoruz; taklitçiliğimiz ve aşağılık kompleklerimiz hat safhada.” Bugün yaşanan şöhret olma çılgınlığından yola çıkarak, kendisinin de bir ‘şöhret’ olduğunu anımsatıyoruz Fatih Kısaparmak’a ama o kabul etmiyor; “Ben tanınanım” diyerek şöhrete ve benzeri şeylere talip olarak bu yola çıkmadığını vurguluyor: “Denetimim vicdanımdır; önce besteciydim, sonra işin içine bir de yorumculuk girdi, hepsi o kadar.”
+       <br/>
+       <br/>
+       “Söyleyecek sözü varmış ki, söyledi...”
+       <br/>
+       <br/>
+       Yeni çıkardığı “Bir ‘şiir’di yokluğun” adlı şiir albümünün heyecanını yaşayan Şebnem Kısaparmak, haber spikerliğinde gösterdiği ciddiyetin müzikte de geçerli olduğunu vurgulayarak, amacının bildiklerini, anladıklarını doğru bir şekilde halkla paylaşmak olduğunu söylüyor. Peki Fatih Kısaparmak onun böyle bir çalışma yapmasına ne diyordu? Cevap oldukça kısa oluyor; “Söyleyecek sözü varmış ki, söyledi...” Şiir kasetinde herkese seslendiğini söyleyen Şebnem Kısaparmak; ortak paydalara ve ortak faydalara, müzik ve sanatın ortak bir değer olduğuna, sağlıklı toplum dayanışması için ‘iyi sanatın’ yapıştırıcı gibi görev yaptığına inanıyor. Her konuşmak isteyenin ‘köşk’ kapılarında soyunmaya başvuramayacağına inanan ve kendilerine yüklenen misyonun bilincinde olduklarını söyleyen Kısaparmak’lar, toplumsal yaraları saracak işler yapmak gerektiğini vurguluyorlar. Ekonomik bunalımın her şeyin önüne geçişine Fatih Kısaparmak ilginç bir yaklaşımda bulunuyor: “İnsanların karşılıksız çıktığı bir dönemde, çeklerin karşılıksız çıkması çok normal...”
+       <br/>
+       <br/>
+       “Söylenmeyelim söyleyelim”
+       <br/>
+       <br/>
+       Barış Manço’ya karşı aşırı bir ilgisi olduğunu bildiğimiz Fatih Kısaparmak’a; Barış Manço’nun ‘Ben bu ülkenin cumhurbaşkanı olmak istiyorum’ sözünü hatırlatarak konuyu siyasete çekmeye çalışıyoruz! Fazla uzamayacağını düşündüğümüz bu sohbet beklediğimizden daha çok ilgi görüyor. Kısaparmak ailesi partiyi kurmuş ve sloganlarını bile bulmuş. Kararsızların Türk siyasi tarihinde hiç bu kadar yüksek yüzdede olmadığının altını çizen “Türkü Baba” anladığımız kadarıyla gözünü kararsızlara dikmiş, slogan ise ortak bir düşüncenin ürünü; “Söylenmeyelim, söyleyelim”
+       <br/>
+       <br/>
+       İdealim “Kültür Bakanlığı”
+       <br/>
+       <br/>
+       Bugüne kadar kandırılan halkın, kandırılmaya müsait oluşundan değil, iyi niyetinden yararlanıldığını söyleyen Kısaparmak ailesinin siyasi konuda niyetlerinin ciddi olduğunu öğreniyoruz! Tıpkı cumhurbaşkanı olmak isteyen Barış Manço gibi, Fatih Kısaparmak da “Kültür Bakanı” olmak istediğini söylüyor. Barış Manço’nun “Hayatım boyunca birinci sayfalarda hiç yer almadım” sözünü hatırlatarak, başka Barış Manço’lar varsa eğer, onların bu sözleri sarfetmemeleri için gerçekten de ciddi bir şekilde siyaseti düşündüğünü ve idealinin “Kültür Bakanlığı” ile sınırlı olduğunu açıklıyor.
+       <br/>
+       <br/>
+       Şebnem Kısaparmak “şiir abla”mız artık...
+       <br/>
+       <br/>
+       Bu kadar sohbet arasında bir de iltifat alıyoruz. Meğerse bugüne kadar oğulları Ozan ile birlikte evlerinde kabul ettikleri ilk basın mensubu bizmişiz. Yüzümüz güldü, sevindik ve teşekkür ettik. Ama bu iltifat bizi durdurmadı ve dışarıdan görülen “örnek aile”yi içeriden sorgulamaya başladık. Fatih Kısaparmak “Vay benim hayallerim” adlı son albümüyle ‘türkü baba’lığını devam ettirmiş. Şebnem Kısaparmak ise çıkardığı şiir albümüyle artık yeni bir isim kazanmış; ‘şiir abla.’ “Peki kimin kasedi çok satıyor? Karı koca arasında satış konusunda rekabet yaşanmıyor mu? Hem rakip hem eş olmak zor değil mi? Kimin hayranı daha çok? Kim daha çok mektup, mail, telefon alıyor?” sorularını peşpeşe sıralıyorduk ki, Şebnem Kısaparmak araya girdi ve sorduğum ve soracağım bütün soruları bitirecek bir cevap verdi; “Önemli olan kimin ayrı ayrı ne kadar sattığı değil, ikimizin satışlarının toplamı. Şu andaki veriler de bunun oldukça iyi olduğunu gösteriyor.”
+       <br/>
+       <br/>
+       e—mail: kursadokutmus@mynet.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12457), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092353/http://www.aksiyon.com.tr:80/detay.php?id=12457)

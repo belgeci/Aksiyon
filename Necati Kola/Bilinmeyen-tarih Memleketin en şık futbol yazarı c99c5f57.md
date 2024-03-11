@@ -1,0 +1,70 @@
+# Memleketin en şık futbol yazarı
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214610im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214610im_/http://www.aksiyon.com.tr/resim/334/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Eskiler asla eskimez... Eskiseler bile nostalji adı altında giderek değerlenirler, kıymete binerler, gün gelir antika olurlar. Her ne kadar unutulsalar da, aranıp sorulmasalar da...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Gazeteci— yazar Hakan Dilek, yapılmayanı yaptı ve kıyıda köşede unutulan, aranıp sorulmayan antika değerindeki eski futbolcularla yaptığı söyleşileri Mahallenin En Şık Abileri adlı kitabında toplayarak bir dönemin tarihleşmesini sağladı. Babil Yayınları’ndan çıkan kitap, toplumun Televole kültürüyle yoğrulduğu, spor yazarlarının derinlemesine yazı yazma becerisinden gittikçe uzaklaştığı bir dönemde eski futbol kıymetlerini ortaya çıkarması ve futbolla ilgili geniş çaplı bir çalışma olması açısından oldukça önemli. Mahallenin En Şık Abileri’nde İslam Çupi’den Kadri Aytaç’a, Bilge Tarhan’dan Fethi Heper’e, Osman Arpacıoğlu’ndan Varol Ürkmez’e, Arnavut Nevruz’dan Rıdvan Dilmen’e, Backenbauer Tuncay’dan Tanju Çolak’a varıncaya kadar birçok eski futbolcunun ilginç hayat hikayeleri, bu hikayelerde de Türkiye’nin sosyal, kültürel ve ekonomik gerçekleri var.
+   <br>
+    <br>
+     Sanatçı, futbolcu, gazeteci...
+     <br>
+      <br>
+       Hakan Dilek de eski bir futbolcu aslında. Sanatçı ruhlu eski bir futbolcu... 1975’te başlayan futbol hayatı, Samsunspor, Ankara Demirspor, Bafraspor, Çarşambaspor, Zeytinburnuspor ve Gaziosmanpaşaspor takımlarında geçti. 1989 yılında Samsunspor Malatya deplasmanına giderken kaza geçirdiğinde, Mete, Muzaffer ve Tomiç hayatını kaybettiğinde o da o otobüsün içindeydi. Dilek, aynı zamanda 19 Mayıs Üniversitesi Eğitim Fakültesi Resim Bölümü mezunu. Şu ana kadar sekiz kez kişisel sergi açtı, dört kez de karma sergiye katıldı.
+       <br/>
+       <br/>
+       Hakan Dilek’in eski futbolcularla söyleşiler yapıp onların hayatını kaleme alması yeni değil. Kendi deyimiyle, mahallenin en şık abilerini yakasına takmaya yirmi yıl önce başlamış. Okuma ve yazma isteği ta eskiden beri varmış onda. Bugüne kadar, elinde adı ve adresi bulunan 250 tane eski futbolcudan 150 tanesiyle söyleşi yapmış ve en ilginç olanları bu kitapta toplamış. Gazeteciliğe başlaması ise Gazete Pazar’la birlikte gerçekleşmiş. ‘Spor yazarı olmak hep içimde vardı. O da 1997 yılında yayın hayatına başlayan ve maalesef uzun ömürlü olamayan Gazete Pazar’a tekabül etti. Editörlüğünü yaptığım bu gazetede başladım sporla ilgili röportajlar yapmaya, araştırmalar yapmaya... Eski futbolcularla söyleşiler de o dönemde çıktı. Arkadaşlarımdan biri eski futbolcularla da söyleşiler yapalım dediğinde bayağı mutlu olmuştum. Çünkü, benim de böyle çalışmalarım vardı. Söyleşiler yapmaya burada da devam ettim. Bizim düşüncemiz, eski futbolcularla röportajlar yapalım, onlardan Televolelik iyi malzeme çıkar olmadı kesinlikle’.
+       <br/>
+       <br/>
+       Dilek, bu söyleşileri yaparken genellikle antrenör veya spor yazarı olmayan, medyada görünmeyen insanları tercih etmiş. ‘Mesela, Trabzonsporlu Ali Yavuz’u kimse hatırlamaz. Ali Yavuz, 2. Lig’de şampiyon olup 1. Lig’e çıkan, orada da arka arkaya üç kez şampiyon olan Trabzonspor’un efsanevi takımının dinamosuydu. Korkunç bir futbolcuydu, üç kişilik futbol oynardı. Mesela, Galatasaraylı Tuncay... Ha Backenbauer’i seyretmişsiniz, ha Tuncay’ı... Hatta ondan çok daha kaliteli, çok daha klas bir futbolcuydu Tuncay’.
+       <br/>
+       <br/>
+       ‘İyi şeyler uzun ömürlü olamıyor’
+       <br/>
+       <br/>
+       Hakan Dilek, spor gazeteciliği açısından bugüne kadarki en iyi girişim diye nitelediği Gazete Pazar’ın kapanmasına da çok üzülüyor. ‘Çim sahalarımız çok güzel ama Türkiye’de gerçekten çok kötü bir futbol zemini var. Başta futbol olmak üzere sporla ilgili kitap sayısı yok denecek kadar az. Gazetelerde yazılan yazılar çok yüzeysel, derinliği olmayan yazılar. Maçlar izleniyor, telefonla gazetedeki redaktöre yazdırılıyor ve gün o şekilde kotarılıyor. Ne daktilo kaldı, ne de kalem... Bunlar da benim canımı sıkıyor açıkçası. Birincisi, eski bir futbolcu olduğum için. İkincisi de okuyup yazmayı çok isteyen bir kişi olduğum için. Gazete Pazar, spor gazeteciliği açısından Türkiye’deki en iyi girişimdi bence. Maalesef, ülkemizde güzel ve iyi olanların yaşama şansı fazla olmuyor nedense’.
+       <br/>
+       <br/>
+       ‘Bir dönemi tarihleştirdim’
+       <br/>
+       <br/>
+       Bir zamanlar gündemden düşmeyen, bugün ise arayanı soranı olmayan eski futbolcular kendileriyle söyleşi yapılmasını nasıl karşılamışlar acaba? ‘Nereden icap etti şimdi’ deyip şaşırmışlar mı? Hakan Dilek, hepsinin ağız birliği etmişçesine bu soruyu kendisine sorduklarını söylüyor. ‘’Ben de onlara, bir tarih oluşacaksa bir ülkede, o tarihin öznesiz olamayacağını, o öznelerin de kendileri olduğunu anlatmaya çalıştım. Onlar belki de futbol oynadıkları dönemde kendilerinin bu kadar önemsendiklerinin farkında değillerdi. Görüştüğüm insanların bazılarının durumları iyi değildi. Büyük sıkıntılar yaşıyorlardı. Büyük çoğunluğunun durumu ise iyiydi. İyi demekten kasıt ne? Şöyle birşey varmış demek ki geçmişte. Mahalli hava varmış, insanlar birbirlerini seviyormuş ve ahde vefa da yapmışlar birbirlerine. Çoğu futbolcu bir yerlerde iş tutmuş, ticarete atılmış, en başarısızları bile ayakta durmayı becermiş. Çünkü bu insanlar, çalım atmayı bilen, vücut çalımını iyi yapan insanlar. Hayat da fena halde futbola benzediği için saha dışında da fazla zorlanmamışlar. Yalnız, onların bir tek yerde zorlandıklarını gördüm. Hayat, maçı onların oynadığı gibi oynamıyor, kendi kurallarıyla oynuyor. Futbolu bırakınca sudan çıkmış balığa dönen bu insanlar, bu kurallara uymakta oldukça zorluklar çekmişler ama çalım atmayı bildikleri için kendilerini kurtarmışlar”.
+       <br/>
+       <br/>
+       ‘Şimdi oynasalardı
+       <br/>
+       <br/>
+       Türkiye Brezilya olurdu’
+       <br/>
+       <br/>
+       Peki, eski futbolcular şimdikilere bakıp ne düşünüyorlar? Keşke şimdi futbolcu olsaydık diyorlar mı? Dilek, ‘Hayıflanıyorlar ve şimdi futbolcu olmayı çok istiyorlar’ diyor. ‘’Mesela, ben futbolu 1992 yılında bıraktım ama o yıllarda bile futboldan para kazanmanın imkanları çok sınırlıydı. Samsunspor’da oynadım ama oradan kazandığım parayla ancak bir ev alabiliyordum. Ama şimdi bir 2. Lig, 3. Lig topçusunun bir transferle rahatlıkla ev, araba alması mümkün. Geçmişte yoktu bunlar. Tabii ki dönemlerinin en iyi paralarını almış bu insanlar ama günümüzle kıyaslamak bile mümkün değil o paraları. Hepsi ağız birliği etmişçesine ‘Keşke şimdi futbolcu olsaydık’ diyorlar”.
+       <br/>
+       <br/>
+       Son olarak, kitabın isminin Mahallenin En Şık Abileri olmasının sebebi neydi? “Eskiden takım sayısı azdı ve herkes kolay kolay futbolcu olamıyordu. O takımlarda forma giyebilmek için çok yetenekli olmak, çok teknik olmak gerekiyordu. O zaman da mahallenin en yakışıklı, en şık, en teknik ve en yetenekli abileri futbolcu olabiliyordu. Bu nedenle biz dönemlerinin en iyi abilerini seyrettik. Herkes diyor ki Metin Oktay gibi bir santrforum olsa. Çünkü o her topa kafa vurabiliyor, vole çakabiliyor, rövaşata yapabiliyordu. Şimdi bakalım 1. Lig takımlarına, böyle bir santrfor var mı? Bir de şöyle bir yanılgı var. Deniyor ki o zamanlar oynanan futbol çok ağırdı. O zamanki futbolcular şimdi oynayamazdı. Bence o zamanlar futbol bir sektör haline gelmiş olsaydı o futbolcular dünyanın en iyi futbolcuları olurlardı. Onlar, gülle gibi topla oynayan, çamur sahalarda top koşturan, çim sahayı gördüklerinde maçı bitirmek istemeyen, her türlü imkansızlığa rağmen futbol hastası olan insanlardı. Fenerbahçeli Nevruz anlatıyor: ‘Arsenal ile maç yapıyorduk. Maçtan sonra formaları değişecektik. Arsenalli bir futbolcu önce kendi formasını, sonra benim formamı şöyle bir elledi ve formasını değişmek istemedi’. Burada Fenerbahçe’den söz ediyoruz. İmkanlar son on yılda çok gelişti. Kitabın ilk söyleşisi, spor yazarlığının duayeni merhum İslam Çupi ile. İslam abi şöyle diyordu: ‘Ortada bir kıyafet devrimi var ama futbol kalitesinde bir ilerleme yok. Dışarıda kupalar kazanmaya başladık ama bu biraz da dünya futbolunun gerilemesinden dolayı’. Hakikaten ben de İslam abiye katılıyorum. Türk futbolunun fiziki açıdan çok büyük ilerlemeler kaydettiğini inkar etmiyorum ama o zamanki futbolcular şimdi oynamış olsalardı Türkiye Brezilya olurdu bence”.
+       <br/>
+       <br/>
+       E—mail: n.kola@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13095), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214610/http://www.aksiyon.com.tr:80/detay.php?id=13095)

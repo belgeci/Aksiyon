@@ -1,0 +1,55 @@
+# Hayatı derinliğiyle hissetmek için
+
+*Hamdullah Öztürk Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bir sözün ifade ettiği mânâyı tam anlayabilmek için önce kimin söylediğine bakılır, sonra kime söylendiğine ve son olarak da hangi makam ve maksatla söylendiğine...
+   <br/>
+   <br/>
+   Mevzu din gibi, insanlığın ebedi saadet ve şekavetini ilgilendiren hassas bir konu olunca, dinlenecek sözün Kelamullah ya da Peygamber kelamı olması gerekmektedir. "Örnekleri kendinden bir hareket" kitabının ismi, sözlerin en güzelini, Peygamber asrından 14 yüzyıl sonra, insanla yeniden buluşturma gayretlerinden birinin sergüzeştini ifade ediyor. Kıymeti niyet ve temennilerinin ululuğundan değil, gerçekleşmiş olmasından kaynaklanıyor.
+   <br>
+    <br>
+     Zira, muhterem müellif, kürsüden gönüllere seslenirken, Kur"an asırları ile günümüz Müslümanlarının arasına girmiş mesafeyi aşabilmek, yıkılış ve çöküşlerin tozbulutundan oluşmuş puslu havayı dağıtarak, bir anlığına da olsa onları alıp asr-ı saadete götürebilmek için çırpınıp dururdu. Hz. Peygamberden (s.a.v) ve O"nun güzide ashabından örnekler vererek Kur"an"la bütünleşmiş hayatın nasıl olacağını anlatmaya çalışırdı. Çağımız insanı ile asr-ı saadet arasındaki derin uçurumu gördükçe, -belki de bazen- "Kur"an bir vadide, onlar bir vadide" der, Hz. Peygamberin sözlerine kulak verir ve ardından, "Vur kazmayı Ferhat, çoğu gitti azı kaldı" mısraıyla etrafını gayrete getirirdi.
+     <br>
+      <br>
+       Aradan yıllar geçti; o şimdi, "Örnekleri Kendinden Bir Hareket" diyor; "Vur kazmayı Ferhat" denilince, kayaları delmeye azmedenlerin, bugün şevk içinde dünyanın dört bir yanına dağıldığını yazıyor. Saadet asrının yanına günümüzden tablolar dizerek, "Sonsuz Nur"un rehberliğinde, can u canandan geçenlerin, asırları ve enkazları aşarak yaşadığı şeb-i aruslara şahitlik etmeyi vefa borcu sayıyor.
+       <br>
+        <br>
+         "Örnekleri Kendinden Bir Hareket" Fethullah Gülen Hocaefendi"nin, "Çağ ve Nesil" serisinden çıkan sekizinci kitabı. Kendi tabiriyle "gönüllüler hareketinin" son bir iki yılına tekabül eden yazıların toplandığı eser. Hem bir meyve, hem de bir çekirdek. Zira yazıları okurken halden hale giriyor insan. Başarılmış işler ve onlara yönelik takdirler hemen yeni ufuklara terk ediyor yerini. Her bitiş, yeni bir başlangıçla canlanıyor. Ezel ve ebedin bitmek tükenmek bilmeyen serhaddine doğru koşturulduğunuzu hissediyorsunuz. "Bir Gönül İnsanının Portresi"inde asûde bir iklim yakalamışken, "Münacaat Yerine" ve "Dua Zamanı" yazılarında derinizin ürperdiğini, tüylerinizin diken diken olduğunu hissediyorsunuz. Ardından "Mabetlerin Büyülü Dünyası"nda köklü bir medeniyetin gücü beliriyor arkanızda; derken, "Mü"min Ufkunda Zaman" ve "Füsunlu Geceler"in dehlizlerinde, karanlıkları bir miraç yolculuğuna çevirme fırsatı ararken "Çatlayan Rüya" ile karşı karşıya kalıyorsunuz. Erken açan çiçeklerin, aniden bastıran soğuklar karşısındaki hali bir resim gibi düşüyor hayal perdesine aniden... Ve anlıyorsunuz bu dünyada yalnız olmadığınızı. Ne kadar candan ve fedakar olsanız da yüreklere kezzap dökmeyi marifet sayanlarla birlikte yaşadığınızı. Ve tekrar anlıyorsunuz, "gönül insanı" olmaktan başka yol bulunmadığını. "Sükutun çığlıkları"nı belki bir duyan olur temennisiyle, "her insan için bir eşref saat vardır" diyerek, yeniden kendi yolunuza koyuluyorsunuz.
+         <br/>
+         <br/>
+         Örnekleri Kendinden Bir Hareket adlı eseriyle Fethullah Gülen Hocaefendi, fikir derinliği ve manevi dünyanın enginliğinin yanında, olayların günübirlik tarafına iltifat etmeden, ince detaylarla günümüzün fotoğrafını çekmiş. Hayatı derinliğiyle yakalamak isteyenler için tekrar tekrar okunacak bir kitap sunmuş.
+         <br/>
+         <br/>
+         Örneği Kendinden Bir Hareket
+         <br/>
+         M. Fethullah Gülen
+         <br/>
+         Nil Yayınları
+         <br/>
+         237 s.
+         <br/>
+         0 216 522 11 88
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1052 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11346), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050220215210/http://www.aksiyon.com.tr:80/yazdir.php?id=11346)

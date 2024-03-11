@@ -1,0 +1,109 @@
+# Din değiştirenlerin tercihi Hristiyanlık değil Batılılık
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050121180425im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050121180425im_/http://www.aksiyon.com.tr/resim/492/48.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Misyonerlik faaliyetleri yıllardır tartışma konusudur ancak son iki yılda farklı siyasi partiler arasında hesaplaşma aracı olmaya başladı. Peki ama kim, neden ve hangi psikoloji ile din değiştirir?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye"de yıllardır gündeme gelen ancak son iki yıldır etrafında hararetli tartışmaların yaşandığı bir konu misyonerlik ve Hıristiyan olan Türkler. Gerçi din değiştirenler ya da açılan kiliselerin sayısı ile ilgili derin çelişkiler var ama herkesin hemfikir olduğu su götürmez gerçek şu: Genelde eğitimli bir kesim din değiştiriyor. Konu medyada, siyasi hatta askeri çevrelerde sürekli gündeme getirildiği, yıllardır dine savaş açan siyasi partiler ya da gruplar bile misyoner avcılığına çıktığı halde herhangi bir üniversitede "İnsanımız neden dinini değiştiriyor?" sorusuna akademik bir cevap aranmamıştı. Sonunda bu konuda kafa yoran bir ekip çalışmalara başladı. Marmara Üniversitesi İlahiyat Fakültesi Din Psikolojisi Bölümü öğretim üyelerinden Doç. Dr. Ali Köse ile din değiştirmenin psikolojisini ve dinini değiştiren bir insanı bu değişikliğe iten nedenleri konuştuk.
+   <br>
+    <br>
+     -Öncelikle şu konuya açıklık getirmek lazım: Türkiye"de insanlar kitleler halinde Hıristiyan mı oluyor? Her yer kilise oldu da biz mi görmüyoruz?
+     <br>
+      <br>
+       Binlerce insanın dinini değiştirdiği doğru değil. 15 bin kilisenin açıldığı da abartılı. Ama az sayıda da olsa din değiştirmenin olduğu doğru. Din ile milliyetçiliği çok fazla özdeşleştiriyoruz. Bir Türkün Hıristiyan olamayacağı yönünde yaygın bir kanı var. O yüzden aşırı tepki veriyoruz.
+       <br/>
+       <br/>
+       -Neden kopuyor bu yaygara?
+       <br/>
+       <br/>
+       Her şeyden önce saha araştırması yaptığımız gençler arasında tuhaf, hatta trajik bir tablo ile karşılaştık. Dinle, diyanetle ilgisi olmayan bir kesimin misyonerlik aleyhinde kampanya yapması tepki çekmiş. Hıristiyan olacak gençler bu kişileri görüp geriye dönmüyor, bilakis "İyi ki de değiştirmişim" diye düşünmeye başlıyor. Fadime Şahin olayından başlayarak günümüze kadar televizyonlarda ilahiyatçı, din bilgini ya da İslamcı yazar olarak çıkmış kişileri düşünün, dinin özellikle gençler arasında neden kabul görmediğini anlarsınız.
+       <br/>
+       <br/>
+       -İslamın medyada kötü temsil edilmesi en büyük etken mi yani?
+       <br/>
+       <br/>
+       Türk gençleri için Müslüman olmak, Türk olmak, bu toprakların insanı olmak tatmin edici gelmiyor. Başka yerlerde arıyor tatmini. 11 Eylül"den sonra Müslüman eşittir terörist imajı oluştu. Dolayısıyla, Müslüman olmak evrensel anlamda övünülesi bir olgu olmaktan çıktı. Gençler problemler yığını olarak karşılarına çıkan bir dini benimsemek istemiyor. Dolayısıyla gençlerin din değiştirmesi, dinî tercihten ziyade yaşam tarzını değiştirmektir.
+       <br/>
+       <br/>
+       Hıristiyan olmak kişinin zihninde Yeşil Karta sahip olmak gibi bir önem arz ediyor.
+       <br/>
+       <br/>
+       -Din eğitimindeki yetersizlik tek başına açıklamaya yetiyor mu din değiştirmeyi.
+       <br/>
+       <br/>
+       Din eğitimimiz kesinlikle yanlış. Korkutan, ürküten ve baskıcı bir eğitim anlayışımız var. Neyin olması gerektiğini anlatmak yerine biz böyle istiyoruz şeklinde bir eğitim veriyoruz. Aslında hâlâ az sayıda insanımız dinini değiştiriyorsa şükretmemiz lazım. Türkiye"de din eğitimi milli bir sorun olarak önümüzde duruyor.
+       <br/>
+       <br/>
+       -Tamam dini eğitimimiz problemli, ilahiyatçılarımız örnek olamıyorlar. Eskiden de misyonerlik vardı, hatta insanoğlunun tarihi kadar eski ama hiç bu kadar gündemi işgal etmemişti.
+       <br/>
+       <br/>
+       Bu noktada temel bir yanlış var. Türkiye"de misyonerlik meselesine Kıbrıs meselesi gibi yaklaşılıyor. Öncelikle ideolojik yaklaşılıyor. Bugüne kadar bu konuda ne yapmalı sorusunu hiç sormayanlar vaveyla kopartıyor. Düne kadar dine tavır alanlar bugün din elden gidiyor diye kıyameti kopartıyor. Hatta daha ileri gidip olay derin devlet nazarına indirildi. Fakat hiç kimse neden bu insanlar dinlerini değiştiriyor diye en başta da ilahiyat fakülteleri tez konusu hazırlatmadı.
+       <br/>
+       <br/>
+       -Son dönemde iyi eğitimli ve ekonomik gücü yüksel insanların din değiştirdiği duyuluyor. Bu insanlar kandırılmadığına göre neden din değiştiriyorlar? Bu insanları din değiştirmeye iten nedenler neler?
+       <br/>
+       <br/>
+       Başka dine ilgi duymanın üç aşaması var. Kişinin farklılaşma, soğuma ve yabancılaşma süreci yaşaması lazım. Aslında görüntüde farklılaşma ve soğuma yaşanmamış olabilir ama tüm hayatı göz önüne alındığında onu tamamen yabancılaştıran krizler yaşanmıştır. Gerek Müslümanlıktan Hıristiyanlığa, gerekse de Budizme geçişte yanlış anlaşılan bir nokta var. Din değiştirme sadece teolojik bir hadise değildir. Teolojik bir tercih değildir. Din değiştiren Türk gençlerine baktığınız zaman yeni dinleriyle alâkalı bilgilerinin çok olmadığını görürsünüz. Tercih ettikleri Hıristiyanlık değil Batılılıktır. Zaten yıllardır Batılılaşma amacında olan ve bunu bütünüyle gündemde tutan bir toplumuz. Doğal olarak din değiştirme bu işin son noktasıdır. Kimlik parçalanması, bulunduğu toplumun kültürel, sosyal ve belki ekonomik yapısıyla bütünleşememe gibi faktörlerin yanında yanlış din eğitimi de gençlerin din değiştirmesinde etkili oluyor.
+       <br/>
+       <br/>
+       -Koyu dindarken, namazında orucunda iken birden kiliselerde görev almaya başlayan insanlarımız oldu. Bu nasıl açıklanabilir? Üzerinde çalıştığınız deneklerden sıkı bir dini eğitim almış olanların din değiştirmesini nasıl açıklıyorsunuz?
+       <br/>
+       <br/>
+       İyi dini eğitim almış kişilerin din değiştirmesi pek beklenmez. Ancak araştırmalarımızda şunu gördük: Din değiştirenlerin yaklaşık yüzde 20"sinin aslında çok iyi bir dini temeli var. Dolayısıyla olayın sadece din eğitimi boyutu yok. Sosyolojik, psikolojik ve teolojik boyutu var. Karşı bir dine yönelen kişinin tüm hayatının incelenmesi gerekir. Psikolojik açıdan incelendiğinde çocukluk ve ilk gençlik döneminde yaşanan yabancılaşmanın önemli olduğu ortaya çıkar. Benim tezim şudur: Hıristiyanlığı Kenyalılar sunsaydı kimse Hıristiyan olmazdı. Dolayısıyla tercih din değil Batılılıktır. -Ama çok radikal bir hareket değil midir? Camiye giderken kiliseye gitmeye başlamak?
+       <br/>
+       <br/>
+       Bir uçtan diğer uça geçmek tüm dinlerde mümkün. Sebebi ne olursa olsun yaptığı eylemden haz almama ya da benimsememe duygusunu yaşadığı da ortaya çıkıyor. Kişide çok önceleri yumurtlamaya yatmış hisler vardır ve gün gelir ansızın ortaya çıkar. Dışarıdan bir anda olmuş bitmiş gibi gözükür ancak o kişi kendi iç dünyasında uzun süre bu tartışmayı yaşamıştır. Bazılarının da kişiliği böyledir, yani hep uçlarda yaşamıştır ve din değiştirmeyi de bu kapsamda değerlendirir.
+       <br/>
+       <br/>
+       -Gizli gizli, dine yabancılaşma mı yaşadık?
+       <br/>
+       <br/>
+       1980"lerden bu yana toplumsal bunalım yaşadık. Dünyada değişik dinlere geçenler üzerine yapılan araştırmalarda ortaya çıkan verilere göre kendi toplumunda mutlu olamayanlar kendisini daha mutlu hissedeceği bir yapı arayışına giriyor. Kendi toplumuyla özdeşleşmemiş kişiler kolay din değiştiriyor.
+       <br/>
+       <br/>
+       -Başka bir din hangi noktadan cazip geliyor?
+       <br/>
+       <br/>
+       Genç, yeni kimliğiyle daha mutlu olacağını umarak din tercihi yapıyor. Bir başka noktadan da bakıldığı zaman din yani İslam çok yük getiren bir din gibi gözüküyor. Bunda yanlış din eğitimi de etkili. Cezalandırıcı tanrı imajı karşısında sevgi dini olduğunu arz eden bir din var.
+       <br/>
+       <br/>
+       -Peki misyonerler olmasa da insanlar internetten ya da kitaplardan araştırıp din değiştirebilir mi? Misyonerler bu işte ne kadar etkilidir?
+       <br/>
+       <br/>
+       Şunu gözden kaçırmamak lazım. Başka insanlarla kontak kurmadan, diyaloğa geçmeden din değiştirmek mümkün değildir. İstediğiniz kadar kitaplardan okuyun, internetten takip edin bir şekilde o dinin müntesipleri ile tanışmamışsanız din değiştirmeniz zordur. Bu noktada misyonerlerin etkisinden söz edebiliriz. Temas olmadan din değiştiren olmamış. Fakat propagandalar olmasa da din değiştirebilirdi. Hıristiyan olmasalardı dini tamamen gündemlerinden çıkartmış olurlardı.
+       <br/>
+       <br/>
+       -Bizde Hıristiyanlığa geçişte artış varken Batı toplumlarında da İslama ilgi artıyor. Bu tezat neden?
+       <br/>
+       <br/>
+       11 Eylül"den sonra ilginçtir İslama yönelişte bir artış var. O gençlerin genel özelliği de çoğunun sosyalist olması. Yani bir bakıma dünyada aksaklıkların kaynağı olarak gördükleri Batı toplumundan intikamı Müslüman olarak alıyorlar kendilerince. 11 Eylül"ü Batı toplumlarından Doğu toplumlarının intikamı olarak görüyorlar. Zaten kendi toplumuna ve dinine yabancı olan Türk gençleri de üzerlerindeki din baskısını atmak için Hıristiyanlığı seçiyor.
+       <br/>
+       <br/>
+       -Peki misyonerlik faktörü olmasa bu sorun çözülür mü?
+       <br/>
+       <br/>
+       Hayatın tüm alanlarında bir liberalleşme süreci var dünyada. Öncelikle yasaklamak artık mümkün değil. Dolayısıyla kimseyi misyonerlik yaptığı yönünde suçlayamazsınız. Hem tüm misyonerleri kovsanız bile günün birinde birilerinin dinini değiştirdiğini görebilirsiniz. Amerika"da Religion Marketing diye bir şey var. Herkes dinini anlatır, siz seçersiniz. Bundan kaçış yok. Ayrıca falanca din aliminin ya da falanca mezhebin tüm fikirlerini kabul etmek zorunda değilim diyor günümüz insanı. Farklı görüşleri temsil eden insanları dinleyip kendine bir yol çiziyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11466&yorum=1234), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050121180425/http://www.aksiyon.com.tr:80/detay.php?id=11466&yorum=1234)

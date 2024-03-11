@@ -1,0 +1,79 @@
+# Câlib—i Şüphe Tartışmalar ve Tehlikeli Alâkalar
+
+*Durmuş Hocaoğlu Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   “Herşey, tıpkı usta bir stratejistin elinden çıkmış san’atkârâne bir harp planı gibi; parçalar dağınık, ama bir kompozisyon içerisinde mütâlea edilince mânidâr bir tablo çıkıyor ortaya.”
+   <br/>
+   <br/>
+   Sovyetlerin çökme sürecine girişinden beri meydana gelen gelişmeler sonucunda, Türkiye’nin, Batı nezdinde, Sovyet ürküntüsünden kaynaklanan pozitif önemi zâil olmakta, tersinden, negatif bir önem ortaya çıkmaktadır. Asırlar boyunca Batı ile gırtlak—gırtlağa boğuştuktan sonra, dünya şartlarının değişmesi yüzünden bu çatışmaya ara verilmesiyle, bütün dünyayı tehdit eden yayılmacı Sovyet gücü karşısında Batı ile aynı safta buluşan ve bunun sonucunda da bu tarihî kavga döneminin bir daha avdet etmemek üzere ebediyen kapandığına ve kendisinin Batı için ilelebed vazgeçilemez bir dost (?) ve müttefik olacağına iyice inanan Türkiye ile Batı arasındaki eski çamlar bardak olmak üzeredir.
+   <br>
+    <br>
+     ...Şartlar değişmiştir; öyleyse politika da değişecektir: Düne kadar kendisini Sovyetler’e karşı Batı kalkanı ile koruyan ve aynı şekilde kendisi de Batı’yı koruyan Türkiye, şimdi kendisini, metodları çok değişmiş ve çok daha müessir hâle gelmiş olan Batı saldırganlığına karşı korumalıdır.
+     <br>
+      <br>
+       ***
+       <br>
+        <br>
+         İşte, ülkemizde birtakım “câlib—i şüphe tartışmalar” ve “tehlikeli alâkalar” da işbu “câlib—i dikkat kesişmeler kavşağında” vuku’ bulan bu hâdisât ile hem—zaman olarak başla(tıl)dı ve geliş(tiril)di. Herşey, tıpkı usta bir stratejistin elinden çıkmış san’atkârâne bir harp planı gibi; parçalar dağınık, ama bir kompozisyon içerisinde mütâlea edilince mânidâr bir tablo çıkıyor ortaya.
+         <br/>
+         <br/>
+         En ziyâde câlib—i dikkat bir gelişme olduğu hâlde, bölgesinde güç ve söz sâhibi, üniter bir Türkiye’nin müsbet ehemmiyetinin azalmaya ve menfî ehemmiyetinin artmaya yüz tutması ile PKK terörünün patla(tıl)ması ve Türkiye’ye senelerce kan kusturarak, O’nu adetâ “para—normal” bir hâle getirmesi ve birçok bakımdan siyâsî, iktisâdî ve içtimâî erozyon ve çürümeye sebebiyet vermesi ve bütün bunların hemen dâimâ akıl hocalarının, finansörlerinin Batı’da olmasının bu makas değişimi ile alâka ve râbıtası tartışma konusu edilmedi.
+         <br/>
+         <br/>
+         Fakat, bu arada, çok düşük bir seyir hızına sâhip olduğu için pek fazla dikkat çekmeyen, ancak, zamanla büyüyerek azmanlaşıp karşımıza dikilen bir başka gelişme de, hep Türklerin aleyhine olacak olan “eski defterler”in yeniden açılması olmuştur. Bu satırlarda, Dünya’da ve Türkiye’de Türklerin binbir dert ve sıkıntı ile kıvrandığı, dünya ölçeğinde en fazla hürriyetinden mahrum olan kitlenin Türkler olduğu zamanlarda dahi (el’ân dahi öyledir) “Türk için” kalem oynatmayı neredeyse zül telâkkî eden birçok “medyatör”ün adetâ başını açmadan seğirttiği ve birçok iyi niyetli safdilin de destek verdiği bu eski defterlerden ikisi, bunların büyüğüdür.
+         <br/>
+         <br/>
+         İstiklâl Harbi’nden sonra, Anadolu’da hâlâ önemli kitlesel büyüklükleri bulunan Rum ekalliyet, Harb’in muzaffer kurmay hey’eti tarafından, kan dökmeden, gayet barışçı metodlarla bu topraklardan “mübâdele” ile tard edilmişlerdi. Bu ihrac, İstiklâl Harbi’nin politik bir uzantısı idi ve O’nu taçlandırıyordu; zamanlaması gayet yerindeydi ve de bütünüyle haklıydı: “Bizler”, artık bundan böyle, bu eski vatandaşlarımızla dost olamazdık; çünkü aramıza kan girmişti. Hikmetli bir halk hikâyesinde anlatıldığı veçhiyle, Onlar’da kuyruk acısı vardı, Biz’de ise evlât acısı. Bu ihrâcı, daha sonraki yıllarda, İstanbul’un daha kesif bir sûrette Türkleştirilmesi (ve İslâmlaştırılması) tâkip etti.
+         <br/>
+         <br/>
+         İşte şimdi kanatırcasına kaşınan bu “eski yaralar”dan birisi de budur; mûtâd olduğu veçhiyle san’at ve edebiyat üzerinden başlatılan bu “estetik—politik” taarruzun bir tek gayesi olduğunu anlamamak için sıra—altı bir zekâ dahi kifâyet etmeyecektir. Anadolu’dan Belde—i Tayyibe’ye gelen bu ülkenin gerçek sâhiplerini aşağılayanların, onların şîveleri, müzikleri, kıyâfetleri ve lâhmâcunlarıyla ve hattâ bir fütûhat sembolü gibi diktikleri câmileriyle edepsizce alay eden hayâsız “entel” makulesinin, beş asır İmparatorluk pâyitahtında birlikte yaşadığı ve aynı zamanda “millet—i hâkime” olan Türklerin dilini doğru—düzgün öğrenmeye dahi lüzum görmeyen ve İmparatorluğun kanını emen İstanbullu ekalliyetlerin zenginlik unsuru olduğuna ve Ülke kültürüne büyük katkılarda bulunduğuna dâir ileri sürdükleri saçmalıklar komik bile değil; komedi haysiyetli bir san’attır, soytarılık değil.
+         <br/>
+         <br/>
+         Aynı tehlikeli alâkanın câlib—i dikkat ve şeddâd uzantılarından birisi ve en azılısı ise, “Ermeni Tehciri”dir. Artık kendilerini çok da gizleme gereği duymayacak kadar pervâsızlaşmış içimizdeki “ötekiler”in kabul ettirmeye çalıştığı tezin basitleştirilmiş şekli şudur: “Vâkıa Ermeniler de biraz ayıp ettiler, biraz Türk öldürdüler, ama, kabul etmek gerektir ki Türkler de ölçüyü kaçırdı; onları vatanlarından sürdü, kesti, soylarını kuruttu. Şimdilik yapacağımız şey çok basit: “Soykırım”ı kabul edelim. Edelim canım; ne çıkar!... Hele bir kabul edelim, gerisi nasıl olsa gelir.”
+         <br/>
+         <br/>
+         ***
+         <br/>
+         <br/>
+         Nasıl olsa Türk aptal ya; usul—usul söylenirse, O’na kabul ettirilemeyecek hiçbir şey yoktur.
+         <br/>
+         <br/>
+         Nasıl olsa Türk aptal; “kendi gerçeklerimizle yüz—yüze gelmek” maskesinin arkasına gizlenerek icrâ edilen bütün bu cılk tartışmaların, önümüze konan “Ermeni Soykırımı’nı kabul et” dayatmasıyla; 65 milyon dolar gibi yüksek bir bütçe ile hazırlanan “Ararat” filminin vizyona girmesinin yaklaşmasıyla; Körfez Harbi ile başlayıp Afgan Harbi ile devam eden ve kısa sürede Batı’nın Doğu’yu bloke etmesiyle sonuçlanan garip çatışmalar zinciri ile; Fukuyama ve Huntington’un tezleri ile, Churchill’in 55 yıl önce açıkça hedef olarak işâret ettiği “Avrupa Birleşik Devletleri” projesi ile ne hârika bir şekilde kesiştiğini fehm ve idrâk edemez.
+         <br/>
+         <br/>
+         Ve kezâ, Türk aptal; Çünkü O’na lâyık görülen iki görevi var: Evvelce İmparatorluğun, şimdi ise Cumhuriyet’in topraklarını korumak için “ölmek” ve bir de “çiftçilik ve amelelik yapmak”. Türk aptal olduğundan nâşi, kendisi “ölürken ve köylülük ve amelelik ile iştigal ederken”, bu ülkenin dilini bile adam gibi öğrenmeyenlerin nasıl olup da ülkenin servetlerini zimmetlerine geçirdiğini ve kendisinin yükselmesinin yolunu nasıl tıkadığını anlayamaz. Türk “aptal” ve Türk “köylü”. Onun için, hiç kimse O’nun romanını yazmaz, filmini de yapmaz.
+         <br/>
+         <br/>
+         ***
+         <br/>
+         <br/>
+         Ey Türk! Haddini bil! Sen köylüsün ve amelesin, köylü ve amele kal! İstanbul’a yakışmazsın! Bu cânım şehri kirlettiğin yetti gayri! Seni buradan kovmanın ve Varlık Vergisi ile mutazarrır edilen gayri müslim ekalliyetlerimizi af ve nedâmet dileyip zarar—ziyanlarını tazmîn ederek geriye çağırmanın vakti gelmiştir; köyüne defol!
+         <br/>
+         <br/>
+         ***
+         <br/>
+         <br/>
+         Hâmiş: Unutma! Şâyet ihtiyaç hâsıl olursa, seni yine “ölmek” için çağırırız; Bizden haber bekle! O zaman belki senin için de bir “Battal Gaazî” filmi yapıveririz.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 12 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12261), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302051109/http://www.aksiyon.com.tr:80/yazdir.php?id=12261)

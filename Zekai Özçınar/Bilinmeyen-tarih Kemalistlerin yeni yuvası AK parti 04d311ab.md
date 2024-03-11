@@ -1,0 +1,83 @@
+# Kemalistlerin yeni yuvası AK parti
+
+*Zekai Özçınar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041015052320im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041015052320im_/http://www.aksiyon.com.tr/resim/502/38.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  CHP’nin Adana ve Edirne Milletvekilleri Atilla Başoğlu ve Necdet Budak’ın AK Parti’ye geçmesi, ‘transfer’ meselesini gündeme getirdi. Vekillerin AK Parti’yi tercih etmesinde CHP’de huzur bulamamaları önemli bir rol oynadı.
+ </font>
+ <p>
+  <font class="content">
+   Atilla Başoğlu, eski partisini daha az ‘Kemalist’ olarak nitelendiriyor ve halkla barışması gerektiğini dile getiriyor. “Kestirme yoldan kendilerini iktidara taşıdılar” diyordu kızgınlıkla, CHP lideri Deniz Baykal, AK Parti’ye geçen iki milletvekili arkadaşı için. “Siyasi transfer” olgusuna, toplumdaki algılanışı ile örtüşen ironik eleştiri getirerek... Adana Milletvekili Atilla Başoğlu ile Edirne Milletvekili Necdet Budak’ın CHP’den ayrılarak AK Parti’ye katılmaları, Ankara’daki siyasi kulisleri hareketlendirdi. Özellikle de parti değiştirme hastalığı açısından...
+   <br/>
+   <br/>
+   Şüphesiz, ‘transfer virüsü’nün Türk siyasetine girişi, çok eskilere dayanıyor. 1978’deki “Güneş Motel”, bir başka deyişle “11’ler” olayı, ilk akla gelenlerden. “Kumar borcu olmayan 11 milletvekili” arayan dönemin CHP lideri Bülent Ecevit, AP’den gelen bu sayıdaki milletvekili sayesinde hükümet kurmuştu o zaman.
+   <br/>
+   <br/>
+   1996’da kapatılan RP’nin lideri Necmettin Erbakan başbakanlığında kurulan Refahyol hükümeti de benzer bir tecrübeyi yaşadı. 28 Şubat süreci, koalisyon ortağı DYP’den kopuşları hızlandırdı. Yazılan senaryolara uygun olarak bu partiden kopan vekiller, daha sonra kurulacak hükümete yamanacak Demokrat Türkiye Partisi’ne (DTP) geçti. Ama, bu formül siyasi istikrarı getirmedi, hükümet dağıldı, DTP siyasi arenadan silinip gitti.
+   <br/>
+   <br/>
+   ‘Fırıldak Kubi’yi hatırlamak
+   <br/>
+   <br/>
+   Transfer olayı, 2002 yılında da gündeme geldi. DSP-MHP-ANAP koalisyonunun Başbakanı Bülent Ecevit’in hastalığı, partisi DSP’yi ortadan ikiye bölmeye, ülkeyi de seçime götürmeye yetti. Sonuç olarak, koalisyon ortakları seçim barajına takıldı, DSP’den kopanların toplandığı YTP’den geriye sadece tabelası kaldı.
+   <br/>
+   <br/>
+   Transfer virüsünün vekilleri ne hale getirdiğine en güzel örnek, Afyon eski milletvekili Kubilay Uygun olsa gerek. Transfer tarihinin “en seçkin siması” olarak hafızalara kazınan Kubilay Uygun, altı parti değiştiren, hatta bir gün içinde üç partiye girip çıkmasıyla meşhur olan eski bir milletvekili. “Fırıldak Kubi” lakabının, parti değiştiren her vekile uyarlanması geleneğinin yerleşmesi de kuşkusuz onun eseri.
+   <br/>
+   <br/>
+   CHP’deki bunalımın yansıması
+   <br/>
+   <br/>
+   İki milletvekilinin CHP’den ayrılarak AK Parti’ye katılmalarını, sırf bu örneklere bakarak değerlendirmek sağlıklı değil elbette. Vekillerin parti değiştirmesi, her şeyden önce, ülkeyi rejim sorununa sürükleyecek siyasi bir krizin habercisi değil. Aksine, CHP içindeki bunalımın dışarıya yansıması aslında.
+   <br/>
+   <br/>
+   Burada asıl üzerinde durulması gereken konu, bu iki milletvekilinin neden partilerinden koptuğudur. 28 Mart mahalli seçimlerinin alevlendirdiği sancıdan doğan parti içi muhalefet, bir bütünlük sağlayamadı. Kurultay girişimlerinden netice alınamadı. Baykal’ın “çapulcu” suçlamasına, ihraç mekanizmasının kurulması eklendi. Belki de başka seçenek kalmamıştı  vekillerin önünde.
+   <br/>
+   <br/>
+   Ağrı Milletvekili Cemal Kaya ve Batman Milletvekili M. Nezir Nasıroğlu, daha önce CHP’den koparak AK Parti’ye katılanlardan... “Sol yakalarında ampul rozeti taşıyan” iki vekil, şimdi hayatlarından oldukça memnun. Cemal Kaya, “Dedikodunun olmadığı, herkesin özgürce fikrini söylediği, millete hizmet için çırpınan yerdeyim” diyor. AK Parti’de yabancılık çekmediğini, laiklik karşıtı bir tutum görmediğini vurguluyor. Dünyada ideolojilerin kalmadığının, “iyi yönetenlerle yönetemeyenler ayrımı olduğunun” altını çiziyor. Parti değiştirmenin kötü bir şey olmadığını da iddia ediyor Kaya. Ona göre, “din, cinsiyet ve eş değiştiriliyorsa, parti de değiştirilebilir.” Kaya, CHP’ye de çağrıyı ihmal etmiyor: “Toplumu kucaklayın. Bireysel tercihlere saygılı olun. İyi yönetemezseniz depremi önleyemezsiniz.”
+   <br/>
+   <br/>
+   Nasıroğlu da, kendi deyimiyle “huzuru AK Parti’de bulmuş.” CHP’den Doğu ve Güneydoğu politikalarındaki görüş ayrılığı sebebiyle kopmuş. Bağımsız kalmayı düşünmüş önce. Ancak, Batmanlıya hizmeti böyle veremeyeceği kanaatine varınca AK Parti’ye geçmiş. “Siyasi hayatıma son noktayı AK Parti’de koyacağım. Daha özgürlükçü ve her görüşe açık hale gelmiş ki, herkes buraya koşuyor” diyecek kadar da yeni partisini benimsemiş.
+   <br/>
+   <br/>
+   Cumadan çıkan dede ile
+   <br/>
+   <br/>
+   torunun partiye gitmesi
+   <br/>
+   <br/>
+   AK Parti’de CHP kökenli milletvekili sayısı son iki katılımla dörde çıktı. Adana milletvekili Atila Başoğlu, çiçeği burnunda AK Partililer arasında hiç kuşkusuz en renkli olanı. İstifa ettiği CHP’yi “az Kemalist” bulacak kadar da sıkı Atatürkçü. “AK Parti’de daha fazla Atatürkçü var” sözü de ona ait. Başoğlu, Aksiyon’a konuşurken ilginç açıklamalarda bulunuyor. Sosyal demokrat görüşü, Atatürk sevgisinin etkisiyle benimsemiş. Aynı zamanda, 14 yıllık Rotaryen. Masonluğu kastederek “Atatürk’ün kapattığı derneklere girmem” diyor. Dedesi, her cuma namazı çıkışında elinden tutarak CHP binasına götürürmüş Başoğlu’nu. O günleri hasretle anıyor ve CHP’nin bu “dede-torun” görüntüsünü kaybettiğinden yakınıyor.
+   <br/>
+   <br/>
+   Türkçe ibadet ediyor
+   <br/>
+   <br/>
+   Başoğlu, Türkçe ibadeti tercih ediyor. Namazlarını da böyle kılıyor. Yurtdışında iken Almanca ve Türkçe Kur’an’ı Kerim istediği kişilerden “Türkler Arapça okuyacak” karşılığını alması, bu tercihe yöneltmiş. Masasının başköşesini, Yaşar Nuri Öztürk’ün Kur’an meali süslüyor. Ancak, başkalarının ibadet diline de saygılı. Başoğlu, “ulusalcı” kimliğiyle de tanınıyor. MHP’lilerden, “Senin gibi 10 milletvekili daha olsa, partiyi kapatırız” telefonları almış. Dil hassasiyetini, “Allah” yerine “Tanrı”, “Yüce Yaratıcı” kelimelerini kullanarak sergiliyor.
+   <br/>
+   <br/>
+   Başoğlu, büyük umutlarla Meclis’e gelmiş. İşe hızlı başlamış. Çoğu hükümeti eleştiren 466 soru önergesiyle denetim görevini yapmaya çalışmış. CHP’den kopuşu ise parti içinde yaşanan sıkıntılar getirmiş. “Dedikodular bıktırdı. Çetin günler yaşadım. Zaten biçeceklerdi” diyor.
+   <br/>
+   <br/>
+   AK Parti, Başoğlu için farklı bir ortam. Buna rağmen, endişe taşımadığını belirtiyor. Çok düşünmüş, eşi ve çocuklarının olurunu almış. Orada da, “Atatürk’e gönül vermiş Kemalistler olduğuna” inanıyor. Hatta, sayılarını daha fazla buluyor. Türkiye’de bazı şeylerin yanlış yönlendirildiğinin altını çiziyor ve “AK Parti, Kemaliste, Atatürkçüye bağrını açıyor. Sıkıntı, bu partiyi anti-laik görmek isteyenlerden kaynaklanıyor. İçim rahat girdim” diyor.
+   <br/>
+   <br/>
+   CHP, bir enstitü tarafından incelensin
+   <br/>
+   <br/>
+   Başoğlu, eski partisinin şapkayı çıkarıp düşünmesini ve kendini bir enstitüye incelettirmesini öneriyor. “CHP denildiğinde neden, Anadolu’ya yabancı, inançtan kopuk bir hareketin algılandığı” üzerinde durulmasını istiyor. Ardından konuyu, laiklik tartışmalarına getiriyor: “Atatürk, halkla, hocalarla, dinin ileri gelenleriyle açmış Meclis’i. Hem de dualarla. CHP’deki bugünkü anlayış, Atatürk zamanında yoktu.” Transfer tartışması, bir süre daha ülke gündemeini meşgul edeceğe benziyor. Tartışmanın istikrar ortamında yapılıyor olması ise bir şans.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=12625&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041015052320/http://aksiyon.com.tr:80/detay.php?id=12625&yorum_id=1)

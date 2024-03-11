@@ -1,0 +1,100 @@
+# Şimdi moda 'Made in Turkey'
+
+*Zafer Özcan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Zor bir dönemden geçen Türk hazır giyim ve tekstil sektörü perşembe günü başlayacak İstanbul Uluslararası Hazır Giyim Fuarı’nın heyecanını yaşıyor. Fuarın temel amacı Türk markalarını görücüye çıkarmak ve İstanbul’u bir moda merkezi haline getirmek için fitili ateşleyebilmek!
+   <br/>
+   <br/>
+   Türkiye'nin lokomotif sektörü olan tekstil, krizin kıskacından kurtulamadığı gibi önümüzdeki dönem için de kara kara düşünüdürüyor. Dünya Ticaret Örgütü'nün 2005 yılında kotaları kaldıracak olması ve Çin tehlikesi sektörün önündeki tek sorun değil. İstihdam üzerindeki vergilerin yüksekliği de sanayicinin belini büküyor. Türkiye Giyim Sanayicileri Derneği (TGSD) Başkanı Umut Oran, hükümeti acil eylem planıyla tedbir almaya çağırıyor: "Türkiye'de devletin eli özel sektörün cebinde ve özel sektör halen bıçak sırtında. Bu gerçeği konuşmamız lazım."
+   <br>
+    <br>
+     Uluslararası Hazır Giyim Fuarı ise sektörün umut bağladığı büyük bir organizasyon. Giyim sanayicileri ve tasarımcılar son yıllarda İstanbul ve moda ilişkisi üzerine kafa yoruyordu. 19 - 21 Ağustos tarihleri arasında düzenlenecek olan fuara 11 sivil toplum kuruluşu katkı sağladı. Dünyanın en büyük moda fuarlarını organize eden Alman IGEDO firmasının da desteği alındı. Moda fuarı sektörün yaşadığı sıkıntılar açısından bir nefes alma şansı olarak görülüyor.
+     <br>
+      <br>
+       Tekstil sıkıntıya girerse, Türkiye de sıkıntıya girer!
+       <br>
+        <br>
+         2003 yılını 15 milyar dolar ihracat ile kapatan ve 2004 yılı hedefini de 19 milyar dolar olarak belirleyen sektör büyük istihdam potansiyeliyle de ülkedeki sosyal barışın çimentosu konumunda. Sektörün Türkiye'de 25 yıllık bir geçmişi var. Halen birinci kuşak işin başında. Fason üretimle işe başlayan sektör bugün üretimde bir dünya markası haline geldi. Dünyanın önde gelen bütün markaları için üretim yapılırken, Türkiye hazır giyim ve tekstil üretiminde Çin'den sonra ikinci büyük dev olabilmek için İtalya ile yarışıyor. Hazır giyimde 30 binin üzerindeki firmada 2 milyon kişi istihdam ediliyor. Tekstil sanayii de toplam 2 bin firmada 500 bin kişilik bir istihdam sağlıyor. Bu sektörler ithalata dayalı olmadıkları için, yapılan ihracat tamamen Türkiye’nin artı hanesine yazılıyor.
+         <br/>
+         <br/>
+         Peki, Türkiye'nin geleceği adına bu kadar önem taşıyan tekstil ve hazır giyim sektörünün 2005 sonrasında da gücünü koruyabilmesi için ne yapmak gerekiyor? Cevap Umut Oran'dan: "Bizim müdahale edemediğimiz husus yatırım ortamının iyileştirilmesi ve sürdürülebilir rekabet imkanlarının sağlanması. Yani devletin artık özel sektörün sırtından inmesi gerekiyor. 2005 yılına 140 gün kaldı ve bu durum düzelmediği sürece sektörün tek başına bununla başedebilmesi mümkün değil!" Türkiye'de istihdam üzerindeki vergi oranı yüzde 41, bu oran rekabet halindeki Avrupa ülkelerinde sadece yüzde 24. Bir başka deyişle Türkiye istihdam üzerindeki vergi yükünde dünya birincisi. Sanayicilerin acil eylem planındaki bir diğer talebi ise bölgesel asgari ücret uygulamasına geçilmesi. Çünkü her ildeki geçim olanakları farklı. Buna ek olarak istihdam sayısına göre kademeli olarak vergi indirimi getirilmeli. Umut Oran, AB'ye yeni üye olan 10 ülkeden 7'sinde asgari ücretin Türkiye'den daha düşük olduğuna işaret ediyor. Oran bu durumun sanayicinin rekabet şansını yok ettiğini düşünüyor. Bu koşullar altında da Türkiye'nin yatırım çekebilmesinin ve sürdürülebilir rekabetin mümkün olmadığının altını çiziyor.
+         <br/>
+         <br/>
+         Umut Oran, bütün umutların yıl sonunda AB'den tarih alınmasıyla ilişkilendirilmesini de gerçekçi bulmuyor ve tarih alınsa bile bunun yabancı sermayenin hemen Türkiye'ye akması anlamına gelmeyeceğine dikkat çekiyor. Yabancı sermayenin para kazanmayacağı bir ülkeye gitmeyeceğini vurguluyor.
+         <br/>
+         <br/>
+         Avrupa'daki 35 marka için üretim yapan Suteks'in Yönetim Kurulu Başkanı Nur Ger de, istihdam üzerindeki vergi yükünden şikayet eden sanayicilerden. Hiçbir hükümetin bu konuyu ciddiye almadığını vurguluyan Nur Ger, bu durumun üreticiyi kayıtdışı çalışmaya ittiğini belirtiyor. Avrupa standartlarının çok üzerinde olan vergi yükünün küçük işletmelerin büyümesini engellediğini ve daha büyük istihdam sağlamak isteyen şirketleri de kayıtdışı çalışmaya teşvik ettiğini söyleyen Ger, "Tekstil ve hazır giyim gibi emek yoğun sektörler için bu noktada büyük problem var. Zaten son dönemlerde Türk lirasının değerinden dolayı Türkiye pazar kaybediyordu. Avrupa'da son dönem satışlar çok parlak değil. Yılın ikinci yarısında artan bir talep olacağını düşünmüyorum" diyor.
+         <br/>
+         <br/>
+         3 bin dolar gelirle marka olunmaz!
+         <br/>
+         <br/>
+         Fuarın düzenleme konseyi başkanlığını da TGSD Başkanı Umut Oran yürütüyor. Oran, İstanbul'un moda merkezi olması yolundaki hedefi 2010 olarak gösteriyor; "Bir yol haritamız var. İki moda enstitüsü İstanbul'da gelecek yıl faaliyete geçecek. Moda haftaları düzenlenecek ve İstanbul, moda takvimlerinde yer alacak. İstanbul'u güçlü ve parlayan bir marka haline getireceğiz." Paris ve Milano gibi şehirlerle başetmek kolay değil ama İstanbul en azından yola girmiş durumda. Dünya markalarının çıktığı ülkelerin milli gelirinin 15 bin dolardan başladığına işaret eden Oran, 3 bin dolarda dolaşan bir ülkeden dünya markaları çıkarmanın kolay olmadığını düşünüyor.
+         <br/>
+         <br/>
+         Turizm markası olan İstanbul; moda markası da olmalı. Birleşmiş Markalar Derneği Başkanı Saruhan Tan da bugün tarihi ve turistik açıdan marka kent olan İstanbul'un, moda ve alışveriş merkezi olarak da markalaşmasının zamanının geldiği görüşünde. Uluslararası ziyaretçiler fuar vesilesiyle Türk markalarını yakından tanıma imkanı bulacak. Saruhan Tan, "Sektör temsilcisi profesyonel ziyaretçiler, Türk markalarının gerek konsept gerek sunum gerekse görsel açıdan dünya standartlarının da önünde olduğunu bizzat görebilecek." diyor.
+         <br/>
+         <br/>
+         Türkiye'deki markalaşma çalışmalarında devlet teşvikleri önemli bir katkı sağlıyor. Dış Ticaret Müsteşarlığı tarafından, BMD'nin önerileriyle hazırlanan 2003/3 sayılı Tebliğ, "Türk Ürünlerinin Yurtdışında Markalaşması" konusunu ele alıyor ve sektörel derneklere, birliklere ve şirketlere marka tescili, tanıtım faaliyeti, defile, show, mağaza veya reyon kiralama giderleri gibi alanlarda yıllık 300-350 bin dolara varan oranlarda destek sağlanıyor. BMD üyeleri, Türkiye'de ve tüm dünyada 2500'e yakın mağaza ve altı yüzbin metrekare satış alanına sahip. Dernek üyeleri, üretim ve mağazacılık alanında 40 000'e yakın kişiye de istihdam sağlıyor. Bu mağazaların bir bölümü ise ABD, Avrupa Birliği ülkeleri, Rusya, Balkanlar ve Ortadoğu ülkelerinde yer alıyor.
+         <br/>
+         <br/>
+         SÜLEYMAN ORAKÇIOĞLU*
+         <br/>
+         <br/>
+         HER TEKSTİLCİNİN MARKALAŞMASI ŞART DEĞİL!
+         <br/>
+         <br/>
+         Bu fuarın sektör için önemi nedir?
+         <br/>
+         <br/>
+         Tekstil ve hazır giyim sektörü olarak üretim, kalite, katma değeri yüksek ürün üretme ve pazarlardaki servis anlamında çok büyük bir güç haline geldik. Şimdi bunu kendi tasarımcılarımız ve markalarımızla 'Dünya pazarlarında varız' mesajını vermek istiyoruz. Bu mesajı verebilmek için de bütün sektör böyle bir fuarda bir araya geldi. Bu açıdan bize yakışacak bir organizasyon oldu. Böyle bir moda fuarının Türkiye için şimdiye kadar olmaması bir kayıptır. Yaptığımız işi artık Dünya ölçeğinde düşünerek yapmak zorundayız.
+         <br/>
+         <br/>
+         İstanbul'un moda merkezi olması gibi bir beklenti var sektörde. Sizce bu gerçekçi bir yaklaşım mı?
+         <br/>
+         <br/>
+         Moda merkezi olmak sadece fuarla olmaz. İstanbul'u moda aktiviteleri adına çekim merkezi haline getirmemiz lazım. İstanbul zaten kendisi Dünya'da bir marka. Biz bu marka ile birlikte sektörün gerçek gücünü ortaya koyan organizasyonları birleştirir, bu kenti bir moda merkezi haline getirebiliriz. İstanbul moda günleri, moda festivali ve 14 yıldır yapılan genç tasarımcılar yarışmasını uluslararası boyuta taşımak önemli. İstanbul'u artık dünya markalarına üretim yapan ve servis veren bir ülke konumundan moda endüstrisinin bir parçası olma konumuna taşımamız gerekiyor.
+         <br/>
+         <br/>
+         Siz Damat - Tween markasıyla ortaya çıktınız. Neden Türkiye'den dünya markaları çıkmıyor?
+         <br/>
+         <br/>
+         Türkiye'nin Dünya markaları çıkarması gerektiği konusuna kısmen katılıyorum, kısmen de katılmıyorum. Organize olma konusunda problemlerimiz var. Sektördeki gelişme tüm dünyanın dikkatini çekiyor. Son 5 aydır dünya basını ile röportaj yapıyorum çünkü sektördeki dinamizm ve gelişme onların da ilgisini çekiyor. Mesela son yapılan Düseldorf'daki SPD fuarının açılış seramonisini Türk tasarımcı Özlem Süer yaptı. Ümit İnal orada kendi kolleksiyonlarını sergiledi. Daha önce giremediğimiz fuarlarda şimdi moda gösterileri yapıyoruz. Fuar idareleri Türk tasarımcıların sponsorluğunu yapıyor. Daha önce bu fuaralara girmemiz imkansızdı. Artık Türk hazır giyim endüstrisi moda endüstrisi olma yolunda önemli adımlar atıyor. Geçmiş dönemde firmalar önce üretir sonra pazar arardı, şimdi tamamen pazar odaklı bir yapı var. Bir çok firma kendi kolleksiyonlarını kendi tasarımcıları ile hazırlıyor. Bu fuarda kendi gücümüzü sergileyebilirsek bu işin kartopu gibi büyüyeceğine inanıyorum. Güçlerimizi birleştirmek gerekiyor. Sektörde hiçbir dönemde olmayan büyük bir konsensus var. Bütün dernekler bir arada ve herkes başarıya endekslenmiş durumda.
+         <br/>
+         <br/>
+         İstanbul'da bir Paris'in bir Milano'nun potansiyeli yok mu? Paris sadece alışverişten yılda 25 milyar dolar gelir elde ediyor. Bu rakam Türkiye'nin ihracatından fazla...
+         <br/>
+         <br/>
+         İstanbul kıtaların buluştuğu, müthiş bir tarihe ve medeniyete sahip yönleriyle bütün dünyanın ilgisini çekiyor. Soru şu, biz bu statik enerjiyi nasıl kinetik enerjiye dönüştürebiliriz? İstanbul'da alışverişin bir cazibe merkezi olması için çok argüman var. İstanbul 22 ülkenin 2 saat uçuş mesafesinde ve bu da 350 - 400 milyonluk bir nüfusa tekabül ediyor. Paris'in satıştan elde ettiği gelirden önce o şehirdeki markaların şehrin imajına yaptıkları katkılara bakmak lazım. Made İn İtalya etiketinin gücü ve prestiji İtalyan markalarının başarısından kaynaklanıyor. O başarı, o endüstrinin en küçük üreticisinin bile ürününü değerli satmasına sebep oluyor. Burada bizim için de bir fırsat var ve bunu değerlendirebilecek güce sahibiz.
+         <br/>
+         <br/>
+         Türkiye'deki üretim kalitesini ve gücünü kanıtlayan hazır giyim endüstrisinin artık markalaşma sürecine girmesi konusunda ne düşünüyorsunuz?
+         <br/>
+         <br/>
+         Yaptığınız işi iyi yapmak ve aranılır olmak markalaşmak demektir zaten. Sıradan olmak dünyada bir değer ifade etmiyor. İtalya'daki hazır giyim ya da moda endüstrisinin sadece yüzde 25'i markalı üretici. Gerisi markalara üretim yapan bir endüstri. Biz de son zamanlarda, 'marka olursan ayakta kalırsın, olamazsan ölürsün' gibi bir anlayış var ve ben buna katılmıyorum. Dünya markalarına servis veren firmalarımızın yaptığını çok önemsiyorum. Marka tamamen görünmeyen değerlere yatırımdır. Reklam, tanıtım ve promosyon ve de kolleksiyon hazırlamak için harcadığınız bütçe kolay değil. Bir iki yıl içinde bir üreciticinin hemen markalaşmaya geçme çabası gerçekçi olmaz.
+         <br/>
+         <br/>
+         *İstanbul Hazır Giyim ve Konfeksiyon İhracatçıları Birliği Başkanı
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1809 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14435), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050223015319/http://www.aksiyon.com.tr:80/yazdir.php?id=14435)

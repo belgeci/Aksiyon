@@ -1,0 +1,82 @@
+# Suda yüzen şehır
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093050im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093050im_/http://www.aksiyon.com.tr/resim/344/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Amsterdam yüzlerce kanalı içinde barındıran bir şehir. Deniz seviyesine sıfır. Hatta bazı yerleri bir kaç metre altında. Buna rağmen su baskını gibi bir korku yaşamıyor. Saatlerce süren sağnak yağışın durmasıyla birlikte on dakika içinde hiçbir yerde su kalmıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Şehre su hakim ama Hollandalılar kanallara yaptıkları evlerle Amsterdam’ı adeta suda yüzen bir şehir haline getirmiş. 15 milyonluk ülkede 15 milyon bisiklet var. Caddelerde araba parkları kadar bisiklet parkı mevcut. Hollandalılar çok zorda kalmadıkları müddetçe ihtiyaçlarını bisikletle karşılıyor. Amsterdam geçtiğimiz hafta bir Türk sporu olan yağlı güreşlere beşinci kez ev sahipliği yaptı. Şehrin doğasına uygun olarak yağmur altında yapılan güreşler Avrupa’nın pek çok yöresinden Türkleri biraraya getirdiği gibi, Hollandalılarca da büyük ilgi gördü. İşte size, acemi bir seyyahın gözüyle suda yüzen bir şehrin ve ‘su altı’nda yapılan yağlı güreşlerin hikayesi...
+   <br>
+    <br>
+     Hiç, bir aylık askere gidenlerin anısını dinlediniz mi? Eğer askerlik anısı sevmeyenlerdenseniz tavsiye etmem. On sekiz ay askerlik yapanlardan daha çok anlatacakları vardır çünkü? Peki ne ilgisi var bunun şimdi Amsterdam ile demeyin, açıklıyorum. Sen yıllarca gazetecilik yap, mesai arkadaşlarının hepsi pek çok kez yurt dışına çıkmış olsun, üstelik onlarla aynı çatı altında bulun ve Avrupa’yı ilk kez gör. Olacak şey mi demeyin, oldu. Yurt dışı görenlerin dönüşlerinde kasım kasım kasılmalarını seyretmekten bıktım ve bütün engelleri aşarak Hollanda’ya gittim, hem de dört günlüğüne. Hem de özgürlüklerin sınırsız yaşandığı bir ülkeye. Aklıma geldi de, orada parti kapatmak diye bir mesele yok. Daha doğrusu kapatmak, yasaklamak kelimelerini başkent Amsterdam’ı çevreleyen yüzlerce kanallara atmışlar. İyi de olmuş demeye bile gerek yok..
+     <br>
+      <br>
+       Ülkenin her kurumunun içinde bulunduğu maddi krize (Buna elbetteki bizde dahiliz) katkım olsun dedim, maddi ve manevi hiçbir fedakarlıktan kaçınmayarak Hollanda’ya uçtum. Amaç, bu yıl 5.si düzenlenen Avrupa Yağlı Güreş Şampiyonası’nı izlemekti. Kırkpınar’da 640 yıldır yapılan güreşleri izlemek nasip olmadı ama, Hollanda’da Türkevi’nin olağanüstü gayretleriyle artık gelenekselleştirilen (1. Geleneksel değil, beşinci olduğu için geleneksel diyorum) güreş turnuvasını izleme şansını buldum. Üstelik de bardaktan boşanırcasına yağan yağmur altında. Türkiye’den giden başpehlivanların renk kattığı turnuvaya yurt dışında yaşayan Türkler gibi, Hollandalı güreşçiler de ilgi gösteriyor. Surinam asıllı siyah derili Hollandalı güreşlere renk katarken, baş güreşlere katılan, geçtiğimiz yıl birinci olan Hollandalı Melvin de izleyicilerden en çok alkışı alan güreşçi oldu.
+       <br/>
+       <br/>
+       Bu yıl ilk kez Türkiye Güreş Federasyonu turnuvaya resmi destek verdi ve Yağlı Güreş yöneticilerini Hollanda’ya gönderdi. Tabii ilk olmanın dezavantajları da yaşandı. Kırkpınar cazgırı, Türkün gücünü anlatan manileri orada da okuyunca biraz garip kaçtı. Türkevi’nin amacı (Türkiye için gönüllü lobicilik yapan Türkevi ve başkanı Veyis Güngör’ü bir kaç cümle ile anlatmak mümkün olmadığı için başka bir yazıda anlatacağım. Korkmayın, ondan başka Hollanda yazısı yazmayacağım) yağlı güreşleri tüm Avrupa’ya yaymak ve Türkiye’nin tanıtımını yapmak iken, ‘Viyana kapılarına dayanan ve küffara dersini veren Türk ordusu.... Türk’ün Türk’ten başka dostu yok’ diye bağıran cazgır adeta pişmiş aşa su kattı. Neyse ki gelen Hollandalılar onun ne dediğini anlamadı. Aksi halde Hollanda Dışışleri Bakanının gönderdiği tebrik mesajı da havada kalacaktı.
+       <br/>
+       <br/>
+       Yağmura rağmen gurbetçilerin yoğun bir ilgi gösterdiği güreşler, eğer Güreş Federasyonu politika değiştirmezse, yakın gelecekte bütün Avrupa’yı kapsayan bir organizasyon halini alacak. Hollanda Devleti güreşleri destekliyor. Orada yaşayan Türklerin arasından seçilen üç milletvekilinden ikisi gün boyunca yağan yağmura rağmen güreşleri izledi. Fedime Örgü ve Nebahat Albayrak’ın Hollanda Meclisi’nde bulunmaları Türkler için büyük bir şans. İktidardaki İşçi Partisi’nin milletvekili olan Nebahat Albayrak ile muhalefette olan Fadime Örgü alışkın olduğumuz, yaşlı ve göbekli milletvekillerinden oldukça farklı bir portre çiziyorlar. Hem genç ve güzel bir fiziğe sahipler, hem de yurt dışında yaşayan Türklerin sorunlarıyla yakından ilgileniyorlar. Ancak ne yazık ki onları daha yakından tanıma ve tanıtma fırsatı ‘zaman yokluğu’ndan gerçekleşmedi.
+       <br/>
+       <br/>
+       Her ülkeye bir Basri
+       <br/>
+       <br/>
+       Dört günün hepsini güreş izleyerek geçirmedik tabii ki. Sadece bir gün sürdü ve kalan üç gün boyunca Hollanda’yı dolaştık. Hem de süper bir rehberle. Cihan Haber Ajansı’nın Hollanda muhabiri Basri Doğan bizi havaalanında karşıladı ve havaalanından uğurlayana kadar arabasıyla rehberlik yaptı. Böylece dil sorununu çözmekle kalmadık, Hollanda’yı, ‘bir bilen’le dolaşma şansına sahip olduk. Nüfusu 15 milyonmuş, Konya büyüklüğündeymiş. Sadece başkent Amsterdam’da 100’den fazla kanal varmış. En yaygın araç bisikletmiş. Özel bisiklet parkları varmış. Tarımda dünya üçüncüsü bir ülkeymiş ve bazı yerleri deniz seviyesinin bir kaç metre altındaymış. Bu konuda daha fazla bilgi sahibi olmak isteyenler, Aksiyon’un 317. sayısında, Necati Kola imzasıyla yayınlanan ‘Yel değirmenleri, kanallar, bisikletler ve yaşlılar kenti: Amsterdam’ başlıklı yazıya başvurabilir. Ama bisikletlerle ilgili bir kaç notu eklemeden geçmek haksızlık olur.
+       <br/>
+       <br/>
+       İki tekerlekli yaşamlar
+       <br/>
+       <br/>
+       Burada en temel ihtiyaç bisiklet. Ülke dümdüz bir ova üzerine kurulduğu için dağlık bir alana rastlamak mümkün değil. Bu nedenle Hollanda’nın bütün bölgelerinde bisiklet görmek mümkün. 15 milyon bisiklet varmış zaten. Ve her yıl bir milyonun üzerinde bisiklet hırsızlığı yaşanıyormuş. Türkiye’de katlı otoparklara alışmıştık ama Amsterdam’da gördüğümüz üç katlı bisiklet otoparkına şaşırmadık değil. Bisiklet deyip geçmeyin, Hollanda’da kullanmak o kadar kolay değil. Her ne kadar araçlara göre öncelikli olsalar da iyi bisiklet kullanmasını bilmeyen burada yaya kalır. Her an yağmur yağabiliyor, bu nedenle tek elle direksiyon tutmak zorundasınız, diğer elinizde ise şemsiye olmalı. Alışveriş çantası, yük taşıma bölümleri,  çocuk oturakları (arkalı önlü) olan bisikletleri fazlasıyla görmek mümkün.
+       <br/>
+       <br/>
+       Suda geçen hayat
+       <br/>
+       <br/>
+       Amsterdam yolculuğumuzda en çok gemievleri dikkatimizi çekti. Kanallar üzerine oturtulan bu evler gemi şeklinde yapıldığı için böyle adlandırılıyor. Bazıları kullanılmayan gemilerden yapılmış zaten. Neredeyse bütün kanalların kenarları, gemievler ile donatılmış. Lokantalar, kafetaryalar ve eğlence merkezlerinin bazıları da bu şekilde inşa edilmiş. Mesela Roterdam’daki Çin Lokantasının ismi Çin Gemisi. Tabii gemi gibi yüzemiyorlar.
+       <br/>
+       <br/>
+       Suyu emen asfalt
+       <br/>
+       <br/>
+       Hollanda’da hava genelde kapalı. Turistlerin kasım ayında Türkiye’de denize neden girdiklerinin cevabını orada buldum. Aralıklarla da olsa sürekli yağmur yağıyor. Zaman zaman açan güneşle mola veriyor ama sonra yeniden başlıyor. İstanbul’a oradaki yağmurların onda biri yağsa şehir su altında kalır. Ama Amsterdam’da böyle bir olay sözkonusu bile değil. Aralıksız iki saat sağnak yağıştan sonra güneş açıyor ve on dakika sonra hiçbir yerde su kalmadığını görüyorsunuz. Şimdilerde Holandalılar yollar için özel asfalt yapmakla meşgul. Çok pahalı olan bu asfalt, sağnak yağmur altında dahi yolun kuru kalmasını sağlıyor. Yel değirmenlerini, bizden giden lale’yi, portakal rengini de Necati Kola’ya havale ederek geçiyorum.
+       <br/>
+       <br/>
+       Türkler Türkiye’deki gibi
+       <br/>
+       <br/>
+       Hollanda’ya göç eden Türkler yeni bir kimlik arayışında. Ama Türkiye’ye özgü alışkanlıklarından da vazgeçebilmiş değiller. Fotoğrafta  da göreceğiniz gibi ÖZTÜRKİYEM lokantasının ismi muhtemelen, bir başka yerde açılan Türkiyem lokantasından esinlenerek konulmuş. Hani bizde çok yaygındır. Diyarbakır Turizmi kuranlar ayrıldıkları zaman Öz Diyarbakır diye yeni bir şirket kurar, onlar parçalanır bu kez de Hakiki Öz Diyarbakır Turizm doğar. Ultra Öz, Mega Öz diye devam eder. Biz ÖZTÜRKİYEM’i gördük, diğerlerini de siz tahmin edin artık.
+       <br/>
+       <br/>
+       Özgürlük, özgürlük, özgürlük...
+       <br/>
+       <br/>
+       Hollandalıların hiç bir zaman ‘Para, para, para’ diyecek bir Napolyon’ları olmamış. Bunun yerine insanlara sınırsız özgürlük tanıyan bir sistem kurmuşlar. Her türlü insanın, istediği gibi yaşama imkanı var Hollanda’da. Kimse kimsenin etek boyuna, başörtüsüne, kişisel tercihlerine karışmıyor. Dindar da, dinsiz de, alkolik de, eşcinsel de, esrar içen de dilediği gibi yaşayabiliyor. Ne mutlu Hollanda’ya. Ve ne mutlu.... (Gerisini yazmıyorum aksi halde bana da kapatma cezası gelebilir). Az kalsın unutuyordum, bu ülkede hâlâ bir kraliçe var ve üstelik de çok güçlü. Yani geçmişini reddetmiş bir ülke değil. Ehh bu mesajla yazının da hakkını vermiş olsam gerek.. Benden bu kadar. Daha çok bilgi isteyen varsa Hollanda’nın uçakla üç buçuk saat sürdüğünü söylemekten başka yapacak bir şeyim yok.
+       <br/>
+       <br/>
+       e—mail:osmaniridag@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12677), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093050/http://www.aksiyon.com.tr:80/detay.php?id=12677)

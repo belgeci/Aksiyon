@@ -1,0 +1,64 @@
+# Yeni ekonominin çöküşü mü?
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Teknoloji şirketlerinin piyasada bilinen ismi "Yeni Ekonomi" hergün yeni tartışmalara neden oluyor. Bir yandan yeni ekonomi firmalarının hisselerinin borsalarda günlerce tavan yapması büyük yankı getiriyor diğer yandan ani kararlarla faaliyetlerine son veren firmalardan bahsediliyor.
+   <br/>
+   <br/>
+   Veya bir günde çalışanlarının yüzde 90'ını işten çıkaran firmaların geleceğe yönelik politikaları endişelere sebep olabiliyor.
+   <br>
+    <br>
+     Kasım ayı boyunca ABD’li internet şirketlerinin işten çıkardığı eleman sayısı 8.789 kişiye ulaşmış. Ekim ayında işten çıkarılan 5.677 personele göre %55’lik bir artışın görüldüğü Kasım ayı gelişmeleri de doğal olarak internet sektöründe çalışanlara “sıra bize mi geliyor?” dedirtebiliyor. İşten çıkarılmaların arttığı bu iki ayda sanal mağazalardan alınan sipariş miktarlarında artışların kaydediliyor olması da ayrı soru işaretlerine neden olabiliyor. Hele satış rekorlarının kırılacağı yılbaşı alışverişlerine ramak kala izlenen bu personel politikaları daha da ciddi endişelere neden olabiliyor. Kimileri ister istemez “yeni ekonomi çöküyor” iddialarını tartışmaya başlıyor örneğin.
+     <br>
+      <br>
+       2000 yılı başından beri işten çıkarılma sayısı 31.056 kişiye ulaşan sektörde, bu rakamın %40’ının “online hizmet satışı” yapan firmalara ait olduğu belirtiliyor. İşten çıkarma politikası izleyen toplam 383 firmanın %20’si ise faaliyetlerini tamamen sona erdirmiş durumda. Bunlar arasında Amazon.com’a ait olan Pets.com sitesi de bulunuyor. MotherNature.com ve Furniture.com gibi çok bilinen siteler de kapananlar arasında.
+       <br>
+        <br>
+         Sektörün profesyonelleri ise gelişen olaylara başka bir açıdan yaklaşıyor. Müşterisini memnun edebilecek derecede iyi hizmet veren, mal veya hizmetleri zamanında müşteriye ulaştıran sitelerin krizle karşılaşmadığı ve hatta cirolarında katlanmalar gördüğü rakamlarla gözler önüne seriliyor. Bu da yeni ekonominin çöküşünü kutlamaya hazırlananlara en güzel cevap olmuş oluyor.
+         <br/>
+         <br/>
+         İnternet şirketlerinin istihdam ettiği eleman sayısının genel ekonomide %2.5'lik bir dilime sahip olması ve işten çıkarılanların da bu dilimde çok az bir yer kaplıyor olması ülke ekonomisinin çok çok az etkilendiği gerçeğini ortaya çıkarıyor.
+         <br/>
+         <br/>
+         Çıkarılacak ders, hızla büyüyen internet firmalarımızın istihdam politikalarını şimdiden derinlemesine düşünerek milyar dolarların döndüğü bir piyasada gelecekte ortaya çıkabilecek krizlere erken tedbir uygulamak...
+         <br/>
+         <br/>
+         İyi haftalar.
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Haber portallarında yarış kızışıyor
+         <br/>
+         <br/>
+         Haber ve yorumlarıyla sık sık tartışmalara neden olan gazetecilerin açtığı haber sitelerine her geçen gün yenileri ekleniyor. Ajan.net ve Haberturk.com gibi haberlere yorumlu yaklaşan elektronik medya, hareketliliği seven gazetecileri de hareketlendiriyor. Gazeteci gruplarının kurduğu haber portalları arasına yeni katılan www.AjanTurk.com da bu yöne doğru ilginin arttığının en büyük göstergesi.
+         <br/>
+         <br/>
+         Ajanturk.com’da siyaset, ekonomi, borsa, dış politika, magazin, spor, bilişim, medya ve sinema bölümleri bulunuyor. Özal’ın kendi sesinden son röportajı da ziyaretçiler tarafından dinlenebiliyor.
+         <br/>
+         <br/>
+         Dizayn ve içerik olarak rahat bir arayüzle web gezginlerinin karşısına çıkan Ajanturk.com umarız tarafsız yayıncılık ilkesine riayet ederek diğerlerine fark atar…
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 5 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13621), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151347/http://www.aksiyon.com.tr:80/yazdir.php?id=13621)

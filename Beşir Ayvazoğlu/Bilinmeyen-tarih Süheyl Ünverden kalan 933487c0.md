@@ -1,0 +1,85 @@
+# Süheyl Ünver,den kalan
+
+*Beşir Ayvazoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302173707im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302173707im_/http://www.aksiyon.com.tr/resim/309/66.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çiçeği burnunda Cumhuriyet, 1924 yılında bazı genç ressamları Paris’e ve Münih’e göndermişti; Prometheus’un gökten ateşi çalması gibi, gidip Avrupa’dan sanat ateşini yurda getirecek ve inkılâbın estetiğini yapacaklardı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ne var ki Avrupa’da dört yıl eğitim gören genç ressamlar hiç de hoşa gitmeyen anlayışlar ve iddialarla döndüler. 1928’de kurulan Müstakil Ressamlar Birliği ve 1933’de kurulan D Grubu, modern sanat akımlarının etkisinde kalan ressamlardan oluşuyordu.
+   <br>
+    <br>
+     Avrupa’da modern ressamların kanlı canlı insan resimleri ve manzaralar yapmak yerine renklerle ve çizgilerle oynayarak tabiattaki örneklerine hiç benzemeyen resimler yapmaları ve Rönesans dışı sanatlara, mesela Ortaçağ mozaik ve renkli camlarına, zenci maskelerine, Doğu minyatür ve yazılarına, Japon estamplarına vb. kendilerini daha yakın bulmaları, Avrupa’ya giden ve dış dünyada gördüklerinin benzerlerini tuallerine geçirmeyi sanatta erişilebilecek en yüksek nokta olduğunu zanneden genç Türk ressamlarını şaşkına çevirmişti. M. Ş. İbşiroğlu ve Sabahattin Eyüboğlu, Avrupa Resminde Gerçek Duygusu adlı kitaplarında diyorlardı ki:
+     <br>
+      <br>
+       “Koca Avrupa bula bula bizim eskilerimizi, bit pazarına dökülmüş sûretli sûretsiz, insanı insana, ağacı ağaca benzemeyen renk ve çizgi oyunlarını mı buluyordu? Gerçekten birçok yeni resimler bizim Karagöz figürlerine, minyatürlerin gölgesiz renk dünyasına, herşeyi geometrik biçime sokan kilim motiflerine, kelimelerin anlamlarından sıyrılıp yalın bir nakış haline gelen eski yazılarımıza ne kadar yakın görünüyordu”.
+       <br/>
+       <br/>
+       “Sanatımızın istikameti”
+       <br/>
+       <br/>
+       Türk aydınları birden klasik sanatlarımıza başka bir gözle bakmaya başlamışlardı. Güzel Sanatlar Akademisi’nde Türk Tezyinî Sanatlar Bölümü’nün açılışı da aynı yıllara rastlar (1936). Bu, aslında Türk Tarih Tezi’ne aykırı bir yönelişti; çünkü dönüp Osmanlı sanatına, hatta bütün İslâm sanatlarına bakmayı gerektiriyordu. 1939 yılında Maarif Vekaleti tarafından çıkarılmaya başlanan ve baskısı bakımından son derece başarılı bir deneme olan Güzel Sanatlar mecmuasında da aynı istikamette yayın yapılmış olması dikkat çekicidir. Her sayısında hat, minyatür, tezyinî sanatlar ve Türk mimarisi konularında yazıların bulunduğu bu mecmuanın ikinci sayısındaki “Sanatımızın İstikameti” başlıklı yazısında Suut Kemal Yetkin, asırlardır aynı anlayışı muhafaza eden plastik eserlerimizin, bize hâlis bir sanat anlayışını gösterdiği gibi, takip edilecek yolu da belirlediğini söylüyordu:
+       <br/>
+       <br/>
+       “Bu yol tezyinî bir sanat anlayışına götüren yoldur. Hiçbir sanat, sanatımız kadar çizgilerin ve şekillerin âhengini kudretle ve maharetle canlandırmamış, hiçbir millet milletimiz kadar ruhunun hendesesini sırf sanat endişesiyle tecessüm ettirmemiştir. Taş üzerinde şekillere bütün imkân zenginliğini kazandıran mimarimiz, düz bir satıh üzerinde renklere bütün safiyetini ve tazeliğini veren minyatürlerimiz, hatla ve renkle elde edilmiş birer güftesiz bestedir. Yazıyı bile muhtevasından tecrit edecek kadar halis şekillerin dünyasına giren dünün Türk sanatkârını, bugünün Türk sanatkârı hiçbir zaman ihmal edemez. Maarif Vekaleti tarafından Güzel Sanatlar Akademisi’ne bir Şark Tezyinî Sanatlar Şubesi’nin ilâvesi bu anlayış ve inanışın canlı ifadesidir”.
+       <br/>
+       <br/>
+       Ancak bu ilgi fazla “konjonktürel”dir ve fazla devam etmeyecektir.
+       <br/>
+       <br/>
+       Güzel Sanatlar Akademisi’nde
+       <br/>
+       <br/>
+       Eski sanatlarımız içinde yalnız hat sanatı, alternatifi bulunmadığı için, bağlı bulunduğu estetik kaidelerde sonuna kadar ısrar etmiştir. Ancak geçen asrın sonlarında Bâbıâlî’nin Divan—ı Hümâyun dairesinde Sadrazam Ahmed Cevad Paşa tarafından bir “Ta’lîm—i Hat Şubesi” kurulduğuna göre, bu sanatta da inkıraz emareleri görülmüş olmalıdır. Ahmed Cevad Paşa’nın azlinden sonra bilmediğimiz bir sebeple kapatılan bu şube, 1914 yılında Medresetü’l—Hattâtîn adıyla ve farklı bir hüviyetle yeniden doğar.
+       <br/>
+       <br/>
+       Şeyhülislam ve Evkaf Nâzırı Hayri Efendi’nin kurulmasını sağladığı, sadece hat sanatı dalında değil, tezhib ve minyatür gibi diğer alanlarda da eğitim veren Medresetü’l—Hattâtîn, Cumhuriyet döneminde diğer medreselerle birlikte ilga edilmiş, fakat faaliyetlerini Hattat Mektebi adıyla harf inkılabına kadar sürdürmüştür. Hemen ardından aynı binada Şark Tezyinî Sanatlar Mektebi açılır ve Hattat Mektebi’nin bütün hocaları bu yeni okulda görevlendirilir. Ne var ki 1936 yılında bu okul da kapatılmış ve hocaları Güzel Sanatlar Akademisi’nde kurulan Türk Tezyinî Sanatlar Bölümü’ne geçmişlerdir. On dalda eğitim veren yeni bölüm, aslında süreye bağlı olmayan bir kurs niteliği taşımaktadır; adı çok geçmeden Türk Süsleme Bölümü olarak değiştirilir ve öğretim süresi dört yılla sınırlandırılarak öğrencilerinin bir yıl Resim Bölümü desen atölyesine devamları şart koşulur.
+       <br/>
+       <br/>
+       İşin kötüsü, bölüm hocaları genellikle yaşlı kişilerdir; hat hocası Nuri Korman 1944’te, tezhip hocası İsmail Hakkı Altunbezer 1945’te, cilt hocası Necmeddin Okyay 1948’de emekli olur; sedef kakmacılık hocası Vasıf Sedef 1940’ta, halı nakışları ve hat hocası Kâmil Akdik 1941’de, altın varak hocası Hüseyin Yaldız, çini nakışları hocası Feyzullah Dayıgil ve hat hocası Mustafa Rakım Unan 1949’da, ağaç üzerine hakk hocası İsmail Arif Sonver ise 1950’de vefat ederler. Yerlerine minyatür için İranlı Hüseyin Tahirzâde, hat için Halim Özyazıcı, tezhib için de Muhsin Demironat ve Rikkat Kunt getirilirse de, çok az öğrencinin tercih ettiği bölüm 1955’ten sonra neredeyse öğrencisiz kalır. Bu, iş bulma imkânlarının az olmasından çok, devrin, özellikle Güzel Sanatlar Akademisi’nin havasıyla ilgilidir. Açıkçası, Türk—İslâm sanatları, Akademi’de küçümsenmekte ve dışlanmaktadır. Böylece Türk Süsleme Bölümü bütünüyle gözden çıkarılarak Dekoratif Sanatlar Bölümü’yle birleştirilir, yani kapatılır.
+       <br/>
+       <br/>
+       Süheyl Ünver ve diğerleri
+       <br/>
+       <br/>
+       A. Süheyl Ünver, bu gelişmeler üzerine, 1936’dan beri Türk Minyatürü ve Süslemesi dersleri verdiği Güzel Sanatlar Akademisi’nden ayrılarak çalışmalarına Topkapı Sarayı’nda 1936 yılında ihya ettiği Nakışhane’de ve Cerrahpaşa Tıp Fakültesi bünyesinde kurduğu Tıp Tarihi Enstitüsü’nde devam eder. Bu kurslar zamanla çok büyük bir taleple karşılaşınca, yer dar geldiği için Beyazıt’taki Tıp Tarihi Enstitüsü’nü Cerrahpaşa’ya taşıyan A. Süheyl Ünver, ayrıca İstanbul Fetih Cemiyeti Başkanı Ekrem Hakkı Ayverdi’nin ricası üzerine Çarşıkapı’da bir şube açar. Bu rağbet, Güzel Sanatlar Akademisi’nde Türk Süsleme Sanatları Bölümü kapatılırken ileri sürülen gerekçenin doğru olmadığını göstermektedir.
+       <br/>
+       <br/>
+       Tezhip ve minyatürün dirilişinde A. Süheyl Ünver, Rikkat Kunt, Muhsin Demironat gibi büyük sanatkârların oynadığı rolü, hat sanatının dirilişinde Hâmid Aytaç, ebru sanatında ise Necmeddin Okyay’la yeğeni Mustafa Düzgünman oynayacaklardır.
+       <br/>
+       <br/>
+       Klasik sanatlarımız, yaşanan büyük kültürel travmaya ve kırılmaya rağmen, üç beş büyük insanın inanılmaz gayreti ve azmi sayesinde bugün göz kamaştırıcı bir rönesans yaşamaktadır. Bu rönesansta, hiç şüphesiz, Müslüman ülkelerle artan ekonomik ve kültürel ilişkilerimizin yanısıra, yabancıların başta hat sanatı olmak üzere Türk—İslam sanatlarına duydukları merak ve koleksiyoncuların sayısındaki artış da etkili olmuştur. Ancak asıl önemli sebep, tarihinin belli bir döneminde önüne engeller dikilen bir kültürün, engellerden bazıları ortadan kalkınca tabii gelişmesini tamamlamak üzere atağa geçmesidir.
+       <br/>
+       <br/>
+       Eminim, bir süre sonra yeniden üretim başlayacak ve varılan kemal noktasında modern zamanlara seslenecek yeni yollar ve yeni imkânlar aranacaktır.
+       <br/>
+       <br/>
+       Medeniyetler ölmez
+       <br/>
+       <br/>
+       Merhum A. Süheyl Ünver’in kurduğu nakışhâne, Cerrahpaşa Tıp Fakültesi Tıp Tarihi ve Deontoloji Anabilim Dalı bünyesindeki çalışmalarına bugün de kızı Gülbün Mesara’nın başkanlığında aynı heyecanla devam etmektedir ve adı büyük bir kadirşinaslık örneği olarak “Ord. Prof. Dr. A. Süheyl Ünver Nakışhânesi”ne çevrilmiştir. Kelimenin asıl mânâsında bir “hayrü’l—halef” olan Gülbün hanımefendinin yetiştirdiği öğrencilerin eserlerini görmek istiyorsanız, Cemal Reşit Rey Konser Salonu’nda açılan harika sergiyi 15 Kasım’a kadar gezmelisiniz.
+       <br/>
+       <br/>
+       Anlayacaksınız ki, medeniyetler ölmüyor!
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13755), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302173707/http://www.aksiyon.com.tr:80/detay.php?id=13755)

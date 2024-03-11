@@ -1,0 +1,61 @@
+# Ajanımız yok, “dostumuz” var
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093420im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093420im_/http://www.aksiyon.com.tr/resim/358/10.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Öcalan’ın yakalanıp getirildiği günlerde MİT’i (Milli İstihbarat Teşkilatı) ‘dünyanın en başarılı istihbarat örgütü’, operasyonu gerçekleştiren görevlileri de kahraman ilan etmiştik.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hatta ajanların giydiği kar maskelerinin satışında bile patlama yaşanmıştı. Ancak aradan bir kaç ay geçtikten sonra ayrıntılar ortaya çıktıkça aslında operasyonun bizim inisiyatifimiz dışında gerçekleştiği belli oluyordu. Ardından Türkiye gündemini aylarca meşgul eden Hizbullah operasyonunda hayati bilgilerin MOSSAD’dan sağlandığı bilgileri yansıdı gazete sayfalarına. MİT, Öcalan gibi bir belalısını yakalamak için CIA’dan, Hizbullah’ı çökertmek için MOSSAD’dan bilgi alıyorsa kendisi ne yapıyordu? Eksik olan neydi? Bu soru aslında 1960’tan bu yana gündeme gelen ‘iç—dış istihbarat bölünmeli, profesyonelleşmeli’ tartışmasının başka bir şekilde ifadesiydi.
+   <br>
+    <br>
+     Bölsek de mi yönetsek!
+     <br>
+      <br>
+       Dünya istihbarat örgütleri yüksek teknolojileri ve insana önem veren anlayışlarıyla yeni adımlar atarken Türkiye’de 1960’tan bu yana istihbarat örgütlerinin nasıl çalışacağı, kimin hangi birimden, ne oranda sorumlu olacağı tartışılıyor. Bu tartışma zaman zaman Emniyet cephesinden, zaman zaman MİT cephesinden, bazen de Meclis kürsüsünden dile getiriliyor. Ancak bu tatışmada belki de en beklenmedik çıkış Aralık 2000’de MİT Müsteşarı Şenkal Atasagun ve o günlerde Washington’a tayini çıkan Müsteşar Yardımcısı Miktad Alpay’dan gelmişti. Atasagun ve Alpay, Ankara’da bazı gazete temsilcilerine şu açıklamayı yapıyordu; “Kanunla bize verilmiş görevi yapıyoruz. Dış istihbarata önem veriyoruz. Eğer Emniyet teşkilatı bu görevi yapabilirse kabul ederiz. Devlet bize ‘Artık iç tehditle ilgilenme’ derse, Emniyet’e devrederiz. Biz de tamamıyla dışa döneriz. ‘ Atasagun, Silahlı Kuvvetler’in de ayrı bir istihbarat sınıfı kurduğunu da hatırlattıktan sonra şunları ekliyordu; “Genelkurmay ve Emniyet’in istihbarat sistemlerini güçlendirmesinden biz mutluluk duyarız. Biz rekabetten rahatsız olmayız”. MİT kanadından gelen bu açıklamaların ardından MİT—Emniyet çekişmesi ya da başka bir ifadeyle bölünüp bölünmeme tartışması Meclis kürsüsüne taşınıyordu. TBMM Genel Kurulu’nda İçişleri Bakanlığı 2001 yılı bütçesi görüşülürken Adana Milletvekili Musa Öztürk, Meclis kürsüsünden yaptığı konuşmasında sözü dış istihbarat meselesine getiriyor ve şöyle diyordu; “Daha nitelikli, etkin ve verimli bir güvenlik hizmeti için MİT Müsteşarı’nın da açıkladığı gibi, iç istihbarat İçisleri Bakanlığı’na devredilmeli ve bunun için gerekli yasal düzenlemeler yapılmalıdır.” MİT müsteşarının ve siyasilerin dile getirdiği bu değişim talebi aslında tüm dünyanın uyguladığı bir sistem. Mesela ABD’de CIA dış istihbarata yönelirken, iç istihbarat FBI tarafından yürütülüyor. Almanya, İngiltere, Rusya, İsrail bu ekolün katı uygulayıcıları arasında bulunuyor. Türkiye’de farklı bir yapı söz konusu. MİT, hem dış hem iç istihbarata bakıyor. Ayrıca, iç istihbarata Emniyet Genel Müdürlüğü bünyesindeki İstihbarat Dairesi Başkanlığı da bakıyor. Özellikle Özal döneminde 1985 yılında değiştirilen “Polis Vazife ve Selahiyetleri Kanunu”ndan sonra Emniyetin iç istihbarattaki ağırlığının giderek arttığı biliniyor. Bunların haricinde bir de uzun süre gizlenen Jandarma İstihbarat Teşkilatı var.
+       <br/>
+       <br/>
+       Ajanımız yok ama ‘dostumuz’ var
+       <br/>
+       <br/>
+       Türkiye içinde istihbaratın hem polis hem de MİT tarafından yapılıyor olması muhakkak ki bir ‘ikilik’ doğmasına neden oluyor. Bu şekilde çalışma faydalı mıdır? Yoksa zorunlu olarak mı uygulanıyor? Neredeyse 40 yıldır gündeme gelen bu konuya yaklaşımlar farklı. Askeri çevrelerin bölünme konusuna ‘siyasi’ nedenlerle ‘soğuk’ baktığı dile getiriliyor, ancak bölünmenin ekonomik nedenlerle mümkün olmayacağını savunanlar da var. Emniyet istihbaratının kurucusu, aynı zamanda MİT kanununu hazırlayan komisyonun da üyesi olan Av. Ergun Gökdeniz, Türk istihbaratının bir kaç bölümde çalışamayacağını savunanlardan. İstihbaratın pahalı ve çok sayıda eleman tahsisini gerektiren bir sektör olduğunu anlatan Gökdeniz, Emniyet istihbaratının yapısı gereği dışa açılamayacağını ancak iç istihbaratın da MİT tarafından yapılmasında bir sakınca olmadığı görüşünde. Bu tip yapılanmanın bir bakıma zorunluluk olduğunu savunan Gökdeniz: “MİT’i bölüp dış istihbarata yöneltmek fakir esnafın iki işyeri açması gibidir. Her ikisini birden batırırsınız. Hali hazırdaki imkan, bütçe ve teknikle ikiye bölünmesi mümkün değil” diyor. 27 Mayıs’tan sonra MİT kanunu hazırlanacakken İçişleri Bakanlığı’nı temsilen ilgili komisyonda görev alan Gökdeniz “Komisyonda hararetle CIA—FBI türü bir bölünme tartışılıyordu. Emniyetçilerin bölünme taraftarı olduğu söyleniyordu. Oysa biz beraber çalışmanın zorunlu olduğunda ısrarlıydık. Çünkü dışa açılmamız gerek ekonomik gerek teknolojik açıdan zordu. Hâlâ da zor. Ancak bizim sorunumuz bölünme değil bilgilerin değerlendirilmesi ve koordinasyon konusunda” diyor. Peki hali hazırda dış istihbaratımızın durumu nasıl? Tek kelime ile cevap veriyor Gökdeniz: “Yetersiz”. Amerika’nın bile istihbarat alanında sıkıntıları olduğunu iddia eden Gökdeniz “Güçlü bir dış istihbarat ağımızın olmadığı muhakkak. Bunu da ‘dost’ istihbarat örgütleriyle kapatmaya çalışıyoruz. Verilen bilgileri çek etme şansımızın olmaması da bu konudaki dezavantajımız” diye ekliyor. Eski istihbaratçılardan Prof. Dr. Mahir Kaynak ise ‘dost istihbarat örgütleri’nin vereceği bilgilerin her zaman yanıltmaya yönelik olduğunu söylüyor. MİT’in dış istihbarat konusundaki zayıflığının doğru olduğunu söyleyen Kaynak bu sorunun çözümünün ‘iç—dış’ ayrımına gitmek değil, MİT’in anlayışını değiştirmek olduğunu söylüyor; “MİT dışa baksın demek teorik olarak güzel. Belki de gerekli, ancak unutmamak lazım ki bizim içimizdeki tehditlerin büyük kısmı dış kaynaklı. Komşu ülkelerin örgütleri içimizde faal haldeler. İçe dönük istihbarat normal hatta bence gereklidir de. Ancak MİT’in asıl sorunu her olaya ideolojik bakması. İstihbarat örgütleri ideolojik davranmamalı. Her sakallı potansiyel şeriatçı, her esmer tenli PKK’lı olarak görülüyor. Bu anlayışla istihbarat yapılmaz” diye konuşuyor. Peki MİT bölünme konusunda ne düşünüyor.
+       <br/>
+       <br/>
+       MİT ise yazılı açıklamasında Türkiye’ye yönelik tehditlerin iç veya dış olarak değil bir bütün olarak ele alınması gerektiğini savunuyor. Türkiye’nin jeo—stratejik konumu, bölgesel sorunlar, bölgesel ve uluslararası çıkar çatışmalarının neden olduğu tehditler nedeniyle analizlerde bütünleştirici olmanın zorunlu olduğunu belirten MİT: “Güvenlik istihbaratı sadece yurt içi faaliyetlerle sınırlı değildir. Önemli ölçüde yurt dışında da tehdit oluşturduğu gibi, bu tehditlere destek veren ülkelerle bağlantılı olarak, stratejik istihbarat ile de bütünleşmektedir. Ayrıca yasa gereği MİT ‘devlet çapında’ istihbaratla görevlidir” diyor
+       <br/>
+       <br/>
+       Amerika’ya yönelik saldırılar, dünyanın en büyük ve en güçlü istihbarat örgütlerinin nasıl olup da bu çapta bir saldırıyı haber alamadığı sorusuyla birlikte elektronik üstünlüğe dayanan istihbarat yapmanın yeterli olmayacağı gerçeğini de gün yüzüne çıkardı. Amerika sahip olduğu teknoloji ile uydular üzerinden dünya yüzeyinde görüşmeleri —ki bu rakam günlük 2 milyar görüşmeye kadar çıkabiliyor— kaydedip inceleyebiliyor. Bu bilgiler tek tek deşifre edilip Ulusal Güvenlik Akademisi’nde elden geçiriliyor. Buna rağmen CIA saldırıyı haber alamadı. Üstelik MOSSAD saldırıdan tam bir hafta sonra yaptığı açıklamada ABD’ yi terörist saldırılar konusunda uyardığını da açıklamıştı. En gelişmiş teknolojilere sahip CIA’nın haber alamadığı bir saldırıyı MOSSAD’ın haber alabilmesini ise emekli istihbaratçı Ergun Gökdeniz, MOSSAD’ın belirlediği temel stratejiye bağlıyor; “CIA’nın temel hatası herşeyi teknoloji ile yapabileceğine inanmasıydı. Oysa istihbaratta önemli olan insan unsurudur ve MOSSAD bunu çok güzel yapıyor. MOSSAD’a göre dünya üzerindeki her Yahudi potansiyel ajandır ve her Yahudi MOSSAD için çalışır. Bizim de kendimize insanı ön plana alan bir istihbarat modelini geliştirmek için çalışmamız gerekiyor.”
+       <br/>
+       <br/>
+       Uzman teröriste uzman istihbaratçı gerekli
+       <br/>
+       <br/>
+       11 Eylül saldırılarından sonra en çok duyduğumuz cümle ‘artık hiç bir şey eskisi gibi olmayacak’ oldu. Hiç bir şeyin eskisi gibi olmayacağı aradan geçen kısa bir süre sonra gün yüzüne çıktı. Amerika’dan başlayarak tüm dünya savunma sistemlerinden, teröre karşı stratejilerine kadar her alanda yeni düzenlemelere gidiyor. ABD’de CI—21 isimli yeni bir ‘karşı istihbarat’ birimi kurulurken Rusya da özellikle iç istihbarat konusuna ağırlık vermek maksadıyla KGB’yi eski gücüne kavuşturmak için harekete geçti. Putin’in talimatıyla başlatılan çalışmada KGB yeniden oluşturulacak ancak eskisinden biraz farklı olacak. Putin, beş güvenlik biriminden üçünü, FSB, FSO ve FAPSI’yi yeniden bir araya getirecek. Dış istihbarat SVR ile sınır muhafızları FPS bu oluşumun dışında kalmakla birlikte, Putin, Rusya’daki tüm iç gelişmeleri tamamen kontrol altına almayı hedefliyor.
+       <br/>
+       <br/>
+       Amerika’ya yönelik saldırının ortaya çıkardığı bir gerçek de terörün artık uzmanlaşmanın ötesinde derinleştiği hatta seviyesinin yükseldiği. Bombalama olaylarının arkasında askeri eğitim almış, organizasyon desteği olan, çok iyi teknik imkanlara sahip ve istihbaratla karşı istihbarat yapabilen örgütlerin varlığı ortada. Eğer özellikle yakalanmıyorsa bilinmez ama Amerika en tehlikeli terörist ilan ettiği Üsame bin Ladin’i de elindeki bütün teknik olanakları kullanmasına karşın yıllardır yakalayamadı. Yerini tespit edemedi ve bu yüzden vuramadı. Çünkü Amerikan gizli servislerinin yetiştirdiği Ladin, teknolojiyi kullanarak CIA’yı atlatmayı başardı. İnsana dayalı istihbarat faaliyeti zahmetli, az güvenilir olduğu ve çok para gerektirdiği için terk edildiğinden, teknolojik açıdan kör noktalar oluştuğunda, bilgisiz kalınıyor.
+       <br/>
+       <br/>
+       e mail: a.yavuz@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12772), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093420/http://www.aksiyon.com.tr:80/detay.php?id=12772)

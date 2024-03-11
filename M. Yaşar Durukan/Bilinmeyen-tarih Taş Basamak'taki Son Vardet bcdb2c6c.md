@@ -1,0 +1,55 @@
+# Taş Basamak'taki Son Vardet
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050120113948im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050120113948im_/http://www.aksiyon.com.tr/resim/469/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yapı mimarisi ve dekorasyonda eskiye dönüş rüzgarları esiyor. Osmanlı evlerinden kalma dekorasyon tarzı yeniden moda oldu. İstanbul Ortaköy"deki son usta, eski teknolojiye el becerisi ve sabır katarak, nostaljik zevklere hitap eden rengarenk çinili karolar üretiyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Eskiden evlerimizi, zemine boydan boya döşenen beyaz, kahverengi, lacivert, firuze çinili karolar süslüyordu. Firuze çiniler altı köşeli, bunların arasına serpiştirilen lacivert çiniler ise üçgen seklindeydi. Seyrine doyum olmayan yıldız, yaprak ve trapo modellerinin üzerini kilimle örtmeye kıyamazdı annelerimiz. 17. yüzyıl Osmanlı evlerinden kalma bu dekorasyon tarzı, "toplu betonlaşma hamlesi"yle son buldu. Birer Çinili Köşk misali evlerimizin içindeki rengarenk tarihi güzelliği, 1970"lerin sonunda moda olan fayans ve seramikle örttük. Talep olmayınca bu işi yapan ustalar birer birer yok oldu. Geriye sadece İstanbul"da bir usta kaldı. O da Berç Yoldaş. Ortaköy Taş Basamak Çevirmeci Sokak"taki atölyesinde zamana direniyor. Berç Yoldaş, aslen Kayserili bir Ermeni usta. Hani bugün hangi mesleğin erbabına sorsanız "Bu mesleği bana öğreten usta Ermeni idi" derler ya, işte o ustalardan biri Berç Yoldaş.
+   <br>
+    <br>
+     Aslında bu sektör çok eskiden Rumların elindeymiş. Zamanla Ermeniler devralmış. 1941"de Kayseri"den İstanbul"a gelen Berç Usta"nın babası Hacı Aram Yoldaş, çeşitli çini ustalarının yanında çırak olarak çalışmış, 1951 yılında kendi atölyesini açmış. Oğlu Berç Yoldaş ise, ilkokulu bitirir bitirmez babasının yanında işi öğrenmeye başlamış. Kırk dört senedir çinicilikle uğraşan Berç Yoldaş, Hacı Aram Usta"nın, seksenli yaşlarında olmasına rağmen, iki sene önce bir trafik kazasında ölümüne kadar işinin başında olduğunu söylüyor. Bugün İstanbul"da, bu eski çinileri yapan başka usta yok. Berç Usta, yanında çalışmaya gelen gençlerin birkaç gün durup gitmelerinden yakınıyor. Oğlu bile çinicilik yerine Çuhacıhan"ın (kuyumcuların toplu olarak bulundukları bir işyeri) yolunu tutmuş. "Nerede o Ermeni ustalar, nerede o meslekler?" dedirten sürece katkıda bulunmuş.
+     <br>
+      <br>
+       ESKİNİN İZLERİNİ TAŞIYOR
+       <br/>
+       <br/>
+       Ustalar tükendi ama son yıllarda trendler değişti. Yapı mimarisi ve dekorasyonda eskiye dönüş rüzgarları esiyor. Ege ve Akdeniz sahillerindeki yazlıklarda, ünlü otellerde, İstanbul"daki lüks konutların mutfak ve zemin katlarında, restoranlarda tekrar çini karo kullanılmaya başlandı. Ünlü mimar ve dekoratörlerin yolu elli yıl sonra Yıldız Yokuşu"ndaki son çini atölyesinde kesişiyor. Ankara Garı"nın yanındaki Atatürk Müzesi ile İzmir Atatürk Evi"nin çinilerini de yapan Berç Usta, Hollanda"dan bile sipariş alıyor. Avrupa kanalları bu son "vardet"in (ustanın) belgeselini çekiyor. Berç Usta, modern binaların arasında, Sanayi Devrimi öncesine aitmiş hissi veren atölyesinde, iki işçisiyle birlikte aralıksız çalışıyor. Sekiz saatte altı metrekare imalat yapıyor. Bu kapasite, siparişleri karşılamaya yetmiyor.
+       <br/>
+       <br/>
+       Berç Usta, çalışmasını aksatmadan sorularımızı cevaplıyor. Nostaljik taşların yapılışını anlatıyor. Tamamen el yapımı çiniler; belli ölçüde mozayiğin, mermer kırığının, mermer tozunun, çimentonun ve oksit boyanın birbirine karıştırılması ve bu karışımın bir dizi işlemden geçirilmesiyle üretiliyor. Karo üzerine uygulanacak motif seçildikten sonra boyalar, dökümcüler tarafından hazırlanan şablonun gözeneklerine ayrı ayrı dökülüyor. Ancak bunun için ayrı bir ustalık gerek. Boyalar orantılı olarak dökülmezlerse, fazla gelen diğerini itiyor ve renkler birbirine karışabiliyor. Son aşamada, üzerine nemli kum ve çimento dökülen karışım, 18-20 ton ağırlığındaki pres altında sıkıştırılıyor. İki hafta kurutulduktan sonra müşteriye teslim ediliyor. Bu sürecin ilk haftasında çiniler her sabah erkenden sulanıyor. Beton karışımın iyice suya doyması sağlanıyor. Çiniler mekana döşendikten sonra sistre yapılıyor ve cilalanıyor.
+       <br/>
+       <br/>
+       Çinilerde kullanılan motifler tamamen geçmişe ait. Osmanlı ve Selçuklu eserlerinden etkilenilmiş. Berç Usta motiflerde bazı değişiklikler yaparak farklı desenler de ortaya çıkarıyor. İstediğiniz bir desenin fotoğrafını ya da çizimini götürerek aynısını yaptırabiliyorsunuz. Bursa"daki meşhur İskender Efendi Konağı"nın alt katında yer alan, Taşlık adı verilen bölümün yer döşemesinde kullanılan karolar, Osmanlı evlerindeki karo motiflerinden örnek alınarak, aynı yöntemle yeniden üretilmiş. Eskinin izlerini taşıyan dekorasyonun fiyatı da oldukça ekonomik. Çinilerin metrekare fiyatı, motifine göre, 20-30 milyon arasında değişiyor. Çiniler arasında kalite farkı bulunmuyor. Mekana nostaljik bir hava katmalarının yanı sıra sağlamlıklarıyla da dikkati çeken çiniler, zaman içinde bozulmayıp tersine kullanıldıkça daha parlak bir görüntüye sahip oluyorlar. Üzerine kezzap ya da tuz ruhu gibi tahrip edici bir madde dökülmediği sürece uzun yıllar boyunca korunabiliyor. Çini karoların bakımı ise, en iyi arap sabunuyla yapılıyor. Arap sabununun içindeki zeytinyağı karoyu besliyormuş.
+       <br/>
+       <br/>
+       MESLEK SIRRI DEVLET ARŞİVİNDE
+       <br/>
+       <br/>
+       Dekorasyondaki trendler ne kadar değişirse değişsin bu işi 57 yaşındaki Berç Usta"dan sonra yaşatacak kimse yok. Bu nedenle çiniciliğin kaybolup gitmesine gönlü el vermeyen Hacı Aram Yoldaş, ölmeden önce, bu işi öğrenmek isteyenler için işin ustalıklarını anlattığı bir kaset doldurmuş. Sonra bu kaseti Anıtlar ve Müzeler Genel Müdürlüğü"ne teslim etmiş. Hacı Aram Usta"ya çok teşekkür eden yetkililer, bu değerli kaseti devletin arşivine koymuş. Çok eskiden bu zanaat büyük gizlilik içinde yapılırmış. Ustalar öğrendiklerini kimselere öğretmez, atölyelerin üretim bölümleri perdeyle gizlenirmiş. Aram Usta, bu davranışıyla eski bir geleneğe de ihanet etmiş oluyor. Meslek sırrı artık devletin arşivinde. Fena da yapmamış. Geleneksel baba meslekleri, her geçen gün yok oluyor. Ermeni cemaati artık usta yetiştiremez oldu. Bunun da nedeni, cemaat üyelerinin çocuklarının geleceği baba mesleğini sürdürmekte değil, yüksek öğrenimde görmeleri. Özel Ermeni liselerinde okuyup sınavlara katılan 230 öğrenciden tamamına yakını üniversiteye girme hakkı elde etti ve böylece baba mesleğini sürdürme devri kapandı.
+       <br/>
+       <br/>
+       Berç Yoldaş, belki gelecekte ilgi duyar diye, birçok Ermeni gibi kuyumculuğu tercih eden oğluna bu işin inceliklerini öğretmeyi ihmal etmemiş. Taş Basamak"taki son usta, sosyo-kültürel yapıdaki değişime rağmen baba mesleğini sürdürüyor. Elli yıllık teknolojiye el becerisi ve sabır katarak, nostaljik zevklere hitap eden rengarenk çini karolar üretiyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3233&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050120113948/http://www.aksiyon.com.tr:80/detay.php?id=3233&yorum_id=1)

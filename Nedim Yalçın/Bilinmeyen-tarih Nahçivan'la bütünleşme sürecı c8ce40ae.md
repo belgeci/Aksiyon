@@ -1,0 +1,91 @@
+# Nahçivan’la bütünleşme sürecı
+
+*Nedim Yalçın Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005626im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005626im_/http://www.aksiyon.com.tr/resim/383/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye, Azerbaycan’ın bir bakıma kendisine emanet ettiği Nahçıvan’la ekonomik, siyasi ve kültürel ilişkilerini geliştirmeye çalışıyor. Bölge üzerinde açık rekabet halinde olduğu İran’ın da bu yönde gayretleri olduğu, ülkelerine girip çıkan Nahçıvanlılar’a rahatlıkla kendi pasaportunu verdiği söyleniyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Son yıllarda yaşanan ekonomik kriz ve siyasi sıkıntılardan ötürü içe kapanık bir görüntü veren Türkiye, her şeye rağmen yanı başında olan bazı gelişmelere “bünyesindeki dinamik unsurlar” sayesinde bigane kalmıyor. Mesela, Türk dünyasının önemli bir parçası olan Azerbaycan’a bağlı Nahçıvan Özerk Cumhuriyeti’nde, diplomatik alanda pek varlık gösteremeyen Türkiye, “güvenlik ve eğitim” konularında, ilgili unsurların gayretiyle çok önemli çalışmalara imza atıyor. Sözkonusu dinamik unsurların faaliyetlerine, “samimi siyasi gayretler” de eklenince, “ekonomi” alanında da bağlar güçleniyor. Bütün bu olanları gözönüne alınca, Nahçıvan’la Türkiye arasında, -şimdilik “güvenlik ve ekonomik” çerçevede de olsa- âdeta bir “bütünleşme süreci” yaşandığını söylemek hiç de abartı olmaz. Ve bu işin lokomotifliğini de, hem de birtakım “diplomatik engel”lere rağmen Türk Silahlı Kuvvetleri yapıyor; tıpkı, Azerbaycan ve diğer Türk cumhuriyetlerinde olduğu gibi...
+   <br>
+    <br>
+     Türk cumhuriyetleri ve akraba topluluklarla koordinasyondan sorumlu Devlet Bakanı Dr. Reşat Doğru’nun, beraberinde Milli Güvenlik Kurulu Genel Sekreterliği, Genelkurmay, Milli Eğitim, Sağlık ve Tarım Bakanlıkları ile Gümrük Müsteşarlığı ve Emniyet Genel Müdürlüğü’nden üst düzey temsilcilerin de bulunduğu 20 kişilik heyetle geçtiğimiz günlerde Nahçıvan’a gerçekleştirdiği ziyaret esnasında, bu olumlu adımların son durumunu bizzat gördük.
+     <br>
+      <br>
+       Devlet Bakanı Doğru’nun, işin üzerinde ciddi durması neticesinde Ankara, Nahçıvan’ın içinde bulunduğu ekonomik sıkıntılara yardımcı olmak ve mevcut ilişkileri daha da geliştirmek amacıyla bugünlerde yeni adımlar atmaya hazırlanıyor. Şimdiye kadar sağlıktan eğitime ve askerî yardıma kadar bir çok konuda yoğun destek verilen Nahçıvan’a, “gümrük muafiyeti ve kolay geçiş” de denebilecek uygulamalar yolda. Belirttiğimiz gibi, askerî ve siyasî konularda çok iyi durumda olan Türkiye-Nahçıvan ilişkilerinin, ekonomik alana da yansıması için Ankara’nın, öncelikle bazı tarım ürünlerinde gümrük indirimine gidecek olması önemli bir gelişme. Bunda hedef ise Nahçıvan halkının gelir seviyesini yükselterek, bölgenin kalkınmasına imkan sağlamak. Çünkü, içinde bulunduğu jeopolitik şartlardan ötürü ciddi sıkıntılar yaşayan Nahçıvan’a sahip çıkmak, Türkiye’nin, hem bölgesinde hem de Türk dünyasındaki itibarı açısından büyük ehemmiyet arz ediyor. Zaten Azerbaycan’ın -ve hatta Türk dünyasının- şu andaki uluslararası nitelikli en büyük problemi olan Karabağ’da, ağırlıklı bir şekilde “kendini gösteremeyen” Ankara’nın, hemen yanıbaşındaki Nahçıvan’ı da sıkıntı içerisinde bırakması, Türkiye’nin bu coğrafyalardaki menfaatleri açısından da kabul edilir bir durum değil.
+       <br/>
+       <br/>
+       İran’la Ermenistan arasında
+       <br/>
+       <br/>
+       Azerbaycan’ın en eski yerleşim yerlerinden biri olan Nahçıvan, Sovyetler Birliği yöneticilerinin “böl, parçala, yönet” zihniyeti gereği, 1922’den beri ana ülkeden toprak bağlantısı olarak ayrı durumda. Çünkü yine tarihi Türk yurdu olan Zengezur bölgesi, Moskova tarafından Ermenilere verilerek, Ermenistan toprakları, bir hançer gibi İran sınırına kadar indirilmiştir. Anadolu’dan çıkan Aras nehrinin sol kolu olan Nahçıvan çayının sağ yakasında, İran’la Ermenistan arasına sıkışmış bir şekilde, deniz seviyesinden 910 metre yükseklikte bir özerk cumhuriyet olan Nahçıvan, İran’la 176 km, Ermenistan’la 224 km, Türkiye ile de 11 km’lik sınıra sahip.
+       <br/>
+       <br/>
+       Kaynaklara göre, 3500 yıllık mazisi bulunan Nahçıvan, 16. yüzyılda önemli bir ticaret merkezi idi. Ticaret  yollarının kavşagında olan bu bölgeden, birkaç kervan yolu geçmekteydi. Bunlardan en önemlisi Şamahı-Karabağ-Nahçıvan-İrevan(Erivan) ve Anadolu’ya giden yol; Tebriz-Merent-Nahçıvan-Erivan-Erzurum-İstanbul yolu; Eyli-Nahçıvan-Erivan-Kars-Erzurum-Tokat-izmir yolu idi. Tebriz’den Karadeniz sahillerine ve buradan Avrupa’ya giden kısa yol da Nahçıvan’dan geçiyordu.
+       <br/>
+       <br/>
+       360 bin nüfusa sahip ve etnik köken olarak tamamen Azeri halkın yaşadığı Nahçıvan, merkez haricinde Babek, Sederek, Şahbuz, Şerur, Ordubat ve Culfa ilçelerinden oluşmakta. Tabii zenginlikleri de bulunan bölgede, önemli oranda mermer ve tuz yatakları ile bol miktarda mineral su kaynakları mevcut.
+       <br/>
+       <br/>
+       Ancak her şeye rağmen Azerbaycan’la önemli ulaşım yolları Ermenistan üzerinden geçtiği için adeta ambargo ortamında yaşayan Nahçıvan, sadece başkent Bakü ile hava ulaşımı sağlayabiliyor. Bölgede şu anda ciddi olarak elektrik enerjisi sıkıntısı yaşanıyor. Şehir merkezlerinde elektrikler iki saat yanıyor, iki saat sönüyor; köylerde ise iki saat yanıyor, dört saat sönüyor. Bu enerji de İran ve Türkiye’den geliyor. Tüketim mallarında da neredeyse tamamen dışa bağımlı durumda. Genelde İran ve Türkiye’den gelen mallar satılıyor. Bölgede yetiştirilen sebze ve meyve ise gümrük sıkıntısından dolayı Türkiye’ye sokulamıyor.
+       <br/>
+       <br/>
+       Biri devlet, diğeri özel olmak üzere YÖK’ün denkliklerini tanıdığı iki üniversitenin faaliyet gösterdiği Nahçıvan’da, 346 da Türkiyeli öğrenci var.
+       <br/>
+       <br/>
+       Öncelik ‘kolay geşiç’te
+       <br/>
+       <br/>
+       Türk dünyasının giriş kapısı konumundaki Nahçıvan’la Türkiye’nin buluştuğu nokta olan Dilucu Gümrük Kapısı, kapasite yetersizliği nedeniyle transit geçişlere de, bölgeye giriş çıkışlara da yeterince cevap veremiyordu. Ayrıca buradaki bazı uygulamalar, sınır geçişlerini haddinden fazla sıkıntıya sokuyordu. Mesela Nahçıvan’dan araçla Türkiye’ye gelmek pek de kolay değildi. Şu anda Nahçıvan’da, araçlara sigorta yapacak kuruluşlar olmadığı için Türkiye’ye giriş yapacak bir kişi, aracını sınır kapısında bırakarak, herhangi bir vasıta ile 80 km. yol katedip, Iğdır’a geliyor; burada aracına sigorta yaptırıyor ve tekrar Dilucu kapısına dönüp, sigorta evrakını ibraz ederek ancak giriş yapabiliyor. Bu da sınır geçişlerini ciddi zorlaştırıyor. Ayrıca, Dilucu Gümrük Kapısı’nın günde sadece 8 saat açık olması da giriş-çıkışları zorlaştıran ayrı bir unsur; özellikle de günü birlik giriş-çıkış yapanlar için... Gereksiz bürokratik işlemler ve imkansızlıkların yol açtığı zorluklar ise cabası...
+       <br/>
+       <br/>
+       Sınırdaki uygulamalar, iki ülke yetkililerinin, “yakınlık ve kardeşlik” konusunda söyledikleriyle kesinlikle hiç bağdaşmıyor. Zaten, görüştüğümüz Nahçıvanlılar’ın söyledikleri, yaşadıkları zorlukları ortaya koyar nitelikteydi: “Bizim için yegane geçim kaynağı Türkiye. Ancak oraya da bin bir sıkıntıyla gidebiliyoruz. Bu yüzden Türkiye-Nahçıvan arasında giriş çıkışlarda pasaportlar kaldırılsa da Kıbrıs’ta olduğu gibi kimliklerle girip çıkabilsek çok iyi olur. Ayrıca, ürettiğimiz tarım ürünlerini Türkiye’de satabilmemiz için bize imkan verilsin.”
+       <br/>
+       <br/>
+       Tabii Türkiye’nin Nahçıvan için yapmayı öngördüğü işler sadece gümrükteki düzenlemeyle sınırlı değil; mevcut demiryolunun aktif hale getirilmesi, Nahçıvan-İstanbul arasında uçak şeferleri düzenlenmesi ve Nahçıvan vatandaşlarının ekonomik durumunun iyileştirilmesi konularında projeler hazır. Türkiye’nin, Nahçıvan’a şu anda sadece pancar konusunda verdiği proje ve bilgi desteği, diğer tarım ürünlerine de yaygınlaştırılacak. Ayrıca Iğdır’daki Türkiye İhracatı Geliştirme Merkezi arazisinde kurulması planlanan Açık Pazar’ın faaliyete geçmesiyle Nahçıvan’ın ekonomik durumu daha da gelişecek.
+       <br/>
+       <br/>
+       Nahçıvan için önemli bir hamle niteliği taşıyan bu projeler, bölgede İran’la çok açık bir şekilde yaşanan nüfuz mücadelesinde Türkiye’nin konumunu da güçlendirecek ve ayrıca Nahçıvanlı kardeşlerimizi “terk edilmişlik” duygusundan kurtaracak nitelikler taşıyor. Zira İran makamları, ülkelerine girip çıkan Nahçıvanlılar’a kolaylıkla kendi pasaportunu veriyor.
+       <br/>
+       <br/>
+       Sivil ve askerî eğitimde önemli katkılar
+       <br/>
+       <br/>
+       Nahçıvan’da bugüne kadar yapılan en önemli faaliyetler, “eğitim” konularında yoğunlaşıyor. Rüştünü dünyanın dört bir yanında ispat etmiş Türk okullarından burada da 3 tane var. Nahçıvan Türk Liseleri Genel Müdürü Muammer Türk’ün verdiği bilgilere göre, bu okullar, Nahçıvan’ın topyekün kalkınmasına büyük katkı sağlıyor. Zaten bölgede okullardan başka Türk müteşebbislerinin dikkate değer bir yatırımı da yok. Bilakis, Mahmut Çıplak isimli bir “işadamı”nın, büyük vaatlerle ortak olduğu Ordubat İpek Fabrikası’nı “dolandırma ve iflasın eşiğine getirme” gibi bir sabıkalı durumu mevcut. Yaklaşık 10 yıldır Nahçıvan’da faaliyet gösteren Türk okulları, bölge halkıyla da âdeta bütünleşmiş durumda. Bu okullarda 38’i Türkiye’den, 25 de Nahçıvan’dan olmak üzere 68 öğretmen, toplam 653 öğrenciye hizmet veriyor. Ayrıca okul idarecilerinin, Nahçıvanlı yetkililerle çok iyi bir diyalogları var. Bu da Türk eğitimcilerin, sadece eğitimde değil, başka bir çok konuda da faydalı olmalarını netice veriyor.
+       <br/>
+       <br/>
+       Diğer bir önemli, hatta stratejik eğitim faaliyeti de, başında bir Türk albayının bulunduğu “Azerbaycan Silahlı Kuvvetleri 5. Kolordu Komutan Yardımcılığı” bünyesinde gerçekleştiriliyor. Direkt Türkiye Genelkurmayı’na bağlı olarak faaliyet gösteren askerlerimiz, Türkiye’nin, 1921 Kars Anlaşması’na göre Nahçıvan’a garantör olmasından ve Cumhurbaşkanı Aliyev’in, bir görüşmede, “Nahçıvan size emanet, oraya sahip çıkın” şeklinde ifade ettiği sözlü beyanından hareketle yapılan askeri işbirliği anlaşması çerçevesinde bölgede bulunuyorlar. Şu anda Nahçıvan’daki Azeri askerlerin tamamı Türk subayları tarafından eğitiliyor. Bunun için Nahçıvan’da bir eğitim merkezi oluşturulmuş. Ayrıca, askerlerin kullandıkları botundan çorabına, kıyafetinden parkasına kadar her türlü malzeme desteği de yine Türkiye tarafından sağlanıyor. Burada görev yapan üst rütbeli subaylarımız da var. Subaylarımızın, askeri eğitim haricinde sosyal ilişkilerde de aktif olduklarını öğrendik. Her hangi bir evde cenaze veya düğün olduğu zaman Türk eğitimcilerin yanı sıra bu subaylarımız da aile ziyaretinde bulunuyor, bölgedeki kültürel hayata önemli katkılar sağlıyorlar.
+       <br/>
+       <br/>
+       Tabii askerî alanda yapılan faaliyetler, aradaki işbirliğini her şeyden daha çok kalıcı hale getiriyor. Ve yapılan diğer bütün faaliyetler de bu sağlamlık etrafında örgüleniyor. Bugün, Türkiye ile Türk cumhuriyetleri arasındaki en sağlam ve kalıcı ilişkiler, TSK tarafından kuruluyor.
+       <br/>
+       <br/>
+       Hasılı bugün, gayet insani ve uluslararası ilişkiler çerçevesinde, bölge barışına da önemli katkılar sağlayacak şekilde Nahçıvan’la Türkiye arasında ciddi bir yakınlaşma süreci yaşanıyor. Bu sürecin en aktif unsuru da -belirttiğimiz gibi- TSK ve Türk eğitimcileri... Ancak bu sürecin hızlı bir şekilde gerçekleşmesi için her türlü potansiyel olmasına rağmen, bürokraside ve diplomatik alanda ciddi sıkıntılar yaşanıyor; hem de bu sıkıntıların çoğu Türkiye tarafından kaynaklanıyor. Bu sıkıntıların, gümrük ve sınır boyutundan yukarıda bahsettik. Ancak diplomatik boyutu ise maalesef neredeyse yapılan bütün faaliyetleri sekteye uğratacak nitelikte. Çünkü bölgeye Nahçıvan Başkonsolosu olarak tayin edilen bayan Günsel Göktan, başta Nahçıvan yetkilileri olmak üzere herkesle gerginlik yaşıyor.
+       <br/>
+       <br/>
+       Dışişleri Bakanlığı’na çok sayıda şikayet dilekçesi gönderilmiş bayan diplomat hakkında. Nahçıvan’da görüştüğümüz çoğu kişi, sanki ittifak etmişasine, “Başkonsolos Göktan’ın yerinde daha anlayışlı birisi bulunsaydı, ilişkiler daha da ilerde olurdu” diyordu. Neyse ki Dışişleri Bakanlığı, kendisine ulaşan raporları hasır altı etmemiş ve Günsel Göktan’ı, 15 Nisan 2002 tarihinden geçerli olmak üzere merkeze almış durumda. Umarız, yeni tayin edilecek şahıs, Nahçıvan’la yaşanan “bütünleşme” sürecini köstekleyecek değil, destekleyecek birisi olur.
+       <br/>
+       <br/>
+       (Katkıda bulunan: Süleyman Okumuş)
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12012), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005626/http://www.aksiyon.com.tr:80/detay.php?id=12012)

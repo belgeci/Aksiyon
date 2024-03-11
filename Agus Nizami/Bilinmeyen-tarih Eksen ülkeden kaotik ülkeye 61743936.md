@@ -1,0 +1,82 @@
+# Eksen ülkeden kaotik ülkeye
+
+*Agus Nizami Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161226im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161226im_/http://www.aksiyon.com.tr/resim/351/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1965’ten beri yönetimi kontrolünde tutan Suharto, Endonezya’yı demir yumrukla yönetiyordu. Bu dönem boyunca insanların haber kaynağı millî televizyon TVRI ve millî radyo RRI’dan ibaretti. Ülkenin coğrafî özellikleri dolayısıyla yazılı basının önemsiz denecek bir tirajı vardı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1980’lerin sonlarında Suharto ailesi tarafından özel televizyonlar kuruldu: RCTI (Bambang Suharto ve Peter Gontha), SCTV (Suhatro’nun kardeşi Sudwikatmono ve Peter (Gonthaand); TPI (Tutut Soeharto). Ardından diğer özel televizyonlar kuruldu. ANTEVE ve Indosiar bunlardan en etkili olanları. Bu gelişmeler, Suharto’nun bilgi akışını kontrol etmesini imkansızlaştırdı. Başlangıçta özel televizyonların haberleri millî televizyon kanalı TVRI’dan yapma şartı getirdiyse de bu sürdürülemedi.
+   <br>
+    <br>
+     Cakarta’da Çin Büyükelçiliği’nin açılması komünist hareketin güç kazanmasına yardımcı oldu. Suharto ve diğer komünizm karşıtı gruplar tarafından boğazlanan komünist hareket yeniden yükselmeye başladı. Bu güçlerin oluşturduğu kamuouyunun etkisiyle komünist hareketin hapisteki öncüleri serbest bırakıldı. Bir süre sonra 1996’da, Halkın Demokrasi Partisi adlı komünist örgüt Budiman Sujatmiko liderliğinde kuruldu.
+     <br>
+      <br>
+       Suharto’nun en önemli muhalifi Megawati
+       <br/>
+       <br/>
+       Suharto’nun muhalif hareketleri kontrol etmesi gittikçe güçleşiyordu. Suharto bu anlamda son hamlesini Megawati’yi kendi partisi Endonezya Demokratik Partisi’nin başından uzaklaştıracak hükümet destekli darbesiyle denedi. 1996 Temmuz’unda Megawati’nin taraftarları zorla parti merkezinden uzaklaştırılmaya çalışılınca, halkın kızgınlığı Cakarta sokaklarına yıllardır görülmemiş ölçüde şiddetli ve yıkıcı gösteriler olarak yansıdı. Megawati’nin parti başkanlığından uzaklaştırılması zamanlaması uygun bir hareketti, çünkü partisi 1997 seçimlerinde Suharto’nun partisi Gulkar’ı mağlup edebilirdi. Ancak bu olay halkın statükoya karşı duyduğu rahatsızlığın derecesini gösteren bir hadise olarak zihinlerde yerini aldı.
+       <br/>
+       <br/>
+       Megawati taraftarlarının gösterileri artarak devam etti. Haberlerde Megawati öne çıkıyordu. Seçimler yaklaşırken rejim siyasi baskılarını artırdı. Megawati’yi destekleyen aktivistler ve öğrenciler tarafından kurulan Halkın Demokrasi Partisi ayaklanmalardan sorumlu tutularak parti komünistlikle yaftalandı ve liderleri hapse atıldı. Suharto Şubat 1997’de kendisini yasadışı yolla koltuğundan indirmek isteyenlerin yakalanacağını açıkladı. 2 gün sonra da General Faysal Tanjnug, seçim kampanyası döneminde askerlerin kanuna karşı gelenlere karşı vur emrine uygun hareket edeceklerini duyurdu.
+       <br/>
+       <br/>
+       1997’de Gayri Safi Milli Hasıla’nın üçte birini bulan 134 milyar dolarlık dış borcun yol açtığı (bu miktarın 16 milyar doları kısa vadeli idi) mali krizle sarsıldı. İhracattan elde edilen gelirlerin yüzde 40’ı borç servisine gidiyordu. Dış borcun yüzde 60’ı Suharto’nun yandaşları tarafından idare edilen büyük şirketlere aitti. Dış borç ve Soros gibi spekülatörlerin etkisiyle oluşan kriz Malezya, Singapur ve Güney Kore’yi etkiledi, krizden en çok etkilenen ülke Endonezya oldu. Rupiyah'ın 1 dolar karşısındaki değeri 2500'den 12 bine yükseldi. Bu durum karşısında bankaların ve şirketlerin dövize endeksli borçları altından kalkılamaz boyutlara ulaştı. Ekim 1997’de Suharto uluslararası gözlemciler tarafından tebrik ediliyordu. Çünkü IMF’yi çağırmış ve 40 milyar dolarlık krediyle desteklenmiş çözüm paketini kabul etmişti. Ancak Suharto’ya ülke içinde güven kaybolmuştu. Endonezya ekonomisi de umut vadetmiyordu. 1998’de Rupiah yüzde 80 daha değer kaybetti. Yerli ve uluslararası sermaye ülkeyi terk etti, bankacılık sistemi tamamen çöktü. Mayıs 1998’de dış borçlar Gayri Safi Milli Hasıla’nın tamamına karşılık geliyordu. Ve 3 ay içinde bu borcun yüzde 30’unun ödenmesi gerekiyordu.
+       <br/>
+       <br/>
+       Suharto ve yardımcısı Habibi dış baskılar ve IMF’nin kredi dilimini serbest bırakmama tehdidine rağmen parlamento tarafından seçildiler. Suharto’nun kızı ve iş dünyasından yakın destekçisi Bob Hasan’ın da içinde bulunduğu kabine iyice güven kaybına neden oldu. Alternatif bir liderin çıkmaması ve devlet ve toplum arasında yumuşak geçiş konusunda bir ortak anlayışın olmaması, öğrenci gösterilerini siyasi arenanın merkezine oturttu. Öğrencilerle ordu karşı karşıya geldi. Sivil toplumdan öğrencilerin saflarına katılımın oranı arttıkça, güvenlik güçlerinin şiddet kullanma eğilimleri de arttı. Şirketler iflas etti, milyonlar işsiz kaldı. Fiyatların yükselmesi ve özellikle Suharto’nun petrol fiyatlarını ikinci kez iki kat artırması insanları deliye çevirdi. Mayıs ayında kriz zirveye çıktı. Çünkü Suharto, 5 yıllık kendi döneminin biteceği 2003’e kadar hiçbir siyasi reform yapılmayacağını açıkladı. Gösteriler ve şiddet birbirini izledi. Halkın yüzde 40’ı fakirlik sınırının altında yaşıyor, öğrencilerin Halk Gücü hareketi güçleniyordu. İşte bu atmosfer içinde gösteri yapan 4 öğrencinin hakiki mermilerle öldürülmesi Suharto’nun sonunu haber veriyordu. Bu kıvılcım büyük bir yangını tetikledi. 12—14 Mayıs arasında 2 bin kişinin ölümü, yaygın, tecavüz vakaları ve özellikle Suharto’nun yakınları ve Çinli azınlığın mallarını hedef alan eylemler yaşandı. Savunma ve Güvenlik Bakanı General Wiranto ile Suharto’nun kayınbiraderi General Prabowa arasındaki rekabetin, askerin olaylara müdahalesini engellediği hâlâ tartışılan bir konu.
+       <br/>
+       <br/>
+       Bu noktada Suharto’nun kabineyi yenileme, erken seçim ilan etme gibi adımları da işe yaramadı. Göstericiler 18 Mayıs’tan itibaren parlamentoyu işgale başladılar. Orta Jaca’da 1 milyon insanın katıldığı gösteride Suharto’nun istifası istendi. Kabine üyeleri istifa etti, Gulkar’ın lideri ve parlamento başkanı bile Suharto’nun 22 Mayıs’ta istifa etmemesi halinde Meclis’in yeni başkan seçeceğini açıkladı. İstifa haberi 21 Mayıs’ta geldi.
+       <br/>
+       <br/>
+       Ülkeyi hızlı bir seçime götürmek üzere başkanlığa getirilen Habibi, özgürlükleri genişletti. Dolar karşısında Rupiah’ı 16 binlerden 6700’e geriletti. Endonezya tarihinde yapılan en demokratik seçimlerde 100 milyon seçmenin oylarından yüzde 33’ünü Megawati’nin partisi, yüzde 22’sini Golkar, yüzde 11’ini Abdurrahman Vahid, yüzde 7’sini Emin Reis aldı.
+       <br/>
+       <br/>
+       Vahid niçin kaybetti?
+       <br/>
+       <br/>
+       Partisi yüzde 11 oy almasına rağmen Emin Reis’in, diğer İslâmî partilerin ve Golkar’ın desteğiyle Abdurrahman Vahid devlet başkanlığına seçildi. Daha önce halkın iki seçeneği vardı: Müslümanlar Habibi’yi tercih ederken, milliyetçiler ve Hıristiyanlar Megawati’yi tercih etmişti. Megawati kanadı Habibi’ye onu Suharto’nun dostu olarak gördükleri için soğuk bakıyorlardı. Habibi taraftarları ise Megawati’yi Meclis’teki vekillerinin yüzde 40’ı Hıristiyan olduğu için desteklemiyorlardı. Böyle bir ortamda Vahid daha az düşmanı olduğu için alternatif olarak ortaya çıktı ve seçildi. Emin Reis danışma meclisinin, Golkar’dan Akbar Tanjug ise temsilciler meclisinin başkanı oldular. Taraftarlarını sakinleştirmek için Megawati’ye ise cumhurbaşkanı yardımcılığı verildi. Vahid kabinesini de ordunun başındaki Wiranto ve diğer siyasi güçlerle istişare içinde oluşturdu.
+       <br/>
+       <br/>
+       Bu koalisyon Vahid’in siyasi, sosyal ve güvenlik konularında koordinatör bakan konumundaki Wiranto’yu ve başka bir parti liderini kabineden uzaklaştırmasıyla sendelemeye başladı. Vahid’in merkez bankası başkanını değiştirme çabası da problem oldu. 24 Nisan’da Vahid'in biri Golkar’dan, diğeri Megawati’nin partisinden iki bakanı daha kabineden çıkarmasıyla Rupiah dalgalanmaya başladı. Megawati’den habersiz kabine değişikliği kararı ipleri iyice gerdi. Bir koalisyon hükümeti olan kabinede isimler değiştikçe Vahid’in desteği azalmaya başladı. Sonunda kendi partisinin lideriyle bile arası açıldı.
+       <br/>
+       <br/>
+       22 Ocak 2001’de Vahid’e biri 4 milyon (Bulog—gate), diğeri 2 milyon dolarlık (Brunei—gate) iki yolsuzluk suçlaması yapıldı. İlk oylamanın ardından Vahid’e hükümet performansını artırması için 2 aylık süre verildi. Vahid hükümeti güçlendirmek yerine, taraftarları yolsuzluk iddiasında bulunan partiye karşı liderini korumak için gösterilere başladı. Binlerce taraftarı cihad çağrısıyla eğitim için kayıt yaptırdı. Hatta din adamı Nur İskender, Vahid’e karşı olmaları gerekçesiyle Emin Reis ve Akbar Tanjug için ölüm fetvaları verdi.
+       <br/>
+       <br/>
+       İkinci oylamada Meclis’in büyük çoğunluğu Vahid aleyhine oy kullandı, 15 Mayıs’ta azledilmekten korkmadığını söyledi. Parlamentoyu feshedmek istedi, ancak polisin ve ordunun desteğini alamadı. Rupiah 12 binlere fırladı. Muhaliflerine yargı yoluyla gözdağı vermeye çalıştı. Polis şefini değiştirmek istedi, Meclis karşı çıktı. Ordu komutanını değiştirme girişiminde de başarısız oldu.
+       <br/>
+       <br/>
+       23 Temmuz gece 1:00’da Meclis’i fesih kararı aldı, ancak günün sabahında Meclis bu başkanlık kararını reddetti. Anayasa Mahkemesi de başkanlık kararının kanuna aykırı olduğuna hükmetti. Ardından parlamento Vahid’i yayınladığı karar ve suçlamaların sorumluluğunu üstlenmemekten dolayı görevden aldığını ve yerine Megawati’yi getirdiğini açıkladı.
+       <br/>
+       <br/>
+       Müslümanların akide bakımından da Vahid’e karşı şüpheleri vardı. Attığı bazı adımlar ve yaptığı açıklamalar İslam’ın temel ilkelerine ters düşüyordu. Vahid’in cinsel hayatıyla ilgili bazı iddialar da ortaya atıldı.
+       <br/>
+       <br/>
+       Şimon Peres Enstitüsü liderlerinden biri olarak Vahid sık sık İsrail’e gitti. Endonezya’nın demokrasiyi İsrail’den öğrenmesi gerektiğini söylüyordu. İsrail’le diplomatik ilişkilerin kurulmasına taraftar oldu.
+       <br/>
+       <br/>
+       Megawati’nin partisi laik milliyetçiler ve Hıristiyanlardan oluşuyor. Müslüman siyasetçilerin Megawati’ye yaklaşma şekilleri ülkede Müslüman—Hıristiyan ilişkilerinin geleceğini şekillendirecek. İyi ilişkiler kurulmazsa Müslümanlar’ın varlığı tehlikeye girebilir.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12900), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161226/http://www.aksiyon.com.tr:80/detay.php?id=12900)

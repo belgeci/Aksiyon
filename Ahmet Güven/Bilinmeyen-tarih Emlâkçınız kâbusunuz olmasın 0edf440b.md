@@ -1,0 +1,32 @@
+# Emlâkçınız kâbusunuz olmasın
+
+*Ahmet Güven Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040109151954im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040109151954im_/http://www.aksiyon.com.tr/resim/468/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Emlâkçılık sermaye ve formasyon istememesi nedeniyle kolay para kazanmak isteyen kişilerce istismar aracı olarak kullanılıyor. Şikayetlerin artmasıyla Emlâkçılar Odası meslek için eğitim programlarını yürürlüğe koydu fakat yetkililer uyarılarını da yapıyorlar: “Korsan emlâkçılarla çalışmayın.”
+ </font>
+ <p>
+  <font class="content">
+   Eğer Ankara, İstanbul gibi büyük kentlerde yaşıyorsanız bir şekilde yolunuz emlâkçılara düşecektir. Üstelik bu bir kez değil iş durumunuza göre defalarca olacaktır. Talep sürekli ve giderek artan bir grafik çizince ‘sermaye koymadan, kolay yoldan para kazanmak isteyen’ değişik mesleklerden çok sayıda kişi emlak komisyonculuğuna soyunuyor. Herhangi bir mesleki eğitim, tecrübe yada sermaye gerektirmediği için de apartman kapıcısı, bakkal, manav, emekli kolunun altına aldığı bir ‘emlâkçi’ tabelası ile işe koyuluyor. Birçoğunun ticaret odasına ya da meslek kuruluşlarına kaydı olmadığı, denetleyen bir kurumun da bulunmadığı, başka bir deyişle tüketici emlâkçinin ‘insafına’ bırakıldığı için her geçen gün daha çok kişi emlâkçi mağduru oluyor. Kaparo verip te alamayan, aldığı evin tapusunun sahte olduğunu evi aldıktan sonra fark eden, ödediği miktarın önemli bir kısmının emlâkçi tarafından fazladan alındığını öğrenen yüzlerce, belki binlerce mağdur ortaya çıkıyor. Aslında mevcut durumdan sadece tüketiciler şikayetçi değil. En büyük şikayetçi de Emlâkçılar Odası Başkanı Sabri Ateş. “Dünyada saygın bir meslek olan, en çok vergiyi veren emlak komisyonculuğu malesef ülkemizde vurguncu, üçkağıtçı, kolay yoldan para kazanmak isteyen birileri tarafından istismar edilen bir meslek haline geldi” diyor.
+   <br/>
+   <br/>
+   Yıllardır emlâkçiliğin bir kanun çerçevesinde ve ehil kişilerce yapılabilmesi için girişimlerde bulunan Sabri Ateş çareyi kurum içi eğitim ve iç denetimde görüyor. Mesleğin standartlarının belirlenmesi ve istismarın önüne geçilmesi için birtakım kuralları kanun tasarısı haline getirdiklerini ve resmi gazetede yayınlanarak yürürlüğe girmesini sağladıklarını anlatan Ateş’e göre bu aşamadan sonra iş tüketicilere düşüyor; “Devlet, vergi mükellefi olması durumunda herkesin emlâkçi olmasına müsaade ediyor. Devletin öncelikle emlâkçıların kendi meslek odalarına kayıtlı olmasını zorunlu hale getirmeli. Maalesef istismar çok yüksek oranlarda. Biz öyle dolandırıcılık hikayeleri ile karşılaşıyoruz ki şaşıp kalıyoruz. Müşterilerimizi uyarıyoruz. Ticaret odasına kaydı olmayan, vergi levhası olmayan iş yerleriyle çalışmasınlar. Elde resmi bir şey olmadığı için de sorunlarını çözemiyoruz” şeklinde konuşuyor. Şikayetlerin artması, dolandırıcılık vakalarının çoğalması üzerine harekete geçen İstanbul Emlâkçılar Odası yaklaşık 20 bin emlâkçiden 3 binini odaya kaydederek meslek içi eğitim seminerleri başlattı. Tapu kanunlarından tüketici haklarına kadar değişik konularda konusunun uzmanı tarafından eğitime tabi tutulan emlâkçılar bu kurslardan sertifika alıyorlar. Emlâkçılar Odası’nın amacı herhangi bir şehirdeki bir emlâkçinin bu sertifika programını bitirmeden iş yeri açmasına izin verilmemesini sağlamak. Sertifika programı dışında denetim ekibi de kuran emlâkçılar odası İstanbul’daki emlâkçıları denetlemeye başladı. “Şimdilik etkili yaptırımlarımız yok” diyen Sabri Ateş tüm emlâkçıların meslek odalarına kaydolması durumunda denetimlerden pozitif sonuç alınabileceğini söylüyor. Diyelim ki bir emlâkçi tarafından mağdur edildiniz, yıllarca başınızı sokacağınız bir ev almak için biriktirdiğiniz paralar emlâkçi tarafından gasp edilmişse ne yapacaksınız? Oda başkanı Sabri Ateş bu noktada çok fazla alternatifleri olmadığı görüşünde. “Resmi bir işlem olmadığı için yasal yollardan sonuç alınamıyor” diyen Ateş’e göre öncelikle yapılması gereken noktalardan birisi müşterinin haklarını bilmesi. “ Yasal haklarınızı bilin. Emlâkçıların kaparo alma hakkı yoktur. Yer göstermeden talep edemez. İdari bürosu olmalı, personeli olmalı, vergi levhasını size göstermeli. En önemlisi ev sahibi ile sizi bir araya getirmeli ve ev sahibiyle yaptığı sözleşmeyi ibraz etmeli ki size söylediği fiyatla ev sahibinden aldığı fiyat farklı olmasın. Bize en çok bu noktada şikayet geliyor. Emlâkçi müşteriden aldığı yasal komisyon dışında bir de birkaç milyar havadan para almış oluyor.”
+   <br/>
+   <br/>
+   Emlâkçılar Odası’nın iyi niyetli girişimlerine rağmen İstanbul başta olmak üzere özellikle büyük şehirlerde bir emlâkçi mafyası olgusu var. Fiyatlarla oynanıyor, spekülasyonlar yapılıyor, binlerce müşteri mağdur ediliyor; üstelik taraflardan birisinin yasadışı olması nedeniyle hak arama kannalarından sonuç alınamıyor. Sektörün önde gelen isimlerinden Emlâkçılar Derneği Başkanı Reha Medin, emlâkçiliği ‘bir masa bir telefon’ olarak görenlerin piyasadan kaldırılması gerektiğini söylüyor. Avrupa Birliği ile uyum sürecinde bir takım yasal düzenlemelerin yapıldığını, belli standartların getirilmeye çalışıldığını ancak uygulamada hâlâ büyük sorunların olduğunu söyleyen Reha Medin “ Piyasada çok sayıda mağdur olmasının nedeni standartlarda iş yapmayan emlâkçıların binlerle ifade edilen rakamlarda olması. Bu noktada tüketici tercihini yasal firmalar tarafında kullanmalı” şeklinde konuşuyor. Emlak kiralama ya da satın alma konusunda müşterilerin haklarını iyi bilmesi gerektiğinin altını çizen Medin “Müşteri haklarını bilerek hareket ederse mağduriyetler önlenebilir. Mevcut uygulamalarda müşteri haksızlığa uğramışsa meslek odalarına şikayet ederek söz konusu emlâkçiye yaptırım uygulanması sağlanmalı” diyor. Emlak piyasasında şikayet edilen en önemli konu ise emlâkçıların fiyatlarda spekülasyon yapması. Gerek Sabri Ateş gerekse de Reha Medin bu konuda vatandaşı uyarıyor: “ Yasalara göre emlâkçi müşteri ile mal sahibini bir araya getirmeli, anlaşma sağlanmasına aracı olmalı ve sözleşmeyi taraflarla beraber yapmalıdır. Bu konuda hassas olun.”
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3206&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040109151954/http://www.aksiyon.com.tr:80/detay.php?id=3206&yorum_id=1)

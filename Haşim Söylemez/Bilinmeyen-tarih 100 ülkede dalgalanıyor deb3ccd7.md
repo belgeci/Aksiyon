@@ -1,0 +1,49 @@
+# 100 ülkede dalgalanıyor
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Radyolar kitleleri kendisine bağlayan televizyon, internet, gazete ve dergilerin yanında hayatlarını sürdürmek için farklı projeler üretmek zorunda kalıyorlar. Bunun farkına varan Burç FM şu anda 100 ülkeye açılmış durumda.
+   <br/>
+   <br/>
+   17 Ağustos depreminde evlerine giremeyen insanlar yaşanan felaketin ayrıntılarını yanlarından ayırmadıkları radyolarından takip ettiler. Piknikte ya da arabanızla seyahatteyseniz radyolar yine vazgeçemeyeceğiniz bir eğlence ve iletişim aracıdır. Ne var ki hızlı ve en kolay haberleşme araçları arasında yer alan radyolar alternatiflerinin çoğaldığı bir dönemde nostalji olma tehlikesi ile karşı karşıya. Bu sebeple kitleleri kendisine bağlayan televizyon, internet, gazete ve dergilerin yanında ayakta kalabilmek için farklı farklı projeler üretmek zorundalar. Bir frekansta birden fazla sesin çıktığı bin 200 radyoya sahip Türkiye’de ben varım demek önemli meziyetleri gerektiriyor. Bunun bilincine varan radyolar nitelikli programlar hazırlamaya çalışıyor; ulaşmak istediği alanı geniş tutmaya, kentten köye sesini duyurmaya çabalıyor. İşte bu realitenin farkına varan Burç FM ‘iyi bir radyo nasıl olunur’un mücadelesini veriyor, alternatif programlar hazırlıyor, Türkiye’nin ve dünyanın her yerine ulaşmak için projeler üretiyor. Genel Müdür Mehmet Özkundakçı da ‘Radyolar ölmez’ diyecek kadar gerçekçi projelere imza atmış durumda.
+   <br>
+    <br>
+     Burç FM, TRT’den sonra ikinci sıra da
+     <br>
+      <br>
+       Burç FM ulaşmak istediği halkayı sürekli genişletiyor. Türkiye’de TRT’den sonra en geniş alana yayılan radyo; 47 ilde, 70 ilçede olmak üzere toplam 117 merkezde dinlenebiliyor. Bu rakamlar bir özel radyonun ulaşabildiği en yüksek sayı. Burç FM Türkiye’den sonra dünyaya da açıldı. Avrupa, Kuzey Afrika, Ortadoğu ve Orta Asya’ya ulaşan radyo toplam yüz ülkede dinlenebiliyor. Dijital vericilerle uydu üzerinden yayın yapan radyo yer yer karasal vericiler sayesinde de dinleyicisine ulaşıyor. Bu anlamda da özel radyolar statüsünde açık ara birinci. Radyonun Genel Müdürü Mehmet Özkundakçı bu konuda alçak gönüllülüğü elden bırakmıyor ama hedefleri geniş tutmak gerektiğinin de altını çiziyor. Özkundakçı’ya göre daha çok insana ulaşmak varken olanla yetinmek yanlış olur. “Bu rakamlar bizi mutlu ediyor; ancak daha da açılmak gerekir. Türkiye’deki ağı, gelen talepler doğrultusunda genişletmeye çalışacağız. Biz bu anlamda bir ilke imza attık ve bunun devamını getirmek için uğraş veriyoruz” diyor.
+       <br>
+        <br>
+         Radyo sadece geniş alanlara yayılmakla yetinmeyecek, aynı zamanda değişik illere merkezler kurmanın da yollarını arayacak. İstanbul ve Ankara’da merkezi bulunan radyo Trabzon, Adana, İzmir gibi yerlerde de merkez kurmanın çalışmalarını sürdürüyor.
+         <br/>
+         <br/>
+         Yüksek teknoloji ile yayın yapan radyo İstanbul’daki merkezden 3 radyo yayını yapacak donanıma ve aynı anda 15 konuğu birden canlı yayına alabilecek imkana sahip. Teknik olarak da kendisini yenileyen radyo, programlar bakımından da sürekli alternatif üretiyor. Burç FM’de kültür programları büyük önem kazanıyor. 22 farklı program ile dinleyicisine ulaşan radyo her saat başı verdiği özel haberlerle de dikkat çekiyor. Çalınan müzikte aranan kalite ve seviye ise radyonun taviz vermediği unsurlardan biri. Din eğitimi, bilim, tarih, sanat konularındaki programların yanısıra gündemdeki konuları uzmanlara tartıştırıp dinleyiciye en doğru olanı verme radyonun prensiplerinden. Yapılan istatistiki çalışmalar Burç FM’in seviyeli ve kültür ağırlıklı bir radyo olduğunu ortaya koyuyor. Radyonun anketine göre dinleyicilerinin yüzde 51’i radyoyu kültür programlarından dolayı tercih ediyor. Özkundakçı, radyonun bir müzik kutusu olarak algılanması yanlışından vazgeçilmesi gerektiğinin altını çiziyor.
+         <br/>
+         <br/>
+         Evde dinlenen radyo
+         <br/>
+         <br/>
+         Gazete ve dergiler için tiraj, televizyonlar için reyting önemli ölçü oluyor. Ancak radyolarda böyle bir tespiti yapmak mümkün değil. Yani radyoda bir reyting ayracı ve ölçüsü yok. Ya şirketlerin yaptığı ya da radyonun kendi anketleri dinlenme oranını belirliyor. Her radyo ben birinciyim diye ortaya çıkabiliyor. Ancak bu tür konularda geçerli olan söz değil rakamlar.  Burç FM dinleyicisinin yüzde 35’i radyoyu evde dinliyor. Televizyonun olduğu bir ortamda bu veri bir radyo için oldukça önemli. Özkundakçı bu durumu seviyeli programların çokluğuna bağlıyor. Özkundakçı, radyonun en çok akşam saatlerinde dinlenmesinin de kendileri açısından memnuniyet verici olduğunu söylüyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 12 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12066), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228023205/http://www.aksiyon.com.tr:80/yazdir.php?id=12066)

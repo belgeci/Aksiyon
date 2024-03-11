@@ -1,0 +1,74 @@
+# BM kararlarına uyulsun yeter
+
+*Saim Orhan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   “BM kararlarının uygulanmasında maalesef küçük ülkelerin fazla şansı yok. Küçük ülkeler, küçük halklar büyük ülkelerden ve Birleşmiş Milletler’den adalet bekleyemezler. Ne zaman Batı’nın çıkarları ve büyük bir ülkenin çıkarları devreye girerse, o zaman alınan kararlar uygulanır.”
+   <br/>
+   <br/>
+   Geçtiğimiz hafta salı günü Hindistan’ın kontrolü altındaki Cammu Keşmir eyaletinde askeri bir kampa düzenlenen saldırıda 34 kişi hayatını kaybetmiş, olayın sorumluluğunu Pakistan’a yükleyen Hindistan yönetimi misillemede bulunacağını açıklamıştı. Hindistan baskın sırasında çıkan çatışmada öldürülen 3 militanın Pakistanlı olduğunu, bu saldırıyı Pakistan’da faaliyetleri yasaklandığı için El Mansuri ismiyle varlığını sürdüren Leşker–i Teyyibe’nin düzenlediğini iddia ediyor. Keşmir’deki şiddet eylemleriyle ilgisini reddeden Pakistan ise Cammu Keşmir’e yalnız insani yardım yaptığını açıklıyor.
+   <br>
+    <br>
+     Yaklaşık 55 yıldır çözüm bulunamayan, uluslararası ilişkilerin kangren haline gelmiş sorunlarından biri Keşmir sorunu çözülmedikçe bu eylemler, karşılıklı suçlamalar devam edeceğe benziyor. Problemi dünyanın da ilgiyle izlemesine neden olan faktör ise bu mesele yüzünden karşı karşıya gelen Pakistan’ın da, Hindistan’ın da nükleer güç olmaları. Şimdiye kadar 3 kez Keşmir yüzünden birbiriyle savaşan bu iki ülkeden herhangi birinin nükleer güce başvurması ihtimal dışı değil. İşte bu kritik meseleyi Keşmir’in Pakistan kontrolündeki kısmı olan Azad Keşmir’in Başbakanı İskender Hayat ile konuştuk.
+     <br>
+      <br>
+       –Bir türlü çözüm bulunamayan Keşmir sorununun özü nedir?
+       <br>
+        <br>
+         Öncelikle buraya gelmenizden ve Keşmir ve Pakistan’a göstermiş olduğunuz ilgiden dolayı teşekkür ederim. Pakistan ve Türkiye arasında İslami kardeşliğin olmasının yanısıra bizlerin Türk kardeşlerimizi çok sevdiğimizi ve onların başarısı için dua ettiğimizi belirtmek isterim. Biz Keşmirlilere gelince, ne yazık ki, talihsiz bir halkız ve şu ana kadar geleceğimiz hakkında karar verilmiş değil. Bu güne kadar mücadele ediyoruz, en azından 1947 yılından bu yana 54 yılı aşkın süredir mücadele etmemize rağmen hâlâ amacımıza ulaşabilmiş değiliz. Bildiğiniz gibi, Hindistan sürekli Pakistan’ı tehdit ediyor ve Hindistan’ın Keşmir üzerindeki planları hâlâ açık değil. Hindistan Keşmir’in üçte ikisini 1947 yılında herhangi bir ahlaki veya yasal temele dayanmaksızın, zorla ele geçirdi ve 28 Ekim 1948 tarihinde Hindistan askeri kuvvetlerini Keşmir’e paraşütle indirdi. Keşmir’de bir özgürlük hareketi vardı ve insanlar Srinagar’a doğru yaklaşıyorlardı. Keşmir Devleti’nin Hindu Maharajasının, İngilizlerin ve Hint Kongre Partisi’nin anlaşmasıyla beraber Hindistan Birleşmiş Milletler’e başvurarak ateşkes ilan edilmesini sağladı. 1948 tarihinden bu yana bizler Hindistan’dan Birleşmiş Milletler kararlarına riayet etmesini bekliyoruz, zira o kararlar çerçevesinde Pakistan ve Hindistan Birleşmiş Milletler Güvenlik Konseyi’nde Keşmir’in geleceğinin halkı tarafından belirleneceği konusunda mutabakata varmışlar, Keşmir halkından da iki ülke, Pakistan veya Hindistan arasında seçim yapmaları istenmişti. Zira Hindistan iki ülkeye bölünmüştü: Hindu Hindistan, Müslüman Pakistan. Bu iki ülkenin kurulmasındaki temel kararlar çerçevesinde Hindistan içerisinde kalan 5 kadar eyalete coğrafi durum ve nüfusuna göre iki ülkeden birine iltihak etme seçeneği verilmişti. Keşmir’deki nüfusun yüzde 80’i Müslümanlar’dan oluşmaktaydı. Keşmir’in coğrafi durumu ve Pakistan’a akan nehirleri ile beraber özellikle Pencap gibi Pakistan eyaletleriyle olan yakın ilişkileri yakından bilinmekteydi. Fakat Hindistan Birleşmiş Milletler kararlarına riayet etmemeye devam etti ve 1965 ve 1971 yıllarında da direnişler ve mücadeleler oldu.
+         <br/>
+         <br/>
+         –Acaba neden Birleşmiş Milletler kararlarını burada uygulamak bu kadar zor?
+         <br/>
+         <br/>
+         Aslında zor değil ama bu küçük ülkelerin garip kaderinde var. Küçük ülkeler, küçük halklar büyük ülkelerden ve Birleşmiş Milletler’den adalet bekleyemezler. Ve ne zaman Batı’nın çıkarları ve büyük bir ülkenin çıkarları işin içine karışırsa, o zaman orada kararlar uygulanır. Örneğin bunu Kuveyt–Irak Savaşı’nda veya Doğu Timor’da veya büyük ülkelerin çıkarlarının gözetildiği başka yerlerde de görebilirsiniz. Ne yazık ki bizim burada Batılıları çekecek ne petrolümüz ne de işlerine yarayacak şeylerimiz var. Ne yazık ki Müslümanız ve bize adil davranmaya yanaşmıyorlar. Biz hiçbir şey istemiyoruz, sadece BM kararlarına uyulmasını istiyoruz. Keşmir meselesi hâlâ BM gündeminde. Demokratik ülke halkları ve BM’ye üye ülke halkları, özellikle Müslüman devletler ve İslami ülkelerin kurumları zorda olan Müslüman halklara gerekli özeni göstermeli. Mutluyuz, zira İslam Konferansı Teşkilatı(İKT)’nın önde gelen 5 ülkesi Keşmir’in de yakın dostları. Bunlar Pakistan, Suudi Arabistan, Türkiye, Nijerya ve Senegal. Keşmirliler’in İKT’den beklentileri büyük. Bu İslam kardeşlerimize diyecek birşeyimiz yok ama birleşirlerse İslam dünyasında geniş kararlar aldırabilirler.
+         <br/>
+         <br/>
+         –Şu sıralarda Keşmir’de insan hakları ihlalleri konusunda neler olup bittiğini öğrenmek zor. Bu konuda tabii ki bilginiz vardır, bizi aydınlatır mısınız?
+         <br/>
+         <br/>
+         İşgal altındaki Jammu Keşmir’de 1989 yılından bu yana Hindistan güvenlik güçleri tarafından 80 bini aşkın insan katledildi. Şu günlerde günde 15–20 insan şehit ediliyor. Son günlerde Hindistan parlamentosundan muhalefetin itirazlarına rağmen dünya üzerinde görülebilecek en dehşet verici bir kanun geçirildi: POTO ve TADA . Bu kanunlar ne demektir? Herhangi bir hükümet herhangi bir bölgeyi savaş bölgesi olarak ilan edebilir ve o zamandan itibaren hükümet güçleri gördüklerini vurma hakkına sahiplerdir. Bakın, bu ülkede tüm yıl boyunca kuş avı yasaktır. Kuş vurma konusunda kısıtlamalar vardır. Keşmir’de ise herhangi bir yetkili, herhangi bir yerde, herhangi bir evi havaya uçurabilir, sebepsiz yere insanlar tutuklanabilir, işkenceye uğratılabilir... Bu dünyadaki en dehşet verici yasalardandır ve insanlar şimdi acı çekmektedirler. Bakın, 70 ila 80 bin arası insan şehid edildi, 200–300 kadına tecavüz ediliyor. Böylesine bir vahşet ve eziyet... Bunları bizler anlatmıyoruz. Tüm dünya seyrediyor.
+         <br/>
+         <br/>
+         –Hindistan Keşmirliler’in isteklerine niçin duyarsız kalıyor?
+         <br/>
+         <br/>
+         Hindistan’ın tek amacı Keşmir değil, Büyük Hindistan (Attal Bharat) hayalleri var. Hindistan etrafındaki tüm küçük komşularını ele geçirmek istiyor: Nepal, Sri Lanka, Maldivler gibi. Askeri yapılanmasına, nükleer programına ve iki bin 500 mil menzilli balistik füzelerine bakılırsa ne 70 mil ötedeki Keşmir için ne de 300 mil ötedeki Pakistan için bunlar. Ne için? Hindistan tüm Ortadoğu’yu, yayılmacı politikasını sevmeyen tüm ufak ülkeleri ele geçirmek istiyor. Bir politikacı olarak kimlerin Hindistan’ın politikasını ve psikolojisini sevdiğini söyleyebilirim. İnsanların şunu bilmeleri lazım; eğer dünya güçlerinden birisi bu duruma dikkat kesilmezse Hint saldırganlığı ufak ülkeleri yutabilir.
+         <br/>
+         <br/>
+         –Keşmirliler ne istiyorlar? Sizin yakın ve ileri planda düşünceleriniz nelerdir?
+         <br/>
+         <br/>
+         Keşmir halkı kendilerine sorularak geleceklerinin tayin edilmesini istiyor. Keşmir, Hindistan’ın mı, Pakistan’ın mı parçası olacak? Bu insani bir hak olmasının yanısıra BM Kuruluş Anayasası’nda da her ülkeye verilmiş olan bir haktır. Dahası Keşmir meselesi BM gündemini meşgul etmektedir. Dolayısıyla BM kararlarının uygulanmasını istemekteyiz. İkinci sorunuza gelirsek, bir ülke halkı veya bir toplum eğer bağımsızlıklarını almaya kararlılarsa er–geç bir gün kazanacaklardır diyorum.
+         <br/>
+         <br/>
+         Umarız ki Türk halkı ve hükümeti biz kardeşlerini unutmazlar. Bize uluslararası platformda, dünya çapında, BM veya organizasyonlarda ne şekilde olursa olsun yardım etmelerini istiyoruz. Biz Türkiye’nin genç kardeşiyiz, bize politik ve diplomatik destekte bulunmasını istiyoruz.
+         <br/>
+         <br/>
+         –Hindistan ile Pakistan arasında muhtemel bir çatışma görüyor musunuz?
+         <br/>
+         <br/>
+         Zannederim son zamanlardaki gerilimlerden dolayı ABD, Çin, İngiltere, Fransa gibi ülkeler bu bölgeye yoğunlaştılar. Aslında Keşmir’i düşündükleri yok fakat iki nükleer güç çatışacak diye korkuyorlar. Bu ülkeler araya giriyorlar. Savaş olacağını sanmıyorum. Hindistan’ın Keşmir üzerindeki isteklerine dünya kamuoyunca dikkat edilmemesi konusunda endişem o ki, Hindistan herhangi bir bahaneyle özgürlük davamızı dünya kamuoyuna şu sıralardaki terörizme karşı devam eden mücadeleler çerçevesinde ülkesine karşı terörist bir hareket olarak tanıtarak avantaj toplayabilir. Allah en iyisini bilir. Eğer Hindistan böyle bir bahaneyle bağımsız Keşmir’in üzerine yürürse biz Keşmirliler savaşa alışık ve kuvvetli insanlarız; savaşırız ve teslim olmayız. Eğer Pakistan’ı ufak bir ülke olarak görüp saldırılara girişirse Pakistan gereken cevabı verecektir. Nükleer savaşta her iki ülke de eşit güce sahip. Böyle bir trajedi olmamalı. Hindistan bunu anlamalı. Şüphesiz her iki ülke sınırlarında büyük sayıda asker ve mühimmat yığılmış durumda ama dünya bu konuda duyarlı olup böyle bir olaya izin vermeyecektir. Dolayısıyla durum giderek yatışacaktır.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 16 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12031), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228023028/http://www.aksiyon.com.tr:80/yazdir.php?id=12031)

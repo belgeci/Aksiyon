@@ -1,0 +1,172 @@
+# Global ahlâk olmadan asla
+
+*Abdülhamit Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161414im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161414im_/http://www.aksiyon.com.tr/resim/359/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  11 Eylül’de Amerika’da yaşanan terör olayları karşısında Filistin’de yapılan sevinç gösterileri yerkürenin Batı yakasında hayretle karşılandı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu trajedi karşısında gösterilen tepkinin insanlığa sığmadığı söylendi. Şaşkınlıklarında onlar da haksız değillerdi elbette. Kederleri başkalarına sevinç kaynağı olmuştu. İlk anda verilen tepkilerin ötesinde, üzerinde düşünülmesi gereken bir olaydı bu. Yaşanan sıkıntılar ne kadar büyüktü ki, insanlar hemcinslerinin dramına sevinecek hale gelmişlerdi.
+   <br>
+    <br>
+     Aslında biraz kendimize karşı samimi olur ve dünya sisteminin edilgenler mevkiinde yolculuk yapanların fısıltılarına kulak kabartırsanız, hayal kırıklığınızı artıracak daha nice sesler duyabilirsiniz. Masum sivillerin yaşadığı trajediye hemen herkes üzülüyor, ama düzenin sorumlusu olarak görülen ABD’nin yediği tokatı hak etmediğini düşünen çok az insan var. Bir dönem üst düzey bir CIA yetkilisi olarak çalışan Graham Fuller bile dünya genelinde insanların ABD’nin terörist saldırıları hak ettiğini düşündüğünü kabul ediyor.
+     <br>
+      <br>
+       Bir televizyon muhabirinin “Türkiye Afganistan’a asker göndermeli mi?” sorusuna orta yaşlı bir Türk bayanın cevabı da aynı tonu içeriyordu: “Yıllardır evlatlarımızı şehit verirken, bize yardımcı olmak yerine Amerikan uçakları teröristlere yardım atmıyor muydu? Niye şimdi onların savaşına katılalım?”
+       <br/>
+       <br/>
+       Bu yüzden daha birkaç ay önce Moskova’da ABD hegemonyasına karşı Çin ile ortak mücadele etmek için anlaşmalar yapan Rusya’nın Sonsuz Özgürlük Operasyonu’na samimi destek verdiğine kimse inanmıyor. Benzer şekilde Çin’in de sessiz desteğinin altında, kendisine göre ‘terör’ olarak tanımladığı Doğu Türkistan’daki özgürlük taleplerine karşı mücadelede zemin kazanma isteği yatıyor. Rus lider Putin’in 11 Eylül şokunun sürdüğü günlerde terörist olarak ilan ettiği Çeçenler’e teslim olmaları için 72 saat süre vermesi boşuna değil.
+       <br/>
+       <br/>
+       11 Eylül’de yaşanan trajedi, aslında dünyanın tek süper gücü de olsanız, iki okyanus tarafından dış dünyaya karşı doğal olarak korunmuş da olsanız, bundan böyle yeryüzünde kimsenin tek başına huzurlu olamayacağını gösterdi. Dünyanın bir köşesinde umutsuzluk, şiddet, adaletsizlik diz boyuyken, diğer köşesinde herşey süt limanmış gibi asude bir hayat sürmenin pek mümkün olmadığı anlaşılmıştı.
+       <br/>
+       <br/>
+       Belki dünya tarihinde sürekli adaletsizlik vardı. Ama iletişim teknolojileri sayesinde çarpıklık, sade insan için asla bu kadar görünür olmamıştı. Bugün belki dünyada yaklaşık 2 milyar insan günde 1 dolardan az para kazanıyor, ama bu insanların çoğunun evinde ulaşamadığı dünyayı ayağına getiren televizyon var. Önceleri kader diye sineye çekilen durumlar, artık her hanede isyan fırtınalarına zemin hazırlıyor.
+       <br/>
+       <br/>
+       Dünyanın bu çaresizliğe terk edilmiş noktalarından Afganistan’da, 1979’daki Sovyet işgalinden bu yana dünyaya gelen çocuklar savaşla yatıp, savaşla kalktılar. Dünyanın başka yerlerindeki çocukların hayatında oyun vardı, oyuncak vardı, ama savaş ve silah onların tek eğlencesi oldu. Amerika’nın dramına sevindikleri için şaşkınlıkla karşılanan Filistinliler’in mülteci kamplarındaki hayatı yarım asrı çoktan geçti. Aksa İntifadası’nda İsrail panzerlerine taş fırlatan çocuklar, işte bu kampların çocukları. 20 yıldır terör belası yüzünden, olağan hayata bir türlü geçemeyen Türk vatandaşları var.
+       <br/>
+       <br/>
+       Dünya yalnız sermaye için küresel. Emek için, ticaret için hâlâ yontulması gereken çok köşesi bulunuyor. 6.5 milyarlık dünya nüfusu içinde bir avuç denebilecek müreffeh hayat yaşayan Batı’ya adım atabilmek için o kadar can atan insan var ki, yakınımızdaki Akdeniz ve Ege bu amacın kara sevdasına yanmış insan taşıyan teknelerle dolu. ABD’ye gidebilmek için uçak tekerleklerinin arasına sıkışıp okyanusu geçmeyi göze alanlar, Avrupa’ya girmek için et taşıyan kamyonların arkasında donarak hayata veda edenler var.
+       <br/>
+       <br/>
+       Bir yanda internet, ışık hızını geçme gayretleri; diğer yanda küresel sefalet. Bir yanda insan hakları, adalet, demokrasi nutukları; bir yanda çifte standartlarlar, sınırsız egoizm, Uzakdoğu’nun çocuk yaştaki kızları için düzenlenen cinsel turlar, dünya sarsılsa gevşemeyen demir yumruklarıyla diktatörlükler.
+       <br/>
+       <br/>
+       Epey zamandır köy haline geldiği söylenen yaşlı dünyamız işte böyle garip bir köy.  Onda normal bir köydeki huzurdan, dayanışma ruhundan, diğergamlıktan eser yok. Batı’dan Doğu’ya, Kuzey’den Güney’e değişmeyen insanlığın ortak değerlerini hayata geçirmeden, kronikleşmiş sorunları adaletle çözmeden bu köye huzur gelir mi?
+       <br/>
+       <br/>
+       İsrail’in Filistin’deki savunmasız şehirleri uçaklarla bombalamasına, Çeçenistan’ın taş taş üstünde bırakılmayacak şekilde tahrip edilişine, Keşmir’de dinmeyen acıya, genetiğin insan türünü tehdit edecek şekilde kötüye kullanılmasına, çevrenin tahrip edilerek dünyanın tahrip edilişine, Cezayir’de 100 bin insanın rejim adına birbirini boğazlamasına, yarım milyondan fazla Hutu’nun Ruanda’da göz kırpmadan katledilişine, Bosna’da 250 bin insanın Avrupa’nın ortasında soykırıma tabi tutulmasına, Dünya Ticaret Merkezi’ndeki binlerce insanın hunharca katledilişine, Bin Ladin ve Taliban yönetimi yüzünden Afgan şehirlerinin bombalanışına insanların aynı derecede üzülmesi, aynı derecede tepki göstermesi mümkün değil mi? Yoksa bütün insan hakları bildirgelerine rağmen yeryüzündeki insanların birbirinden farklı kıymeti mi var? Bir Sri Lankalı’nın, bir Türk’ün ölmesini, bir Amerikalı’nın ölümüyle aynı derecede sorun olarak gören bir global ahlak olamaz mı? Rengi, dini, ırkı, ülkesi, dili ne olursa olsun bütün insanların üzerinde anlaşacağı bir değerler bütünü, bir global ahlâk yok mu?
+       <br/>
+       <br/>
+       Global Ahlâk (Ethic) Vakfı Başkanı Prof. Dr. Hans Küng bu soruyu en net şekilde ortaya koyanlardan biri. Ona göre insanlık ya global ahlâkî değerler etrafında bir araya gelmeli ya da diğer seçeneğe razı olmalı: Bitiş, insanlığın ölümü. Prof. Küng’ün çalışmaları şimdiden bazı meyveler de vermiş. 1993’te Chicago’da 100’üncü kuruluş yıldönümünü kutlayan Dünya Dinler Parlamentosu, Katolik, Ortodoks ve Protestan kiliseleri, Yahudiler, Müslümanlar, Hindular, Budistler, Sihler ve Bahailer’in katılımıyla Global Ahlâk Evrensel Beyannamesi’ni kabul etti.
+       <br/>
+       <br/>
+       11 Eylül hadisesinin de etkisiyle Batı’da birileri medenilerle barbarların savaşından bahsederken, insanlığı dinler, kültürler, coğrafyalar veya medeniyetler temelinde bölmeye uğraşırken, Prof. Küng, Budizm’den Hıristiyanlığa, İslâm’dan Konfüçyüzme bütün büyük din ve felsefelerin üzerinde anlaştığı bir altın kurala dikkat çekiyor: “Kendinize yapılmasını istemediğinizi, başkasına yapmayın. Batılılar, Asyalılar, Afrikalılar için ayrı ayrı ahlâk anlayışları olabilir mi?”
+       <br/>
+       <br/>
+       Global Ahlâk konusunda yaptığı çalışmalarla tanınan Prof. Leonard Swidler, “Global Diyalog ve Global Ahlâk” başlıklı bir yazısında bütün dinî, felsefî öğretilerde altın kuralın mevcut olduğunu ispat ediyor. Örneğin Hindu dünya görüşünün özeti olarak nitelenen M.Ö. 3’üncü asra ait bir şiirde şöyle söyleniyor: Sana yapılmasını istemediğini başkasına yapma. Başkaları için, kendin için arzuladığın şeyleri, başkaları için de arzula.” (Mahabharata, Anusasana Parva 113.8)
+       <br/>
+       <br/>
+       Yine M.Ö. 5’inci asırda yazılmış bir Tevrat’ta altın kural şöyle geçiyor: Komşunu kendin gibi sevmelisin (Lev 19:18). Hz. İsa’dan bir nesil önce yaşayan ve Rabbani (A.S.) Yahudiliğin kurucusu olarak bilinen Hille, Tevrat’ın özetinin altın kural olduğunu, geri kalanın yorum olduğunu söylüyor: “Kendine yapılmasını istemediğini, başkasına yapma” (Btalmud, Shabbath 31a).
+       <br/>
+       <br/>
+       İncil’de Hz. İsa (A.S.) Tevrat’ı ve peygamberlerin davasını altın kuralla özetliyor: “Yalnız kendine yapılmasını istediğini başkasına yap” (Luke 6:31); “Başkalarına, onların sana yapmasını istediğini yap. Musa (A.S.) Kanunu’nun(Tevrat) ve peygamberlerin öğretisinin anlamı budur” (Matthew 7:12).
+       <br/>
+       <br/>
+       Ve son Peygamber Hz. Muhammed (s.a.v) de altın kuralı en asil din anlayışı olarak vurguluyor: “En asil din, kendin için istediğini başkaları için istemen, kendin için üzüntü duyduğun şeye başkaları için de üzüntü duymandır”. Ya da “Kendiniz için istediğinizi, kardeşiniz için de istemedikçe gerçek mümin olamazsınız”.
+       <br/>
+       <br/>
+       Dünya Dinler Parlamentosu’nun 1999 Cape Town toplantısına davet edilen Fethullah Gülen de, evrensel hoşgörü kültürünün altını çizerek bu düşüncenin İslâm’la çelişmediğini vurguluyor. Doğu’da da Batı’da da diyalogdan korkanların kendi dinamiklerine yeterince güvenmeyenler olduğunu ifade ediyor. Adalet ilkesine dayanmayan huzurlu bir dünya kurmanın imkansızlığına işaret eden Fethullah Gülen şunları söylüyor: “Savaşla, kan dökerek, ne istenen seviyede bir dünya kurulabilir, ne de kurulacak bu dünya hüsn—ü kabul görür. Bundan böyle kaba kuvvet kullanılarak kurulmak istenen her denge, en kısa zamanda yıkılacak ve yıkılan o enkazın altında da, öncelikle o yıkıma sebep olanlar kalacaktır.”
+       <br/>
+       <br/>
+       Yaşlı dünyanın kanlı arşivleri
+       <br/>
+       <br/>
+       Yırtıcı Küreselleşme kitabıyla bugünkü düzeni kıyasıya eleştiren, hatta kuzey—güney ayrımını Güney Afrika’daki apartheid’ın uluslararası uygulamasına benzeten Prof. Richard Falk, küresel politikaya şekil verenler, dışişleri mensupları ve akademik çevrelerde realist akımın etkili olduğunu belirtiyor. Realizm ise çatışmaya eğilimli ve devlet merkezli olup, hukuk ve ahlâkî millî çıkarların akılcı hesabı üzerinde birer yük olarak görmekte ve kabul etmemektedir. Kissinger’in Bosna’ya müdahaleye karşı çıkarken “Orada petrol mü var?” şeklindeki çıkışı bu ekolün çok iyi bir örneğidir. Bu görüşe göre millî çıkarların maksimuma çıkarılması hedefi ahlâkî gerekçelerle saptırılmamalıdır. Machiavelli, Prens adlı kitabında bu yaklaşımın fikir babası olarak bireyleri bağlayan ahlâkî kriterlerin devleti bağlamadığını açıkça söylüyordu.
+       <br/>
+       <br/>
+       Machiavelli’den çok önce de Batı kültürünün temellerinde bu yaklaşımın izlerini bulmak mümkün. Uluslararası İlişkiler’in ilk klasiği sayılan Pelopenezya Savaşı Tarihi adlı kitapta, güçsüz rakipleri  Atinalılar’a aralarındaki anlaşmazlığı hakkaniyet ilkeleri çerçevesinde çözmeyi öneriyorlar. Buna Atina’nın cevabı, dünyada adalet kurallarının güçlülerce konduğuydu: “Güçlüler yapacaklarını yaparlar ve zayıflar katlanmaları gerekene katlanırlar.” Roma, imparatorluğun içinde ve dışında yaşayan toplulukların ilişkilerini düzenlemek için bir uluslararası hukuk oluşturdu. Ama Çin düşüncesinde olduğu gibi imparatorluğun hükümranlık kapsamı dışındaki bölgeler normal ilişki kurulacak birimler olarak görülmedi. Aksine onlar, tehdit ya da ganimet kaynağı olarak kabul edildi.
+       <br/>
+       <br/>
+       Bu emperyal yaklaşım büyük oranda Ortaçağ’a egemen olan büyük dinler üzerinde de etkili oldu. Kutsal Roma İmparatorluğu, Saint Augustine’in barış ve huzuru temsil eden Tanrı Ülkesi ile kargaşa ve mutsuzluğu sembolize eden Yeryüzü Ülkesi kategorilerini dünyevileştirdi ve dünyayı Hıristiyanların Ülkesi ve Hıristiyan Olmayanların Ülkesi olarak ikiye ayırdı. Hıristiyan olmayanlar normal ilişki kurulacak topluluklar olarak görülmüyordu. Onlar ancak kutsal savaşın nesnesiydiler. Bush ve birçok Batılı’nın 11 Eylül sonrası söylemlerine dikkat edilirse, bu ‘biz ve onlar’ kategorisinin fazla hayatiyet kaybetmediği anlaşılır.
+       <br/>
+       <br/>
+       Avrupa’daki muhafazakar çevrelerin örneğin Türkiye’yi sırf Müslüman olduğu için aralarına almak istememeleri de aynı tarihî kodların uzantıları. Sömürgecilik döneminde Batı’nın ‘Beyaz Adamın Misyonu’ şeklindeki meşrulaştırmasının ve Haçlı Seferleri’nin arkasında da bu çok derin tarihî temeller yatıyor.
+       <br/>
+       <br/>
+       19’uncu yüzyılın yarısında Hıristiyan Avrupa’da oluşan uluslararası ilişkiler hukukundan yararlanmaya ehil görülen, ama çoğu kere pratikte yararlandırılmayan ilk ‘öteki’, Osmanlı olmuştu. Japonya ve Çin gibi diğer ‘ötekiler’in bir süre daha beklemesi gerekiyordu.
+       <br/>
+       <br/>
+       Aynı dönemde parlak siyasi yönetimler kuran İslâm dünyasında da Batı’daki kategorileri çağrıştıran yaklaşımlar vardı. Onların gözünde dünya, Müslümanlar’ın özgürce yaşadığı Darü'l İslâm ve Müslümanların egemenliğinde olmayan Darü'l Harp kategorileri içinde görülüyordu. Elbette önemli farklar vardı. Darü'l Harp talan edilmesi meşru görülen bir yer değildi. Ve bugün birçok çağdaş uluslararası ilişkiler teorisyeni, İslâm’ın bu iki kategoriye eklediği üçüncü bir kavram olan Darü's Sulh anlayışıyla daha fazla evrensellik ve kapsayıcılık niteliğine sahip olduğunu düşünüyor. Darü's Sulh, yani Müslümanlar’ın kendileriyle barış içinde olduğu ülkeler.
+       <br/>
+       <br/>
+       Yeni dünya düzeni, küreselleşme, medeniyetler çatışması ve tarihin sonu gibi tezleri savunduğumuz bugünkü dünyanın böyle bir geçmişi var. Fransız İhtilali’nin yaralarını sarmak için kurulan ve Avrupalı güçlerin katıldığı Avrupa Uyumu, I. Dünya Savaşı’nı önleyemediği gibi, savaştan sonra kurulan Cemiyet—i Akvam da başarısızlıkla sonuçlandı ve insanlık tarihindeki en kanlı olay olan II. Dünya Savaşı’nı engelleyemedi. Bu savaşın ardından galiplerin kurduğu sistem de Soğuk Savaş’ı önlemek bir yana, onun tarafından by—pass edildi. Kabul edilen onlarca evrensel bildirgeye, yeni düzen iddialarına rağmen dünya asla huzura kavuşamadı.
+       <br/>
+       <br/>
+       Balık baştan kokar
+       <br/>
+       <br/>
+       Mevcut dünya düzeninin çarpıklıklarını bizzat yaşayarak tecrübe etmiş olan Emekli Büyükelçi İnal Batu da evrensel adaletin önemine dikkat çekiyor. Batu’ya göre uzun vadede terör ve huzursuzlukları önlemenin tek yolu var: Daha adil bir dünya kurmak.
+       <br/>
+       <br/>
+       Batu, dünyadaki mevcut adaletsiz yapıyı şöyle özetliyor: “Bugün küreselleşme kisvesi altında gelir uçurumu gittikçe büyüyor. Dünya nüfusunun yüzde 20’si kaynakların yüzde 80’ini tüketiyor. Bu haliyle küreselleşme tam bir yutturmaca. Emeğin serbest dolaşımı yok. Zengin ülkelere vize almak bile neredeyse imkansız. Yalnız sermaye, o da büyüklerin çıkarınaysa serbest dolaşıyor.”
+       <br/>
+       <br/>
+       Adil bir dünya kurulmadan, sorunları bugün çözmüş gibi görünsek de, yarın başka yerden patlayacağını hatırlatan Büyükelçi Batu, yalnız ekonomi alanında değil diplomasi ve uluslararası ilişkiler alanında da adaletin kurumsallaştığını şu sözlerle anlatıyor:
+       <br/>
+       <br/>
+       “Dünyanın en evrensel kurumunda adaletsizlik var. Birleşmiş Milletler’de 5 üyenin ayrıcalıklı konumu var. Veto hakları var. Ve bu adaletsizlik 50 yıldır değiştirilemiyor. Hatta değişmesini önerecek mekanizmaların önünde bile onların veto engeli var. Boşuna ‘balık baştan kokar’ dememişler.”
+       <br/>
+       <br/>
+       Mevcut dünya düzeninin bir başat gücün egemenliğine dayandığını söyleyen Prof. Ali Yaşar Sarıbay da medeniyetlerin ortak iyi—kötü tanımlamalarına varmalarını ideal olarak görüyor, dünyanın ancak bu şekilde huzura kavuşacağına inanıyor. Ama dünyanın farklı istikamette gittiğinden endişe ediyor ve özellikle 11 Eylül sonrasını şöyle değerlendiriyor:
+       <br/>
+       <br/>
+       “Global uzlaşıdan çok, global egemenlik sözkonusu. Bu Hıristiyanlık temelli Batı değerlerinin değil, global kapitalizmin egemenliği. Huntington’ın Medeniyetler Çatışması tezi maalesef haklı çıkıyor. Çatışmanın eşiğinde olduğumuzu düşünüyorum. Birkaç yüzyıldır devam eden iyi Batı, kötü Doğu ayrımı, şimdi kuzey güney şeklinde uyarlanıyor. Berlusconi ve Bush gibi isimlerin ağzından tabiî olarak çıkan sözler bence önemli. Terörle İslâm’ı ayırıyoruz sözlerini de taktik olarak görüyorum. Operasyon uzar ve kapsamı genişlerse, çatışma gündeme gelir.”
+       <br/>
+       <br/>
+       Sezai Karakoç da, insanlığın, 3—4 asırdır tarihi yönlendiren başaktör olan Batı’ya hal diliyle şöyle seslendiğini söyler: “Dünyaya hakim olmak istedin. Pekala, işte oldun. O halde, kader senden, hepimizin asgarî mutluluğu veya hiç olmazsa hayatın yaşanmaya değer olduğunu kabul edebilmemiz için yeni bir inanç, varoluş, yorum ve anlamı istemektedir. Bu sorumluluğa hevesli olan sendin. Bunu sen kendin yüklendin. Şimdi cevap ver bakalım” (İnsanlığın Dirilişi, 1980). İnsanlığın Batı’ya başkaldırışını, kölelerin Roma’ya başkaldırışına benzeten Karakoç, yerleri, yurtları, geçmişleri ve tarihleri ile eski uygarlıkların mirasçılarının uyanmaya başladığını ve görünüşte Batılılaşan bu insanların aslında Batı’nın karşısına çıkıp “artık dur” diyecekleri günü beklediklerini belirtiyor.
+       <br/>
+       <br/>
+       Karakoç’un şairane bir duyarlılıkla yaklaştığı bu konuya, Prof. Dr. Ahmet Davutoğlu bir stratejist gözüyle bakıyor ve Avrupa merkezli bir tarihi sürecin eseri olan bugünkü sıkıntıların ancak bütün medeniyetlerin katkılarıyla bulunacak yeni sentezlerle aşılacağını vurguluyor: “Küreselleşme kaçınılmaz bir şekilde başta Asya olmak üzere bütün insanlık birkimini tarihin akış seyrinde tekrar devreye sokacak unsurlar taşımaktadır. Mesnevi’nin ABD’de en çok satılan kitaplar arasında yer alması, İslâm’ın birçok Batı ülkesinde ikinci büyük din haline gelmesi, Hind ve Çin medeniyetlerinin klasik değerlerinin hızlı bir yükseliş trendine girişi, Huntington’ın öngördüğü medeniyet çatışmasını değil, yeni bir medeniyet sentezi ve açılımını gerekli kılacaktır.”
+       <br/>
+       <br/>
+       “11 Eylül’den sonra dünya eskisi gibi olmayacak” sözlerini abartılı bulan Prof. Dr. Süleyman Uludağ, bu olay olmasa da insanlığın yeni bir çağa girdiğinin uzun zamandır bilindiğini söylüyor. Prof. Uludağ, birçok kavramı değişik din, mezhep ve ideolojilerin farklı tanımlandığını, bu temel farkların inanç ve kültürden kaynaklandığı gibi farklı çıkar tanımlamalarından da kaynaklanabildiğini belirtiyor. Terör de bu kavramlardan biri. Sovyetler’e karşı savaşan Afganlılar, önce özgürlük savaşçısıydı, şimdi terörist deniyor. Filistin lideri Arafat eskiden teröristti, şimdi devlet başkanı. İsrail, terörle kurulmuş bir devlet. Bu karmaşayı gidermek ve evrensel bir tanıma ulaşmak için Uludağ’ın önerisi, terörün mahiyetine ve amacına bakılması. Amacına ulaşmak için masum insanların ölümüne, beldelerin harap olmasına sebep olan her şiddet terördür.
+       <br/>
+       <br/>
+       Peki Hans Küng’ün başını çektiği global ahlâk düşüncesine bir ilahiyatçı olarak Prof. Uludağ nasıl bakmaktadır? İyi—kötü, doğru—yanlış gibi kavramların birer ahlâk kuralı ve zaten evrensel olduğunu, çeşitli ahlâk sistemleri arasındaki farkın özde değil ayrıntılarda olduğunu söyleyen Prof. Uludağ, İslâm ahlâkının temelde evrensel olduğunu, bunun mason ya da hümanistlerin tekelinde olmadığını, bir vakıa olan küreselleşmenin Müslümanlar’ı dünya ve insanlıkla uyum içinde yaşamaya zorladığını vurguluyor. Körü körüne küreselleşme adına önerilen herşeyi kabul etmek gibi, anlamsız bir direnişi de faydasız buluyor. Dinlerarası diyalog ve evrensel bir ahlâk anlayışı çabalarının dinler arasındaki farkları kaldırmayı hedeflemediğini hatırlatan Uludağ, çatışmaların din ya da medeniyet farkından değil, ekonomik, politik nedenlerden kaynaklandığını, ama insanların yanıltıldığını düşünüyor. İslâm toplumlarındaki şiddet yanlısı örgütlerin zayıf da olsa, felsefî, dinî arka planı olduğunu kaydeden Prof. Uludağ, asıl nedenin adaletsizlik, yoksulluk, bilgisizlik ve Batı’nın baskıcı, emperyal tutumu olduğunu düşünüyor.
+       <br/>
+       <br/>
+       11 Eylül sonrasında gerçek İslâm’ın anlatılması ve evrensellik çizgisinin vurgulanması için fırsat çıktığı gibi, bir risk de var. Medeniyetler Çatışması tezinin sahibi siyaset bilimci Samuel Huntington, 11 Eylül olaylarının medeniyetler arası bir savaş değil, fanatik bir grubun bütün medeni toplumlara karşı bir saldırısı olduğunu söylüyor. Herkesin sandığının aksine İslâm’ın ya da Batı’nın yenilmesinin değil, global çok kültürlülüğün kabulünün gerekli olduğunu belirtiyor. Berlusconi’nin Batı’nın üstünlüğüyle ilgili sözlerinin çok tepki topladığını, ama Müslümanlar’ın kendilerini daha üstün gördüklerini her zaman ilan ettiklerini söyleyen Huntington, Herald Tribune’daki yazısında “Problem İslâmî fundamentalizm değil, inananların kültürel olarak üstünlüğüne inandığı ancak güç olarak zayıf konumlarının ezikliğini yaşayan İslâm. İslâm için ise problem, kendi değerlerinin evrensel ve üstün olduğuna ikna olmuş Batı’dır” diyor.
+       <br/>
+       <br/>
+       II. Soğuk Savaş
+       <br/>
+       <br/>
+       Geçtiğimiz haftalarda Aksiyon’a verdiği röportajda İslâm’ın liberal ve radikal yorumları arasındaki farkın altını çizen Fukuyama gibi Batılı yorumcular olduğu gibi, bir bütün olarak İslâmiyeti sorgulayanlar da var. Hatta ABD Başkanı Truman’ın 1947’de, oğul Bush’un 20 Eylül 2001’de Kongre’de yaptığı konuşmaları yanyana getiren bazı uzmanlar 11 Eylül sonrası için II. Soğuk Savaş gibi kavramlaştırma yarışına başladılar bile.
+       <br/>
+       <br/>
+       Örneğin Pulitzer ödülü kazanmış bir tarihçi ve Vietnam gazisi olan Walter A. McDougall, Foreign Policy Research Institute’ün 17 Eylül tarihli sayısındaki yazısına II. Soğuk Savaş başlığını kullanmış. Bir sonraki rakibin Çin olabileceğini sandıklarını, ancak Soğuk Savaşlar’ın Amerikalılar’ın hayat tarzını tehdit eden ve komünizm gibi tamamen farklı bir hayat tarzı öneren sistemlere karşı olabileceğini söylüyor.
+       <br/>
+       <br/>
+       Endonezya’dan Fas’a İslâm âlemiyle savaş anlamına gelecek bir medeniyetler çatışması tezini hayata geçirmeye dünyanın sırf stratejik açıdan bile cesaret edemeyeceğini söyleyen Prof. Dr. Mehmet Aydın, şu anda yaşanan krizin eski sistemden yeni sisteme geçişte yaşanan sancıların sonucu olduğunu düşünüyor. Hem Batı’da, hem Doğu’da global düşünenler olduğu gibi, eski kavramlarla düşünenler de var. Bütün farklı din ve felsefeleriyle insanlığın çok önemli bir ortak değerler mirası olduğuna inanan Prof. Aydın, Kur’an’da geçen ‘maruf’ kavramının global ahlâk olarak anlaşılabileceğini belirtiyor. Kur’an’ın adaleti tanımlamaması da bu kavramın insanlığın malı olduğunun altını çizmek anlamına geldiğini söyleyen Mehmet Aydın, evrensel olan kavramların değişik kültürlerde farklı şekillerde karşımıza çıktığını vurguluyor. Bütün dinlerde teşvik edilen bir özellik olan sadakanın, İslâm’da zekat müessesesiyle hukukî bir yaptırıma kavuşturulması gibi.
+       <br/>
+       <br/>
+       Peki son terör olayı ve ABD’nin misillemisi hakkında ne düşünüyor Prof. Aydın? Prof. Aydın’a göre, İslâm dünyasının da içinde olduğu modern dünya çok hızlı sekülerleşti. O kadar ki çok üst seviyelere çıkan teknoloji ve bilime ruh ve yön verecek manevi taraf yok denecek kadar azaldı. Son terör olayında da böyle bir yön var: Taliban, Buda heykellerini yıkmaya çalışırken içinde onların anlayış olarak çok güveneceği isimler de gidip ikna etmeye çalıştılar. Onların derdi din olsaydı, bu tavsiyeye uyarlardı. Ama din adına bu işi yaptıklarını açıkladıklarında, 1.2 milyarlık İslâm dünyasına zarar vermiş oluyorlar. Zaten terörün asla İslâm’da yeri yok.
+       <br/>
+       <br/>
+       Batı’da Prof. Aydın’ın çok takdir ettiği Tony Blair gibi İslâm’la terörü kesin hatlarla ayıranlar olduğu gibi nasıl İslâmiyete genel olarak kuşkuyla bakanlar varsa, 2—3 asırlık kötü tecrübelerin de etkisiyle Batı’ya, küreselleşmeye şüpheci gözlerle bakanlar da var.
+       <br/>
+       <br/>
+       ABD’nin küreselleşme projesinin farklı medeniyet ve kültürlerin içinde yer alacağı, orkestra şefinin kendisi olacağı bir fikir olduğunu söyleyen İslâm Felsefesi Profesörü Mahmut Kaya, ilahî fıtrata aykırı olarak farklılıkları yok etmeyi hedefleyen bu projenin vahşi kapitalizmin dayandığı liberal felsefenin dünyaya hakim olmasını, Protestanlığı dünya dini haline getirmeyi hedeflediğini vurguluyor. Hiçbir gerekçenin terörü haklı göstermeye yetmeyeceğini belirten Prof. Kaya, mevcut adaletsiz yapının altını çizerek kişi başına 30 bin dolar geliri olan Batı toplumları ile, böcekler gibi yerlerde sürünen, Batı’da kendilerine parya muamelesi yapılan ve millî geliri 160 dolar civarında olan mazlum milletleri rasyonel ve ahlâkî kriterler çerçevesinde bir araya getirmenin imkansızlığına dikkat çekiyor.
+       <br/>
+       <br/>
+       Türkiye’nin ve dünyanın önde gelen fikir adamları bir milad olarak değerlendirilen 11 Eylül sonrası dünyaya bu açılardan bakıyorlar. Galiba hepsinin işaret ettiği en önemli nokta şu ki; teknik düzeydeki baş döndürücü gelişmelere rağmen, mevcut siyasî, iktisadî, hukukî yapının insanlığı özlediği bir barış ve huzura taşıması imkansız. Bu kadar çarpıklık, bu kadar adaletsizlik, bu kadar çifte standardı bu muazzam iletişim çağında taşıyacak alternatif bir yapı bulmak da zor. Dünyayı ateşe vermek istemiyorsak, ismi ister global ahlâk, ister medeniyetler arası diyalog olsun, global çocuğa gerçekten global bir elbise biçmemiz gerekiyor.
+       <br/>
+       <br/>
+       “Eski hal muhal, ya yeni hal, ya izmihlal”.
+       <br/>
+       <br/>
+       E—Posta: a.bilici@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12956), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161414/http://www.aksiyon.com.tr:80/detay.php?id=12956)

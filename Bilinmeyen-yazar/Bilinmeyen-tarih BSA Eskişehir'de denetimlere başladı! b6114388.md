@@ -1,0 +1,58 @@
+# BSA, Eskişehir'de denetimlere başladı!
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010656im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010656im_/http://www.aksiyon.com.tr/resim/399/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  BSA'nın korsan yazılımla mücadele amacıyla yürüttüğü çalışmalara bir yenisi eklendi. Eskişehir'de 30 günlük bir fırsat çalışması başlatıldı.
+  <br>
+   BSA Türkiye'nin düzenlediği lisanslanma fırsat çalışmasının yeni etabı Eskişehir'de 22 Temmuz - 20 Ağustos tarihleri arasında gerçekleştiriliyor. Çalışmayla, Eskişehir'de faaliyet gösteren firma yetkililerinin korsan yazılıma karşı bilinçlendirilmeleri ve firmalarındaki yazılım lisanslarını kontrol ederek eksikleri varsa bunları tamamlamaları amaçlanıyor.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Söz konusu çalışmaya Eskişehir Ticaret Odası da destek veriyor. Çalışmanın başlangıcı 1 Ağustos günü Ticaret Odası'nda düzenlenen bir toplantıyla resmen duyuruldu. Toplantıda söz alan BSA Türkiye Genel Koordinatörü Erol Özkür, Fikir ve Sanat Eserleri Kanunu'nun korsan yazılım kullanıcılarına ağır cezalar öngördüğünü, firmaların bu ağır cezalarla karşılaşmalarını önlemek için BSA tarafından 30 günlük bir çalışma başlatıldığını bildirdi. 22 Temmuz - 20 Ağustos arasında BSA katılımcılarının Eskişehir'de korsan yazılım araştırma girişimlerinde bulunmayacağını ifade eden Özkür, bu sürenin eksik yazılım lisanslarının tamamlanması için iyi bir fırsat olduğuna ve firma ilgililerinin verilen süreyi en iyi şekilde değerlendirmeleri gerektiğine işaret etti.
+   <br>
+    <br>
+     Eskişehir Ticaret Odası Yetkilisi Gürcan Banger de yaptığı konuşmada firmaların mutlaka lisanslı yazılım kullanmaları gerektiğine değindi ve yasal yaptırımların ağırlığına işaret ederek böyle bir durumda kalmamanın tek yolunun orijinal yazılım kullanmak olduğunu hatırlattı. Banger, firma ilgililerinin konuyla ilgili soruları kendilerine veya BSA Türkiye uzmanlarına yöneltebileceklerini de sözlerine ekledi.
+     <br>
+      <br/>
+      <br/>
+      30 Gün Süresince Arama Yok
+      <br/>
+      <br/>
+      30 gün süresince Eskişehir'de korsan yazılım aramaları durduruldu. Süre bitiminden itibaren bu çalışmalar, daha da yoğun bir şekilde yeniden başlatılacak. Eksik lisanslarını BSA'ya bildirip verilen sürede lisanslanma işlemlerini bitiremeyeceklerini ifade eden firmalara ise ek bir 30 gün daha verilecek.
+      <br/>
+      <br/>
+      2001 yılının Mart ayında Fikir ve Sanat Eserleri Kanunu'nda yapılan değişikliklerle, korsan yazılımla ilgili suçlar için verilen cezalar büyük oranlarda artırıldı. Hapis cezaları 2-6 yıl, para cezaları eksik lisans başına 10-150 milyar lira olarak uygulanıyor. Bunun yanı sıra 3 seneye kadar meslekten men cezası veriliyor ve kopya yazılım yüklü bilgisayarlara el konuluyor.
+      <br/>
+      <br/>
+      BSA'nın Türkiye'den katılımcıları:
+      <br/>
+      Adobe, Apple, Arena, Armada, Autodesk, Baysis, Bentley Systems, Bilser, Bimeks, Elma Bilgisayar, Empa, Eta, Globis, Index, Intertech, Likom, LinkSoft, Macromedia, Mart Kompüter, Medyasoft, Microsoft, Mikro Yazılımevi, Netsis, Progress, Sebit.
+      <br/>
+      <br/>
+      http://www.bsa.org.tr
+      <br/>
+      <br/>
+      BSA Hakkında
+      <br/>
+      İş Yazılımcıları Birliği (Business Software Alliance, BSA), online dünyanın güvenli ve yasal bir yer olması için çalışan bir birlikteliktir. BSA, dünya çapında yazılım ve İnternet endüstrisinin uluslararası pazarda, hükümetler ve tüketiciler nezdindeki sesidir. Katılımcıları, dünyadaki en hızlı gelişen sektörü temsil etmektedirler. BSA, bilgisayar kullanıcılarını yazılım telif hakları konusunda eğitmekte, yeniliği teşvik eden ve ticaret fırsatlarını artıran kamu politikalarını desteklemekte, yazılım korsanlığıyla mücadele etmektedir.
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1591), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010656/http://www.aksiyon.com.tr:80/detay.php?id=1591)

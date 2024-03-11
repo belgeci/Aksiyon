@@ -1,0 +1,116 @@
+# “İşçi Partisi ile MHP birleşecek”
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030624002939im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20030624002939im_/http://www.aksiyon.com.tr/resim/41/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ülkenin işgal altında olduğunu düşünerek ‘new age’ bir ‘Ulusal Kurtuluş Mücadelesi’ başlatan Kuvayi Milliye Hakereti grubu değişik siyasi görüşleri temsil eden fakat ‘ulusalcılık, ulus çıkarları’ çatısında bütünleşmeyi kabul etmiş her kesimden insanı tek çatı altında toplamayı hedefliyor. Son yılların yükselen trendi “Ulusalcı - Kuvayi Milliyeci” olmak. Öyle ki ekonomiden eğitime kadar çok değişik konularda birbirine taban tabana zıt kutuplar bile, geçmişteki kavgalarını bir tarafa bırakıp tek çatı altında birleşmeye, ortak hareket etmeye başladılar.
+ </font>
+ <p>
+  <font class="content">
+   Yükselen trend Kuvayi Milliyeci olmak olunca bu adla hareket eden gruplar da ilgi görmeye başladı. Yaklaşık 1,5 yıl önce sanal âlemde, iktisatçı Gürsel Gürel tarafından başlatılan Kuvayi Milliye Hareketi grubu önce etkili bir sivil toplum kurumu, ‘eğer uyarıları dikkate alınmazsa da güçlü bir siyasi parti’ olmayı hedefliyor. Gürel, ‘Atatürkçülük’ kavramının içinin boşaltıldığını, ‘Ulusalcılık’ akımının ise çıkarlarla şekillenmiş bir sistem olduğunu iddia ediyor.
+   <br/>
+   <br/>
+   – Kuvayi Milliye bu yüzyılın başında işgal güçlerine karşı yapılan milli bir hareketti. Yıl 2003 ve yeniden bir Kuvayi Milliye hareketi başlatıyorsunuz. Siz kimsiniz ve neyi hedefliyorsunuz?
+   <br/>
+   <br/>
+   Ülke meselelerine duyarlı, değişik sektörlerde çalışan, ülkenin geleceğinde söz sahibi olmak isteyen birtakım aydınımızın hareketidir KMH, fiiliyata dönüşü ise 14 Ağustos 2001 tarihinde bir internet servis sağlayıcının forum sayfasında ‘internetten örgütlenerek bir parti kuralım’ diye harekete geçmemle başladı. Bir de baktık ki bu düşüncemi paylaşan binlerce insan varmış. “İnternet üzerinden oluşum mu olur?” diye karşı çıkanlar da oldu. Buradan hareketle mail grubu oluşturduk. Çıkış amacımız internetten örgütlenerek bir Kuvayi Milliye partisi kurmaktı. Ancak baktık ki siyasi parti kurmak mantıklı değil.
+   <br/>
+   <br/>
+   – Bu düşüncenizde Yekta Güngör Özden gibi isimlerin kurduğu partilerin tabela partisi olarak kalmasının caydırıcı bir etkisi oldu mu?
+   <br/>
+   <br/>
+   Bizim siyasi parti olmaktan vazgeçmemizdeki en önemli nedenlerden birisi siyasi partilerin misyonunu kaybetmiş olması. İnsanlar siyasetten rahatsız. Siyasetin içine girmeden nasıl etkili olabiliriz düşüncesinden hareket etmeyi düşündük.
+   <br/>
+   <br/>
+   – Kimler yer alıyor saflarınızda?
+   <br/>
+   <br/>
+   Toplumun her kesiminden insanlar var. MHP’li de var İşçi Partili de. İnsanlar şu ya da bu görüşü savunuyor olabilirler. Ancak bizim iddiamız ‘Ulus çıkarlarında birleşmek’ olduğu için diğer konular tali kalıyor. Artık sağcılığın, solculuğun önemi yok. ‘Ülke çıkarları’nda konsensüs sağladık. Biz halkın içinden insanlarız. Halkın gücü anlamına geliyor zaten Kuvayi Milliye. Bir de bizim hareketimiz bazı şeylere tepki olarak doğdu. Herkes Atatürkçü olduğunu söylüyor ve Atatürkçülüğü kendi isteği doğrultusunda ipotek altına alıyor. Bugün maalesef Atatürkçülük içi boşaltılmış bir kavram. Kullanılmayan, içi boşaltılmayan tek kavram kalmıştı; Kuvayi Milliye. Bu konuda birtakım çalışmalar yapan insanlar var. Bizim tek farkımız var; biz bütün düşüncelerdeki insanları bir araya getirmeyi kısmen de olsa başardık. Ayrıca Türkiye’nin bazı problemlerini aşması için birtakım büyük projeler gerçekleştirdik.
+   <br/>
+   <br/>
+   –Nedir bu sihirli proje?
+   <br/>
+   <br/>
+   Birleşik Kaplar Teorisi dediğimiz aslında kimsenin de bilmediği bir proje. Ekonomide dört unsur var. Devlet, bankalar, üreticiler, tasarruf sahipleri. Bu dört unsurun sahip olduğu para birbirine eşit değil. Bizim teorimize göre daima dönem başında ve dönem sonunda bu nakit miktarının birbirine eşit olması gerekiyor. Ama bizde eşit değil ve krizin nedeni bu. Türkiye’deki para dengelerini sağlayacak bir proje bu.
+   <br/>
+   <br/>
+   –Bu ekonomik proje Kuvayi Milliye hareketinin neresinde oturuyor? Sanki bir think thank kuruluşu gibi projeler geliştiriyorsunuz?
+   <br/>
+   <br/>
+   Biz bir sivil toplum örgütü olarak ülkenin ekonomik, kültürel ve siyasi meselelerine çözümler üretiyoruz. Bunları partilere sunacağız. Tek vergi sistemi gibi alternatif projelerimiz de var. Ama ana konularımız ekonomi ve demokrasi. Ekonomi düzeldikçe eğitim ve ulaşımla ilgili projeler de sunacağız.
+   <br/>
+   <br/>
+   –MHP de, İşçi Partisi de, Uzan da ‘Ulusalcı’. Peki sizin ‘Ulusalcılık’ tanımınız nedir?
+   <br/>
+   <br/>
+   Bugün değişik kutuplardaki partilerin ‘ulusalcı’ olmalarının temelinde siyasi çıkarlar yatıyor. Bugünkü ‘ulusalcı’ tavırlar göstermelik. Ulusal demek tüm toplumu kapsayan anlamına gelir. İçinde bütün fikir ve düşünceleri barındırması, oradaki insanlara her fikir ve düşüncede özgürlük vermesi, bu düşünceleri de ülkenin menfaatleri için yapılandırması gerekir. Parça parça insanların ben ‘Ulusalcıyım’ demesi bizce bir şey ifade etmiyor. Birgün herkesin fikirlerini özgürce söylediği Türkiye için çalışan insanların bir arada bulunacağı kitleyi içinde toplayabilirse o zaman ulusalcı olur.
+   <br/>
+   <br/>
+   –Peki kime, neye karşı Kuvayi Milliye?
+   <br/>
+   <br/>
+   Burada çok ince bir çizgi var. Artık işgal topla tüfekle olmuyor. İşgaller ekonomik, siyasi ya da kültürel yolla yapılıyor. Kuvayi Milliye , bizim milli açıdan değerlerimizi yok edecek, önümüzü kesecek her türlü fiil ve davranışa karşı Kuvayi Milliye..
+   <br/>
+   <br/>
+   –Peki AB üyesi bir Türkiye’nin değerleri yok olur mu?
+   <br/>
+   <br/>
+   Türkiye AB olmadan da yüzde 35 kalkınma hızını yakalayabilir. İlla girmeliyiz diye bir düşünceye sahip değiliz. Türkiye şartlara göre değişen bir AB politikası izlemeli. Gümrük Birliği bizim için çok büyük bir zarar. AB’ye müracaat ettiğimizde Sovyetler ayaktaydı. Ama bugün Türk dünyası var.
+   <br/>
+   <br/>
+   – Avrupa Birliği’ne karşı Türk Birliği’ni mi savunuyorsunuz?
+   <br/>
+   <br/>
+   Evet. Öncelikle kendi bölgemizde etkili ve lider bir ülke olmalıyız. AB’ ye karşı değiliz ama AB’nin olmazsa olmaz olarak gösterilmesine karşıyız. AB olmadan da olur. Bizden sürekli taviz istiyorlar. Tavizlerin sonu yok. Tüm Türkiye çok yakında Kuvayi Milli’ye saflarına katılacak. Öyle şartlar oluşacak ki Kuvayi Milliyeye 70 milyon insan katılacak. Arjantin’den beter olacak. Çok kötü günler bekliyor bizi.
+   <br/>
+   <br/>
+   – Bölünme tehlikesi mi görüyorsunuz?
+   <br/>
+   <br/>
+   Yugoslavya’nın parçalanma sürecine doğru gidiyoruz farkında değilsiniz.
+   <br/>
+   <br/>
+   –Neye dayandırıyorsunuz bu iddianızı?
+   <br/>
+   <br/>
+   Biz proaktif bir grubuz. Bazı şeyleri önceden görebiliyoruz. İleride parti de olabiliriz.
+   <br/>
+   <br/>
+   – Muhtemelen de yüzde 1’lerde oy alacaksınız.?
+   <br/>
+   <br/>
+   Mesela ekonomik anlamda Kuvayi Milliye hareketinin ekonomiye bakışı ile Perinçek’in bakışı, Soysal’ın bakışı aynı şeyler değil. Ama bu görüşlerin üzerinde ulusal çıkarlar var. Devlet Bahçeli var. Bunların hepsi ulusal bağımsızlığımızı savunuyorlar. Paramparça şu anda. Küçük gruplar halinde olmaz. İleride tek yumruk olacaktır. Aslında siyasi parti liderleri olayın ciddiyetinin farkında değiller.
+   <br/>
+   <br/>
+   – Ey ulusalcılar birleşin mi diyeceksiniz?
+   <br/>
+   <br/>
+   Evet biz tam anlamıyla onu hedefliyoruz. Bazı şeyler tepeden olmazsa tabandan olur. Kuvayi Milliye böyle bir güç. Bir gün Doğu Perinçek’e, Bahçeli ye diyeceğiz ki birleşin.
+   <br/>
+   <br/>
+   – Mümkün mü bu?
+   <br/>
+   <br/>
+   Kuvayi Milliye bunu başaracak. Önce vatan düşüncesini idrak ettirip tek çatı altında birleştireceğiz. Teorilerimiz bildiğiniz tüm ekonomik kuramların iptalini gerektirecek kadar kuvvetli. Erbakan’a bakın, diğerlerine bakın. Başlangıçlarında yanlarında iki üç kişi vardı. Bu uzun soluklu bir hedef. Bir yılda binlerce insan bizim çalışmalarımıza katıldı.
+   <br/>
+   <br/>
+   – Kıbrıs ve Irak meselesine gelirsek. Kıbrıs’ta Annan planı tartışılmamalı bile diyorsunuz?
+   <br/>
+   <br/>
+   ABD’nin Irak operasyonunu Türkiye’nin parçalanma sürecinin başlangıcı olarak kabul ediyoruz. Türkiye bu savaşta taraf olmamalı. Sadece Amerika değil AB de Türkiye’yi bölmek istiyor. Kıbrıs bir adımdır. Bizi yine almayacaklar. Ardından Ermenilere tazminat verin diyecekler. Talepler bitmeyecek. Kıbrıs’ta da bizce olay 1974’te bitmiştir, mevcut durum en iyisi. Annan Planı kabul edilmemeli, hatta müzakere etmeye bile gerek yok.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2362), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030624002939/http://www.aksiyon.com.tr:80/detay.php?id=2362)

@@ -1,0 +1,313 @@
+# Mekan uzak, heyecan yakin
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095307im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095307im_/http://www.aksiyon.com.tr/resim/390/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Uzakdoğu ülkelerinden Japonya ve Güney Kore’deki Dünya Kupası heyecanına sadece birkaç gün kaldı. 4 kıtadan 32 ülkenin yer alacağı organizasyona, teknoloji harikası 20 stadyum ev sahipliği yapacak. Kupaya 48 yıl aradan sonra Türkiye de renk katacak.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Milyonlarca insanın merakla ve heyecanla beklediği 17. Dünya Kupası, son şampiyon Fransa’nın Senegal ile yapacağı açılış maçıyla başlamak üzere. 48 yıllık hasrete son veren Türk Milli Takımı’nın da renk katacağı organizasyona 4 kıtadan 32 ülke katılacak ve bir ay sürecek maçlardan sonra şampiyon belli olacak. İkişer şampiyonlukları bulunan Uruguay veya Arjantin’in zirveye çıkması durumunda ise 4 kilo 970 gram ağırlığındaki ve 50 milyar Türk Lirası değerindeki kupa, ebediyen bu ülkelerden birinin müzesine gidecek.
+   <br>
+    <br>
+     Genç–yaşlı, kadın–erkek, birçok futbolseverin sabırsızlıkla beklediği organizasyonda ülkeler 8 grupta mücadele edecek. Yedi grupta ikişer Avrupa takımı bir üst tura çıkma savaşı verirken, sadece C Grubu’nda Avrupa takımı olarak Türkiye yer alacak. Bu büyük organizasyonda A Grubu’nda son şampiyon Fransa, Senegal, Uruguay ve Danimarka; B Grubu’nda İspanya, Slovenya, Paraguay ve Güney Afrika; C Grubu’nda dört kez dünya şampiyonu olan Brezilya, Türkiye, Çin ve Kosta Rika; D Grubu’nda evsahiplerinden Güney Kore, Polonya, Amerika Birleşik Devletleri ve Portekiz; E Grubu’nda üç kupalı Almanya, Suudi Arabistan, baraj maçlarında İran’ı saf dışı bırakan İrlanda ve Afrika şampiyonu Kamerun; en zorlu grup olarak nitelenen F Grubu’nda favori Arjantin, Nijerya, futbolun beşiği İngiltere ve İsveç; G Grubu’nda İtalya, Ekvador, Hırvatistan ve Meksika; H Grubu’nda da evsahiplerinden Japonya, Belçika, Rusya ve Tunus, ilk iki sırayı alıp yoluna devam etmeye çalışacak. Otoritelere göre, şampiyonluğun en güçlü adayları Fransa, Arjantin ve Brezilya. Almanya, İspanya, İtalya, Portekiz ve İngiltere de sürpriz yapabilecek ülkeler. En güçlü yıldız adayları ise Zidane, Figo, Owen, Henry, Veron...
+     <br>
+      <br>
+       Türkiye, hazır gibi
+       <br/>
+       <br/>
+       Türk Milli Takımı, 48 yıl aradan sonra katılacağı 2002 Dünya Kupası’na, en az diğer ülkeler kadar önem veriyor. Uzakdoğu’da alınacak her başarılı sonuç, gerek ülkemizin, gerekse Türk futbolunun ve futbolcusunun tanıtımına çok büyük katkılarda bulunacak. Bu nedenle Süper Lig mayıs ayının hemen başında sona erdi ve A Milli Takım’a çağrılan 27 futbolcudan 21’i (Arif Erdem, Hakan Şükür, Alpay Özalan, Rüştü Reçber, Ömer Çatkıç, Metin Aktaş, Zafer Özgültekin, Cihan Haspolatlı, Serhat Akın, Hasan Şaş, Ergün Penbe, Bülent Korkmaz, Emre Belözoğlu, Okan Buruk, Ümit Özat, Abdullah Ercan, Fatih Akyel, Emre Aşık, Ümit Davala, İlhan Mansız ve Tayfur Havutçu) Antalya Belek’te aileleriyle birlikte bir haftalık bir hazırlık dönemi geçirdiler. Çok güzel bir ortamda gerçekleştirilen bu kampta hem ligin yorgunluğunu attılar, hem moral depoladılar, hem de fizik ve kondüsyon olarak kendilerini güçlendirdiler. Daha sonra Hakan Ünsal, Tugay Kerimoğlu, Tayfun Korkut, Mustafa İzzet, Yıldıray Baştürk ve Nihat Kahveci’nin katılımıyla Hong Kong’a gittiler. Burada Hong Kong lig karmasıyla ve Güney Afrika ile iki hazırlık maçı yapıp Uzakdoğu’nun nemli ve sıcak iklimine alıştılar. Teknik Direktör Şenol Güneş, Hong Kong’da 23 kişilik kadroyu belirleyerek Tayfun Korkut, Metin Aktaş, Serhat Akın ve Cihan Haspolat’ı kadro dışı bıraktı.
+       <br/>
+       <br/>
+       Türk Milli Takımı, ilk maçını 3 Haziran’da dünya şampiyonu Brezilya ile oynayacak. 9 Haziran’da Kosta Rika ile karşılaştıktan sonra 13 Haziran’da Çin ile grubundaki son maçına çıkacak. Futbol otoriteleri, bu grupta Brezilya ve Türkiye’yi favori gösterip hangi takımın birinci olacağını merak ediyorlar. Dünyadaki birçok spor yazarı Türkiye’yi sürpriz yapabilecek ülkeler arasında gösterirken, Dünya Kupası vizesini her ne kadar son anda alsa da Brezilya’nın yine de Brezilya olduğunun altını çiziyor. Ancak futbolcularımız ve teknik heyet, gruptan çıkmanın otoritelerin zannettiği kadar kolay olmayacağını söylüyorlar. Bu arada, uzun zamandır sakat olan Brezilyalı futbolculadan Ronaldo ve Rivaldo’nun iyileştiğini hatırlatalım.
+       <br/>
+       <br/>
+       Dünya Kupası’nda yeni kurallar
+       <br/>
+       <br/>
+       Bütün dünyanın aynı anda adapte olabilmesi için yeni kuralları ilk kez Dünya Kupası organizasyonlarında uygulayan FIFA, ilk kez Japonya ve Güney Kore’de uygulanacak yeni kurallar belirledi. Bunlardan biri, video görüntülerinin dikkate alınması. Bu kural ile Fransa 98 Dünya Kupası’nda yanlış bir hakem kararı ile kırmızı kart cezası alarak final maçında oynama hakkını yitiren Laurent Blanc gibi oyuncuların haksız yere ceza almasının engellenmesi düşünülüyor. Fransız Milli Takımı’nın yıldızlarından Blanc, Hırvatistan ile oynanan yarı final maçında rakibine kasti hareketten dolayı kırmızı kart görmüş, ancak sonradan televizyon görüntüleri üzerinden yapılan incelemede rakibine temas bile etmediği görülmüş, buna rağmen finalde forma giyme hakkını yitirmişti. Diğer kural da şu: Ceza alanı içinde hakemi aldatıp penaltı kazanmaya yönelik hareket yapan futbolcular, sarı kartla değil, kırmızı kartla cezalandırılacak. Ayrıca, hakemin üzerine yürüyüp ‘Rakibe kart göster’ gibi hareket yapan oyuncular da sarı veya kırmızı kartla cezalandırılacak.
+       <br/>
+       <br/>
+       Top, gol oranını artıracak mı?
+       <br/>
+       <br/>
+       Bu Dünya Kupası, teknolojinin bütün sınırlarının zorlandığı bir organizasyon şeklinde geçecek. En hafif kramponu yapmak için kıyasıya bir mücadele veren ve bu kramponları en iyi şekilde tanıtabilmek için ünlü futbolcularla anlaşmalar yapan spor firmaları, en mükemmel topu yapmak için de amansız bir savaş veriyorlar. Bu savaşta Dünya Kupası’nın resmi sponsoru Adidas bir adım öne geçmiş gibi görünüyor. Çünkü, uzay teknolojisi olarak nitelendirilen yeni stadyumlarda dünyanın huzuruna çıkacak olan Fevernova adlı futbol topu, Fransa 98’de kullanılan Tricolore’den yüzde 25 daha kontrollü ve yüzde 10 daha hızlı. Yeni topun performansındaki artışın arkasında, yeni teknolojiler ve malzemeler yatıyor. Bunlardan biri, polimer kaplamanın altındaki köpük tabakası. Bu tabakada gazla doldurulmuş baloncuklar bulunuyor. Bu baloncuklar, uygulanan gücün topa dengeli olarak aktarılmasını garanti altına alıyor. Baloncukların çok yüksek seviyede esnek olması, topun rahatlıkla vurulacak kadar yumuşak olmasını ve çok az enerji emmesini sağlıyor. Sonuç olarak, uygulanan enerjinin çok büyük bir kısmı topun ileri doğru hızlanması için kullanılıyor ve top diğer toplara göre daha hızlı gidiyor. Köpük tabakasının altında ise tekstil örgüden oluşan bir ağ bulunuyor. Bu ağ, topun yuvarlaklığını koruyor.
+       <br/>
+       <br/>
+       Adidas yetkilileri, Fevernova ile özellikle frikik atışlarından kazanılan gol oranının yükseleceğini iddia ediyor. İddiaya göre, bu top daha fazla falso alabiliyor ve hızı 130 km’yi geçebiliyor. Tüm ülkelerin milli futbolcuları son bir aydır bu toplarla çalıştı ve alışmakta zorlandı. Bu toptan kaleciler ise hiç memnun değil. Çünkü, daha hızlı olması ve daha fazla falso alması onları daha da zorlayacak. Bakalım, bu Dünya Kupası’nda hangi kaleciler yıldızlaşacak ve hangi kaleciler çok gol yiyip topa bahane bulacak?
+       <br/>
+       <br/>
+       DÜNYA ŞAMPİYONLARI
+       <br/>
+       <br/>
+       Yıl        Evsahibi        Final        Skor        Şampiyon
+       <br/>
+       <br/>
+       1930        Uruguay        Uruguay-Arjantin        4-2        Uruguay
+       <br/>
+       <br/>
+       1934        İtalya        İtalya-Çekoslovakya        2-1        İtalya
+       <br/>
+       <br/>
+       1938        Fransa        İtalya-Macaristan        4-2        İtalya
+       <br/>
+       <br/>
+       1950        Brezilya        Grup maçları ile belli oldu                Uruguay
+       <br/>
+       <br/>
+       1954        İsviçre        Almanya-Macaristan        3-2        Almanya
+       <br/>
+       <br/>
+       1958        İsveç        Brezilya-İsveç        5-2        Brezilya
+       <br/>
+       <br/>
+       1962        Şili        Brezilya-Çekoslovakya        3-1        Brezilya
+       <br/>
+       <br/>
+       1966        İngiltere        İngitere-Almanya        4-2        İngitere
+       <br/>
+       <br/>
+       1970        Meksika        Brezilya-İtalya        4-1        Brezilya
+       <br/>
+       <br/>
+       1974        Almanya        Almanya-Hollanda        2-1        Almanya
+       <br/>
+       <br/>
+       1978        Arjantin        Arjantin-Hollanda        3-1        Arjantin
+       <br/>
+       <br/>
+       1982        İspanya        İtalya-Almanya        3-1        İtalya
+       <br/>
+       <br/>
+       1986        Meksika        Arjantin-Almanya        3-2        Arjantin
+       <br/>
+       <br/>
+       1990        İtalya        Almanya-Arjantin        1-0        Almanya
+       <br/>
+       <br/>
+       1994        ABD        Brezilya-İtalya        3-2        Brezilya
+       <br/>
+       <br/>
+       1998        Fransa        Fransa-Brezilya        3-0        Fransa
+       <br/>
+       <br/>
+       2002 DÜNYA KUPASI MAÇ PROGRAMI
+       <br/>
+       <br/>
+       No        Tarih        Saat        Stad        Grup        Maç        Tv
+       <br/>
+       <br/>
+       1        31 Mayıs        14:30        Seoul        A        Fransa–Senegal        TRT1
+       <br/>
+       <br/>
+       2        01 Haziran        09:30        Niigata        E        İrlanda–Kamerun        TRT1
+       <br/>
+       <br/>
+       3        01 Haziran        12:00        Ulsan        A        Uruguay–Danimarka        TRT1
+       <br/>
+       <br/>
+       4        01 Haziran        14:30        Sapporo        E        Almanya–Suudi A.        TRT1
+       <br/>
+       <br/>
+       5        02 Haziran        11:30        Saitama        F        İngiltere–İsveç        TRT1
+       <br/>
+       <br/>
+       6        02 Haziran        09:30        Busan        B        Paraguay–Güney Afrika        TRT1
+       <br/>
+       <br/>
+       7        02 Haziran        08:30        İbaraki        F        Arjantin–Nijerya        TRT1
+       <br/>
+       <br/>
+       8        02 Haziran        14:30        Gwangju        B        İspanya–Slovenya        TRT1
+       <br/>
+       <br/>
+       09        03 Haziran        09:30        Niigata        G        Hırvatistan–Meksika        TRT1
+       <br/>
+       <br/>
+       10        03 Haziran        12:00        Ulsan        C        Brezilya–TÜRKİYE        TRT1
+       <br/>
+       <br/>
+       11        03 Haziran        14:30        Sapporo        G        İtalya–Ekvador        TRT1
+       <br/>
+       <br/>
+       12        04 Haziran        09:30          Gwangju         C          Çin – Kosta Rika           TRT1
+       <br/>
+       <br/>
+       13        04 Haziran        12:00        Saitama        H         Japonya–Belçika        TRT1
+       <br/>
+       <br/>
+       14        04 Haziran        14:30        Busan        D        G. Kore–Polonya        TRT1
+       <br/>
+       <br/>
+       15        05 Haziran        09:30        Kobe        H        Rusya–Tunus        TRT1
+       <br/>
+       <br/>
+       16        05 Haziran        12:00        Suwon        D        ABD–Portekiz        TRT1
+       <br/>
+       <br/>
+       17        05 Haziran        14:30        İbaraki        E        Almanya–İrlanda        TRT1
+       <br/>
+       <br/>
+       18        06 Haziran        14:30        Busan        A        Fransa–Uruguay        TRT1
+       <br/>
+       <br/>
+       19        06 Haziran        12:00        Saitama        E        Kamerun–Suudi A.        TRT1
+       <br/>
+       <br/>
+       20        06 Haziran        09:30        Daegu        A        Danimarka–Senegal        TRT1
+       <br/>
+       <br/>
+       21        07 Haziran        09:30        Kobe        F        İsveç–Nijerya        TRT1
+       <br/>
+       <br/>
+       22        07 Haziran        12:00        Jeonju        B        İspanya–Paraguay        TRT1
+       <br/>
+       <br/>
+       23        07 Haziran        14:30        Sapporo        F        Arjantin–İngiltere        TRT1
+       <br/>
+       <br/>
+       24        08 Haziran        09:30        Daegu        B        G. Afrika–Slovenya        TRT1
+       <br/>
+       <br/>
+       25        08 Haziran        12:00        İbaraki        G        İtalya–Hırvatistan        TRT1
+       <br/>
+       <br/>
+       26        08 Haziran        14:30        Seogwipo        C        Brezilya–Çin        TRT1
+       <br/>
+       <br/>
+       27        09 Haziran        09:30        Miyagi        G        Meksika–Ekvador        TRT1
+       <br/>
+       <br/>
+       28        09 Haziran        12:00        İncheon        C        K. Rika–TÜRKİYE        TRT1
+       <br/>
+       <br/>
+       29        09 Haziran        14:30        Yokohama        H        Japonya–Rusya        TRT1
+       <br/>
+       <br/>
+       30        10 Haziran        09:30        Daegu        D        G. Kore–ABD        TRT1
+       <br/>
+       <br/>
+       31        10 Haziran        12:00        Oita        H         Tunus–Belçika        TRT1
+       <br/>
+       <br/>
+       32        10 Haziran        14:30        Jeonju        D        Portekiz–Polonya        TRT1
+       <br/>
+       <br/>
+       33        11 Haziran        09:30        İncheon        A        Danimarka–Fransa        TRT1
+       <br/>
+       <br/>
+       34        11 Haziran        09:30        Suwon        A        Senegal–Uruguay        TRT2
+       <br/>
+       <br/>
+       35        11 Haziran        14:30        Shizuoka        E        Kamerun–Almanya        TRT1
+       <br/>
+       <br/>
+       36        11 Haziran        14:30        Yokohama        E        Suudi A.–İrlanda        TRT2
+       <br/>
+       <br/>
+       37        12 Haziran        09:30        Miyagi        F        İsveç–Arjantin        TRT2
+       <br/>
+       <br/>
+       38        12 Haziran        09:30        Osaka        F        Nijerya–İngiltere        TRT1
+       <br/>
+       <br/>
+       39        12 Haziran        14:30        Daejeon        B        G. Afrika–İspanya        TRT1
+       <br/>
+       <br/>
+       40        12 Haziran        14:30        Seogwipo        B        Slovenya–Paraguay        TRT2
+       <br/>
+       <br/>
+       41        13 Haziran        09:30        Suwon        C        Kosta Rika–Brezilya        TRT2
+       <br/>
+       <br/>
+       42        13 Haziran        09:30        Seoul        C        TÜRKİYE–Çin        TRT1
+       <br/>
+       <br/>
+       43        13 Haziran        14:30        Oita        G        Meksika–İtalya        TRT1
+       <br/>
+       <br/>
+       44        13 Haziran        14:30        Yokohama        G        Ekvador–Hırvatistan        TRT2
+       <br/>
+       <br/>
+       45        14 Haziran        09:30        Osaka        H        Tunus–Japonya        TRT2
+       <br/>
+       <br/>
+       46        14 Haziran        09:30        Shizuoka        H        Belçika–Rusya        TRT1
+       <br/>
+       <br/>
+       47        14 Haziran        14:30        İncheon        D        Portekiz–G. Kore        TRT2
+       <br/>
+       <br/>
+       48        14 Haziran        14:30        Daejeon        D        Polonya–ABD        TRT1
+       <br/>
+       <br/>
+       49        15 Haziran        09:30        Seogwipo                2. tur  (E1–B2)        TRT1
+       <br/>
+       <br/>
+       50        15 Haziran        14:30        Niigata                2. tur  (A1–F2)        TRT1
+       <br/>
+       <br/>
+       51        16 Haziran        09:30        Oita                2. tur  (F1–A2)        TRT1
+       <br/>
+       <br/>
+       52        16 Haziran        14:30        Suwon                2. tur  (B1–E2)        TRT1
+       <br/>
+       <br/>
+       53        17 Haziran        09:30        Jeonju                2. tur  (G1–D2)        TRT1
+       <br/>
+       <br/>
+       54        17 Haziran        14:30        Kobe                2. tur  (C1–H2)        TRT1
+       <br/>
+       <br/>
+       55        18 Haziran        09:30        Miyagi                2. tur  (H1–C2)        TRT1
+       <br/>
+       <br/>
+       56        18 Haziran        14:30        Daejeon                2. tur  (D1–G2)        TRT1
+       <br/>
+       <br/>
+       57        21 Haziran        09:30        Shizuoka                Ç. Final  (50–54 galibi)        TRT1
+       <br/>
+       <br/>
+       58        21 Haziran        14:30        Ulsan                Ç. Final  (49–53 galibi)        TRT1
+       <br/>
+       <br/>
+       59        22 Haziran        09:30        Gwangju                Ç. Final  (52–56 galibi)        TRT1
+       <br/>
+       <br/>
+       60        22 Haziran        14:30        Osaka                Ç. Final  (51–55 galibi)        TRT1
+       <br/>
+       <br/>
+       61        25 Haziran        14:30        Seoul                Y. Final  (58–59 galibi)        TRT1
+       <br/>
+       <br/>
+       62        26 Haziran        14:30        Saitama                Y. Final  (57–60 galibi)        TRT1
+       <br/>
+       <br/>
+       63        29 Haziran        13:00        Daegu                3.’lük maçı (61–62 mağlubu)        TRT1
+       <br/>
+       <br/>
+       64        30 Haziran        13:00        Yokohama                Final  (61–62 galibi)        TRT1
+       <br/>
+       <br/>
+       NOT: Bütün maçlar canlı olarak yayınlanacak.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11868), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095307/http://www.aksiyon.com.tr:80/detay.php?id=11868)

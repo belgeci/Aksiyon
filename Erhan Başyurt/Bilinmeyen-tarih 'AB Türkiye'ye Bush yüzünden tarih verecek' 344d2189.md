@@ -1,0 +1,138 @@
+# 'AB, Türkiye'ye Bush yüzünden tarih verecek'
+
+*Erhan Başyurt Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Avrupa Birliği’nin Türkiye eski Temsilcisi Büyükelçi Michael Lake, Bush’un saldırgan politikası karşısında alternatif politikalar izleyebilmek için AB’nin Türkiye’ye ‘evet’ diyeceğini belirtiyor. Avrupa Birliği’nin Türkiye eski Temsilcisi Büyükelçi Michael Lake, George W. Bush’un ABD’de yeniden başkan seçilmesinin, 17 Aralık’taki Brüksel Zirvesi’nde Türkiye’ye müzakere tarihi verilmesini sağlayacağını söylüyor.
+   <br/>
+   <br/>
+   Avrupa halklarının da, Türk halkının da Bush’un dış politikasından hoşnut olmadığına dikkat çeken Lake, Türkiye’nin AB’ye üyeliğinin ortak dış güvenlik politikalarına olumlu etkilerini hemen göstereceğini belirtiyor.
+   <br>
+    <br>
+     1991-1998 yılları arasında Ankara’da uzun süre görev yapan Lake, daha sonra AB ile müzakere süreci yürüten Macaristan’a atanmıştı. Avrupa Komisyonu görevinden emekliye ayrılan Lake, halen bazı think-tank kuruluşları için çalışmalar yürütüyor. Türkiye-AB ilişkilerinin gelişmesinde olumlu bir rol oynayan Lake, AB’nin Türkiye’de yeni azınlıklar oluşturmaya çalıştığı yönündeki eleştirileri “saçma” olarak niteliyor. Lake, bu tür politikaların ters teperek AB içerisinde büyük tartışmalara sebep olabileceğini, dolayısıyla AB’nin bundan uzak duracağını kaydediyor.
+     <br>
+      <br>
+       <b>
+        17 Aralık Brüksel Zirvesi’nde Türkiye’ye tarih verileceğini düşünüyor musunuz?
+       </b>
+       <br>
+        <br>
+         Aralık Zirvesi’nde Türkiye’ye net bir mesaj verilmemesi benim için sürpriz olur. AB üyesi çoğu ülke, Türkiye ile müzakerelerin başlaması için destek olacağını açıkladı zaten. 2002 Kopenhag Zirvesi’nde, “Komisyon, Türkiye’nin siyasi kriterleri yerine getirdiğini ifade ederse, müzakerelere gecikmeksizin başlanır.” denmişti. Türkiye’nin üyeliğine karşı çıkan hiç kimse, siyasi kriterleri yerine getirmede başarısız olduğunuzu söylemiyor. Bu sebeple, Türkiye’ye tarih verilmemesi şok bir gelişme olur.
+         <br/>
+         <br/>
+         <b>
+          George W. Bush’un yeniden seçilmesi bu kararda etkili olur mu?
+         </b>
+         <br/>
+         <br/>
+         George Bush’un yeniden seçilmesinin, Türkiye’ye tarih verilmesini kolaylaştıracağı kanaatindeyim. Avrupa halkları, hükûmetinin aksine İngiliz halkı ve Türk halkı da, Bush’un dış politika yöntemlerinden hoşlanmıyor. AB, dış politikada başta genişleme olmak üzere bazı önemli başarılara imza attı. Ama ortak dış politika alanlarını artırması gerekiyor. AB ve Türkiye, bu alanlarda ortak sorumluluklar üstlenebilir. Türkiye’nin AB ekonomisine katkı yapacak hâle gelmesi, on yılları bulabilir. Ama, dış güvenlik politikalarına katkısı hemen ve tam olarak mümkün. Hatta, müzakere sürecinde Türkiye’nin bu olumlu etkileri görülecektir. Bush’un dört yıl daha iktidarda kalacağı düşünülürse, AB’nin alternatif politikalar ortaya koyabilmesinde Türkiye’nin olumlu katkıları olacaktır.
+         <br/>
+         <br/>
+         <b>
+          AB’nin başlattığı Yeni Komşuluk Projesi gibi mi?
+         </b>
+         <br/>
+         <br/>
+         Evet. AB’nin başlattığı Yeni Komşuluk Projesi, Türkiye’nin katkı yapacağı politikalardan biri olabilir. AB, barışçıl yollardan karşılıklı rıza ile istikrar, güvenlik, refah ve ortak değerler ihraç edebilen dünyadaki tek kuruluş. Amerikalılar bunu yapmayı başaramadı. Karayipler’de, Latin Amerika’da veya Irak’ta. AB’nin 17 Aralık’ta, Türkiye’ye ‘hayır’ demesi hâlinde, bu politikası da zarar görecek. Dikkat ederseniz, AB bir önceki genişleme hamlesinde Komisyon’un önerilerine yüzde yüz uyum gösterdi. Burada da gösterecek.
+         <br/>
+         <br/>
+         <b>
+          Avrupa’da, Türkiye’nin üyeliğinin “ABD’nin Truva Atı” olacağını iddia edenler de var. Bu menfi etki yapar mı?
+         </b>
+         <br/>
+         <br/>
+         Avrupa’da farklı görüşler var. Ben Türkiye’nin “Truva Atı” olacağı kanaatini paylaşmıyorum. General De Gaulle de İngiltere’nin üyeliği için böyle söylemişti. Eğer, Blair ile Bush arasındaki ilişkilere bakarsanız ‘İngiltere’nin Truva Atı’ olduğunu düşünebilirsiniz. Ama, AB içerisinde bu etkinin pek fazla bir yansıması olmuyor. Kaldı ki, Türkiye ABD’nin politikaları ile strateji ve uygulama açısından farklılıklara sahip. Irak işgaline kadar Türkiye ve ABD ‘stratejik ortak’ idi. Ama, TBMM’nin demokratik bir şekilde, Irak’a asker göndermeme kararı almasıyla, Türkiye ABD’den farklılığını ortaya koydu.
+         <br/>
+         <br/>
+         <b>
+          AB Komisyonu’nun raporlarında Türkiye’ye “çifte standart” uygulanacağı izlenimi veren kısımlar var. Brüksel Zirvesi’nden “şartsız tarih” çıkar mı?
+         </b>
+         <br/>
+         <br/>
+         Türk halkı, Komisyon raporlarındaki bazı ifadeleri ‘saplantı’ hâline getirmemeli. Bu kriterler diğer aday ülkelere de uygulandı. Ben Macaristan’da görev yaparken, buna şahit oldum. Eğer, müktesebata (acquie) uyum müzakereleri süresince, aday ülke keskin ve ısrarlı bir şekilde müktesebattan sapma gösterirse, müzakereler askıya alınıyordu. Macaristan, Polonya veya diğer ülkeler için de bu geçerliydi. Komisyon hiçbir zaman kesin sonuç garantisi ile masaya oturmadı. Yani müzakere süreçlerinin ucu her zaman açık.
+         <br/>
+         <br/>
+         <b>
+          Evet ama, “ucu açık” ifadesi sadece Türkiye raporlarında var…
+         </b>
+         <br/>
+         <br/>
+         Türkiye, ilişkileri gerecek bu konulara konsantre olmaktan vazgeçmeli. Bu cümleler, Türkiye için konmadı. Avrupa kamuoyu, iç kamuoyları için kondu. Bunlar Türkiye’nin üyeliğini geciktirmek için konulmuş sinyaller değil.
+         <br/>
+         <br/>
+         <b>
+          Komisyon raporlarında, Aleviler, Kürtler, Çerkezler gibi etnik ve mezhebi gruplara vurgu yapılarak, “yeni azınlıklar” mı oluşturulmak isteniyor?
+         </b>
+         <br/>
+         <br/>
+         Bu, Türkiye’de bitmeyen bir komploculuk. Ama, bunlar ‘saçma’. AB’nin, farklı mezhep veya tarikatlar veya etnik gruplar üzerinden azınlıklar meydana getirmeye çalışması ‘saçma’ da olur. Üye ülkelerin yarısında büyük tartışmalar meydana gelmesine sebep olur. Bu ülkeler kendi azınlıklarına sahip. Bu tür azınlıklar üretmeye kalkışmak, reaksiyon doğurur. AB içerisinde de benzer arayışlara sebep olur.
+         <br/>
+         <br/>
+         <b>
+          Komisyon, Türk iş gücüne kalıcı sınırlama öneriyor. Konsey bunu uygular mı?
+         </b>
+         <br/>
+         <br/>
+         Ben daimi bir sınırlamadan yana olunacağını sanmıyorum. Çünkü hiçbir genişleme dalgasından sonra, bir göç akımı yaşanmadı. Hatta, bazı yeni üye ülkelerin AB’deki vatandaşları, ülkede artan refahtan pay sahibi olabilmek için geriye göç ettiler. Tersine göç oldu yani. Ancak bu son genişleme dalgasından sonra Almanya’nın Polonya, Avusturya’nın da Slovakya ve Macaristan sınırları sebebiyle, geçici sınırlamalar oldu. Bu da, en fazla 7 yıl sürebilecek. Eğer göç oranı düşük olursa, 2 yıl içinde tamamen kalkması da söz konusu. 100 milyonluk yeni üye dalgasının, ilk 6 ayında sadece 8 bin göç oldu. Göç korkusunun temeli yok, yani.
+         <br/>
+         <br/>
+         <b>
+          Komisyon, müktesebatın 31 başlıkta toplanan her bir bölümü için müzakerelerin açılıp, kapatılmasını Konsey kararına bırakmayı tavsiye ediyor. Bu, süreci geciktirir mi?
+         </b>
+         <br/>
+         <br/>
+         Her bir bölümün ayrı ayrı ele alınması süreci yavaşlatıcı gözükse de, her iki tarafı tatmin edici olacak. Daha önce çoğunlukla 6 ayda 6 bölüm görüşülüyordu. Bazı ülkelerin, 3 bölümü ancak kapattığı da oluyordu. Hatta, sonlara doğru zaman sıkışması yaşanınca, 9 bölüm aynı anda görüşülen ülkeler de oldu. Ancak o zaman da bu bölümlerin kapatılması, yılda iki kez yapılan Konsey toplantılarında onaylanıyordu. Çünkü müzakereler, hükümetler arasında. Konsey ile Türkiye arasında. Komisyon, sadece bu görüşmeleri Konsey adına yürütmekle sorumlu.
+         <br/>
+         <br/>
+         <b>
+          Müzakere kararını her defasında Rum Kesimi’nin de masada yer alacağı Konsey verileceğine göre, Rumlar süreci tıkar mı?
+         </b>
+         <br/>
+         <br/>
+         Rumların bu şartlarda etkili olacağını sanmıyorum.
+         <br/>
+         <br/>
+         <b>
+          O halde, müzakere sürecinin ne kadar süreceğini ne belirliyor?
+         </b>
+         <br/>
+         <br/>
+         Müzakerelerin ne zaman biteceği sadece AB’ye bağlı değil. Müzakereci ülkeye de bağlı. Eğer Türkiye, çok fazla şart veya ayrıcalık isteğiyle masaya gelirse, müzakereler de o kadar uzun sürer. Son genişleme hamlesinde, hükümetler masaya 140 ila 200 arasında değişen sayılarda şartlarla geldiler. Bunun süreci yavaşlattığını görünce, sayıyı azalttılar. Macaristan’da, ben büyükelçi iken, hükümet müzakere sürecini hızlandırmak için 150 olan ayrıcalık isteğini 50’ye düşürdü.
+         <br/>
+         <br/>
+         <b>
+          Sizce müzakere sürecinde en zor alan hangisi olacak?
+         </b>
+         <br/>
+         <br/>
+         Bu hükümetinizin hangi alanlarda koruma veya ayrıcalık isteyeceğine göre değişecek. Bazı yeni üye ülkeler, AB vatandaşlarının tarım arazisi almasına geçici sınırlama koydurdu. Bazıları da, mülk edinme hakkına sınırlama istedi. Yani, serbest dolaşıma değil, sermayenin serbest dolaşımına sınırlama istediler. Dolayısıyla, müzakerelerin en zorlu geçeceği alanı Türk hükümetinin talepleri belirleyecek.
+         <br/>
+         <br/>
+         <b>
+          Müzakere sürecinde, Avrupa Birliği muhalifliği de artıyor. Şu ana kadar bu nasıl bir seyir gösterdi?
+         </b>
+         <br/>
+         <br/>
+         Muhalefet, ülkeden ülkeye farklılıklar gösteriyor. Macaristan’da 10-15 arasında oynadı. Çoğunluk, hep AB’yi destekledi. Polonya’da, muhalefet çok güçlendi. Burada, Ortak Tarım Politikaları’na uyum çalışmaları, tarım kesiminde memnuniyetsizliği artırdı. Ancak, Ortak Tarım Politikaları kapsamında AB yardımları kendilerine ulaşmaya başlayınca onlar da değişti. Yumuşadılar. Estonya ve Litvanya’da muhalefet yüzde 30’lara kadar yükseldi. Ama, ilginç olan, müzakere sürecinde muhalefet güçlense de, nihai olarak üyelik referandumuna gidildiğinde toplumların büyük çoğunluğu AB üyeliğini destekledi.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1142 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=18115), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050124191855/http://www.aksiyon.com.tr:80/yazdir.php?id=18115)

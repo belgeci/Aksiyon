@@ -1,0 +1,152 @@
+# Irak'ın 'yeni aktörü' Türkmenler
+
+*Ahmet Dinç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041225002239im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041225002239im_/http://www.aksiyon.com.tr/resim/459/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Irak sahnesine “yeni” bir aktör çıkıyor: Türkmenler. Başta Amerika olmak üzere kimsenin dikkate almadığı Irak Türkmenleri her alanda hızla örgütlenip, ülkenin ilk özgür seçimini gerçekleştirdi. ABD, Türkmenler’i şimdi daha çok önemsiyor. Son Osmanlı askerinin Irak’ı terk edip Türkmenler’i öksüz üzerinden yıllar geçti. Geçen uzun zamanda Irak’a hakim olan rejimler Türkmenler’i hor gördü, onlara eziyet etti. Mezopotamya coğrafyasının en çileli halklarından biri oldular. Türkiye zaman zaman ilgilense de genelde kaderleriyle baş başa bıraktı onları. Saddam Hüseyin istibdadı boyunca çektikleri acılar zirveye çıktı. Şimdi Saddam yok. Mezopotamya’da her şey yeniden yazılıyor. Taa ki bir daha yazılmak için tekrar bozulana dek. Hammurabi’den binlerce yıl sonra yeni kuralları yazan, uzak diyarlardan gelen bir “efendi”. Neftin ve karmaşık hesapların izini sürüp okyanuslar aşarak gelen bu ‘efendi’, ABD. Büyüğün de küçüğün de, ıraktakinin de yakındakinin de Irak üzerinde kendi hesapları var. Hesap yapanlardan biri de Irak Türkmenleri.
+ </font>
+ <p>
+  <font class="content">
+   Türkmen siyasi partilerini ve sivil toplum örgütlerinin bünyesinde toplayan Irak Türkmen Cephesi’nin gerçekleştirdiği üçüncü Büyük Türkmen Kurultayı için Irak’taydık. İlk özgür kurultay olması nedeniyle bu kurultaya “Birinci Büyük Türkmen Kurultayı” diyenler az değildi. Türkiye’den bakıldığında (belki de amaçlı bir psikolojik harekatın ürünü olarak) Irak Türkmenleri’nin durumu hiç de iç açıcı görünmüyor: Saddam’ın yerini Kürtler alıyor ve Türkmenler’e yapılan zulüm devam ediyor. Türkmenler dağınık, perişan ve bilinçsiz... Bu tanımlarda kısmî gerçeklik payı olduğunu varsaysak dahi, başta Kerkük olmak üzere Musul, Erbil, Süleymaniye ve Bağdat’ta Türkmenlere dair şahit olduklarımız, bu talihsiz topluluğun tarihlerinde ilk kez şeytanın bacağını kırıp, Irak’ın en iddialı halkı olmaya doğru hızla yol almaya başladıklarını gösteriyor.
+   <br/>
+   <br/>
+   ABD’nin (şimdilik) dışlamasına, Kürtlerin baskılarına ve ablukasına rağmen, Türkmen toplumu Irak’ta bugüne kadar görülmemiş bir örgütlenme atağına girişmiş. Savaşla birlikte başlayan her alandaki bu örgütlenmede, Türkiye’de yaşayan Türkmenler vasıtasıyla Türk askeriyesinin ve bürokrasisinin payı büyük. Irak’ta Mendelli’den Telafer’e kadar çok dağınık bir coğrafyaya yayılmış Türkmen varlığı, uzun Saddam dönemi boyunca özellikle birbirleriyle haberleşme ve dolayısıyla teşkilatlanmada büyük zorluklar yaşamış ve önemli bir mesafe alamamıştı. Bu yüzden Türkmen varlığının merkezi sayılan Kerkük’te değil de, ancak 90’lı yıllarda oluşan Kürt otonom bölgesinde, Erbil’de örgütlenme yoluna giden Türkmenler, dağınıklıktan ve parçalı Irak siyasi yapısından olumsuz etkilenmiş, bir türlü arzu edilen örgütlülük ve birlik seviyesine ulaşamamıştı.
+   <br/>
+   <br/>
+   Saddam’ın devrilmesiyle birlikte zincirlerini kıran Türkmenler, kısa süreli hürriyet şaşkınlığı yaşamış olsa da çabuk toparlanmış görünüyor; bütün Türkmen şehir, ilçe ve hatta köylerinde ITC büroları açılmış. Dahası, Türkiye’nin koordinasyonu sayesinde eğitimden sağlığa, güvenlikten istihbarata, sanattan ekonomiye, öğrenci birliklerinden kadın derneklerine, hukuktan mühendisliğe kadar akla gelebilecek her alanda çeşitli kuruluşlar oluşturup örgütlenmişler. Bu yapılar daha ziyade ITC’nin yöresel birer alt kolu gibi oluşturulmuş. Her şehirde ve köyde aynı alanda fakat ayrı ayrı faaliyet gösteriyorlar.
+   <br/>
+   <br/>
+   Amerikalıları etkilediler
+   <br/>
+   <br/>
+   Türkmenler’in gerek iddialı örgütlenmeleri, gerek Irak’taki unsurlar arasında ilk demokratik seçimi gerçekleştirip demokrasiye yatkın olduklarını ispat etmeleri, gerekse Amerikan varlığına karşı en az tepkiyi veren Irak halkı olmaları ABD’nin giderek daha fazla dikkatini çekiyor. Irak’ta demokrasiyi istediği artık iyice kesinleşen ABD, Kurultay’daki demokrasi şovunu dikkate alacak gibi. Zira Irak’taki Amerikan üst düzey yöneticileri ilk kez Kurultay sırasında Türkmenler’e bu kadar sıcak davranıp, “eşitsiniz” mesajı verdi ki bu, Kürtlerin ABD tarafından el üstünde tutulup hızla devletleşmeye götürüldükleri bir ortamda çok şey ifade ediyor.
+   <br/>
+   <br/>
+   Önceki iki kurultaydaki kavgaları, bölgeciliği, inanılmaz boyutlardaki dağınıklığı hatırlarsak, son kurultayla başlayan beraberlik havası ve Irak’ın her köşesinde örgütlenmeleri, Türkmen toplumunu ABD’nin gözünde vazgeçilmez kılıyor. Tersi olsa dahi Türkmenler’in örgütlülüğü ve artık ITC’nin sesinin daha gür çıkması, Irak’taki Türkmen  varlığını gözardı edilemez duruma getiriyor. Belki Irak tarihinde ilk kez, Araplar ve Kürtler’le birlikte Türkmenler’in adı “vazgeçilmez unsur” olarak anılacak gibi.
+   <br/>
+   <br/>
+   Irak’ta artık Türkmen de var!
+   <br/>
+   <br/>
+   Dahası Irak halkları içinde birlik beraberlik görüntüsü vermeyi başaran tek unsur Türkmenler. Şöyle ki: Kürtler, ikincil muhalif unsurları saymazsak, iki parçalı. Araplar Sünni ve Şii olmak üzere bölünmüş. Şiiler de kendi içinde hasım gruplara ayrılıyor. Türkmenler’de ise ilginç bir Şii-Sünni birlikteliği var. Türkmenler’in yaklaşık yüzde 30’u Şii. Ancak Türkmenler arasındaki Şiilik-Sünnilik ilişkisi, belki dünyanın hiçbir bölgesinde olmadığı kadar sıcak. Bütün örgütlenmelerinde birlikte hareket ediyorlar.
+   <br/>
+   <br/>
+   Kurultay’dan çıkan, çok akıllıca tasarlanmış şekil de bu durumu perçinliyor: Kurultay boyunca hemen bütün konuşmacılar ve görüşlerine başvurduğumuz Türkmen ileri gelenleri “Irak bütünlüğü” temasını öncelikle vurguladılar. Ancak ülkedeki her halkın “kendi başının çaresine bakması” durumunu zorunlu kılacak bir parçalanma veya federasyon ihtimaline karşı da, ileride otonom (veya bağımsız) Türkmeneli’ni yönetecek Türkmen Meclisi ve hükümet yerine geçecek Yürütme Konseyi oluşturuldu.
+   <br/>
+   <br/>
+   Bugüne dek Araplar nüfuslarından kaynaklanan doğal ağırlıkları ile, Kürtler ise ABD ve İsrail desteğinde oluşturdukları fiilî devletleriyle Irak’ın iki önemli ve vazgeçilmez aktörü konumundaydı. Şimdi Türkmenler hızlı ve geniş örgütlenmeleriyle, artı Kurultay’dan birlik havasıyla çıkan olası bir devleti yönetecek ITC teşkilatlarıyla, Irak’ın üçüncü önemli aktörü olma özelliğini kazandı denilebilir.
+   <br/>
+   <br/>
+   Türkiye’nin taktiği
+   <br/>
+   <br/>
+   ITC bugüne kadar kayıtsız şartsız Türkiye’nin kontrolündeydi ve özellikle Türk Genelkurmayı’nın dediği oluyordu. Fakat savaş sonrası süreçte ITC üzerindeki Türk hakimiyetini sorgulayan bazı Türkmen ileri gelenleri konuşmaya başladı. Kongrede de özellikle basına kapalı bölümlerde bu tür konuşmalar yapıldı. Muzaffer Aslan gibi bazı Türkmen siyasetçilerinin ifadeleri bu yöndeydi. Türkmenler’in bu eğilimi aslında sebepsiz değil. Türkiye’nin Barzani ve Talabani’ye geçmiş yıllarda yaptığı yüzlerce milyon dolarlık yardımlar, onları incitmiş. Türkmen ileri gelenlerinde “Artık yönümüzü ABD’ye dönelim, kendimizi onlara iyi anlatır, ikna edersek biz Irak’ta istediğimiz herşeyi alır rahat ederiz” düşüncesi oluşmaya başlamış.
+   <br/>
+   <br/>
+   Gerek Türkiye gerekse Türkmenler, Irak’ta herşeyin ABD’nin bakış açısı ve hassasiyetine göre şekil aldığını birkaç ay gecikmeyle de olsa fark etti. Kurultay’da özellikle ‘Siyasi Komisyon’un en önemli gündemi, “kendimizi ABD’ye nasıl anlatılırız, nasıl ikna ederiz, Washington ITC temsilciliğini nasıl daha güçlendiririz” oldu. Türkmen ileri gelenlerinin konuşmalarında sanki ITC artık “direkt teması” Türkiye ile değil de ABD ile yapacak gibi bir hava sezinledik. Kurultay’da alınan üç maddelik “Acil Eylem Planı” kararının ilk maddesi “ABD ile siyasi ilişkiler kurup geliştirmek” şeklinde.
+   <br/>
+   <br/>
+   Bu yön değişikliği işareti, bizzat Türkiye’nin onayı ve yönlendirmesi ile gerçekleşiyor olabilir; zira Türkiye’nin Türkmenler’e yaptığı her türlü yardım artık el altından olacak gibi. Türkiye, doğrudan kendi güdümünde görünen bir Türkmen hareketinin Irak’ta başarılı olamayacağını gördü. Taktiksel bir geriye çekiliş görüntüsü göze çarpıyor. Bunun ilk işaretlerini Büyük Türkmen Kurultayı’na gösterile(meye)n resmi ilgiden fark etmek mümkün; gerek hükümet gerekse Genelkurmay direkt bir temsilci göndermedi. Türkiye’den siyasetçi olarak giden, sadece BBP Genel Başkan Yardımcısı Ebubekir Yiğit’ti. Dışişleri Bakanı Gül, usûlen bir mesaj göndermişti. Ankara’dan Kurultay’a katılan delege Türkmenler’in yaka kartlarına menşe olarak “Türkiye” yerine “Yurt Dışı” yazıldı. Kerkük’teki Genelkurmay Özel Harekat Dairesi’ne mensup irtibat subayları, Kurultay’a niçin geldiklerini sorduğumuzda, birkaç kez ve üstüne basarak, “Bizim ITC ve Kurultay’la bir ilgimiz yok. Amerikalılar davet etti, öyle geldik, yoksa gelmezdik” deme gereği duydular. Bu da, Türkiye’nin Türkmenler’den artık uzak durma taktik/politikasının bir yansıması olsa gerek.
+   <br/>
+   <br/>
+   Erbil’deki ilk iki Türkmen kurultayını Türkiye’den askerler organize etmişti. Son kurultayda bütün organizasyon Türkmenler’e devredildi... Irak Türkleri hususunda artık sahnede Faruk Peri (Abdurrahman) ve Saadettin Ergeç var. Her ikisi de “dava” uğruna çok eziyetler çekmiş, Türkmenler tarafından sevilip sayılan değerli insanlar. Peri biraz daha heyecanlı, modern lider görüntüsü verirken, Ergeç oturmuş, ılımlı ancak geleneksel anlayıştan kopamamış bir kişilik sergiliyor. Babası Saddam tarafından asılan Peri, katı bir mücadele anlayışına sahip; bu anlayış ABD’ye yönelik bir hal alırsa Türkmenler’in Irak’taki işi zorlaşabilir. Peri ile ABD arasındaki gerginliğin ilk işaretleri Kurultay sırasında belirdi bile. Kurultay’ı ziyarete gelen ABD Kerkük sorumlusu Albay Mayville salona girdiğinde Peri ayağa kalkmadı. Mayville’in salondan ayrıldığı anlarda Amerikalılar’ın, Peri’nin başkan seçilmemesi yönünde Kurultay divan üyelerine baskı yaptığı söylentisi yayıldı.
+   <br/>
+   <br/>
+   Gri tablolar da var
+   <br/>
+   <br/>
+   Olumlu gelişmelere rağmen Türkmenler için Irak’ta birçok “zor” viraj var. Saddam baskısının yerini, özellikle Kerkük’te Kürt baskısı alabilir. Erbil ve Musul’da Barzani’nin, Kerkük’te Talabani’nin polisleri kentlere hakim. Bütün köşeler onlar tarafından tutulmuş. Trafiği onlar yönlendiriyor. Savaştan sonra, Musul’un Barzani’ye, Kerkük’ün Talabani’ye kalması yönünde tarafların zımni bir anlaşma yaptıkları söyleniyor.
+   <br/>
+   <br/>
+   Peşmerge polislerinin, geçenlerde Kerkük’te Türkmenler’in yaptığı gösteride halkın üzerine ateş açıp 7 kişiyi öldürmesinden sonra ortam çok gergin. Kürtler rahatlıkla silahlanırken, Türkmenlerin silahlanması bizzat ABD askerlerince engelleniyor. Evler aranıp, silah bulunduran Türkmenler hapse atılıyor. Buna rağmen Türkmen halk gizlice silah edinmekten geri durmuyor.
+   <br/>
+   <br/>
+   Türkmenlerin Irak’ta işini zorlaştıran en önemli etken, hiç şüphesiz, Türkiye’nin maşasıymış gibi algılanmak. Oluşmasında Kürtlerin üstün gayretleri bulunan bu kanaat, özellikle tezkere sonrası süreçte Türkmenler’i Amerika ve Irak halkları nezdinde zor durumlara düşürdü. Amerika’nın Türkiye’ye kızgınlığı, Irak’taki bazı ayrıcalıkların paylaştırılmasında Türkmenler’i geri planda bıraktı. Büyük kurultay sonrasındaki süreçte Türkiye’nin yapması gereken en önemli iş, Türkmenler’le organik bağı bulunduğu kanaatini silmek olacak. Türkiye’nin tezkereye onay vermemesi özellikle Şii ve Sünni Araplar ile Asuriler üzerinde olumlu bir tesir bırakmış ancak, Kürtler tezkereyi çok iyi kullanıp, Türkmen bölgelerinde bile güvenlikten nüfusa, ticaretten sağlığa ve eğitime kadar birçok ayrıcalıklar sağlamışlar. Kürt propagandası, Türkmenler’in Irak’ta Türkiye’nin maşası olduğuna Amerikalıları inandırmış görünüyor.
+   <br/>
+   <br/>
+   Kürtler özellikle Kerkük’te Amerikalılar üzerinde o kadar etkili olmuş ki, komutanlar, kendilerine gelip Türkmen varlığını anlatan kişilere, “Yalan söylüyorsunuz, Kerkük’te Türkmen yok” demiş. Türkmenler ısrar edince, Amerikalı komutan, “Madem ki öyle, yarın önce Türkmenler, sonra Kürtler belediye binası önünde toplansın, kim daha çokmuş göreceğim” diye cevap vermiş. Toplanan Türkmenler’i meydan almamış. Azınlıkta kalacağını anlayan Kürtler ise alana gelip kalabalık yapması için Araplar’a rüşvet teklif etmişler, fakat Araplar kabul etmemiş.
+   <br/>
+   <br/>
+   Süleymaniye’de görüştüğümüz bazı Türkmenler, birkaç hafta önce Talabani ve Barzani’ye ABD’nin 1 milyar dolar verdiğini, parayı aralarında eşit bölüştüklerini, Kürt “devletlerindeki” personel maaşlarının bu parayla ödendiğini anlattılar. Türkmenler’in, “İşgalci ülkeden yardım alıyorsunuz” eleştirilerine, Talabani, “Hayır, ben bu paraları kendi gelirimle kazanıyorum. Gümrüklerden gelirlerim var” diye cevaplıyor.
+   <br/>
+   <br/>
+   Oysa Süleymaniye’de ve Talabani’ye ait diğer yerlerde, KYB liderinin bu sözlerini doğrulayacak, sınır kapısı haricinde bir ekonomik faaliyet yok. Süleymaniye’de bir un, bir çimento, bir de briket fabrikası bulunuyor. Gerek Barzani, gerekse Talabani bölgesinde, ırmak kenarlarında ve bahçelerde yapılan küçük çaplı sebzecilik dışında kendine yetecek kadar tarımsal faaliyet yok; bütün gıda ürünleri Türkiye, İran, Japonya, Amerika gibi ülkelerden geliyor.
+   <br/>
+   <br/>
+   Türkmen “Akıncılar”
+   <br/>
+   <br/>
+   Barzani’nin 70 bin, Talabani’nin 40 bin askeri olduğu söyleniyor ancak Türkmen askeri birimlerinden kişiler, bu sayıların abartı olduğunu, her ikisinin tam teşkilatlı ancak 10’ar bin asker çıkarabileceğini söylüyor. Saddam’ın ordularında görev yapmış çok sayıda Türkmen subay ve general şimdilerde bulundukları bölgelerde hem ‘emekli askerler derneği’ kurmaya devam ediyorlar, hem de Türkmen Güvenlik Dairesi adı altında oluşturulan birime bağlı, yaklaşık sayıları 10 bin olan Türkmen askerini eğitmekle meşguller. “Akıncı” adını kullanan askerlerin eğitiminde Türk askeri ve sivil birimlerinin de katkısı var. Türkmenler son haftalarda yoğun şekilde Irak polis teşkilatına girmek için başvuruda bulunmaya başlamış. Kürt gençleri ise daha ziyade kendi askeri ve polis teşkilatlarında görev alıyor.
+   <br/>
+   <br/>
+   Irak’ta, özellikle “İkinci Kudüs” Kerkük’te güvenlik meselesi tam bir karmaşa içinde yürütülmeye çalışılıyor. Az sayıda Barzani’ye bağlı olanlar bulunmakla birlikte, kentte genellikle Talabani’nin polisleri hakim. Türkmen “Akıncılar”ı ise kendilerine ait ITC binaları gibi bazı yerlerin korunmasını üstlenmiş durumda. Türkiye’den Kurultay için giden basın mensuplarıyla diğer sivil toplum örgütü mensuplarının kaldığı otelleri kalaşnikoflu Akıncılar korudu. Kurultay’ın yapıldığı Eğitim ve Kültür Merkezi’nin korunması ise Irak’ın içinde bulunduğu karmaşayı gözler önüne seriyordu: Hem Irak polisi, hem Amerikan askerleri, hem Akıncılar Kurultay’ın güvenliğini sağladı.
+   <br/>
+   <br/>
+   Baskın yok, nezaket ziyaretleri var!
+   <br/>
+   <br/>
+   Amerikan askerlerinin basıp, meşhur “çuval” hadisesini yaptıkları Süleymaniye İrtibat Bürosu’ndaki subayları BBP Genel Başkan Yardımcısı Ebubekir Yiğit’le birlikte ziyaret ettik. Türk subaylarla, olay sonrasındaki süreçte ABD ve KYB ile ilişkilerin dozunu konuştuk. Subaylar, “Artık Amerikan askerleriyle karşılıklı nezaket ziyaretleri yapıyoruz. O olayı hiç olmamış gibi sayıyoruz ve bahsetmiyoruz. Talabani’nin adamlarıyla da bir sorunumuz yok” diyorlar. Süleymaniye’de olduğu gibi bütün Irak’ta Amerikan askerleriyle Türk askerleri arasında “dikkatli” bir ilişki var. Talihsiz olayı yaşayan Türk subaylar Süleymaniye’den Türkiye’ye alınmış, yerlerine yenileri gelmiş. İrtibat bürosu binasının kapısına ‘her ihtimale karşı’ Talabani’nin güvenlik görevlileri yerleştirilmiş; güya binayı korudukları söyleniyor ama giren çıkanı da kaydediyorlar.
+   <br/>
+   <br/>
+   Harun Reşit’ten Saddam’a ve Bush’a
+   <br/>
+   <br/>
+   Saddam döneminde rejimin ordusu, en ilginci de kurmay sınıfı daha ziyade Türklerden teşkil edilmiş. Bunun sebebini sorduğumuz Kerkük Emekli Subaylar Derneği Başkanı Türkmen General Aziz Kadir Samancı şöyle cevap veriyor: “Çünkü Türkler merttir, sözünden dönmez, son neferine kadar çarpışır. Türkmen askeri hiç bir zaman ihanet etmez. Bu sebeple buralarda bin yıldan fazla zamandır Türk askeri çok makbuldür. Taa Abbasi hükümdarlarının ülkesini koruyup genişletmiş Ebu Müslim’den beri bu böyledir. Harun Reşid, Abbasi devletini koruyabilmek için Türk askeri getirmişti. Saddam’a kadar bu hep böyle oldu”.
+   <br/>
+   <br/>
+   İlginç olan şu ki, koskoca dünyanın süper gücü Amerika bile Mezopotamya coğrafyasının büyük bölümünü içine alan Irak’ta sükuneti ve hakimiyeti sağlamak için yine Türk askerini çağırıyor. Hem de ısrarla. Yani kısaca binyılların geleneği değişmedi.
+   <br/>
+   <br/>
+   Askerimiz gitmeli, fakat...
+   <br/>
+   <br/>
+   Irak halkları arasında Türk askerine en sıcak bakan kesim şüphesiz Türkmenler. Şii Araplar da Türk askerine olumlu yaklaşıyor. Fakat Kürtler ve özellikle Sünni üçgenindeki Araplar şiddetle karşılar. Görüştüğümüz bir Sünni Arap, “Türkler Müslüman, Amerikan askerinden daha iyidir. Ancak buraya Amerikan askerine yardım için geliyorsa hiç gelmesin. Amerika’ya yardım eden herkese saldıracağız. Türk askeri Amerika’nın yanında olmasın. BM adı altında gelebilir” diyor.
+   <br/>
+   <br/>
+   Türkiye’nin asker göndermeden önce Sünni Araplar’ı, bizzat içlerine girip (özellikle aşiret ve tarikat liderlerini) ikna ederek, Kürtler’i ise onların üzerindeki ABD nüfuzunu kullanarak ikna etmesi gerekiyor.
+   <br/>
+   <br/>
+   Türkmenler Türk askerinin gelmesine büyük umutlar bağlamış; hayatlarında var olan hemen bütün olumsuzluğun Türk askerinin Irak’a girmesiyle bir anda yok olup gideceğine inanıyor ve bütün sıkıntılarını anlatıp, “Bunların bitmesi, huzura ermemiz için Türk askeri bekliyoruz” diyor. Kürtler tarafından çalıştığı yerden atılan oğlunun işe girmesini dahi Türk askerinin sağlayacağına inanan insanlar var.
+   <br/>
+   <br/>
+   Irak’a asker gönderilmesini sadece PKK şartına bağlamak orada Türk askerini geri dönülemez bir girdaba sokabilir. En büyük zorunluluk Irak halklarının, özelikle Sünni Araplar’ın ve Kürtler’in Türk askerine “hazırlanması” olmalı. Gerçi şu sıralarda Türkiye, Irak’ın Türk askerine “hazırlanması” yönünde psikolojik ve siyasi bir harekat yürütüyor ancak bunun haricinde, askerlerimizin orada Birleşmiş Milletler çatısı altında görünmesi çok önemli.
+   <br/>
+   <br/>
+   Amerikan askerinin yanında görünmek, şaşkınlığını atmış ve Amerika’ya olan kızgınlığı kine dönüşmeye yüz tutmuş Şii-Sünni Araplar nezdinde Türkiye’yi oldukça sıkıntıya sokacaktır. Yıllarca Saddam esaretinde yaşayan Iraklılar, tam özgür olduklarını sanmışken, bu defa uzaklardan gelen ve kendilerinden olmayan bir efendinin kölesi olmaya, onun her türlü oyununun figüranı haline gelmeye başladıklarını yeni anlıyorlar. Bu duygunun Şii Arapları da şiddete yöneltmesi muhtemel. Görüştüğümüz Türkmen ve Şii Arap Iraklılar ağız birliği etmişçesine, yılların birikimi olan “Saddam kini”ni Amerika’ya kanalize etmişler.
+   <br/>
+   <br/>
+   Kürtler dahil bütün Irak halkları Amerika’yı istemiyor. Kürtler bağımsızlıklarının önündeki tek engelin, “Kürdistan’daki” Amerikan varlığı olduğunu söylüyor. Kimse Amerika’yı sevmiyor ancak herkes ona yakınlaşmaya, gözüne girmeye çalışıyor. Bu da Mezopotamya’ya ait “normal” bir çelişki olsa gerek.
+   <br/>
+   <br/>
+   MÜCADELENİN GİZLİ KAHRAMANLARI: KADINLAR
+   <br/>
+   <br/>
+   Türkmen kadınları şaşırtıcı bir siyasal bilince ve şiir/nesir yazma kabiliyetine sahip. Sosyal hayatta çok aktifler. Eşleri ve erkek çocukları BAAS zulmüne uğrayan kadınlar, mücadelenin ve Türkmenlik bilincinin nesilden nesile taşınmasının perde arkasındaki kahramanları haline gelmişler. Saddam sonrasında adeta her mahallede, her Türkmen köyünde bir gazete, dergi çıkmaya başlamış. Yayınlardaki hakim vurgu özgürlük ve Türkmenlik bilinci üzerine kurulu. Bu yayınlarda kadın şair ve yazarların eserleri ekseriyeti oluşturuyor. Büyük Kurultay’daki 550 delegenin yaklaşık 5’te biri kadındı.
+   <br/>
+   <br/>
+   HER TÜRKMEN EVİNDE BİN DRAM VAR
+   <br/>
+   <br/>
+   Uzun Saddam zulmü Türkmenler arasında bazı efsane şahsiyetlerin de ortaya çıkmasını sağlamış. Türkmen şair–yazar İzzettin İsmail Tuzlu, büyük şair Ekrem Tuzlu bunlardan sadece ikisi. Hemen bütün Türkmen aileler ya savaşlarda ya da Saddam’ın zindanlarında en az bir şehit vermiş. Hangi kapıyı çaldıysak ya da kimle konuşsak mutlaka evlerinden en az bir şehit çıktığını öğreniyoruz. Kurultay’da ITC Başkanı seçilen Faruk Peri’nin babası Albay Abdullah Abdurrahman ve seçimi kaybedip Türkmen Meclisi Başkanı seçilen Saadettin Ergeç’in de ağabeyi Saddam tarafından asılmış. Kürtler Saddam’dan ve savaşlardan çok fazla zarar görmemiş. Zira 90’lı yıllarla birlikte ABD ve İsrail’in güdümünde adım adım kendi bölgelerini kurup Saddam ve askerlerini uzak tutmaya başlamışlar. Irak’ta Saddam’dan en fazla zararı şüphesiz Türkmenler görmüş. Saddam, hem bitmez savaşlarda cepheye sürecek askeri Türkmenler’den sağlamış, hem de onlara her türlü eziyeti ve asimilasyonu uygulamış. Mesela Arap ismi alıp BAAS’a üye olmayan Türkmenler’e ev, araba alma, üniversite okuma gibi haklar verilmiyormuş Saddam zamanında. Bu durum bozulma ve mücadeleyi beraberinde getirmiş.
+   <br/>
+   <br/>
+   ARAPLAŞMAYA KARŞI TÜRK MODEL AİLELER
+   <br/>
+   <br/>
+   Türkmeneli’ndeki Türkmenler’in ruhları belki Türk ama gelenekleri ve davranışları Araplaşmış. Bunda Saddam döneminin Araplaştırma politikasının etkisi büyük. Musul nüfusunun büyük bölümünü teşkil eden Mıslaviler aslında Türk, ancak son yıllarda “Biz Arabız” demeye başlamışlar. Bağdat’taki öz be öz Türk aşireti Karagül de Araplaşmış durumda. Konuştuğumuz bazı Türkmen ileri gelenleri, “Her ne kadar Saddam dönemi sona erdiyse de bazı bölgelerde Araplaşma eğilimi önü alınamayacak dereceye geldi” diyorlar. ITC’nin ileri gelen isimlerinden Aydın Bayatlı, “Türkiye’den model aileler getirip buradaki Türkmen bölgelerine, mahallelerine belli sayıda yerleştirmek lazım. Bunlar Türkmenler’e Türklük bilinci, gelenekler gibi konularda önderlik yapmalı. Böylece durumu tersine çevirmek mümkün” diyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2998&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041225002239/http://www.aksiyon.com.tr:80/detay.php?id=2998&yorum_id=1)

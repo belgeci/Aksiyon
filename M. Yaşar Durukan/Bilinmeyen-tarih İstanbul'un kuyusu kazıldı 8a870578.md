@@ -1,0 +1,82 @@
+# İstanbul’un kuyusu kazıldı
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225163517im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225163517im_/http://www.aksiyon.com.tr/resim/380/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Şehirde açılan sayısız kuyulardan yeraltı suları çekildi. Su motorları şehre hayat suyu, yeraltına ise ölümün sesizliğini pompalıyor. Aralarında uydu kentlerin de bulunduğu yerleşim birimleri her an çökme tehlikesiyle karşı karşıya. Dünyaca ünlü Türk bilim adamı Prof. Dr. Zekai Şen, deprem bekleyen İstanbulluları süpriz faciaya karşı uyardı. Acilen hidrojeoloji haritası çıkarılması gerekiyor. Bu harita İstanbul’un ‘deprem risk haritası’nı da tamamen değiştirecekŞehirde açılan sayısız kuyulardan yeraltı suları çekildi. Su motorları şehre hayat suyu, yeraltına ise ölümün sesizliğini pompalıyor. Aralarında uydu kentlerin de bulunduğu yerleşim birimleri her an çökme tehlikesiyle karşı karşıya. Dünyaca ünlü Türk bilim adamı Prof. Dr. Zekai Şen, deprem bekleyen İstanbulluları süpriz faciaya karşı uyardı. Acilen hidrojeoloji haritası çıkarılması gerekiyor. Bu harita İstanbul’un ‘deprem risk haritası’nı da tamamen değiştirecek
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1930’lu yıllar... Mississippi Irmağı’nın kıyısındaki Ogella bölgesinde güneşli ve sakin bir gün yaşanıyor. Halk, parklarda hafta sonunun keyfini çıkarıyor... Ogella, gün ortasında ürükütücü bir gürültüyle sarsılıyor. Masmavi gökyüzünü hızla yükselen gri toz bulutu kaplıyor. Sessizlik yerini panik ve endişeye barakıyor. Herkes deprem olduğunu zannediyordu ama bölgedeki sismograflar sarsıntı kaydetmemişti. Ogella’yı saran toz bulutları dağıldığında facianın nedeni anlaşılıyor. Koca bloklar yere batmış, sonra da iskambil kağıdı gibi birbirinin üzerine devrilmiş. Kurtarma çalışmaları devam ederken, bilimadamları facianın adını koyuyor: Ogella çöktü! Yıllardır sondajlarla yeraltı suları çekilen Ogella’yı yerkabuğu daha fazla taşıyamamıştı.”
+   <br>
+    <br>
+     Bugünkü bilimsel veriler, böyle bir facianın bizden uzak bir coğrafyada meydana gelmiş olmasına aldanmamamız gerektiğini gösteriyor. Çünkü son yüzyılın en geçerli ve popüler senaryosu İstanbul’un bir depremle yıkılacağı üzerine kurulu. Bütün hazırlıklar da bu senaryoya göre yapılıyor. Ancak şehri bekleyen bir başka tehlike daha var. Yeraltından çekilen sular olası çöküş ihtimalini artırıyor. Bu ne bir senaryo ne de bir iddia. Bilimsel bir gerçek. Çünkü gerçekleşmesini kimsenin istemediği bu senaryoda olabilecekleri söyleyen, Amerika’dan Arabistan’a kadar tüm dünyanın yakından tanıdığı bir Türk bilimadamı: Prof. Dr. Zekai Şen. Dünyada sadece yedi kişide bulunan Amerikan Institute of Hydrlogy mührünü taşıyan ünlü profesörü görev yaptığı İstanbul Teknik Üniversitesi, Uçak ve Uzay Bilimleri Fakültesi, Meteoroloji Mühendisliği Bölümü’nde bulup söylediklerine kulak verdik.
+     <br>
+      <br>
+       Kendi kuyumuzu kazdık!
+       <br/>
+       <br/>
+       Tehlike, her geçen gün biraz daha büyüyen İstanbul’da belediyelerin verdiği suyun pahalı ve yetersiz kalmasıyla işletmelerin, yerleşim birimlerinin yeraltı sularına hücum etmesiyle başladı. Oteller, fabrikalar, su istasyonları, uydu kentler, kuyular açıp, yıllardır yeraltı sularını hortumluyor. Yasal düzenleme olmadığı için bugün İstanbul’da açılan kuyuların sayısı bile bilinmiyor. Aslında Türkiye’deki yeraltı sularından Devlet Su İşleri (DSİ) sorumlu. Ancak yerleşim birimlerinde yetki karmaşası başlıyor. Bu kaos hortumcuların işine yarıyor.
+       <br/>
+       <br/>
+       Su, yer ve atmosfer bilimlerinde uzman olan Prof. Dr. Zekai Şen, “Yeraltı suyu fazla çekilirse, o bölgenin jeolojik yapısına bağlı olarak, oturmalar olur. Yeraltı sularının üzerine gelen yükü kaldırma görevi vardır, çektiğiniz yerde gözenekli ortam varsa toprak da zayıflar ve çökertmeler olur” diyor.
+       <br/>
+       <br/>
+       “Nereler çökebilir?” diye sorduğumuzda Prof. Şen, kısa bir tereddütten sonra  “Literatürden bildiğim kadarıyla...” diyerek birer birer tehlikeli noktaları açıklıyor:
+       <br/>
+       <br/>
+       “Örneğin Ataköy ve Bakırköy’de aşırı su çekmeler olduysa yer yer çökmeler meydana gelebilir. Oralar, alüviyon toprak yatakları olması nedeniyle çok önemli. Beykoz’un bazı yerleri var. Kartal yörelerinde bazı yerler var. Genelde vadilerde oluyor.  İstinye koyunu diyorsanız, Bebek koyunu diyorsanız evet oralarda olabilir. Oralarda da olmamasının şansı yine denizin tuzlu suyunun içeriye giriyor olması. Aksaray da diyebilirim. Sahile yakın yerlerde bakacak olursak otellerin hep kuyuları vardır. Suyu çektiği zaman deniz suyu oralara geliyor. O nedenle şimdilik çökmeler olmuyor. Ataköy ve Bakırköy dikkat çekiyor, çünkü çok aşırı bir yerleşim bölgesi. İçerilere kadar deniz suyu ulaşamıyor. ”
+       <br/>
+       <br/>
+       Ogella faciası
+       <br/>
+       <br/>
+       Bu döngünün olmadığı yerleri sorduğumuzda Prof. Şen, İstanbul’un yedi tepede kurulduğunu bu yüzden şanslı olduğunu söylüyor. Bugün İstanbul’un dağıyla taşıyla yerleşim birimi olduğunu, İstanbul’un artık yedi değil yetmiş tepesi olduğunu hatırlattığımızda da “Ben ayrıntılı bir araştırma yapmadım, yapılmamıştır” diyor ama bilgilerini sıralamaya devam ediyor: “Alçak yerlerdeki gecekondular, kaçak yapılar, yarın dörtgene, 8—10 katlı sistematik binalara dönüşebilirler. Onun için o alçak yerlerden yeraltı suyu çekilirse çökmeler olur.” Yerleşim birimi vermekten ise ısrarla kaçınan Prof. Şen’e medya binalarının bulunduğu Ayamama deresini sorduğumuzda “Tam üzerine bastınız. Oralarda tamamen gözenekli ortam var. Fazla su çekildiği zaman çöker” diyor.
+       <br/>
+       <br/>
+       Ayamama gibi 216 tane dere yatağının bulunduğunu, yerleşime açık olan yerlerin gerekli şartlar oluşması halinde deprem olmadan da çökeceğini söylüyor. Profesörün uyarısı üzerine dere yatağını ve facia için gerekli şartların oluşup oluşmadığını araştırmak üzere yola koyuluyoruz. Dergideki adımız “felaket muhabiri”ne çıktığı için bu verilere ulaşmakta pek zorlanmıyoruz. DSİ ve İSKİ’den aldığımız haritalar ve fotoğraflar, Prof. Dr. Şen’in yerleşim birimi yok zannettiği yerlerin apatrmanlarla dolu olduğunu ispatlıyor. 216 dereden 58’inin üzerinde ilçeler, semtler, uydu kentler kurulmuş. Avrupa’da 53, Anadolu yakasında ise 28 yerleşim birimi tesbit ettik. Zayıf bölgelerdeki çok katlı binaların bu kadar çok olması zemine fazladan yük bindiriyor. Bunun yanında kazık temel tabir edilen temel yapma kuralına da uyulmadığı görülüyor. İlk ciddi çökme tehlikesinde bütün binalar yerle bir olma tehlikesiyle karşı karşıya bulunuyor.
+       <br/>
+       <br/>
+       Ardından Prof. Şen’e dönüp tekrar sorduk: “Bir gün bir uydu kentin çöktüğüne şahit olabilir miyiz?” Cevap kesin ve net oldu; “Tabii ki şahit olabiliriz. Amerika’da Mississippi Irmağı’nın yakınında Ogella adı verilen bir akifer vardır. 1930’lu yıllarda buranın yeraltı su rezervleri o kadar çok kullanılmıştı ki, koca koca binalar yıkıldı. Yapılarda ve şehirde çatlaklar oluştu. Allah’tan çok büyük şehirlerin bulunduğu bir bölge değildi. Olaydan sonra Mississippi Nehri, çekilen yeraltı suyu beslensin diye Ogella’nın altına yönlendirildi. O günden sonra hep önlem almaya çalıştılar. Fakat hâlâ yerel çökmeler oluyor. Bizde de olabilir. Deprem bile sanabilirsiniz. Deprem gibi büyük ölçekte vurabilir.”
+       <br/>
+       <br/>
+       Deprem haritası değişecek
+       <br/>
+       <br/>
+       Dünya kenti İstanbul’u tehdit eden tehlike bu kadar açık ve net ortaya konulmasına rağmen yetkililer hiçbir önlem almıyor. Bugün İstanbul’un ve Türkiye’nin bir ‘hidrojeoloji’ haritası bile yok. Cidde’nin var, Atina’nın var ama İstanbul’un yok! Hidrojeoloji haritaları sadece faciaları önlemek için değil, bir şehir gelişirken staratejik planlama açısından mutlaka gerekli. Eskiden savaşlarda düşman kalesini çökertmek için humbaracılar tünel ve kuyu kazardı. Bugün İstanbul’u çökertmek için savaşa gerek yok. Kendi kuyumuzu kendimiz kazıyoruz bile.
+       <br/>
+       <br/>
+       İSKİ veya DSİ’nin oluşturacağı bir ekiple çıkartılabilecek olan haritaların olmayışı, halihazırdaki resmi deprem senaryolarını da etkileyecek. Çünkü bugüne kadar pek dikkate alınmayan yeraltı suları deprem sırasında süpriz facialara yolaçacak gibi görünüyor. Bugün uzmanların çok sağlam dediği bölgeler, altından yeraltı suları geçiyorsa; yüzde yüz riskli olabilecek. Hidrojeoloji haritası çıkarılırsa İstanbul için hazırlanan ‘deprem risk haritası’ ve dolayısıyla rant haritası tamamen değişecek.
+       <br/>
+       <br/>
+       Fatih Camii suyun kurbanı
+       <br/>
+       <br/>
+       Prof. Dr. Zekai Şen’in, yeraltı sularının deprem sırasında yapabileceği süprizlerle ilgili verdiği bilgileri noktasına virgülüne dokunmadan aktarıyoruz: “Türkiye’de deprem konuşulurken hiç yeraltı suyuna değinilmiyor. Ancak kuyuda su ısınıyor, ısınmıyor tartışması yapılıyor. Hidrojeoloji haritası olsa ölü ve diri faylar tesbit edilir. Depremdeki çatlaklarla beraber su yerinde durmaz, kabına sığmaz, hemen o çatlağa gidip belki başka bir fayı tetikleyebilir. Barajlar inşa edilirken jeolojik ve hidrojeolojik etüdü yapılır. Çünkü barajda çok miktarda su biriktiğinde zeminde çatlaklar varsa zamanla sızmalar, muazzam bir su basıncı oluşturur zemine ve hareketli hale getirir, tetikler. İstanbul sağlam zemin, çürük zemin diye ayrıldı ama suyuna doymuş zemin var doymamış zemin var. Bunların herbirinin ayrı ayrı risk haritalarının çıkarılması lazım. Deprem sırasında yeraltı su seviyesi yüksek olan ya da boşalmış olan yerlerde şiddet bugün öngörülenden çok daha farklı olacaktır. Fatih Camii’nin son depremde ağır hasar görmesi, yeraltı sularının en açık uyarısıydı.”
+       <br/>
+       <br/>
+       İstanbul’un hiçbir hazırlık yapmadığı ve halkın haberdar edilmediği sürpriz facianın senaryosu işte böyle. İngiltere’de “önümüzdeki bin yılın 500 öncü kişisi” arasına giren,  Amerika’da da “yılın adamı” seçilen Prof. Dr. Zekai Şen’i uluslararası bilim çevreleri pür dikkat dinliyor. Dünyanın el üstünde tuttuğu bu Türk bilimadamının söylediklerini bizim yetkililer dikkate alır mı bilemiyoruz. Aksi halde İstanbul’da kendi kazdığımız kuyulara kendimiz düşeceğiz!
+       <br/>
+       <br/>
+       e—mail: mydurukan@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12527), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225163517/http://www.aksiyon.com.tr:80/detay.php?id=12527)

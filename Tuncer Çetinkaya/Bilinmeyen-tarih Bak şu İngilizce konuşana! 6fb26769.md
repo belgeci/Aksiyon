@@ -1,0 +1,44 @@
+# Bak şu İngilizce konuşana!
+
+*Tuncer Çetinkaya Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20031114105355im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20031114105355im_/http://www.aksiyon.com.tr/resim/458/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yapılan araştırmalar yabancı dilin küçük yaşlarda ana dille beraber öğretilmesinin en faydalı yol olduğunu gösteriyor. 6 yaşından sonra ise bir dili aksansız olarak öğrenmek çok zor.
+ </font>
+ <p>
+  <font class="content">
+   Eskiler, ‘Bir dil bir insan, iki dil iki insan’ diyerek yabancı dil bilmenin önemine vurgu yaparlardı. İnternet ve iletişim teknolojilerinin de devreye girmesiyle global bir köy haline gelen dünyada artık iki dil biliyor olmak bile yeterli görülmüyor. Avrupa Konseyi’nin Avrupa’nın geleceği için belirlediği eğitim ve kültür politikaları içinde en ağırlıklı konu dil politikası olarak göze çarpıyor. Çok kültürlü ve çok dilli bir toplum meydana getirme anlayışını vazgeçilmez bir eğitim hedefi olarak ortaya koyan Avrupa Konseyi, buna ulaşma adına adımlar atıyor ve üye ülkeleri bu istikamette yönlendiriyor. Önce 2001 yılını Yabancı Diller Yılı ilan eden konseyin Avrupa vatandaşı için eğitim hedefi şöyle: “Yaşamboyu dil öğrenme ve en az 3 yabancı dil bilme.”
+   <br/>
+   <br/>
+   Avrupa Birliği’ne giriş sürecinde Türk insanının da kendini Avrupa Konseyi’nin belirlediği hedefler doğrultusunda yetiştirmesi gerekiyor. Türkiye’de bir insan ilk ve orta öğretim yılları içinde ortalama 1200 saat yabancı dil eğitimi alıyor. Uzmanlara göre bu küçümsenmeyecek bir rakam. Çünkü bu, bir öğrencinin günde 5 saat üzerinden kesintisiz 1,5 sene yabancı dil öğretimi alması anlamına geliyor. Ancak çoğu liseyi bitiren öğrencinin kendini ifade edebilecek düzeyde yabancı dil öğrenmeden mezun olduğuna da herkes şahit. O zaman, yabancı dil öğretim sisteminin yeniden kurgulanması ve öğretim metodlarının yeniden gözden geçirilmesi gerekiyor.
+   <br/>
+   <br/>
+   Özel Fatih Eğitim Kurumları, yabancı dil öğretimi konularında ortaya çıkan eksiklikleri değerlendirerek yeni bir sistem geliştirdi. Bu yıl 3—6 yaş grubuna hitap eden müstakil 4 ayrı anaokulu açan Fatih Koleji, burada uygulayacağı yabancı dil öğretim metodlarıyla çocuklara 3 yaşından itibaren yabancı dil öğretecek. Yurtdışından getirdiği İngilizce öğretmenleriyle aksansız İngilizce öğretmeyi amaçladıklarını ifade eden Genel Müdürü Talip Büyük, “Yapılan bilimsel çalışmalar gösteriyor ki, erken yaşlarda ana dili eğitimi ile birlikte verilen yabancı dil eğitimi çok faydalı oluyor. Biz de bu doğrultuda hedefler belirledik ve 3 yaşından itibaren çocukların farklı bir dili daha kolay ve aksansız şekilde öğrenmelerini amaçladık” diyor. Uygulama, bir nevi geçmişte uygulaması sık sık görülen ve başarılı örnekleri bulunan mürebbiye veya dadılık sistemine benziyor. Talip Büyük, ilkokuldan liseye kadar yabancı dil öğretimine önem verdiklerini hatırlatarak, “Dünyada yabancı dil öğretimi ile ilgili gelişmeleri yakından takip etmeye çalışıyoruz. Genel kabul gören öğretim yöntemi, çocuğa erken yaşlarda, okul öncesi dönemde dil öğretiminin verilmesi yönünde. Biz de açtığımız anaokullarında bunu vermeye çalışacağız” şeklinde konuşuyor.
+   <br/>
+   <br/>
+   İngilizce Zümre Başkanı Yücel Akgün ise öğrencilerden sadece yabancı öğretmenlerle beraber olarak dil öğrenmelerinin beklenemeyeceğini, aynı zamanda haftada 10 saat Toplu Fiziksel Karşılık (TPR) ve hikâye anlatım yöntemi ile temel dil yapısı oluşturacaklarını söylüyor. Çocukların yakın çevresinden uzak çevresine doğru planlanmış temel konu başlıkları oluşturduklarını ifade eden Yücel Akgün, 1 yıllık eğitim sonunda öğrencilerin 600 ile 800 arası kelime öğreneceğini belirtiyor. İlk etapta öğrencilerden konuşma yerine söylenenleri anlamalarını beklediklerini anlatan Akgün, konuşmasını şöyle sürdürüyor: “Onlardan konuşmalarını değil, söylenilenleri anlamalarını ve kendilerine verilen komutları yaparak öğretmenlerine anladıklarını göstermelerini isteyeceğiz. Çünkü anne—babalarımız çok iyi bilirler ki konuşabilmek için çocuklarımız ana dil eğitiminde 3 yaşa kadar bekleyebiliyorlar. Bu gelişim zekâ kapasitesi ile değil çocuğun ana dilini ne kadar yoğunlukta duyduğu ile doğrudan bağlantılıdır. Kalabalık ailelerde yetişen çocuklar kendileri ile tüm aile bireylerinin ilgilenmesi sonucu dili daha çabuk öğrenebiliyorlar. Bu çalışmalar sadece sözlü olarak yapılmayacak, son bilimsel gelişmeler de bu çalışmalar sırasında temel alınacaktır. Özellikle Çoklu Zeka Teoremi ders anlatım yöntemlerinde öğretmenlerimizin en çok dikkat edecekleri hususlardan biri olacak ve bunları uygulama boyutuyla sınıfa taşıyacak. Yabancı öğretmenlerimiz Türk öğrencilerimizle tanışmadan evvel 3 gün boyunca tam gün hem ders anlatım teknikleri üzerine hem de Türk öğrencilerin karakter yapıları üzerine hizmet içi eğitime tabi tutuldular. Tüm hazırlıklar sorun çözme ve eğitimi bireyselleştirme amacına yönelik hazırlandı.”
+   <br/>
+   <br/>
+   YRD.DOÇ.DR. BELMA HAZNEDAR*: ‘YABANCI DİL ANCAK 6 YAŞINDA  AKSANSIZ ÖĞRENİLEBİLİR’
+   <br/>
+   <br/>
+   Yabancı dil öğrenimine çocuk yaşta başlayanların, ana dil gibi konuşan bireylerin düzeyine erişebildiği ileri sürülmüştür. Bu açıdan bakıldığında yabancı dil öğreniminde ikinci bir dili aksansız öğrenebilmek için yaş sınırı 6’dır. Erken yaşta yabancı dil öğrenimi çocuklarda soyut düşünme yeteneğini tek dille öğrenim gören çocuklara oranla daha fazla geliştirmekte ve bu nedenle kavram geliştirme ve değerlendirme gibi üst düzey bilişsel becerilerde öğrenciye üstünlük sağlamaktadır. Erken yaşta dil öğrenenlerin akademik olarak diğer derslerden geri kalmadığı gibi tersine tek dilli öğrencilerden daha başarılı oldukları görülmüştür. Ayrıca erken yaşta yabancı dil öğretimi çocuğun olayları algılama sınırlarını genişletecek, farklılıklara anlayışlı, saygılı, hoşgörülü olmalarını sağlayacak ve en önemlisi karşılaştırmalar yaparak kendi kültürünü daha iyi tanımasını sağlayacaktır.
+   <br/>
+   <br/>
+   * Boğaziçi Üniv. Eğitim Fak. Yabancı Diller Eğitimi Bölümü
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2976&yorum=289), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20031114105355/http://www.aksiyon.com.tr:80/detay.php?id=2976&yorum=289)

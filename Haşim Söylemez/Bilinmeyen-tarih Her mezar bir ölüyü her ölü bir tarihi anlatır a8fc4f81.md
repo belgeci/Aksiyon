@@ -1,0 +1,132 @@
+# Her mezar bir ölüyü, her ölü bir tarihi anlatır
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092346im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092346im_/http://www.aksiyon.com.tr/resim/364/21.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İşadamı Üzeyir Garih’in öldürülmesiyle gündeme gelen mezarlıklar; cinayetler işlenen,  ayyaşların kol gezdiği mekanlar olarak lanse edildi. Oysa mezarlıklar, geçmişi günümüze bağlayan, bir kültür ve tarih hazinesi olmuş hep. Dün ne ise bugün de aynı, değişen sadece taşlar ve yazılar
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   I. Dünya Savaşı sırasında Ermeniler doğuda bir Ermeni devleti kurmak için yaptıkları propaganda neticesinde, tarafsız bir heyeti Erzurum’a göndermeyi başarırlar. Erzurum’a gelen heyeti eski belediye başkanlarından Mesut Çankaya bir tepenin üzerine çıkarır; işte camiler, işte kiliseler dedikten sonra işte Türk mezarları diyerek mezarlıkları gösterir. Sonuçta Erzurum’un bir Türk şehri olduğuna karar verilir ve heyet oradan ayrılır...
+   <br>
+    <br>
+     İşadamı Üzeyir Garih’in Eyüp Mezarlığı’nda öldürülmesinin ardından belki de Garih’ten çok öldürüldüğü mekan konuşuldu. Mezarlıklarda ayyaş ve tinercilerin yuvalandığı, katillerin avlarını bekledikleri ağızlara pelesenk edildi. Belki bundan 10 sene evvel özellikle kent mezarlıkları için bu iddia gerçeği yansıtıyordu. Ama özellikle 1990’lı yıllardaki belediyeler mezarlıklara özel bir önem verdiler. Tarihsel planda bakacak olursak mezarlıklar ne katillerin avlarını bekledikleri, ne de kuş konmaz kervan geçmez mekanlardı. Daima düzenli, daima içinde değişik ritüelleri barındıran kültür ve ibret mekanları olarak alışılageldi. Dün ne ise bugün de aynı. Bunu anlamak için de çok uzağa gitmeye gerek yok; Üzeyir Garih’in hemen yanıbaşında öldürüldüğü Küçük Hüseyin Efendi’nin mezarı ince ayrıntıları üzerinde barındıracak kadar güzel bir örnek.
+     <br>
+      <br>
+       ‘İki dünya arasındaki kapı’ diye düşünülen mezar ve onunla ilgili olan her şey insanların daima ilgisini çekmiş. Mezar, inancımıza göre dünyadan göç eden insanların bıraktıkları en önemli işaret. Mezar ve mezarlık ölülerin gömüldükleri çukurların toprakla doldurulmalarıyla tümsekleşmiş kabarık bir arazi parçası veya sınırları çevrilmiş belli bir alandan ibaret değil, her mezar taşı, yaşayan insanların fani dünyadaki varlığının geride kalan son delili ve geleceğe bırakılan tarihi bir levha olarak algılandı asırlardır ve bir kültürü, geleneği içinde barındırdı.
+       <br/>
+       <br/>
+       Mezarlıklar her zaman Türk örf ve inançlarına göre düzenlenmiş, kutsal, sessiz ve saygı duyulması gereken mekanlar oldu. Anlayış ve uygulamadaki benzerlik mezarlıklara duyulan derin saygının bir ifadesi. Şekiller ve taşlar değişse de mezarlıktaki düzen orijinalliğini bozmamış. Eğer o kadar da değil diyenlerdenseniz Eyüp Mezarlığı’na, Karacaahmet’e ya da İstanbul’un bir başka köşesindeki mesela Yenibosna Mezarlığı’na uğrayın göreceksiniz ölüye ve mezara saygıyı. Düzenlemeler, çeşit çeşit ağaçlar, çiçekler, sakin ve görültüden uzak mekanlarda canlı iken bile yatmak istediğinden, hiç olmazsa bu düşünceyi aklınızdan geçireceğinizden şüphe yok. Dahası bir cinayetle kirletilmeye çalışılan mezarlıkların itibarını iade edeceksiniz.
+       <br/>
+       <br/>
+       Canlı susunca mezar konuşuyor
+       <br/>
+       <br/>
+       Mezar ve mezarlık, kültürün değişik sahalarında da önemli bir mevki işgal ediyor. Genellikle mezar ve mezar taşı kişilerin ölümünden sonra hazırlanır ancak işin ehemmiyetini kavrayanlar daha ölmeden nasıl bir yerde yatacağını ve mezar taşında ne yazılması gerektiğini hazırlar, ölmeden mezara koyar kendisini. Çünkü mezar ve mezar taşı çok önemlidir. İnsanlara nasihat vermeli, gerektiğinde düşündürmelidir. Canlı susunca mezar dile gelip kendi diliyle insanları etkilemelidir. Hayatın sırrını, yaptıklarından belki pişman olmuş bir ölünün ağzından duyurmalıdır insanlara.
+       <br/>
+       <br/>
+       Bizim kültürümüzün şekillendirdiği mezar taşları bazen insanları düşündürür, bazen dersler verir, bazen de insanlardan yardım ister; bir ‘fatiha’ya avuç açar. Nasihat ve öğüt vererek didaktikleşir, Allah’a yakarıp, peygamberden şefaat ister, gelip geçenden günahlarına kefaret olsun diye iyilik yapmasını temenni eder. Bazen de ölenin kişisel menkıbesi anlatılır mezar taşında. Kişinin nasıl öldüğü, kahramanlıkları, yaptığı hayırları iyilikleri hattâ yaşamış olduğu koca bir hayat küçücük bir mezar taşında özetlenir. Sadece bunlar değil; maniler, bilmeceler, aşktaki ayrılıkları da mezar taşlarında görmek mümkün.
+       <br/>
+       <br/>
+       Aslında bütün bunlar bir geleneğin parçası olan mezarların ne kadar önemli olduğunu gösteriyor ve hayattakilerin ölülere bakıp ders almasını da sağlıyor. Mezar, taşlardaki yazıları bir kültür mirası olarak nesillere aktarması bakımından önemli bir taşıyıcı oluyor. Mezar kültürü üzerine araştırma yapan Mustafa Öncü, mezar taşlarının ibretlik birer vesika olduğunun altını çiziyor. Öncü: “Taşların üzerine yazılanlar aslında ölünün yakınlarının istedikleri. Ölünün yaşamından etkilenerek ona göre yazılar yazıyorlar. Ölen gençse ona göre bir yazı yazılıyor mezar taşına. Hayattayken çok hatalar yapmış birinin mezar taşına da pişmanlık ifade eden ve ders alınması gereken bir yazı yazılıyor. Ölü aşkına kavuşamamış biriyse ona göre bir aşk yazısı... Mezar taşlarındaki yazılar ölünün yakınlarının ölü adına istedikleridir. Bir nevi kendi korkusudur. Ama ibret alınması gereken bir gerçektir” diyor.
+       <br/>
+       <br/>
+       Tarihi belge
+       <br/>
+       <br/>
+       Mezarlıklar sadece ölülerin gömüldüğü sıradan yer ve insanlara ibret olan mekanlar değil, aynı zamanda tarihe yardımcı olan önemli birer kaynak da olabiliyor. Mezarlara veya mezar taşlarına bakılarak tarihi birçok konu aydınlatılmış, aydınlatılmaya devam ediliyor. Bir mezar taşına bakılarak ölen kişinin kadın ya da erkek olduğunu anlamak mümkün. Bu, yapılacak olan bir nüfus değerlendirmesinde net bir rakam vermezse de önemli bir yer tutabilir. Ya da mezar taşına bakılarak mezarda yatanın çocuk veya genç olduğu anlaşılabilir. Kadın mezar taşları çiçekli, daha latif ve nazik dokularla işlenirken, erkek mezar taşlarının ise daha sert yontmalarla yapıldığını görmek mümkün. Yine mezar taşından kişinin unvanını, yaşadığı dönemi anlamak mümkün. Her dönem için ayrı bir işçilik kullanılırken, mezarın kime ait olduğu konusunda da mezar taşı bilgi veriyor. Tarihi bir mezara bakılarak şehzade, enderunlu ya da sıradan bir insan olduğunu anlamak mümkün. Yine mezar taşında kullanılan yazı stili hangi hat sanatının kullandığı ve hattatın kimliği hakkında da bilgi veriyor. Mezar taşlarındaki tarihler, soy ve şecereler de tarihçilerin başvurduğu önemli bir kaynak. Çünkü kişilerin anne adı, baba adı, hangi soydan geldiği kayıtlarda bulunamasa bile mezar taşında yazılı oluyor. Ayrıca mezar taşlarında, yörenin geçim kaynağını teşkil eden ürünlerin temsillerinin bulunması da mümkün. Haşhaş, koyun ya da buğday şekilleri eski mezar taşlarında karşımıza çıkıyor.
+       <br/>
+       <br/>
+       Mezar taşları üzerinde çalışmalar yapan hattat Süleyman Berk mezar taşlarının tarih açısından çok önemli kaynaklar olduğunu vurgularken, aynı zamanda taşların sanat yönüyle de incelemeye değer olduğunun altını çiziyor. Berk mezarlıkların, ölülerin gömüldüğü yer olarak anlaşılmaması gerektiğini belirterek şöyle konuşuyor: “Mezar taşları bazen bize bir tarihi olayı, bazen bir tarihi aileyi, bazen de çok önemli bir yazı sanatını öğretebiliyor. Kişinin taşında katılmış olduğu bir savaş yazılı ve kişinin ölüm tarihi belirtiliyor; bu bilgileri yanyana koyduğunuzda o savaşın hangi tarihte olduğu ortaya çıkıyor. Ya da falanın kızı, falanın babası diye yazıyor, bu da ailelerin anlaşılmasını sağlıyor. Kullanılan yazının hangi hattat tarafından yazıldığı da yine mezar taşındaki imzadan anlaşılabiliyor. Hattatlar mezar taşlarından çok faydalanır. Osmanlı dönemi mezar taşlarında celi sülüs, celi ta’lik ve rik’a yazı çeşitlerinin kullanıldığını görmek mümkün.”
+       <br/>
+       <br/>
+       Yeni eskiyi aratıyor
+       <br/>
+       <br/>
+       Tema bakımından eski ile yeni mezar taşları arasında pek bir fark yok. Geçmişin mezarlıkları ile günümüzün mezarlıkları düzen olarak sanki birbirinin kopyası gibi. Eski ile yeni mezarları ayıran fark kullanılan taşlar, taşlar üzerindeki süsleme ve yazıdaki estetik. Eskiden değişik taş türleri kullanılırken, günümüzde ise ön plana çıkan taş mermer oluyor. Yazı konusunda da aslında kıyas yapılmayacak kadar fark var. Eski mezarlarda taşlarda derin bir süsleme ve mezarda yatan kişiyi anlatan ince ayrıntılar göze çarparken yeni mezarlarda süslemelerden kaçınılmış, sadece ve sadece mezarı belli etmesi için kullanılmış. Yine aynı şekilde mezarlardaki yazılarda da sanat ve incelik farkı ortaya çıkıyor. Eski mezar taşlarında birbirinden farklı yazı stilini ve hat sanatını görmek mümkünken, günümüz mezarlarında sadece bir yazı stili kullanılmış. Eski mezar taşlarına yansıtılan yazı veya süslemeler onun bir mezar taşından çok ustasının elinden çıkan bir şaheser olarak düşünüldüğünü söylemek yanlış olmaz. Yeni mezar taşları ise bir şaheser ortaya koymaktan çok, ölüyü belli eden sıradan bir belirti. Ama geçmiş ile günümüzdeki mezarlarda görülen en önemli ortak nokta mezarlıkların düzeni, çeşit çeşit ağaçları ve mezar dokusunu içeren tema.
+       <br/>
+       <br/>
+       Gün geçtikçe mezar yapılarındaki estetik kabalaşmasına rağmen ölüye saygıyı mezarlıkların düzeninde görmek mümkün. Mezarlıklara yerin üstündekilere yerin altındakileri hatırlatması bakımından değer verilip anlaşılması da sanırım kültürün bir parçası olsa gerek.
+       <br/>
+       <br/>
+       e—mail:hsoylemez@hotmail.com
+       <br/>
+       <br/>
+       Taşların dili;
+       <br/>
+       <br/>
+       Kimler geldi neler dediler
+       <br/>
+       Hepsi dünyayı bırakıp gittiler
+       <br/>
+       Sen hiç gitmeyecek gibisin değil mi ya
+       <br/>
+       Bu gidenler senin gibiydiler
+       <br/>
+       Cemal Galip
+       <br/>
+       <br/>
+       Ne mutlu onbir sene sonra
+       <br/>
+       beraber olmak
+       <br/>
+       Havva Özçeler
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       1918—1960
+       <br/>
+       İşte bu kadar...
+       <br/>
+       Hilmi Yastıman
+       <br/>
+       Totocuydu, futbolcuydu bir zaman
+       <br/>
+       Cemiyette efendiydi her zaman
+       <br/>
+       Çok sevdi Hüda etmedi niyaz
+       <br/>
+       Unutmadık unutulmazsın Kiraz
+       <br/>
+       <br/>
+       Dün ben de senin gibi idim
+       <br/>
+       Unutma Hüda’yı
+       <br/>
+       Yarın sen de benim gibisin
+       <br/>
+       Oku Fatiha’yı Mehmet Atmaca
+       <br/>
+       <br/>
+       Bismillâhirrahmânirrahîm, Allâhu sübhânehu ve Te’âlâ hazretleri cemî’i mü’minin ve mü’minât ve bilhassa loğuşalıkda vefât eden Fâtıma Lütfiye kullarına rahmet eyleye bi-hürmeti’l-fâtih.
+       <br/>
+       <br/>
+       “Allah el-Bâkî / 1325 sene-i şemsiyye-i mâliyesi martının / 31’inde (22 Rebî’ü’l-evvel sene 1327)/  İstanbul’da vukû’a gelen ihtilâl-i ‘askerîde erbâb-ı kıyâma nasîhat içün / gidüb hedef-dâne-i ta’arruz olarak / fi’lhâl şehîd düşen ibn-i Resûlullah / Ğerîf Mehemmed Şâdık Paşa ibn
+       <br/>
+       eş-Şerîf / Ahmed’Adnân Paşa ibn
+       <br/>
+       eş-Şerîf / ‘Abdülmuttalib Efendi
+       <br/>
+       merhûmun kabridir / rûhuna Fâtiha”
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12455), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092346/http://www.aksiyon.com.tr:80/detay.php?id=12455)

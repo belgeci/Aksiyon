@@ -1,0 +1,85 @@
+# Denız uzak, cezaevı boş, şıırler kaldı bâkî...
+
+*Ülkü Özel Akagündüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302224557im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302224557im_/http://www.aksiyon.com.tr/resim/297/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kuzeyde, en kuzeyde iki doğal liman arasında, binlerce yıllık bir kalenin surları ardına gizlenmiş, Karadeniz’in hırçın dalgalarına terk edilmiş, belki de teslim olmuş garip bir cezaevi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Öteden beri sürgün kenti olarak bilinen Sinop, yemyeşil doğası ve bâkir koylarıyla bu söylentiyi yalanlasa da, kalın kale duvarları içinde yer alan ilk ve tek cezaevine sahip oluşuyla sessiz sedasız kabullenir gerçeği... Bugün bile döne kıvrıla uzayan yollar, tırmanılan yokuşlar sonucunda biraz zahmetlice ulaşılan Sinop, kara yoluyla gitmenin göze alınamayacağı bir kenttir eski dönemlerde; deniz ticaretinin gelişmemişliği, gemilerin hantallığı da gözönüne alınırsa, ülkenin güvenliği açısından çok tehlikeli(!) olarak addedilen sol görüşlü düşünür, yazar ve şairlerinin neden bu kente gönderildiği daha iyi anlaşılır.
+   <br>
+    <br>
+     Osmanlı’dan kalma
+     <br>
+      <br>
+       Sinop’u bir baştan bir başa kuşatan kale duvarlarının yapılışı dörtbin yıl önceye, Miletli kolonistler zamanına rastlıyor. 1214 yılında şehri Bizanslılardan alan Selçuklular şehri kuşatan kaleyi enine doğru ikiye bölerek iç kaleyi oluşturmuşlar. Uzunca bir dönem tersane olarak kullanılan iç kale Osmanlılar döneminde ilk cezaevi binalarıyla tanışmış. Bazı kaynaklar 1562 yılından itibaren iç kalenin hem tersane hem de bazı bölümleriyle zindan olarak kullanıldığını söylese de tam teşekküllü cezaevinin yapılışı 1882 yılını buluyor.
+       <br/>
+       <br/>
+       Mahkumlar Akliman’a...
+       <br/>
+       <br/>
+       Yaklaşık 120 yıldır cezaevi olarak kullanılan tarihi binalar bundan 3 sene önce boşaltılarak Kültür Bakanlığı’na devredildi. Devir teslim işlemleri iki ay önce yapılan cezaevinde yatan mahkumlar Akliman mevkiindeki yeni cezaevine taşındılar. Şu an sadece kaba temizliği yapılan tarihi cezaevinde henüz restore çalışmaları başlatılmamış. Cezaevinin Osmanlı dönemindeki özgün halini alabilmesi için sonradan yapılan idari binaların yıkılması gerekiyor. Sinop Müzesi yetkilileri, cezaevi binalarının adalet müzesi, su altı müzesi, sempozyumların yapılacağı salonlar, kafeteryalar, konaklama merkezi, şehrin yerel ürünlerinin satılacağı reyonlar olarak düzenlenmesinin hem iç hem de dış turizme büyük yarar sağlayacağını söylüyorlar. Uluslararası Arkeologlar Sempozyumu’nun bu tarihi mekânda gerçekleştirilmesi halinde, bilim adamları ve arkeologların dikkatini buraya çekmenin kolaylaşacağı görüşü de müze yetkililerinin Kültür Bakanlığı’na sundukları öneriler arasında.
+       <br/>
+       <br/>
+       Cezaevi değil, kültür kompleksi
+       <br/>
+       <br/>
+       Çok uzun bir süredir cezaevi olarak kullanıldığı için arkeolojik kazıların yapılamadığı tarihi mekan sanat tarihçileri ve arkeologlar tarafından bâkir bir alan olarak nitelendiriliyor. Selçuklular’ın kıyıda bekleyen Bizanslılar’dan korunmak için iç kaleyi bir an önce yapmak istemeleri, şehir içinde Roma ve Bizans dönemine ait eserlerden alınan sütun ve taşların kalenin duvarlarında devşirme olarak kullanılmasına sebep olmuş. Burada bir temizlik çalışması yapılırsa görünenin dışında birçok devşirme eser bulunacağını söyleyen müze yetkilileri cezaevi çevresinde arkeolojik kazı yapılmasını da istiyorlar. Sinop’un fethine katılan pek çok Selçuklu beyinin onardıkları kale duvarlarına yazdıkları kitabelerle birlikte tam bir kültür kompleksini andıran iç kale ve içinde yer alan cezaevi binalarının amacına uygun şekilde kullanılması sanat tarihçi ve arkeologların tek isteği.
+       <br/>
+       <br/>
+       Gardiyandan rehber
+       <br/>
+       <br/>
+       Sinopluların akın akın gezdiği cezaevini, 23 yıldır cezaevinde çalışan Pala Akif lakaplı gardiyanla birlikte dolaşıyoruz. Gardiyan üniformasını henüz üzerinden çıkarmayan Pala Akif, yeni mesleğinin, yerli ve yabancı turistlere cezaevini gezdirmek olduğunu söylüyor. Ziyaretçi görüşmelerinin yapıldığı ve mahkumların tezgahlarda halı dokudukları, marangozluk işleri yaptıkları atölyeleri gördükten sonra cezaevine giren kişinin muhtemelen uzun yıllar boyu yaşayacağı esaret günlerine ilk adımı attığı ‘kapıaltı’ denilen giriş kapısından geçip, mahkumun üst aramasının yapıldığı küçük avluda duruyoruz. Cebindeki paradan kolundaki saate kadar üzerindeki değerli değersiz herşeyini bu avluda bırakan yüzlerce mahkumun savunmasız ve ümitsiz bekleştiği bu yerde sırt çantalı, fotoğraf makinalı meraklı turistler duruyor şimdi. Sonradan eklenen reviri, hamamı, berberi ve sınıfı geçip, tarihi cezaevinin yüz yıllık ahşap kapısından içeri giriyoruz. Tavana yakın parmaklıklı küçük pencereler, yan yana uzanan koğuşlar, üst üste atılmış döşekler, battaniyeler, duvarlara kazınmış yazılar... Kısa bir zaman önceye kadar ümitlerin hem yanıp hem söndüğü, bakışların hem kararıp, hem aydınlandığı, demli çayların içilip, iri boncuklu tesbihlerle ya sabırların çekildiği koğuşların taş duvarları, taş zeminleri sağır ve dilsiz görünüyor şimdi.
+       <br/>
+       <br/>
+       Farelerle dostluk...
+       <br/>
+       <br/>
+       Koğuşlarda huzursuzluk çıkaranların atıldığı disiplin hücrelerini gezmek bile kanımızı donduruyor. Zifiri karanlık içinde sadece tuvaleti ve musluğu olan hücrelerde yatan mahkumların yiyeceklerini paylaştıkları farelerle kurdukları dostluk bugün bile anlatılıyor. Şimdiye kadar hücrede kalan hiçbir mahkumda fare ısırığının tespit edilmemesi de bu tiksinti verici hayvanlarla kurulan zoraki arkadaşlığı ispatlar gibi. Denizin hemen kenarında oluşu ve yaşam şartlarının olumsuzluğuyla farelerin yaşamasına oldukça elverişli olan cezaevinin kapatılmasıyla birlikte şehir merkezini farelerin bastığı söyleniyor. Cezaevinde, sayısı 21’i bulan disiplin hücrelerinin yanısıra 64 tane de müşahede hücresi bulunuyor. Cezaevine yeni giren mahkumlar, koğuştaki hal ve tavırlarının gözlemlenmesinden sonra, bir nevi sabır ölçüm odası diyebileceğimiz müşahede hücrelerine alınıyorlar. Bu anlattıklarımız üç yıl önceye dayanıyor tabii; koğuşlar ve hücreler sarı tabelalarla işaret edilen kültürel değerler konumunda artık.
+       <br/>
+       <br/>
+       Otel değil burası hanımefendi!
+       <br/>
+       <br/>
+       Eskiden gardiyan olan rehberimizle dolaşmaya devam ettiğimiz cezaevinde, mahkumların devasa bir incir ağacının altında gölgelendiği havalandırma avlusuna geliyoruz. Avlunun kapılarının hergün sabah saat 8’den, yaz günlerinde akşam 19.00’a kadar açık kaldığını söyleyen gardiyan, “Ne güzel, gezmek için epey vakitleri varmış.” diye konuşmama ilginç bir tepki veriyor: “Hoş, burası otel değil hanımefendi.”
+       <br/>
+       <br/>
+       Önce solculardı şimdi ünlüler...
+       <br/>
+       <br/>
+       Sinop Cezaevi’nin bu kadar tanınmasındaki en önemli etken, bir dönemin solcuları hatta komünistleri olarak bilinen yazar ve şairleri taş duvarları arasında ağırlamış olması. O dönem ülke için bir tehdit unsuru olarak görülen solcuların hem karadan hem de denizden ulaşımın çok zor olduğu, İstanbul’da basılan gazetelerin ancak üç dört gün sonra ulaşabildiği uzak bir Anadolu şehrinde adeta hayattan tecrit edilmiş olarak yaşamaları için en uygun adresti Sinop Cezaevi. 1960 yılına kadar cezaevinde arşiv tutulmadığı için burada yatan sol görüşlü aydınlar hakkında detaylı bilgi bulmak oldukça zor. 60’tan sonra tutulan arşiv, cezaevindeki mahkumlarla tiyatro çalışmaları yapan, yazarlığı ve şairliğiyle adından sözettiren eski savcılardan Berin Taşan’a ait. Burada yatan ünlü yazar ve şairler hakkındaki en gerçekçi bilgileri, yine onların cezaevindeyken veya daha sonra yazdıkları kitaplarından elde etmek mümkün. Kuyucaklı Yusuf adlı romanıyla tanınan ve hakkında sürekli olarak açılan kovuşturmalar yüzünden gizlice yurtdışına çıkarken öldürülen Sabahattin Ali’nin Konya’da öğretmenlik yaptığı dönemde siyasal yönetime yönelik bir taşlaması yüzünden Sinop cezaevinde yattığı biliniyor. Edip Akbayram tarafından bestelenen “Aldırma Gönül” ve “Eşkıya dünyaya hükümdar olmaz.” adlı şiirleri de Sinop cezaevinde yazan Sabahattin Ali’nin yattığı koğuşu şiirlerinden ve romanlarından çıkardığımız ipuçlarıyla bulmaya çalışıyoruz. Bir romanında koğuştaki pencereden gördüğü incir ağacını ve duvardaki çiçekleri tasvir ediyor Sabahattin Ali. Aldırma Gönül şiirindeki ‘Dışarda deli dalgalar /  Gelir duvarları yalar.’ mısrasını da göz önüne alarak, deniz kenarında, incir ağacının bulunduğu avluya bakan bir odada yatmış olabileceğini tahmin ediyoruz. Aldırma Gönül’de “Görmesen bile denizi/Yukarıya çevir yüzü/Deniz gibidir gökyüzü” diyen Sabahattin Ali, kale duvarının hemen bitişiğine yapılan geniş yol yüzünden dalgaların artık duvarları yalayamadığını da göremedi tabii ki...
+       <br/>
+       <br/>
+       Cezaevinde yatan ünlüler arasında Refik Halit Karay, Mustafa Suphi, Ahmet Bedevi Kuran, Hüseyin Hilmi, Burhan Felek, Ref’i Cevat, Osman Cemal Kaygılı, Kerim Korcan, Celal Zühtü Benneci, Osman Deniz ve Zekeriya Sertel var. Bir dönem solcu oldukları için tehlikeli addedilen yazar ve şairlerin isimlerinin şimdi ‘Burada yatan ünlüler’ şeklinde cezaevinin dış duvarlarından birinde teşhir edilmesi de dikkate şayan ayrıca.
+       <br/>
+       <br/>
+       120 yılda üç firar
+       <br/>
+       <br/>
+       Sinop cezaevi tarihi boyunca üç firar görmüş. 60 öncesi kanalizasyon kanalından kaçan kişinin adı ve kimliği hakkında hiçbir bilgi yok. Sinop Cezaevinde çevirdiği filminde kaçış için kanalizasyon kanalını kullanan Ayhan Işık’ın da bu firardan esinlendiği tahmin ediliyor. Diğer iki firar, 60’lı yıllarda cezaevinden kaçan ve yakalanıp yakalanmadığı bilinmeyen Arap Kadri lakaplı bir mahkum ve 70’li yılların başında firar edip Ayancık yolunda yakalanan idam mahkumu Emin Aladağ’a ait.
+       <br/>
+       <br/>
+       Tarihi cezaevi artık sanat galerileri, müzeleri ve konaklama tesisleriyle bir kültür kompleksi olacağı günü bekliyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14099), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302224557/http://www.aksiyon.com.tr:80/detay.php?id=14099)

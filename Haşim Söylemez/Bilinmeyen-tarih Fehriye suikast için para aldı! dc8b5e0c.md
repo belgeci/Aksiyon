@@ -1,0 +1,80 @@
+# Fehriye, suikast için para aldı!
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050116193705im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050116193705im_/http://www.aksiyon.com.tr/resim/488/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1 Nisan"daki operasyonla ağır darbe alan DHKP-C kendi içinde de sorunlar yaşıyor. Örgüte göre, Sabancı suikastı zanlısı Fehriye Erdal, eylemi para karşılığı gerçekleştirdi ve yurtdışında rahat yaşıyor. Örgütteki ciddi kopmaların da Erdal"dan kaynaklandığı açıklanıyor. "Bu operasyon bir milattır. Örgütte şu an da beyin ölümü gerçekleşmiştir.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk polisi ilk defa böyle büyük çaplı bir operasyonda tek kurşun dahi atmadan örgüt elemanlarını teker teker aldı. Gözaltındaki kişilerin ifade vermemesi ise hiçbir önem arz etmiyor. İlk defa bir operasyonda bu kadar çok maddi delile ulaşıldı."
+   <br>
+    <br>
+     Türk emniyeti iki hafta önce Belçika, Almanya, Hollanda, İtalya ve Türkiye"de DHKP-C"ye (Türkiye Halk Kurtuluş Partisi-Cephesi) karşı yürüttüğü operasyonu yukarıdaki değerlendirmesiyle kamuoyuna açıklıyordu.
+     <br>
+      <br>
+       Peki bu operasyon başarı mı yoksa sıradan bir hareket mi? Bazı emniyetçilere göre büyük çaplı bu operasyonda Sabancı suikastı sanığı Fehriye Erdal ve örgütün beyni Dursun Karataş"a ulaşılamaması hareketin başarısını gölgeledi.
+       <br/>
+       <br/>
+       Haziran ayı sonunda İstanbul"da yapılacak olan NATO zirvesi öncesinde temizlik harekatına girilmesi genel itibariyle rutin bir operasyon olarak değerlendiriliyor. Ancak DHKP-C"ye yönelik çalışmalar bu şekilde devam ederken örgütün kendi içinde ciddi sorunlar yaşadığı haberleri  patlak verdi. Avrupa ülkelerine sığınıp faaliyet yürüten militanlar ile Türkiye"deki, özellikle kırsaldakiler arasında "savaşçı" kavgası örgüt içindeki ayrılıkları tırmandırdı.
+       <br/>
+       <br/>
+       Fehriye suikast için para aldı!
+       <br/>
+       <br/>
+       Medyatik olduğu ve örgütü bir savaşçı olarak temsil etmediği gerekçesiyle Fehriye Erdal"a muhalefet edenlerin sayısı artıyor. Erdal"ı savunanlar ile muhaliflerin, işi örgüt içi infazlara kadar götürdüğü belgelerden ortaya çıkıyor. Karşılıklı bu çatışmaların ciddi kopmalara yol açtığı belirtiliyor. Maddi sıkıntı yaşayan ve geçtiğimiz sene TİKKO ile birlikte Karadeniz"de fındık toplayıp satan DHKP-C son operasyonda ağır yara aldı. Her ne kadar örgütün tamamen bittiği söylenemezse de toparlanmasının zor olacağı belirtiliyor. Fehriye krizi ise bu sürecin hızlanmasına tuz biber ekti. Devrim Kal ismini kullanan DHKP-C militanı yaptığı açıklamalarda ve hazırladığı bültenlerde Erdal"ın örgütün özünü bozduğunu belirtiyor. İnternet aracılığıyla da açıklama yapan Kal, dağılma sürecini şöyle açıklıyor; "Fehriye Avrupa"da geziyor. Ben ve benim gibi devrimci savaşçılar dağlarda yaşıyor. Oligarşinin güçlerine karşı mücadele veriyoruz. Davaya ihanet vardır. Artık Fehriye"yi ve onun destekçilerini istemiyoruz."
+       <br/>
+       <br/>
+       Örgütün içinden gelen bu ses Fehriye Erdal"ın para karşılığında eylemde bulunduğu iddiasını da ortaya atıyor. Aslında örgütün maddi sıkıntısını aşmak için zaman zaman bazı suikast işlerini para karşılığı yaptığı veya üstlendiği bilgisi öteden beri konuşuluyor. Terör uzmanı R. Melih Aktaş"a göre, bir ülkedeki kaotik ortamın son bulması ile maddi sıkıntı içine giren örgütlerin para kaynaklarına ulaşabilmek için bu tarz eylemler yapmaları veya üstlenmeleri görülmemiş bir husus değil.
+       <br/>
+       <br/>
+       Karadeniz Recai Dincel Kır Silahlı Propaganda Birlikleri"nin açıklaması da Fehriye Erdal"ın örgütten kopmalara yol açtığını ortaya koyuyor. Birliğin açıklamasında, Fehriye"nin şov yaptığı belirtilerek ölen elemanlarının suçunun ne olduğu soruluyor. Fehriye"nin Sabancı suikastından dolayı para aldığı iddia ediliyor ancak kimden veya nereden para aldığı konusuna değinilmiyor. DHKP-C"de Fehriye krizinden dolayı ayrılıkların başladığını belirten birlik, açıklamada örgüt üyelerinin Fehriye"yi beğenmeyip ayrıldığını belirtiyor ve herşeye rağmen ihanetlerin karşılıksız kalmayacağı tehdidinde bulunuyor. Birliğin açıklamaları, bazı  internet sitelerinde sansürsüz yayınlanıyor ve yeni hedef açıklanıyor. AKP hükümetini Amerikan yandaşı olmakla suçlayan örgüt bu partiye karşı bir savaşa girdiklerini militanlarına alenen duyuruyor.
+       <br/>
+       <br/>
+       31 Mart darbesi
+       <br/>
+       <br/>
+       Emniyet"in son operasyonla ağır darbe aldığını açıkladığı DHKP-C aslında yıllardır sorun yaşıyordu. Kendi faaliyet alanı içinde halen aktif olan örgüt, 1996 yılında PKK ile yaptığı anlaşmanın bozulmasının ardından kendisini toparlayamadı. Örgütün önemli isimleri yurtdışına kaçtı. Geri kalanları ise pasif direnişte bulundu ve maddi anlamda bir çıkmaza girdi. Anlaşmaya göre örgüt PKK"yı Karadeniz"e geçirecek, karşılığında silah ve para alacaktı. Fakat PKK"nın yardımını istemeyen bazı üst düzey militanlar anlaşmayı bozdu.
+       <br/>
+       <br/>
+       Tokat, Amasya, Ordu ve Tunceli kırsalını iyi değerlendiren DHKP-C, emniyet güçlerinin operasyonları karşısında zor durumda kalıyor. 1 Nisan"da 5 ülkede gerçekleşen operasyonlardan bir gün önce, Tunceli"nin Hozat ilçesi yakınlarında güvenlik güçlerince sıkıştırılan DHKP-C ağır darbe aldı. Kuşatmada ekip komutanı Hıdır Demir, Erhan Kökdemir ve Haydar Poyraz öldürüldü. Önemli bir komutanını kaybeden DHKP-C ertesi gün örgüt için önemli isimlerin de aralarında bulunduğu 20"den fazla militanın yakalanması ile şoka girdi. Resmi kayıtlara göre son on yılda 250"si ölü olmak üzere 7 bin DHKP-C militanı yakalandı. Tabii bunların önemli bir kısmı kısa bir süre hapis cezasına çarptırıldıktan sonra serbest kaldı.
+       <br/>
+       <br/>
+       Türkiye"de büyük sorun yaşayan ve Fehriye Erdal"dan dolayı kendi içinde kavgaya tutuşan DHKP-C"nin fevri eylemlerde bulunması bekleniyor. Örgütün, gücünün kırılmasına rağmen mevcudiyetini ispatlama adına eylemlere gireceği belirtiliyor. Fakat uluslararası konjonktürün örgütün eylem alanını daraltması ayrı bir durum.
+       <br/>
+       <br/>
+       <br/>
+       R. MELİH AKTAŞ*:  DHKP-C İSTİKRARSIZLAŞTIRMALARDA KULLANILIYOR
+       <br/>
+       <br/>
+       Bu tarz örgütler, zaman zaman uluslararası düzeyde operasyonlara maruz kalırlar. Uluslararası düzeyde bir toplantı söz konusu olduğu zaman olur bu. DHKP-C de daha önce önemli bir ziyaret ve toplantı söz konusu olunca Türkiye"de müşterek operasyonlara maruz kaldı. Hatta bir seferinde İstanbul"da örgüt liderlerinin yakalanmasına ramak kalmıştı. Operasyon Türk ve ABD güvenlik istihbarat güçleri tarafından müştereken yapılmıştı. Bu tarz örgütlerin çökertilmesi büyük ölçüde uluslararası konjonktüre bağlıdır. Konjonktür müsait ise müşterek operasyonlar ile üzerine gidebilirsiniz. Aksi takdirde mutlaka bir devlet himayesi veya hoşgörüsü altında hayatlarını kontrollü idame ettirirler. Temel felsefesi Marksist Leninist olan DHKP-C"nin son on yıldaki değişikliklere ve globalleşme sürecine bağlı olarak fazla hareketlilik göstermesine müsaade edilmiyor. Bazı devletlerin istikrarsızlaştırma operasyonları kapsamında bu tarz yapılanmalara ihtiyaçları oluyor. Bunu maalesef geçtiğimiz yıllarda yaşadık. Özellikle Türkiye"ye karşı operasyonlarda başımıza çok geldi.
+       <br/>
+       <br/>
+       (*) Terör uzmanı
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Musa Bagrac, 19-Nisan-2004
+> Düzeltme: 
+> Herhalde gözden kacmis olmali, fakat DHKP-C'nin ardina (Türkiye Halk Kurtuluş Partisi-Cephesi) yazmissiniz, oysa Devrimci Halk Kurtuluş Partisi- Cephesi olmaliydi kanaatimce.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11360&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050116193705/http://www.aksiyon.com.tr:80/detay.php?id=11360&yorum_id=1)

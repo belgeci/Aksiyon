@@ -1,0 +1,50 @@
+# 'Doğru-yanlış cetveli' meselesi
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041223172530im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041223172530im_/http://www.aksiyon.com.tr/resim/518/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir dünya görüşü, birbiriyle manidar bir bütün teşkil eden doğru ve yanlış hükümlerinden meydana gelir ve bu hükümlerin her birini kendine mahsus orijinal referanslarla tahkim eder. İslâm’ın doğru-yanlış cetvelinde her bir hüküm, başkaca bir yabancı kaynağa dayanmak ihtiyacı hissetmeksizin varlığını inşa eder.
+ </font>
+ <p>
+  <font class="content">
+   Doğrular ve yanlışlar, hayatın bütün esaslı sahalarında hüküm bildirir.
+   <br/>
+   <br/>
+   Biz farklı dünyaların insanlarıyız” sözü artık sadece eski Türk filmlerinde kaldı; bugünlerde neredeyse herkes aynı dünyanın insanı olmak yolunda. Sosyal antropoloji adı verilen bilim dalı da galiba bundan sonra sadece tek tip insan ve tek tip toplumun özelliklerini araştırmaya hasredecektir zamanını; batı endüstrilerinin öngördüğü tarzda tüketim yapan, İngilizce konuşmaya çalışan, Amerikan dizi filmlerindeki esprilere gülen bir gürûh. Bunun adına kabaca “Globalleşme” deniyor ve yeryüzünde egemen bir kültürün, davranış tarzının, siyaset üslubunun yaygınlaşacağından bahsediliyor. Taraftarlarına göre globalleşme, suyun alçağa akması gibi kaçınılmaz bir süreçtir ve kesinlikle dünyayı tektipleştirmeyi gaye edinmemektedir. Konu başlıklarını ezberledik artık neredeyse; devletin küçülmesi, kamu işlerinin şeffaflaşması, insanın özüne bağlı vazgeçilmez haklar manzumesi, ekonomide liberalleşme, yüksek ve hızlı teknoloji kullanımı, gıdalardan giyeceklere, kitaplardan eğlence çeşitlerine kadar standartlar belirlenmesi vesaire.
+   <br/>
+   <br/>
+   Bu gibi lâfları çok duyduk, artık câzip bile gelmiyor ama ne anlama geldiği çok açık: Yeryüzünde artık bırakınız kendisi gibi olmaya çalışanını, kendisinin ne olduğunu hatırlamaya cür’et edebilen birbirinden farklı topluluklar kalmayacaktır. Kültürel renklerin ve kimliklerin tanınması ve korunması bir yandan global bir değer olarak sunulurken öte taraftan bütün renkli kültür kodları silinmekte ve kırılmaktadır. Bir süreden beri Discovery isimli kanalda artık kaybolmaya yüz tutan ilginç etnik toplulukları tanıtmayı amaçlayan ve UNESCO tarafından hazırlanan küçük tanıtım filmleri yayınlanıyor; kimisi Balkanların dağ köylerinde, kimi Uzakdoğu Asya’da, kimi Güney Afrika’da yaşayan, unutulmaya yüz tutmuş diller konuşan, sayıca az ama kendine mahsus bir “doğru-yanlış cetveli”ne sahip topluluklar! Onlar siz bilemediniz bir kuşak sonra İngilizce konuşan, marketlerden alışveriş eden, içki, sigara, fast-food tüketen, pop dinleyen, serbest seçimlere, çoğulcu ve temsili demokrasiye inanan, Amerikan filmi seyreden bir topluluk haline gelecek ve yeryüzünden silinerek global köyün ahalisi arasına karışacaklar; çünkü bugüne kadar hep öyle oldu. Renkler soluklaştırıldı, farklılıklar törpülendi ve herkes Batılı beyaz adamların düzenlediği bir ‘doğru-yanlış cetveli’ne itibar etmek zorunda bırakıldı. Öyle ki artık hiçbir topluluk, -isterse UNESCO tarafından korunma kapsamına alınmış olsun- bu değerler sistemine muhalefet edebilmek veya kendi tasavvur ettiği dünyada yaşayabilmek lüksüne sahip değildir.
+   <br/>
+   <br/>
+   XV. Yüzyılda Amerika kıtası, iki kutup arasında uzanan muazzam kütlesiyle yüzlerce farklı insan topluluğunun, inancın, dilin, kültürün ve tabii ki şimdikinden farklı hayat ve kainat tasavvurlarının yaşadığı bir yerdi; o insanlardan ve toplumlardan geriye birkaç Batı dilinin konuşulduğu Hıristiyan bir dünya kaldı. Bugün Eskimolar, sayıca çok azalmalarına mukabil genetik ve etnik özelliklerini taşıyabiliyorlar ama artık kendilerine dair dünya tasavvurları yok; eşyaya ve insan ilişkilerine verdikleri anlam batılıların doğru-yanlış cetvelinden farklı değil. Dünya halklarının tektipleştirilmesi Asya’nın içlerinden Güney Asya’ya, Okyanusya toplumlarından Afrika içlerine kadar karşı konulamaz bir dayatmayla sürüyor. Yaşayan dünyada kendine mahsus doğru-yanlış cetvelinde ısrar edebilme kabiliyetine sahip belki de en son ve tek topluluk, İslâm dinine inananların ‘dünya’sıdır; evet, böyle bir ‘dünya’dan hâlâ bahsedebiliriz çünkü İslâm diğer dinlerden, inananlarını kendine mahsus bir dünya ve âhiret tasavvuruyla ayıran baskın, mütemâyiz özelliklere sahiptir. Müslüman toplumların Batı dünyası nezdinde bu derece hedef tahtasında çivilenmesinde İslâm’ın kendine mahsus dünya ve ahiret tasavvurundan kaynaklanan iç direnişin izlerini sezmemek mümkün değildir.
+   <br/>
+   <br/>
+   Ne gariptir ki Batı dünyası, tektipleştirdiği eski halkların ve kültürlerin enkazı ve sömürüsü üzerinde bina olunduğu halde bugün, kendisine muhasım gördüğü dünya görüşlerine, kültürel nüanslara, dillere ve inançlara saygılı davranması konusunda telkin ve dayatmalarda bulunabiliyor. Batı’nın çifte standardını doğru değerlendirmiyoruz; çifte standart ancak sağlam ve değişmeyen bir referans kaynağı esas alındığında ortaya çıkan bir arızadır ve bugünün Batı dünyası, kendi doğru-yanlış cetvelini istinad ettirebileceği değişmez ve ilâhî referanstan mahrumdur.
+   <br/>
+   <br/>
+   Doğru-yanlış cetveli tabiri üzerinde duralım biraz; bir dünya görüşü, birbiriyle manidar bir bütün teşkil eden doğru ve yanlış hükümlerinden meydana gelir ve bu hükümlerin her birini kendine mahsus orijinal referanslarla tahkim eder. İslâm’ın doğru-yanlış cetvelinde her bir hüküm, başkaca bir yabancı kaynağa dayanmak ihtiyacı hissetmeksizin varlığını inşa eder. Doğrular ve yanlışlar, hayatın bütün esaslı sahalarında hüküm bildirirler. İslâm’ı, kendine dair doğru ve yanlışlarından tecrid ederek diğerlerinden farklı bir koleksiyon ve geleneklerden ibaret bir “parça” haline getirmek de mümkündür ve esasen bu proje üzerinde emek verenlerimiz de eksik değildir; yani bir nevi “İslâmsızlaştırılmış İslâm” tasavvuru!
+   <br/>
+   <br/>
+   Bir misâl verelim; “helâl” İslâm’a dair, bizzat İslâm tarafından tarif edilmiş bir kavramdır; bu kavramı bir başka doğru-yanlış cetvelinde tercüme etmeye kalkıştığımızda bulacağımız “meşru, kanuni, dine uygun, vergisi ödenmiş, toplum tarafından kabul edilmiş” gibi karşılıkların hiçbiri helâl’in yerini tutmaz. “Zulm” kavramı da böyledir; “insanın kendi nefsine zulmetmesi” sair doğru-yanlış cetvellerinde İslâm’daki karşılığını asla bulmaz; zulm, her iki dünyaya karşı insanı sorumluluk altına alan bir menfi davranış veya niyet biçimidir; onu “eziyet, baskı, işkence, kötülük, kötüye kullanma, israf” gibi karşılıklarla ikame edemeyiz. Ne zaman bu karşılıklardan birini ‘zulm’un yerine koymaya kalkışsak, aradaki tercüme kaybından (anlamın daraltılmasından) ziyade bizatihi İslâm’ın “haber” değeri kayba uğrayacaktır.
+   <br/>
+   <br/>
+   Meseleyi daha müşahhas ve elle tutulur bir plana indirgeyebiliriz; bazılarımızın içine dahil olmak için can attıkları Avrupa Birliği, Avrupa’nın kendi içinde tekâmülü neticesinde üzerinde ittifak ettiği bir doğru-yanlış cetvelidir; bu cetvelde bizim doğru ve yanlışlarımızla üst üste düşüyor gibi görünen değerler dahi, kaynağını ve varoluş sebebini İslâm dışı bir referanstan aldığı için bizim lûgatimizdeki mânâ ile örtüşmez. Bir haramdan, Avrupa Birliği normlarına aykırı olduğu için kaçınmak ‘İslâmî ihlâs’tan çok farklı bir şeydir ve neticede fiil aynı olsa bile anlamı başka surette tecelli eder. Bu mânâyı Avrupa Birliği hukukuna, standartlarına ve Avrupa değerlerine taşıdığımızda, “Aa burada İslâm’la örtüşen pek çok şey var” diye teselli bulmak, yenilgi psikolojisinin yansıması olur. Nitekim “demokrasi” kavramında, cumhuriyette, insan haklarında, refah, gelişmişlik, kalkınma, bilgi, aydınlanma, eğitim vb. gibi kavramlarda içine yuvarlandığımız hata bu idi.
+   <br/>
+   <br/>
+   Ezcümle eğer bize dair bir dünya görüşünü ciddiye almaklığımız gerekiyorsa o dünya görüşünün bütün değerleri, doğruları ve yanlışları bizatihi o dünya görüşünün esbâb-ı mûcibesi ile değerlendirilmelidir. “Avrupa Birliği’ne girelim” demek, “Artık kendimiz gibi olmayalım; bu yükü taşımayalım ve başka bir şey olalım” demenin ta kendisi. Herkes hesabını böyle yapsın ve dürüst konuşsun.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17910&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041223172530/http://www.aksiyon.com.tr:80/detay.php?id=17910&yorum_id=1)

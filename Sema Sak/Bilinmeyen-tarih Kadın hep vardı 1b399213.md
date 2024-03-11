@@ -1,0 +1,24 @@
+# Kadın hep vardı
+
+*Sema Sak Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Kadın: İtaat, şefkat ve estetik... Büyük mücadeleler sonunda "özgürlüğünü" çantasına atmayı başaran "modern" kadın, ekonomik rahatlığını kazandıkça erkeğin yanında daha sağlam adımlar atmaya başlar. Batı"da, sonradan kazanılan hakların tadı çıkarılırken, Doğu"da ise önceden kazanılan hakların bile yerinde yeller estiği görülür. Kadın hâlâ varolma mücadelesini sürdüredursun, dinler tarihi boyunca hep kilit noktalarda varlığını bize hissettiriyor.
+   <br/>
+   <br/>
+   İlk kadın Hz. Havva, ilk Müslüman Hz. Hatice, cennet kadınlarından Hz. Meryem, zalim Firavun"un şefkatli eşi Hz. Asiye, sabır ve teslimiyetiyle ünlü Hz. Hacer ve daha niceleri. Hayatın içinde ve hayatla iç içe yaşayan kadınlar. "Kadın Oradaydı" on iki kadın yazarın kaleminden, on iki seçkin kadını günümüz okuyucusuyla buluşturuyor. İlk sıra kainatta yaratılan ilk kadın olan Hz. Havva"nın. Nihal Bengisu Karaca"nın kalemiyle bize anlatılan Havva, kadın doğasının referansı olarak karşımıza çıkıyor. Orijinal bir metin; bilinmek, tanınmak ve sevilmek isteyen "ilk sevgili". Bütün kadınlardan bir parça taşıyan Havva bu nedenle en güzel, en iyi, en akıllı, en bilge ve en politik kadın değil. Tüm bunlara sahip, aynı zamanda genlerine işlediği kızlarının bütün kusurlarını barındıran bir meyve çekirdeği. Yıldız Ramazanoğlu, peygamber annesi olma şerefine erişmiş iki kutlu kadını, Sare ve Hacer"i kendi kaleminden bizlere yansıtmış. Her türlü zorluğa göğüs geren, eşi Hz. İbrahim"e yaşadığı her imtihanda destek olan Hz. Sare"nin yüreği eşini bir cariyeyle paylaşmaya razı olmaz. Belki de bir kadın için en ağır imtihan bu. Yazara göre kadınların en zor imtihanlara katlanabilmeleri hücrelerindeki Sare ve Hacer genlerinden kaynaklanıyor. Belkıs İbrahimhakkıoğlu, kaleme aldığı Hz. Asiye için en sessiz kadın diyor. Çünkü bir zalime eşti. Neler çektiğini bir Allah biliyordu bir de kendisi. Melek Paşalı, hikmete açık bir insan örneği olarak Hz. Belkıs"ı anlatıyor okuyucuya. Olaydan yana yoksul, anlamdan yana zengin bir hikayeyle. Afet Ilgaz kitabın önsözünde, Hz. Meryem"i anlatmanın önce kendisini düşündürdüğünü ve onun kutsal hayatının sırlarını yerinden oynatma korkusu yaşadığını söylüyor. Ancak bir yakınının "Hz. Meryem"i gücendirirsin. Bu ikramı kabul et, sana himmet edilir" sözleri üzerine kaleme sarılmış. Kendi payına Hz. Hatice"yi anlatmak düşen Halime Gökçe, bu kutlu kadını vahyin başlangıcındaki eşsiz yeriyle ve siyasi bir figür olarak ele almış. En kıymetli eş, en kıymetli emanet Hz. Ayşe (İnci Şahin), en özgür cariye Hz. Sümeyye (Hasibe Turan), kınalı ellerinde hem günahını, hem tövbesini taşıyan Hint (Fadime Özkan), kendisi muhtaç olduğu halde ikramdan vazgeçmeyen Hz. Fatıma (Fatma Şengil Süzer), bir peygamber torunu olarak, esir edilen ve sürgüne gönderilen Hz. Zeynep (Cihan Aktaş) ve aşkı için her şeyi feda eden, karşılıksız aşkı için siyah bir intikam elbisesine bürünen Züleyha (Sibel Eraslan); hepsi de sanki yaşadıkları zamanı aşarak bizlere bir şeyler fısıldıyor.
+   <br/>
+   <br/>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1643 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11253), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050310162537/http://www.aksiyon.com.tr:80/yazdir.php?id=11253)

@@ -1,0 +1,67 @@
+# Nağmenın tekâmülü...
+
+*Muhammed Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214626im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214626im_/http://www.aksiyon.com.tr/resim/334/59.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Erkan Oğur'u yakın zamanlarda Babylon müzik performans merkezinde dinleyenler 1995'te kurulmuş bir grubu ilk kez tanıma şerefine de erişmiş oldular.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu konserde diğer konserlerden farklı olan bir şey daha vardı: Oğur'un parça aralarında, eserle ilgili izahları yaparken tasavvufî terimler  kullanması. Yaptığı müziğin daha iyi anlaşılması için tasavvufî argumanlardan yararlanması, icra ettiği müziğe ve sahnede sergilediği “hâl ve tavrı”na çok ters durmuyordu doğrusu. Fakat, Eşkıya filminin müziği, perdesiz gitar, Elazığ türküleri gibi onun imajını oluşturan kavramların içinde tasavvuf yoktu.
+   <br>
+    <br>
+     Tasavvuf ve müzik
+     <br>
+      <br>
+       “Tasavvufla ilişkim sırf müzikle sınırlı değil. Müzik, hayatımızın içinde bizimle devam eden bir unsur sadece. Ben koyu, geleneksel mânâda tasavufî kişiliği olan veya öyle yaşayan, yazan–çizen birisi değilim; ama doğal olarak kendimi tabiata yakın hissediyorum, öyle yaşamak özlemi var bende. Düşüncelerim, oturuşum, kalkışım filan biraz öyle gibi görünüyor. Ya da ben öyle hissediyorum.”
+       <br/>
+       <br/>
+       Çok içe dönük bir insan olduğunu söyleyen Erkan Oğur “Hislerimle yaşarım, aklımla yaşamam” diyor. “Aşırı duygusal birisiyim. Herkesin de çok fazla duygu yoğunluğu içinde olduğuna inanıyorum. Kimisi açığa vurur, kimisi vurmaz; kimisi anlar, kimisi anlamaz.” Erkan Oğur’un kurduğu grub “Telvin”, 1995’in başlarında kurulmuş olmasına rağmen  günyüzüne çıkmamış, daha çok kendi kendilerine çalmış, söylemişler.  İlk konserlerini bu yıl verdiler. Telvin bir tasavvuf terimi. “Renkten renge akma, hâlden hâle geçiş” demek. Erkan Oğur hayatta olduğu gibi müzikte de halden hale geçmeye inanıyor, bunu icra ediyor.   Tasavvufta Telvin’le birlikte kullanılan bir kavram daha var: Temkin. Kararlılık hâli demek. “Karara doğru gidişatın mânâsı zaten telvin. Halden hâle geçişte her hâlin farklı olması gibi. Bütün canlılar, bütün varlıklar ve yokluklar için geçerli, müzik için de geçerli. Kararlılık hâli bir özlem, bir hedef.   Peki Erkan Oğur’un telvin’den muradı ne? “Benim için hedef arınmak, saflaşmak. Bütün kötülüklerden arınma. Onun neticesinde ne olur, ben arınabilir miyim, içime doğan bütün pisliklerden kurtulabilir miyim, bebek halime tekrar ulaşabilir miyim bilmiyorum. Böyle gidiyoruz bakalım...” Erkan Oğur için bu yeni bir açılım değilmiş fakat ‘adını koyması’nda bir gecikme olmuş.
+       <br/>
+       <br/>
+       Müziklerin “harmanlanmasına” inanmıyorum
+       <br/>
+       <br/>
+       Müzik, notalar, savrulan nağmeler, enstüramanlar, orkestralar, kayıtlar sadece işin yüzeysel tarafı; aslında her şey bir enerji biçiminden başka bir şey değil ona göre. “Her seferinde başka bir enerjiyle, başka bir duygu yoğunluğuyla, başka bir algılamayla veya ifade biçimiyle oluyor icraatlar. Her enstrümanı elimize alışımızda veya müzik tasarımı için bir şekilde kendimize zaman ayırdığımızda, bir öncekinden farklı olmakta. O yüzden müzikteki bu hâlden hâle geçmeyi telvin’le, tasavvuftaki mânâsıyla bağdaştırıyorum. Bu hayatımızın gidişatı gibi. O yüzden grubun adını da Telvin koyduk. Hiçbir iddiası yok. İfade biçimi, sürekli değişen bir karara doğru, hiçbir zaman ulaşılamayan o karara doğru giden bir yapı. Benim yaptığım ya da yapmaya çalıştığım müziklerde böyle bir yaklaşım var.”
+       <br/>
+       <br/>
+       Oğur, türküyle ilgilendiği kadar caz müziği ile, etnik müzikle de ilgileniyor fakat sentezlere pek inanmıyor. Türküyle caz yapmasını, dünyadaki etnik müziklerle cazın yan yana geldiği bir döneme rarstlamasını tamamen tesadüfi buluyor. “Etnik müziklerin birbirleriyle harmanlanması, Doğu’yla Batı’nın birleşmesi olayını pek fazla önemsemiyorum. İnanmıyorum da. Burası böyle, orası öyle. Öyleyle böyleyi karıştırdığın zaman bazen güzel şeyler çıkabilir ama benim öyle bir iddiam yok.”
+       <br/>
+       <br/>
+       Erkan Oğur’un geniş kitlelerin ilgisini çeken çalışmaları var ve eğer Kalan Müzik’i takip ediyorsanız bunları görmüş olmalısınız. Fakat Telvin projesi ile daha dar kitleyi ilgilendiren bir müzik üretiyor. “Çoğunluğa hitap eden bir şey değil bu. Biraz laboratuvar çalışması gibi, biraz da müzisyenin deşarj olması olarak bakılabilir. Yani müzisyenler genellikle başkalarının bir şeylerini çalarak yaşıyorlar. Kendi içlerinden geldiği gibi çalmayı özlerler çoğu zaman. Biraz da onu gideriyoruz.”
+       <br/>
+       <br/>
+       Kaynak Elazığ
+       <br/>
+       <br/>
+       Erkan Oğur, pek çok müzik tarzıyla ilgileniyor; halk müziği, klâsik Batı müziği, etnik müzik, caz vs. Aslında biraz da ailesinin “okusun da adam olsun” demesiyle fizik gibi bir bölümü okumuş olsa da içinin sesini dinleyip geç de olsa Türk müziği devlet konservatuvarını bitirmiş. Elazığlı olmasına rağmen Elazığ türkülerini keşfetmesi biraz geç olmuş. “İçimden çıkan, dönüp dolaşıp gelen müzik Elazığ çıkışlı bir şey. Kaynak orası. Oradaki motifler, oradaki makam, oradaki nağme, oradaki formlar...”
+       <br/>
+       <br/>
+       Dedem gibi adam
+       <br/>
+       <br/>
+       Civan Gasparyan’ı Günaha Çağrı, Death Man Walking, Gladyatör gibi film müziklerinden ya da Peter Gabriel, Michael Brook, Lionel Rıchie’yle yaptığı albümlerden “yanık üflemeleriyle” hatırlayanlar olacaktır. Geçen Caz Festivali’nde Andreas Vollenweider’le beraber konser vermek için ilk defa İstanbul’a gelen Civan Gasparyan’la Erkan Oğur burada tanışmışlar ama birlikte müzik yapma projeleri bir kaç yıl daha eskiye dayanıyor. “Kalan Müzik’in önerisiydi böyle bir çalışma yapmak. Kendisiyle tanıştık. Ben Elazığlıyım, o da Muş’tan göçmüş birisi. Yanık bir üfleme biçimi var. Dedem gibi bir adam. Dede torun gibi bir durum oldu aslında.” Oğur, projenin eskiye dayandığını, dolayısıyla son zamanlardaki Türk–Ermeni gerilimiyle ilgili ticari bir proje olmadığını özellikle vurguluyor. Hatta bir kaç ay önce Civan Gasparyan’la stüdyoda kayıt yapmalarına rağmen kasetin çıkması hazirana uzayacakmış. “Böyle bir gündem varken farklı algılanabilir diye mümkün olduğu kadar işi yavaşlatıyorum ” diyor. Peki bu gündemle ilgili olmasa bile bir mesajı yok mu bu albümün? Elbette. Farklı dilleri konuşmalarına, ‘tercüman’ aracılığıyla anlaşmalarına rağmen kayıt yaparlarken hiçbir uyum problemi yaşamamışlar. Albümün mesajı bu uyum ve armonide gizli. “Müziğin ortak bir dil olduğu, bütün insanların eşdeğer duyguları taşıdıkları ve güzel şeylerin uyumlu bir şekilde aktarılabilmesi” başlı başına bir mesajdır zaten.
+       <br/>
+       <br/>
+       m.ozturk@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13099), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214626/http://www.aksiyon.com.tr:80/detay.php?id=13099)

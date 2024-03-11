@@ -1,0 +1,147 @@
+# "Müslümanlık kimliği insanları özgürleştiriyor"
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Yılın büyük bir bölümünü Fransa"da geçiren ünlü Sosyolog Prof. Dr. Nilüfer Göle ile Fransa"daki başörtüsü tartışmasından yola çıkarak birçok konuya ışık tutmaya çalıştık. Türkiye"deki türban sorununu, medeniyetler çatışmasını, kamusal alanı ve Fatih Terim"i konuştuk.
+   <br>
+    -Bu zamana kadar Avrupa"da hep göç ve işsizlik konusu konuşuluyordu. Şimdi ise başörtüsü tartışılıyor. Siz bu ve değişim sürecini bir sosyolog olarak nasıl değerlendiriyorsunuz?
+    <br/>
+    <br/>
+    Üzerinde düşünmek için meseleye tarihsel bir perspektiften bakmak gerekir. Batıda bir göçmen olgusu vardı. Genelde de bunun başını erkek nüfusu çekiyordu. İkinci aşamada bu erkek nüfusu artık orada kalmak istedi. Üçüncü aşamada ise eşlerini ve çocuklarını getirmeye karar verdiler. Yani erkek göçmen olgusu aile olgusuna dönüştü. Bu zamana kadar vakaya sosyo-ekonomik faktörlerle yaklaşıyorduk. Şimdi din olgusu ile yaklaşıyoruz. Eskiden göçmenler deniliyordu, şimdi Müslüman topluluk deniliyor. Dilimizdeki değişiklik bile olgunun algılanış biçimini ve geçirdiği değişimi anlatıyor.
+    <br>
+     <br>
+      -Yani sorun din olgusunun ön plana çıkmasından mı kaynaklanıyor?
+      <br>
+       <br>
+        Göçmenlerin de dinsel kimliklerini ön plana çıkarıyor. Bence burada çok önemli bir olay var. Fransa"da bazı araştırmacılar farkında ama kamuoyu ve tasarıyı hazırlayan siyasetçiler henüz farkında değil. O da şu, bugün göçmenlerin ön plana çıkardığı İslami kimlik bir anlamda onların milli kimliklerinden kopmalarına ve özgürleşmelerine yol açıyor. Yani bir göçmen için Müslüman olmak Cezayirli olmaktan daha özgürleştirici bir olay. Çünkü, bu meselede de sizin heybe dediğiniz şeyin arkası çok dolu. Sadece göçmenlik meselesi yok, göçmenlikle gelen eski acı var. Cezayirli dediğiniz vakit bunlar ön plana çıkıyor. Halbuki, Müslümanım dediğinde bir üst kimlikle ortaya çıkabiliyor. Daha evrensel bir kimlik oluyor ve geçmişten bir mesafe almalarına yol açıyor. Bir açıdan da daha kolay Fransız olabiliyorlar. Aynı şey Almanya"daki Türkler için de geçerli. Müslüman kimlik, Türk kimliği gibi onun Almanya ile bütünleşmesine engel değil.
+        <br>
+         <br/>
+         -Fransa"daki Müslümanlar gösterilerinde " Biz Fransa vatandaşıyız" sloganı attılar, neredeyse "Fransızız" anlamına gelecek dövizler taşıdılar.
+         <br/>
+         <br/>
+         Bütün mesele Fransız göçmen Müslümanlar ile Fransız devleti arasındaki Fransızlığın tanımı üzerine odaklanıyor. Bu tartışmalar beraberinde şunu getirdi; Fransız İslamı. Fransız devletinin amacı, Fransa"daki Müslümanların diğer ülkelerdeki Müslümanlarla olan bağını koparıp Fransa"ya özgü bir Müslümanlık tanımı yapabilmek. Bununla birlikte bugün İslami hareketlerde türban olayı olsun, terörizm olsun iki tane globalleşen İslami olgu var. Ve bu durumu artık sadece Avrupa içinde görmek de mümkün değil.
+         <br/>
+         <br/>
+         -Başbakanımız çıkıp türban konusunun bir ülke meselesi olduğunu söylüyor.
+         <br/>
+         <br/>
+         Tabii kimse kimseyi aynen bir model olarak almamalı. Başbakan Fransa"da sertleşen laiklik Türkiye"ye emsal teşkil etmesin diye bir refleks göstermiş olabilir.
+         <br/>
+         <br/>
+         -Aydınlarımız Fransa"daki başörtüsü konusunu bir model olarak Türkiye ile kıyaslıyor ve örnek gösteriyor. Burada direkt bir adaptasyon oluşturmak doğru mu?
+         <br/>
+         <br/>
+         Bu kıyaslama kötü bir şey değil. Tarihsel perspektif olarak kendinize bakarsınız bir de diğer toplumlarla karışlaştırırsınız. Üstelik Fransa ile Türkiye arasında çok büyük benzerlikler var. İki toplumda da cumhuriyetle İslam karşı karşıya, el ele nasıl olacak meselesi var. İki toplum da cumhuriyet ve İslam melesini terminolojisine koydu. Laiklik tanımını Türkiye Fransa"dan esinlenerek almış. Bu yüzden kıyaslamak kötü değil. Ama şu kötü olabilir. Sadece kendimize özgü deneyimlerimiz üzerine düşünmek yerine sürekli Batıdan ithal bir biçimde düşünürsek o tehlikeli olur. Fransa deneyiminden yola çıkarak kendi sorunlarımızı formüle etmek kötü bir şey değil ama bunu birebir almak çok kötü. Fransa"nın da Türkiye"yi örnek alması gerekir. Çünkü Türkiye bu deneyimde Fransa"dan çok daha önde. Biz başörtüsünü 1983 yılından beri tartışıyoruz.
+         <br/>
+         <br/>
+         -Orada bir azınlık, burada ise tam tersi hakim bir çoğunluk var. Adaptasyon ve kıyasta bir sorun olmaz mı?
+         <br/>
+         <br/>
+         Kıyas olması için birbirine benzer şeyler olması gerekmiyor. Fransa ile Türkiye benzerlik taşıyor. Başörtüsü tartışması bir Türkiye"de, bir de Fransa"da ortaya çıktı. İkisindeki laiklik anlayışı da benzer. Karışlaştırmaların da tıpatıp aynı olması gerekmez.
+         <br/>
+         <br/>
+         -Peki Fransa"da başlayan bu tartışma daha sonra bir virüs gibi yayılabilir mi? Örneğin Avrupa"yı etkisi altına alır mı? Siz bu konuyu değerlendirirken bir de medeniyetler çatışması kavramını kullandınız.
+         <br/>
+         <br/>
+         Bunun altında bir medeniyet meselesi olduğunu daha önce de söylemiştim. Ama Samuel Huntington-vari kullanmıyorum. Bugün İslami hareketler medeniyet meselesinin altını çiziyor. Yani Batılı eşittir medeni formülünü değiştirmeye, kırmaya çalışıyor. Değiştirebiliyor mu? O konuya daha çok uzak. Medenilik anlayışı henüz oturmuş değil. Bir şeyler aranıyor ve bu kırılmaya çalışılıyor. Bu yayılabilir mi, bence Batı ile İslam arasında bir mesele var. Ve bu mesele sadece Müslümanların çoğunlukta olduğu ülkeleri değil, azınlıkta olduğu ülkeleri de ilgilendiriyor, Amerika"yı da ilgilendiriyor. Onun için çok katmanlı bir problemle karşı karşıyayız. 11 Eylül"den sonra Amerika da bunun içine girdi. Bu zamana kadar yoktu. İslami hareketlerin bir yeri yurdu var ama milli devletlerin çok ötesinde bir sirkülasyon söz konusu. Terörizmde bunu gördük. Dünyayı gösterilerini yapacağı bir tiyatro sahnesi olarak görüyor. Ama bu çok kötü bir gösterge. Başörtüsü bugün artık global bir mesele. Fransa"da böyle bir sorunun yaşanacağını kim düşünebilirdi ki?
+         <br/>
+         <br/>
+         -Fransa"da ve Türkiye"de görülen başörtüsü sorununun size göre bir çözüm reçetesi var mı?
+         <br/>
+         <br/>
+         Bu işe el attığımda bu kadar güçlü bir elektrik kablosunu tuttuğumu bilmiyordum. Kolay bir soru değil. Türkiye bu konuda önemli yol aldı. Artık örtünmenin haklılığı konuşuluyor. Ve örtünme de üniformadan çıktı modayla şekillenmeye başladı. Bu, daha kolektif bir kimlikten bireyselleşmeye gitmek demektir. Konuyu tartışıp bir mutabakatla kararlı bir şekilde ele almak gerekir. Bir de burada hoşgörü çok önemli. Ben üniversitelerde başörtüsü yasağının olmasına karşıyım. Yasaklanmasının bir anlamının olduğunu düşünmüyorum. Ancak örtünmenin modaya ayak uydurması ve modernleşmesi bence çözümde önemli olacak.
+         <br/>
+         <br/>
+         Küreselleşme bizi baskı altına alıyor
+         <br/>
+         <br/>
+         -Her konu için hemen medeniyetler arası çatışma kavramını kullanıyoruz. Siz de bunu Fransa"daki başörtüsü meselesi için kullandınız. Örneğin Fatih Terim"in İtalya macerası bile bir medeniyetler çatışmasının sonucu olarak aydınlarımızın, yazarlarımızın ağzına pelesenk oldu. Her şeyi bu kavrama hapsetmek biraz kolaycılık olmuyor mu?
+         <br/>
+         <br/>
+         Bugün Batı toplumunun oluşturduğu bir modernlik tarihi ve bununla örtüşen medeniyetten söz etmek mümkün. Ama bir Osmanlı medeniyetinden, İslam medeniyetinden, İran medeniyetinden söz etmemiz ne ölçüde mümkün? Hepimiz modern toplumun etkisi altına, girdabına girdik. Onun için Huntington"ın tezi yanlış. Bugün el değmemiş iki medeniyet toplumda yok. Küreselleşmeyle artarak Batıyı da aşan bir modernlik olgusu var. Bu durum piyasa ekonomisiyle, demokrasisiyle, menşeiyle oluşmuş fakat artık bu fikirlerin hayat biçimlerinin başka medeniyetlerde, kültürel havzalarda dolaştığını, beyinlerimize girdiğini de unutmayalım. Hatta bugün Müslümanların en büyük sorunu o. Dayanacakları o kadar büyük bir gelenek kalmadı. Böyle Müslümanlar azınlıkta. İslami hareketin tabanında gelenekçiler yok artık. Bizler kültürlerinden kopanlarız. Bir medeniyete dayandırılmamız zor, yeni bir medeniyeti keşfedeceğiz ve inşa edeceğiz. Onun için medeniyetler çatışmasında böyle bir hata var. Bir kere Batının üzerimizdeki hakimiyeti, modernleşme, küreselleşme ve sömürgeleşme ile var.
+         <br/>
+         <br/>
+         Terim başarısız
+         <br/>
+         <br/>
+         -Örnek alacağımız medeniyet yoksa nasıl bir çıkış yolu bulacağız?
+         <br/>
+         <br/>
+         Bizim el değmemiş, ortada tutabileceğimiz bir medeniyetimizin kalmamış olduğu bilincine varmamız gerekiyor. Bu medeniyetle aramızda yeniden sağlıklı bir ilişki nasıl kurulabilir  diye düşünmemiz gerekir. Az önce Fatih Terim örneğini verdiniz. Madem üzerinde düşündürmeye zorladınız, o zaman biz de diyebiliriz ki, bugünkü Fatih Terim"in üslubu profesyonelleşen futbolculara ve topluma biraz ağır kaçıyor. Onun otoriter üslubu yeni yönetim anlayışında eski kalmış olabilir. İnsanlara uyum sağlaması lazım. Zaten eski yöneticiler de bunu söylüyor. Yabancı antrenörler daha iyi çalışıyor. Demek sorun onda. Ortada yeni futbolcuların yeni istekleriyle aynılaşan bir medeniyet var. Fatih Terim meselesinde medeniyetler arası çatışma yok. Terim"in başarısızlığı var.
+         <br/>
+         <br/>
+         Kamusal alan özerkleştirilmeli
+         <br/>
+         <br/>
+         - Türkiye"de uzun süreden beri kamusal alan konusu da tartışılıyor. Bir sosyolog olarak kamusal alan kavramını nasıl bir çerçeveye oturtuyorsunuz?
+         <br/>
+         <br/>
+         Bugün İslami hareketleri anlamak için İslami hareketler ile kamusal alan arasındaki ilişkiye bakmak gerekiyor. Nitekim tartışma giderek oraya gidiyor. Kamusal alan demek, ortak alan, beraber yaşam alanımız demektir. Bunun bir alanı devlete, diğer alanı da bireye bağlıdır. Sivil toplum örgütlerinin güçlü olduğu yerde kamusal alan daha aşağıda denetlenir, sivil toplum örgütlerinin olmadığı yerde ise kamusal alan devlet alanı olur. Devletin otoritesine girer. Mesele devletin otoritesi ile bireyin vatandaşlık hakları arasında bir denge bulunması. Onun için kamusal alan ile demokrasi arasında çok iyi bir ilişki var. Türkiye"de özellikle 83"ten sonra kamusal alanı oluşturan, devlet alanı dışında bir sürü özel sektör alanı oluştu. Onun için artık çoğul kaynakları var. Bu yüzden ortak alanımızı nasıl oluşturacağız konusu önemli. Peki ortak alanımızı nasıl tanımlayacağız? Hukuk temeli olacak. Bilgilenmek için tartışma boyutu önemli ve yeni gelen talepleri nasıl karşılayacağız konusu üzerinde durulmalı. Bir tiyatro sahnesi gibi sürekli dekor değişiyor, sahneye çıkanlar değişiyor. Müslümanların daha fazla ortaya çıkması ile değişecek, farklı kimliklerin kendisini duyurmak istemesiyle değişecek tamamen nötr bir ortam düşünemeyiz. Toplum renkli ve farklı hayat biçimlerinden müteşekkildir.
+         <br/>
+         <br/>
+         -Bir söyleşinizde "Kamusal alan açık ve ortak alan olmalı. Kamusal alan ne devletin ne de bazı kabilelerin kontrolünde. Ben ile devlet arasında bir alandır. Bazı grupların tekelinde değil. Laik kesim de bu kamusal alan tekelinden vazgeçmek zorunda" diyorsunuz. Bu tablo yaşanılanı mı yoksa ideal olanı mı kapsıyor?
+         <br/>
+         <br/>
+         Tabii ben burada ideal olanı anlatıyorum. Laik kesimin de alan tekelinden vazgeçmesi gerekir, başka grupların da. Toplumdaki farklılıkları ve değişkenlikleri içinde barındıracak. Demokrasi ile ilişkilendirilmeyen bir alan sadece devlet otoritesinin alanı olur. Öyle de tanımlar ama bu demokratik olamaz. Ne zaman ki, farklı kimliklerin ve bireylerin ortaya çıktığı bir alan olursa işte o zaman olur. Devletin, hegemonyasından ve ideolojisinden uzaklaşması gerekir. Türkiye sancılı bir şekilde bunu yaşıyor. Göreceli olarak kamusal alanın özerkleşmesi gerekiyor. Hiçbir şekilde devletin müdahalesi yok demiyorum, kanunu var, anayasası var. Ama serbest alan değil. Onun için laikliğin de böyle bir sorunu var. Kamusal alanın çok önemli bir şekilde inşasına yardımcı. Çünkü nötr alanı tanımlıyor ve herkes girebilsin iddiası var. Ondan sonra bir sürü insana kapıyı kapatıyorsunuz. O zaman hegemonik bir durum ortaya çıkıyor. Demokrasi bunu biraz düzelten, yontan, kamusal alanı açmaya yarar.
+         <br/>
+         <br/>
+         SORUNLAR HEYBEDE BİRİKİYOR
+         <br/>
+         <br/>
+         -Türkiye"ye gelişlerinizde, değişen bir şey görüyor musunuz? Yoksa her şey bıraktığınız gibi mi ?
+         <br/>
+         <br/>
+         Eğer tartışmaları internet üzerinden yeterince takip etmezsem, gündemin ve tartışmaların dışında kalabiliyorum. Çünkü konular çok hızlı değişiyor. Sürekli bir başka mesele ile karşı karşıya kalıyoruz.
+         <br/>
+         <br/>
+         -Buna olumlu bir gelişmedir demek kolay mı? Sürekli değişiyor ama devinimin yönü her zaman doğru olmayabiliyor.
+         <br/>
+         <br/>
+         Bu soruyu hep kendi kendimize soruyoruz. Türkiye"de büyük bir hızlanma var. 1983"ten sonra tarih ve akışkanlık hızlandı. Bir yerlere gidiyoruz diye düşünürken o sırada acaba patinaj mı yapıyoruz şüphesine kapılıyoruz. İlerleme meselesinde, sistem yerine oturdu mu oturmadı mı diye sorular soruyoruz. Ve kesin bir cevap veremiyoruz.
+         <br/>
+         <br/>
+         -Ama bu sorunlar hep heybemizde kalıyor, birikiyor birikiyor ve heybe gittikçe ağırlaşıyor.
+         <br/>
+         <br/>
+         Doğru bir tespit. Bunun çözümü parlamentoda. Reformlar ve parlamentonun ön plana çıkışı Türkiye"de çok önemliydi. Bana göre Türkiye"de son 2 yıldaki en önemli gelişme parlamentonun siyasi bir aktör olarak ortaya çıkışı oldu. Irak Savaşında savaşa girmememiz ve Amerika"ya destek vermememizde aktör ne bir partiydi, ne silahlı kuvvetlerdi ne de kamuoyu idi. Ama hepsinin bileşimi sonucunda parlamento bir aktör olarak ortaya çıktı. Arkasından Kopenhag kriterlerine uyum reformlarını getirdi. Fakat sistematik olarak arkasında durulması konusunda kurumsallaşmada geride kalıyoruz diyebiliriz. Irak Savaşına katılmama konusunun arkasında duramadık, sanki bu karar irademizle değil de bir kaza sonucu ortaya çıktı. Bunun iki nedene bağlı olduğunu düşünüyorum. Birincisi yeterince mesafe alıp güncel yaşamdan ve tartışmalardan sıyrılıp meselenin üzerinde düşünme emeğini ve zamanını vermiyoruz. İkincisi ise, sistemi oturtacak, kurumsallaştıracak zemini bulamıyoruz. Örneğin reformlar geçti ama hala Kürt meselesinde gerekenler yapılmıyor, aynı durum devam ediyor.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+         TÜRBANDAN ÇEKİNENLER TÜRKİYE"DEN DE ÇEKİNİYOR
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+         - 11 Eylül"den beri terör ve İslam hep aynı sahnede gösterilmek isteniyor. Bu ne kadar doğru bir yaklaşım?
+         <br/>
+         <br/>
+         Bu doğru değil. Ama terörün dini, imanı, fikri yoktur demek de yanlıştır. Her dönemde terör fikri bir takım ideolojilerle birleşebiliyor. Bugünde İslamcılıkla birleşiyor, bundan öncede solculukla birleşmişti. Etnik hareketlerde de müthiş bir gaddarlık ve terörizm vardır.
+         <br/>
+         <br/>
+         -Bu trendler neye bağlı?
+         <br/>
+         <br/>
+         Bu çok zor bir soru. Dünya sahnesine çıkarken kolay bir çıkış olmuyor. Şu anda İslamcılık çıkıyor ve bu da kolay olmuyor. Çatışmacı tavır sergiliyor. Batı ile iç içe temas halinde yaşamış ama batılı olmamış bir Müslüman nüfus. İslamcılık bir şekilde bunun abartılarak ortaya çıkışıdır. Kimliğimizde bir sorun olduğu zaman sorun oluşuyor. Bu da iki sebebe dayanıyor, birincisi Müslümanlığı batıya karşı yok etmek diğeri ise tamamen görünür hale getirmektir. Bugünkü İslamcılık hareketin bir boyutu bu görünürlüğün, farklılığın bir boyutudur. Yani Müslümanlığından vazgeçmemektir. Bizim Türkler için de böyle bir sorun var. Biz Batılıyız diyoruz, bunu söylerken de Müslümanlığımızı unutturarak demeye çalışıyoruz. Ama Batı sürekli Müslümanlığımızı bize hatırlatıyor ve hatırlıyor. Biz zanediyoruz ki Batı türban konusunu tartışırken Türkiye"ye pirim verecek. Bir kere böyle bir durum yok, farkında bile değil. Bugün türbandan çekinenler Türkiye"den de çekiniyor. Bunu unutmuyorlar. Bizden birçok insan bu gerçeği unutuyor. Türklerin Müslüman olarak algılandığını AB adaylık sureciyle iyice fark etmeye başladık. Çünkü bu farklı bir medeniyettir. Türkiye AB"a girse de girmese de fark oluşturacaktır. Her ülkenin girmesi bu kadar etkili olmuyor. Dünya sahnesine Müslümanlığın çıkışı ne kadar zor bir mesele ise Türkiye"nin de AB"ye girmesi de bu bağlamda görülebilir. Çatışmacı değerleri bünyesinde taşımayan bir Türkiye"nin Avrupaya girmesi bence Avrupa açısından da çok önemli bir sıçrama olacaktır. Ama Avrupa bunu böyle görecek mi bilemiyoruz. Avrupa için bir içindeki Müslümanlar bir de kapısındaki Müslümanlar var. Avrupa"da bugün iki Müslüman meselesi var, biri başörtüsü diğeri Türkiye. Bence hem Avrupa"nın başörtüsünü çözmesi hem de Türkiye"nin AB"ye girmesi çok zor.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 3115 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=3335), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050221060016/http://www.aksiyon.com.tr:80/yazdir.php?id=3335)

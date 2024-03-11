@@ -1,0 +1,68 @@
+# Otçul hayat çok rahat
+
+*Sema Sak Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119040516im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119040516im_/http://www.aksiyon.com.tr/resim/492/28.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sıcak havalarla birlikte doğal ürünlere talep patladı. Bitkisel çay üreten şirket sayısı gün geçtikçe artarken diyabetik beslenme de rağbet görüyor. Beyaz ekmek raflardan iniyor, doktorlar ve eczacılar bitkisel ürünlerin doğru kullanılması halinde tedavi edici etkisi olduğunu söylüyor. Garip kıyafetleri ve saç modelleriyle dört kişilik çekirdek aile akşam yemeği için masaya oturuyor.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tabaklara dikkatli bakıldığında yemek namına hiçbir şey göremiyorsunuz. Tek görünen renk renk kapsüller ve dondurulmuş gıdalar... Bilim-kurgu filmlerinden ve bir margarin reklamından alışkın olduğumuz bu sahnelerin hayatımıza dahil olacağı günleri bekledik yıllarca. Ama zaman bu tahminleri yalancı çıkardı. Çünkü insanların beslenme alışkanlıklarının şekillenmesinde en önemli etken sağlık. Sağlıklı yaşam denildiğinde de akla bitkisel ürünler geliyor. Marketlerde dondurulmuş gıdaların alanı daralırken, dünyanın çeşitli yerlerinden gelen otların sergisi genişliyor. Türkiye"de çıkarılan sağlık haritaları ise Türklerin bu konuda geri kaldığını gösteriyor. Hamur işi ağırlıklı ve ekmek takviyeli beslenme alışkanlığı hep gündemimizde. Sağlık Bakanlığı"nca yapılan bir araştırmayla Türkiye"nin kanser haritası çıkarıldı. Araştırmanın çarpıcı yanı, her 3 hastadan birinin yanlış beslenmeye bağlı olarak kansere yakalanması. Özellikle Doğu ve Güneydoğu illerimizde direkt ateşte pişirilen kebap türü yiyecekler ile turşular sindirim sistemi ve mide kanserlerindeki artışa sebep oluyor. Araştırma fast food tipi beslenmenin de kansere davetiye anlamına geldiğini gösteriyor.
+   <br>
+    <br>
+     Kalbinizi koruyun
+     <br>
+      <br/>
+      Geleneksel beslenmenin yanında, yaşam şartlarının dayattığı hızlı beslenme alışkanlıkları, Batı hastalığı denilen kanser, kalp hastalıkları, şişmanlık, kabızlık gibi rahatsızlıklara yol açıyor. Bunu gidermek için şehirlerde yeni filizlenmeye başlayan alışkanlıklardan biri de bitkisel çayların kullanımı. Şeker yerine sakarin ya da vitamin-mineralce daha zengin esmer şeker kullanımı, lifli diyet ürünlerle firmaların talebe yönelik olarak ürün yelpazesini artırdığı gözleniyor. Ayda bir yeni bir bitkisel çay ya da zayıflama ürünüyle tanışıyoruz. Aktarlar, geleneksel firmalar bu alanda rekabet ediyor. Mısır Çarşısı"nın "bin bir derde deva" tabelalarıyla dolu dükkanları müşteriyi cezbederken, eczacılar bilinen bitkiler dışında, bilinmedik karışımlara rağbet edilmemesini öneriyor. Beşiktaş Sağlık Eczanesi sahibi Orhan Kongu, ilacı bitkilerden ancak eczacıların yapabileceğini söylüyor. "Aktarlarda bakanlığın izni harici şeyleri bulabilirsiniz. Çünkü halkımız Osmanlı"dan beri açıkta satılanlara alışmış." Gerçekten de kemik çaylarından kadın çayına, Çin çayına, prostat ve selülit çaylarına kadar piyasada sağlık vadeden ve içeriğini bilmediğimiz birçok karışım var. Bunların yararından emin olmak güç. Çünkü bitkiler üzerinde uzun yıllar araştırmalar yapılarak ancak faydaları tespit ediliyor.
+      <br/>
+      <br/>
+      Papatya çayı alır mısınız?
+      <br/>
+      <br/>
+      Ankara Üniversitesi Eczacılık Fakültesi"nden Prof. Dr. Gülçin Saltan, "Piyasada satılan birçok ürün bağırsak yumuşatıcı ve idrar artırıcı özelliklere sahip. Belli oranda sağladıkları su kaybı kilo kaybı gibi görünüyor. Aldatıcı bir zayıflık" diyor. Saltan, eczacıların bile işi olmayan tedaviyi, aktarların toz karışımlar yoluyla sağlamasını yanlış buluyor. Çünkü yanlış kullanım kansere dahi yol açabiliyor. Kahve ya da meşrubat yerine bitkisel çay içilmesini, adaçayı, yeşil çay ve papatya çayını tavsiye ediyor. Marmara Üniversitesi Tıp Fakültesi Hastanesi Diyet Uzmanı Nurderen Uçar da, bitki çaylarının her çeşidinin sağlık için aşırı kullanımına dikkat çekiyor. Çaylardan bildiğimiz adaçayı, papatya, kekik, nane, kuşburnu ve yeşilçayın tercih edilmesini isteyen Uçar, "İnsanlar sürekli kullanımla fayda sağlayacağız sanıyor. Oysa çayların hiçbir yağ eritici etkisi yok. Örneğin sinameki çok içildiğinde bağırsak florasını sürekli yumuşak tuttuğundan bağırsak çalışma sistemini sağlığa aykırı şekilde bozuyor" diyor. Uçar, rahatlama, uykusuzluk, hazımsızlık gibi problemlerin haricinde, zayıflama için çay kullanılmamasını öneriyor: "Sadece yeşil çay, antioksidan özelliğe sahip, savunma sistemini güçlendiriyor. Sinamekiden daha faydalı olduğu için kilo ve kabızlık problemlerinde öneriyoruz."
+      <br/>
+      <br/>
+      Eczacılar, aloe veranın Türkiye"de "promosyon zaferi"ne dönüştüğü kanaatinde. Bu bitki cilt hastalıklarına iyi geliyor ve bağışıklık sistemini koruyor. Diğer şifalı özellikleri ise henüz belirlenmiş değil. Muhteşem, mucize bitki diye lanse edilmemeli.
+      <br/>
+      <br/>
+      Neden bitkisel ürünler tercih ediliyor?
+      <br/>
+      <br/>
+      Bütün risklerine rağmen bitkisel ürünlerin doğru kullanıldığında tedavi edici etkisi var. Yeşil çay, antioksidanlar sayesinde başta gırtlak ve deri kanseri riskini azaltıyor. Kolesterolü düşürüp kan basıncını düzenliyor. Sindirimi kolaylaştırarak dolaşıma yardım ediyor. İçerdiği B vitamini stresi düşürücü. Zayıflamaya ve yağların yanmasına katkıda bulunuyor. Florid içerdiğinden diş eti çekilmesini ve diş çürümeleri önlüyor. Kalp ve damar sağlığına faydalı keten tohumu ise tohum halinde alınıp evde ezilerek kullanılmalı. Elma çayı, kolesterol seviyesinde azalma yapıyor. Kan basıncını düşürüp şekeri dengeliyor. Nefes darlığı ve kalp hastalıklarına karşı koruyucu. Vücuttan toksin atımına yardım ediyor. Elma; enzim, potasyum ve mineral bakımından zengin bir meyve. Sarı kantaron çayının, Herbal Medicine"nin 1997 baskısında, sakinleştirici, sinir ve gerginlik giderici, depresyon önleyici olduğu belirlenmiş.
+      <br/>
+      <br/>
+      Diyet ürünleri revaçta"
+      <br/>
+      <br/>
+      Besini tamamen alınmış beyaz ekmeğe alternatif üretilen doğal ekmekler de vitrinlerde her geçen gün daha çok yer işgal ediyor. Tam buğday ekmeği ve özellikle lifli gıdalar bu alanda öncü. Lifli gıda tüketimi kültürü bisküvilerle popülerlik kazandı. Ülker"in elma-limon lifli bisküvilerinin yanı sıra Eti, Saray vb. markaların da diyet ürünleri raflarda yerini aldı. Sebzelerden enginar, brokoli, soya gibi ürünlerin kullanımı ise gittikçe yaygınlaşıyor. Özellikle soya, bitkisel protein kaynağı. Ete oranla yağ ve kolesterol içermeyen yapısıyla insanlığa sağlık vaat ediyor. Bu nedenle Çukurova"da pamuk ekimi azalma gösterirken, gelir getiren sağlıklı soya ve mısır ekimi gittikçe yaygınlaşıyor. Hazır lifli ürünler alanında ise rekabet eden firma az. Doğal beslenmeye yönelik ürünleriyle pazarda pay sahibi olan Otacı"nın ürün yöneticisi Zafer Leşanoğlu, dünyada yüksek teknolojiyle üretim yapan iki firmadan biri olduklarını söylüyor. "Organik ürünler konusunda Bulgaristan ve Yunanistan çok başarılı. Bizde henüz yeterli bilinç oluşmadı. Yemek alışkanlıklarıyla ilgili problemlerimiz var. Saat 10"dan sonra meyve bile yemememiz gerekiyor. Yüksek lifli, medikal besinler tüketmeliyiz. Otacı ürünlerinde maya, yağ, tuz, şeker, koruyucu maddeler bulunmaz. Diğer diyet ürünlerde bisküviyi şişirmek için mecburen maya, yağ kullanırlar. Bizde lif suyla şişirilerek, doğal halinde pişirilir. İleri teknoloji gerektirdiği için kârı düşük bu alanda rekabetçi firma yok" diyor. Leşanoğlu, WHO"nun verilerine göre günde 30 gr. tüketilmesi gereken lifin, Türkiye"de 12 gr"da kaldığını belirtiyor. Düzenli beslenmeye faydalı lif, bağırsak florasındaki bakterileri harekete geçirerek "kolon kanseri" riskini de azaltıyor. Lif (posa) ayrıca, koroner kalp hastalıklarına, kansere, kan basıncına, kolesterol, şişmanlık tehlikesine karşı koruyor. Şeker seviyesini dengeleyici etkileri var. Firmanın ürünlerinde şeker ikamesi olarak isomalt ve kalorisi düşük tatlandırıcılar, diet lif olarak da inulin kullanılıyor. Doğa Firması"nın ürünleri ise yüzde 100 doğal gıdalardan oluşuyor. Şeker ilavesiz marmelatlar, esmer şeker ve Doğa kepek bunlardan birkaçı. Doğa"nın marmelatları, şeker, yapay tatlandırıcı, kıvam verici ve koruyucu ürünler içermiyor. Meyve püresinden üretiliyor.
+      <br/>
+      <br/>
+      Diyetisyen Sahiba Keskin, sağlıklı beslenme için besinlerden alınan kalorinin düşürülmesini ve aç kalmadan her şeyden beslenerek zayıflamayı öneriyor. "Güvenilir markalar ve ürünler seçilmeli. Ayda 4 kilo ve haftada yarım-1 kilo oranında zayıflamak sağlıklı. Endokrin doktoru yoksa diyetisyen veya dahiliye hekimi kontrolünde, egzersiz yapılarak meyve sebze ağırlıklı beslenmeli. Tam buğday ekmeği yemeliyiz" diyor. Doktorlar sağlıklı beslenmede nişastalı ve posalı yiyeceklerin tüketilmesini, doymamış yağ kullanılmasını ve fiziki aktivite düzeyinin artırılarak uzun süren açlıklardan kaçınılmasını, azar azar sık beslenme alışkanlığı kazanılmasını öneriyor.
+      <br/>
+      <br/>
+      Organik tarım yılı
+      <br/>
+      <br/>
+      Sağlık kaynağı şifalı bitkilerin kimyasal maddeler kullanılmaksızın yetiştirilmesi ve işlenmesi gerekiyor. Devlet de sağlıklı ürünlerin tarımı konusunda vakit kaybetmeden harekete geçti ve 2004"ü "organik tarım yılı" ilan etti. Tarım Bakanı Sami Güçlü, topraklarımızın az kirlenmişliğinin Türkiye"ye sağlıklı besinler üretmede bir avantaj sağlayacağını belirtiyor. Gerçekten de Doğu Avrupa"nın kimyevi maddelerle tamamen zehirlenmiş topraklarının yanında topraklarımız doğal ürünler için temiz olma özelliğini hâlâ koruyor.
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11468&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119040516/http://www.aksiyon.com.tr:80/detay.php?id=11468&yorum_id=1)

@@ -1,0 +1,318 @@
+# Çiller AKP'ye göz kırpıyor
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010522im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010522im_/http://www.aksiyon.com.tr/resim/398/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çiller"in yakın çevresine, yapılacak seçimde çıkacak sonuca göre AKP ile muhtemel bir koalisyon hükümeti kurabileceklerini söylediği ileri sürülüyor. Bu koalisyonda yıldızı parlayan CHP"nin de yer alabileceği kaydedilirken, DYP liderinin bundan önce, kapatılan Refah Partisi ile kurduğu Refahyol Hükümeti 28 Şubat sürecine sebep olmuştu
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   "Bizim Refah partisi ile yaptığımız
+   <br>
+    koalisyon hâlâ tartışılıyor. Ama sadece biz mi yaptık, geçmişte MSP ile önce
+    <br>
+     şimdiki Başbakan Bülent Ecevit, ardından da Süleyman Demirel koalisyon yaptı.
+     <br>
+      Eski Cumhurbaşkanı rahmetli Turgut Özal yine bu partinin İzmir milletvekili
+      <br>
+       adayı oldu. Sadece biz niye eleştiriliyoruz anlamak mümkün değil."
+       <br/>
+       <br/>
+       <br/>
+       Bu sözler, DYP lideri Tansu Çiller"e ait.
+       <br>
+        Gerçi, artık Çiller"in göndermede bulunduğu Ecevit ve Demirel"in çeşitli
+        <br>
+         dönemlerde koalisyon hükümeti kurdukları Milli Selamet Partisi tarih oldu. Aynı
+         <br/>
+         biçimde Çiller"in 1996 yılında kurulmasına onay verdiği ve başbakanlığını
+         <br/>
+         Necmettin Erbakan"ın yaptığı Refahyol Hükümeti de tarih sayfalarında yerini
+         <br/>
+         aldı. DYP liderinin böyle bir yaklaşım göstermesinin sebebi ise Fazilet
+         <br/>
+         Partisi"nden koparak oluşturulan ve kurucuları tarafından da "yeni olduğu"
+         <br/>
+         belirtilen Adalet ve Kalkınma Partisi. Peki Çiller"i bu içerikteki bir konuşmayı
+         <br/>
+         yapmaya iten sebepler neydi?
+         <br/>
+         <br/>
+         <br/>
+         AKP ile koalisyonun temelleri
+         <br>
+          <br/>
+          <br/>
+          Bu yaklaşımın birinci sebebini AKP"nin
+          <br>
+           kurulduğundan bugüne kadar sergilediği çizgide aramak gerekiyor. AKP ve lideri
+           <br>
+            Recep Tayyip Erdoğan, gerek konuşmalarında ve gerekse diğer partilerle olan
+            <br>
+             tutumlarında Fazilet ve Refah Partisi dönemlerinde görülmeyecek kadar uzlaşmacı
+             <br/>
+             ve konsensüs sağlayıcı bir politika izledi.  Örneğin; birkaç ay önce TBMM"de
+             <br/>
+             İhale Kanunu gündeme geldiğinde, yasanın paket halinde geçmesi gündeme gelmiş
+             <br/>
+             ancak bunun için geniş bir desteğin gerektiği anlaşılmıştı. Bu aşamada başta
+             <br/>
+             Maliye Bakanı Sümer Oral ve Hazine"den sorumlu -şimdilerde yeni oluşuma destek
+             <br/>
+             vermesiyle bilinen- Bakan Kemal Derviş AKP Meclis Grup Başkanı Bülent Arınç,
+             <br/>
+             Meclis Grup Başkanvekili Mehmet Ali Şahin ve öteki kurmaylarla görüşmelerde
+             <br/>
+             bulunmuşlar ve neticede AKP"nin de bazı şartları kabul edilmek suretiyle belli
+             <br/>
+             bir çizgide anlayış birliğine varmışlardı. AKP"nin Meclis"te muhalefet partisi
+             <br/>
+             olmasına karşılık "rijit" hareketlerden sürekli kaçınması da gözlerden
+             <br/>
+             kaçmamıştı. İdeolojik düzlemde AKP liderinin çıkışları DYP"li kurmayların
+             <br/>
+             dikkatini çekti. Erdoğan"ın, geçmişte yaptığı konuşmalarla ilgili bazı
+             <br/>
+             kasetlerin ortaya çıkmasından sonra "bu görüşleri şimdi paylaşmıyorum"
+             <br/>
+             şeklindeki açıklamaları da. Erdoğan"ın geçtiğimiz hafta Financial Times
+             <br/>
+             Gazetesi"ne verdiği demeçte "Ben bütün siyasi kariyerim boyunca hiçbir zaman
+             <br/>
+             İslamcı etiketini seçmedim" demesi de dikkat çekti. Kısacası, ne Tayyip Erdoğan
+             <br/>
+             geçmişteki Erbakan"dı, ne de yakın çalışma arkadaşları ve ekibi Refah ya da
+             <br/>
+             Fazilet Partisi"ni andırmıyorlardı. DYP liderinin Ankara kulislerinde "DYP
+             <br/>
+             AKP"yle yakınlaşıyor" yorumlarına sebep olan konuşmasının birinci nedeni bu.
+             <br/>
+             <br/>
+             <br/>
+             Oy oranı iştah kabartıyor
+             <br>
+              <br/>
+              <br/>
+              İkincisi ise AKP"nin kamuoyu yoklamalarında
+              <br>
+               hep birinci sırada gelmesi. Değerlendirmelere göre AKP"nin şu anda oy oranı
+               <br>
+                yüzde 24"ler civarında. Bu partiye girecekken son anda karar değiştirerek
+                <br>
+                 Demokrat Parti"yi (DP) canlandırmakla meşgul Ankara Büyükşehir Belediye Başkanı
+                 <br/>
+                 Melih Gökçek de kendilerinin yaptırdığı ve yaklaşık 15 bin kişinin katılımıyla
+                 <br/>
+                 gerçekleştirilen kamuoyu yoklamasından AKP"nin oy oranının yüzde 24.5"lar
+                 <br/>
+                 düzeyinde olduğunu açıklamıştı. Başka yorumlar da genellikle bu rakamlar
+                 <br/>
+                 çevresinde yoğunlaşıyor. Bu rakamların dışında en çok konuşulan noktalardan
+                 <br/>
+                 birisi de AKP liderinin birkaç ay içinde yaklaşık 70 il merkezini ziyaret ederek
+                 <br/>
+                 bu illerde gösterişli mitingler düzenlemiş olması. Bugüne kadar hiçbir parti
+                 <br/>
+                 böyle geniş bir organizasyonun içinde olamadı. AKP"nin, DYP"nin güçlü olduğu
+                 <br/>
+                 illerde kalabalıklar toplayarak mitingler gerçekleştirmesi hiç şüphe yok DYP
+                 <br/>
+                 liderinin büyük ilgisini çekmiş olmalı. Bütün bunlar Çiller ve ekibinin,
+                 <br/>
+                 seçimler sonrasında yıldızı parlayabilecek birkaç partiden birisi olma
+                 <br/>
+                 özelliğini koruyan AKP ile ilgili dolaylı değerlendirmeler yapmasına dayanak
+                 <br/>
+                 teşkil etti. Ve Meclis"in erken seçim kararı alması için  22 Temmuz tarihinde
+                 <br/>
+                 toplanması hususunda iki partinin anlaşma sağlamaları bu konsensüsün en son
+                 <br/>
+                 tezahürü olarak görülüyor. Ama bir hususun unutulmaması gerekiyor. O da AKP
+                 <br/>
+                 liderinin seçimlere katılıp katılamayacağı.
+                 <br/>
+                 <br/>
+                 <br/>
+                 Tayyip Erdoğan, seçime katılamayacak mı?
+                 <br>
+                  <br/>
+                  <br/>
+                  Koalisyonu oluşturan DSP, MHP ve ANAP"ın
+                  <br>
+                   liderleri, seçimleri 3 Kasım"da yapmak konusunda uzlaşınca, bu tarihten en açık
+                   <br>
+                    biçimde etkilenecek kişinin Tayyip Erdoğan olduğu yorumları yapılmaya başlandı.
+                    <br>
+                     Çünkü Erdoğan, 19 Ekim tarihinde büyük olasılıkla partisinin başında
+                     <br/>
+                     olamayacaktı. Değerlendirmelere göre üç liderin aldığı 3 Kasım tarihi de
+                     <br/>
+                     tesadüfi ya da "baskılar karşısında alınmış" bir tarih değil. Bilinçli olarak
+                     <br/>
+                     belirlenmişti. İnce hesaplar yapılarak tespit edilmişti. 3 Kasım"da iktidar
+                     <br/>
+                     partilerinin uzlaşma sağlamasıyla, bu ince hesaplardan biri daha "gerçekleşmiş"
+                     <br/>
+                     oldu. Tayyip Erdoğan da erken bir seçimden yanaydı. Ancak Anayasa Mahkemesi"nin
+                     <br/>
+                     Erdoğan"ın Genel Başkanlık"tan ayrılması için verdiği altı aylık süre bu tarihte
+                     <br/>
+                     doluyor. Peki bu AKP"nin seçimde başarı şansını ne derece etkiler? Ankara"daki
+                     <br/>
+                     siyasi kulisler, Recep Tayyip Erdoğan"ın AKP"nin başında olmasa bile bu partinin
+                     <br/>
+                     az bir puan düşüşü ile yine başarılı olacağı yönünde yoğunlaşıyor. Çünkü
+                     <br/>
+                     başından beri zaten AKP liderinin seçimlere katılıp katılamayacağı ya da katılsa
+                     <br/>
+                     bile pozisyonunun ne olacağı sorgulanıyordu. Milletvekili olabilecek mi
+                     <br/>
+                     olamayacak mı? Yoksa sadece genel başkan mı olabilecekti? Acaba Yüksek Seçim
+                     <br/>
+                     Kurulu ne diyecekti, nasıl bir karar alacaktı? YSK bu konuda son merci idi ve
+                     <br/>
+                     verdiği kararlar da kesin nitelik taşıyordu. Tüm bu sorular
+                     <br/>
+                     tartışıldı/tartışılıyor. Erdoğan"ın durumu, son yorumlara göre seçimlere
+                     <br/>
+                     partisinin başında giremeyeceği şeklinde olsa bile ne olacağı kesinlikle belli
+                     <br/>
+                     değil. Çünkü parti kurmaylarının yaptığı/yaptırdığı araştırmalara göre bir
+                     <br/>
+                     ihtimal daha var...
+                     <br/>
+                     <br/>
+                     <br/>
+                     Kapusuz: "Biz rahatız"
+                     <br>
+                      <br/>
+                      <br/>
+                      Bu ihtimaller açıktı ve parti kurmaylarının
+                      <br>
+                       yaptığı/yaptırdığı araştırmaların tümünde AK Parti lideri Erdoğan"ın önünde
+                       <br>
+                        herhangi bir engel olmadığı yönünde bir sonuç çıkıyordu. Bu konuda
+                        <br>
+                         değerlendirmelerde bulunan AK Parti Meclis Grup Başkanvekili, Kayseri
+                         <br/>
+                         milletvekili Salih Kapusuz, öncelikle Yüksek Seçim Kurulu Başkanı Tufan Algan"ın
+                         <br/>
+                         hafta içinde Ankara"yı karıştıran demecine göndermede bulundu. Algan, Türk Ceza
+                         <br/>
+                         Yasası"nın 312. maddesinden ceza alan Tayyip Erdoğan"ın milletvekili
+                         <br/>
+                         olamayacağını dile getirmişti. Salih Kapusuz ise, Yüksek Seçim Kurulu
+                         <br/>
+                         Başkanı"nın bu konuda büyük bir hata yaptığı kanaatinde; "Bir kere YSK Başkanı
+                         <br/>
+                         olarak Tufan bey  bu kadar ciddi bir meselede uluorta konuşamaz. Başkan olarak
+                         <br/>
+                         dikkat etmesi lazım söylediklerine. Hem de kişi adı vererek böyle bir
+                         <br/>
+                         değerlendirme yapmasını anlamak mümkün değil." AK Partili Kapusuz TCY"nin 312.
+                         <br/>
+                         maddesinin 2. fıkrasının değiştiğini belirtiyor ve suç olarak gösterilen
+                         <br/>
+                         faktörlerin değişiklikle suç olmaktan çıktığını da öne sürüyor ve Erdoğan"ın
+                         <br/>
+                         genel başkanlığı ve milletvekilliği noktasında oldukça rahat olduklarını
+                         <br/>
+                         söylüyor. Partinin hukukçularının yaptıkları incelemeler sonucunda Tayyip
+                         <br/>
+                         Erdoğan"ın önünde hiçbir engel yok. Peki, seçim sonrası için öngörüleri var
+                         <br/>
+                         mıydı, Kapusuz"un? "Şu anda seçim sonrası için hiçbir öngörümüz yok. Ama bir
+                         <br/>
+                         şeyi kesinlikle söyledik, seçim dedik ve dediğimizin arkasında durduk. DYP"nin
+                         <br/>
+                         22 Temmuz önerisine de şartsız destek verdik. Seçim sonrasında da milletimiz
+                         <br/>
+                         nasıl bir irade beyan ederse biz de ona göre oturur konuşuruz ve milletimizin
+                         <br/>
+                         çıkarlarına en uygun nasıl bir oluşum olursa onu yaparız."
+                         <br/>
+                         <br/>
+                         <br/>
+                         DYP: Niçin DYP+FP+DSP olamadı?
+                         <br>
+                          <br/>
+                          <br/>
+                          DYP Meclis Grup Başkanvekili ve İçel
+                          <br>
+                           milletvekili Turhan Güven ise sorularımızı cevaplarken, AK Parti lideri
+                           <br>
+                            Erdoğan"ın milletvekilliği ile ilgili YSK Başkanı Algan"ın açıklamalarını
+                            <br>
+                             "erken" olarak değerlendirdi. Güven, seçim sonrası yapılan değerlendirmeler
+                             <br/>
+                             konusunda "her partiyle işbirliğine" açık olduklarının işaretini verdi.
+                             <br/>
+                             "Birtakım dış etkenler ve bazı odaklar seçimler sonrasında etkili olabiliyorlar.
+                             <br/>
+                             Buna dikkat etmek lazım. Mesela, 1999 seçimleri sonrasında niçin FP+DYP+ DSP
+                             <br/>
+                             koalisyonu kurulamadı, bu pekala olabilirdi. Ama şimdiden doğmamış çocuğa don
+                             <br/>
+                             biçmek yanlış olur" görüşlerini ileten Güven, milletin kendilerine teveccüh
+                             <br/>
+                             göstereceğine inandıklarını ekledi.
+                             <br/>
+                             <br/>
+                             <br/>
+                             AKP-DYP-CHP formülü
+                             <br>
+                              <br/>
+                              <br/>
+                              Sonuç olarak; Çiller"in yakın çevresine,
+                              <br>
+                               yapılacak seçimde çıkacak sonuca göre AKP ile muhtemel bir koalisyon hükümeti
+                               <br>
+                                kurabileceklerini söylediği Başkent kulislerinin başlıca konularından biri. Bu
+                                <br>
+                                 koalisyona, yıldızı parlayan CHP"nin de katılabileceği konuşuluyor.
+                                </br>
+                               </br>
+                              </br>
+                             </br>
+                            </br>
+                           </br>
+                          </br>
+                         </br>
+                        </br>
+                       </br>
+                      </br>
+                     </br>
+                    </br>
+                   </br>
+                  </br>
+                 </br>
+                </br>
+               </br>
+              </br>
+             </br>
+            </br>
+           </br>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1565), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010522/http://www.aksiyon.com.tr:80/detay.php?id=1565)

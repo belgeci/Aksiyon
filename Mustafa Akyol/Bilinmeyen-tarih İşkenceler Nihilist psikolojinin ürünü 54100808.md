@@ -1,0 +1,67 @@
+# İşkenceler Nihilist psikolojinin ürünü
+
+*Mustafa Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040911042258im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040911042258im_/http://www.aksiyon.com.tr/resim/496/38.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Irak’ta, Amerikan askerlerinin Ebu Garip hapishanesinde mahkumlara işkence yapması, tartışmaları da beraberinde getirdi. Yaşananları ‘nihilizm’ olarak nitelendiren Prof. Dr. Phillip E. Johnson, bu fiili işleyenlerin ne kendilerine ne de mahkumlara saygısı olduğunu dile getiriyor.
+ </font>
+ <p>
+  <font class="content">
+   Irak’ta gözler 30 Haziran tarihine çevrilmiş durumda. Yetki devrinin gerçekleşeceği bu tarih, Saddam sonrasının Irak’ı için büyük önem arz ediyor. Ülkede, bombalar altında ilerleyen bu siyasi süreç sonunda egemenlik Irak halkına verilecek. Söz konusu sürecin nasıl noktalanacağı şimdilik belli değil. Belli olan bir şey varsa o da Ebu Garib hapishanesinde işkenceye ve aşağılanmaya maruz kalanlar ve bunların medyaya yansıyan görüntüleri.
+   <br/>
+   <br/>
+   Amerika’da, Ebu Garib hapishanesindeki işkencenin birkaç “kendini bilmez” tarafından yapılan “münferit olay” mı, yoksa sistemli bir sorgulama tekniği mi olduğu tartışılmaya devam ediyor. Tartışmaların odak noktasını ise işkence yaptığı iddia edilen insanların son derece rahat ve kaygısız tavırları oluşturuyor. Ekrana yansıyan görüntüler karşısında ‘şok’ geçiren Amerikalılar, kendi toplumlarından nasıl olup da böylesine bir sadizmin türeyebildiğini sorguluyor.
+   <br/>
+   <br/>
+   Bunlardan biri de Prof. Dr. Phillip E. Johnson. ABD’nin önde gelen muhafazakar yazarlarından biri olan Johnson, 30 yılı aşkın süredir ülkenin en itibarlı üniversitelerinden California Berkeley’de hukuk profesörlüğü yapıyor. Yıllar önce Earl Warren’ın Kennedy suikastini araştıran komisyonda da görev yapan Prof. Dr. Johnson, 1990’lardan bu yana, din, devlet, laiklik, bilim felsefesi gibi konulardaki kitaplarıyla entelektüel dünyada büyük ün kazanmış durumda. ABD’nin en çok satan dördüncü dergisi olan “World” tarafından 2003 yılında “yılın adamı” seçilen Phillip E. Johnson, Amerika’daki dinî değerler, ahlâkî dejenerasyon ve Irak’taki işkence skandalı konusundaki görüşlerini Aksiyon’a anlattı.
+   <br/>
+   <br/>
+   —Amerikan kültüründe dinin önemini nasıl tarif edersiniz?
+   <br/>
+   Amerika’daki dindar kültür, ülkenin kuruluşuna kadar uzanır. Ülkemizi kuranlar, Tanrı’ya inanmanın, insan haklarının ve demokrasinin de çıkış noktası olduğunu düşünüyorlardı. Bugün de Amerika dünyanın teknolojik olarak en ileri ülkesi ve aynı zamanda gelişmiş uluslar arasında en dindar olanı. Bu ikisi arasında da hiç bir çelişki yok. Aksine, Amerika’nın gücü buradan geliyor. Ancak son birkaç on yıldır, kimi liberal entelektüeller, bazı Musevi örgütlerden de aldıkları destekle, Amerikan kültürünü daha fazla sekülerize etmek için çabalıyor. Okullarda öğrencilerin yaptığı toplu dualara gelen itirazlar ve bunun üzerine gelişen tartışmalarda olduğu gibi. Seküleristlerin bu çabası, kimi zaman kendi dünya görüşlerini mutlak doğru gibi göstermeye kadar varıyor ve bunun üzerine bir “düşünce kontrolü” inşa etmek istiyorlar. Örneğin seküler dünya görüşünün “yaratılış hikayesi” olan Darwinizm’e karşı getirilen bilimsel eleştirilere gösterdikleri tahammülsüzlük gibi.
+   <br/>
+   Ancak tüm bunlara rağmen Amerika’da bireysel ve toplumsal alanda dindarlık güçlü bir şekilde sürüyor.
+   <br/>
+   <br/>
+   —Peki, toplumun önemli bir bölümünü etkileyen sekülerleşme sürecinin toplumsal etkilerini nasıl değerlendiriyorsunuz?
+   <br/>
+   Bu etkiler oldukça belirgin. Aile yapısının parçalanması açık bir örnek. Bunu özellikle de Afro—Amerikalılar (siyahlar) arasında gözlemleyebiliyoruz. 1960’lara kadar siyah Amerikalıların son derece tutarlı bir aile yapısı vardı. Kölelik ve ırk ayrımcılığının baskılarına bu sayede dayanabilmişlerdi aslında. 1960’larda ise aile yapısında hızlı bir çözülme başladı. Gayr—ı meşru doğumlar ve çocuklarını terk eden veya onlar üzerindeki denetimlerini yitiren aileler çoğaldı. Bunun uzun vadedeki sonucu, siyahlar arasında suç oranının hızla yükselmesiydi.
+   <br/>
+   <br/>
+   —Söz konusu değer yozlaşmasının Amerika’daki şiddet kültürüyle de bir ilgisi olabilir mi?
+   <br/>
+   <br/>
+   Şiddet kültürünün yükselmesinde pek çok farklı faktör vardır kuşkusuz. Ancak toplumdaki dinî değerlerin erimesi de bu faktörlerin önemli olanlarından biri. Eğer insanlara, bu dünyayı yaratan ve yöneten, sonunda da kötülüğü cezalandıracak ve iyiliği ödüllendirecek doğruluk sahibi Tanrı’ya inanmamaları yönünde telkinde bulunursanız, bunun büyük etkileri olur. Kendilerini diledikleri her şeyi yapmakta özgür hissederler. Zengin veya güçlü olabilmek ve amaçlarına ulaşabilmek için her yöntemi meşru görmeye başlarlar. Şiddet de bunlardan biri olabilir. İşte bu nedenle toplumun sekülerize olmasının yıkıcı sonuçları vardır.
+   <br/>
+   <br/>
+   Örneğin Amerika’da çok ciddi bir uyuşturucu sorunu var; hattâ bazı insanlar halüsinasyon yapıcı ilaçlara dayanarak yeni dinler bile türetiyorlar. Bu çok büyük bir suç sorunu üretiyor; çünkü uyuşturucunun satılması, alınması ve dağıtılması suçla doğrudan ilişkili. Ancak toplumdaki bu çürümeyi gören ve önlem almak isteyenler de var ve bu da aksi yönde bir hareket geliştiriyor.
+   <br/>
+   —Irak’taki son işkence olayları ile söz konusu şiddet kültürü arasında da bağlantı görüyor musunuz?
+   <br/>
+   <br/>
+   Tutuklu ve mahkumlara kötü muamele yapılması tüm dünyada rastlanan bir durum. Ne yazık ki ABD’de de bu çok yaygın. Hapishanelerimizde çok feci şeyler yaşanıyor. Mahkumları “aşağı insan” görme yönünde eğilim var. Böyle düşünen biri, mahkumlara insanca davranmayabiliyor. Amerika’da çok ciddi bir problem oluşturduğu için bunun tedavi edilmesi yönünde de girişimler var. Bu konudaki en etkin girişim, bir yardım kuruluşu olan “Hapishane Dostluğu” (Prison Fellowship). Bu kuruluş hem mahkumları hem de gardiyanları eğitmek ve onlara manen destek olup, moral seviyelerini yükseltmek için büyük çaba harcıyor.
+   <br/>
+   <br/>
+   Irak’ta veya bizim hapishanelerimizde yaşanan işkence ve benzeri feci uygulamaların altında, benim “nihilizm” olarak tanımlamayı tercih ettiğim bir psikoloji var. Yani hiççilik, insanın hiç bir değerinin ve kutsallık duygusunun kalmaması. Orada işkence yapan Amerikan askerlerinin, hem mahkumlara hem de kendilerine hiçbir saygı duymadıkları anlaşılıyor. Zalimlik yapıyor ve bundan da, kendilerini güçlü hissetmelerini sağladığı için zevk alıyorlar. Bu ruhsal bir hastalık ve ruhsal ihtiyaçların karşılanması yoluyla tedavi edilmesi gerekiyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### mustafa, 08-Haziran-2004
+> muthis bir calisma: 
+> Mustafa bey sizi kutlarim, Aksiyonda boyle onemli roportajlari okumak cok guzel.Elinize saglik. Aksiyon uluslarlararasi camiada da taninmali siye dusunuyorum.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11565&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040911042258/http://www.aksiyon.com.tr:80/detay.php?id=11565&yorum_id=1)

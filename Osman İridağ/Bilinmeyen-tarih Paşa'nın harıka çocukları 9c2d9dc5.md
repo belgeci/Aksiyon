@@ -1,0 +1,64 @@
+# Paşa’nın harıka çocukları
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302181126im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302181126im_/http://www.aksiyon.com.tr/resim/309/8.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Röportajlar için verdiğimiz aradan dolayı mutlu olanlar için üzüntülü bir haberim var. Benden kurtulmuş değilsiniz. Röportajlar bitse bile toplumsal sorunlarımız, sevinçlerimiz, üzüntülerimiz bitmiyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Biz de bu sorunlar ve olaylarla ilgili gözlemlere başladığımızı Osmanlı Padişahları defilesi ile müjdelemiştik. Devam ediyoruz. Bu hafta toplumsal gururlarımız olan ‘harika çocuklar’ı sayfalarımıza yatırıyoruz. Dikkatinizi çekerim, masaya değil. O işi kapak dosyalarını hazırlayan arkadaşlarımız zaten yapıyor.
+   <br>
+    <br>
+     Harika çocukların tarihi yarım asırdan eskiye dayanıyor. Yanlış anlamayın ondan önce de güzide ülkemizin yetiştirdiği harika çocuklar varmış, ama yasal olarak bu çocukların tanındığı tarih, 1948. Bu tarihte çıkarılan Harika Çocuklar Yasası ile memleketin yetenekli çocuklarının yurt dışına eğitime gönderilmesi kararlaştırılmış. Ancak bu tarihte çıkarılan kanundan öyle her yetenekli çocuk faydalanamıyordu. Sadece çok sesli müziğe yetenekli olan çocuklar için çıkarılmış bir kanundu. Kanunun çıkarılmasının ilginç öyküsünü gazeteci Şefik Kahramankaptan, yasanın çıkışının 50. yılı dolayısıyla hazırladığı ‘İsmet İnönü ve Harika Çocuklar’ kitabında anlatıyor.
+     <br>
+      <br>
+       Kamuoyunda ‘İdil—Suna’ kanunu olarak da bilinen yasanın en büyük destekçisi zamanın reisicumhuru İsmet İnönü olur. İnönü, dört yaşındaki küçük İdil’i (İdil Biret) konservatuvarda cumartesi günleri düzenlenen konserlerin birinde görür ve İdil’in verdiği küçük piyano resitalini çok beğenir. Eğitimini yurt dışında tamamlayan piyanist Mithat Fenmen’in konserinde bir parça çalan İdil Biret’i İnönü’ye tanıştıran Fenmen, tarihte böyle vakalara rastlandığını, İdil’in Mozart’ın kulağı gibi özel bir kulağa sahip olduğunu, küçük besteler de yaptığını, ama virtüöz olarak yetişmesi için Paris’e gönderilmesinin uygun olacağını söyler. İdil’den dört yaş büyük olan Suna’nın da (Suna Kan) yolları benzer bir şekilde İnönü ile kesişir. Küçük yaşta keman çalan Suna’yı dinleyen İnönü, bu iki çocuğun yurt dışına eğitime gönderilmesi için gerekli girişimlerin yapılmasını ister.
+       <br/>
+       <br/>
+       Yıl 1948 ve çok partili sisteme geçileli bir kaç yıl olmuş. Ancak mecliste hâlâ Halk Partisi çoğunluğa sahiptir. Dolayısıyla doğal lider İnönü’nün isteği milletvekillerince emir kabul edilir ve Demokrat Partili milletvekillerinin çekincelerine rağmen yasa çıkar. Milli Eğitim Bakanlığının yetkisine verilen bu tasarıyla İdil ve Suna yurt dışına gönderilecek ve 16 yaşına kadar eğitimleri için gerekli bütün masraflar devlet tarafından karşılanacaktır. Yine her iki çocuğun anne ya da babaları da, masrafları devlet tarafından karşılanmak üzere çocuklarına refakat edecektir.
+       <br/>
+       <br/>
+       Bir müjde vereyim; biz de devletin yavaş çalışması, partilerin muhalefette farklı, iktidarda farklı davranmaları yeni bir olay değilmiş. ‘İdil—Suna’ kanununda bunu görebiliyoruz. 1948 yılında Demokrat Partili milletvekilleri, bu çocuklar için verilecek paranın ihtiyacı olanlara dağıtılmasını savunmuş, çocukların büyüdükleri zaman Türkiye’ye dönmeyebileceklerini, oralarda evlenerek, harcanan paraların karşılığının alınamayacağını söyleyerek yasaya karşı çıkmışlar. Ne ilginçtir ki İdil ve Suna ancak kanun çıktıktan 2.5 yıl sonra Demokrat Parti’nin iktidarda olduğu dönemde yurt dışına gidebilmiş. Hatta Demokrat Parti bu işi o kadar benimsemiş ki, 1956 yılında yasayı genişleterek sadece müzik alanında değil, güzel sanatların bütün dallarında istidat gösteren çocukların yurt dışına gönderilmesine dair yeni bir kanun çıkarmış. Milli Eğitim Bakanlığı bünyesinde kurulan bir komisyonun Güzel Sanatlar Müdürlüğüne dilekçe ile başvuran çocukları sınava tabi tuttuktan sonra yurt dışına gönderilip gönderilmeyeceğine karar veren bir yasayı kabul etmiş. Ta ki 1968’e kadar. Bu tarihte bakanlık komisyonu kurmadığı için yasa kendiliğinden işlemez hale gelmiş. Kanun işlemese bile İsmet İnönü’ye İdil’i tavsiye eden ve yasanın çıkması için İnönü’ye fikir veren piyanist Mithat Fenmen’in ısrarı ile yetenekli çocuklar konservatuvarda hızlandırılmış yoğun eğitime alınmış ve Bakanlar Kurulu’ndan karar çıkartılarak çeşitli burslarla yetenekli çocukların yurt dışına gönderilmesi sağlanmış.
+       <br/>
+       <br/>
+       İşte bugünün ünlü piyanisti İdil Biret, kemancısı Suna Kan, bestecisi Tuluyhan Uğurlu, ressamı Bedri Baykam devletin sunduğu imkanlarla yetişmişler. Bir de kamuoyunda çok fazla tanınmayanlar var. Çağıl Yücelen, Oya Ünler, Hüseyin Sermet, İsmail Aşan, Fuat Kent, Muhittin Dürrüoğlu Demiriz, Yeşim Alkaya, Verda Erman, Ateş Pars, Selman Ada, Fazıl Say, Gülsin Onay... gibi isimler de Harika Çocuklar Yasası’ndan faydalanarak yurt dışında eğitimlerini tamamlamış. Şefik Kahramankaptan başka kimlerin yurt dışına gönderildiğini öğrenmek için yaptığı bütün müracaatların boş kaldığını belirtiyor. Normaldir, devlet sırrı ne de olsa.
+       <br/>
+       <br/>
+       Ancak öğrenebildiklerimizle bu yasanın işlevini ne kadar yerine getirdiği üzerine yorum yapmak çok da zor değil. İşte size bu yasanın çıkmasına neden olan Suna Kan’dan Aksiyon’da yayınlanan ve tarihe geçecek bir söz; ‘Müzisyen olan babam bize alaturka dinlemeyi yasakladığı için, ben maalesef Dede Efendi’yi tanımıyorum. Ulusal müzik için bir değer taşıyabilir belki, ama evrensel müzikte yeri olamaz.’ Kendi adıma bu sözden alınmayabilirim ama başta beni yetiştiren ailem olmak üzere, bu devlete o dönemde vergi veren milyonlarca insanın söylecek sözleri olsa gerek. Çünkü Suna Kan onların vergileriyle yurt dışında eğitim görmüş ve yeteneğiyle büyük bir kemancı olmayı başarmıştı. Babam olsaydı bana ‘Oğlum ben sana gazeteci olamazsın dememiş, adam olamazsın demiştim’ derdi. Büyük bestekârımız rahmetli Cinuçen Tanrıkorur, Suna Kan’a Aksiyon’daki bir yazısında bakın nasıl cevap vermişti; “Harika çocuk olarak ömrü yurtdışında geçmiş olan Suna hanım, Beethoven’in ne zaman yaşadığını bilmese de, 9. Senfoni’yi biliyordu. Ama bu “evrensel” eserin içinde ilk defa olarak insan sesi kullanma ilhamını üstadın Mehter müziğimizden aldığını herhalde bilmiyordur. Ta 16. yüzyıldan beri Batının o evrensel bestecilerini Mehterin etkilediğini, davulun, timpaninin, zilin, üçgenin senfoni orkestrasına bizden gittiğini, koca koca Mozart’ların, Haydn’ların, Gluck’ların, Gretry’lerin, Rossini’lerin askeri müzik besteciliğini, bizim ‘belki ulusal bir değer taşıyabilecek olan’ Mehterimizden öğrendiklerini, Suna hanımcık nereden bilsin?”
+       <br/>
+       <br/>
+       Galiba can alıcı soru bu noktada gelmeli. Yurt dışına gönderilen bu değerli çocuklar, Türkiye’yi ve Türk toplumunun değerlerini ne kadar biliyor? Yukarıda saydığım isimleri gözönüne getirirseniz bunun cevabını bulabilirsiniz. Cevabı bizden bekleyenler için harika çocuklardan olan Tuluyhan Uğurlu’ya müracaat ettik. Ve neden yurt dışına gönderdiğimiz değerler Türk toplumunun gelenek ve göreneklerinden (en kibar ifade ile) habersizler diye sorduk; “Aile çok önemli tabii ki. Gelin, beraber benim oturduğum Beylerbeyi’nde sokağa çıkalım. Yüzü Batıya dönük bir sürü insan görürüz. Çok sesli müziğe aşina olan çocukların, ailelerinin genelde yüzü Batıya dönüktür. Küçüklüğünde Batı tarzı yaşama alışmışlar, eğitim için de yurt dışına çıktıkları için oranın değerleriyle büyümüşler. Oranın değerlerini gördükleri için de farklı bir şey beklememek gerek.”
+       <br/>
+       <br/>
+       “İyi de Tuluyhan Bey, siz de orada eğitim gördünüz. Hiç bir yerde Itrî’yi, Dede Efendi’yi tanımadığınızı söylemediniz, üstelik de Anodolu ve Ortadoğu müziğini yaptığınız bestelerde fazlasıyla kullandınız” dedik. Gerçek bir sanatçı gibi cevap verdi; “Ben onlardan farklıyım, onlar benden. Benim ailem, Türk kültürünü, gelenekleri ve bize ait değerleri bana verdi. Onlar sadece icra yapıyorlar. Bense beste yapıyorum. Besteci olarak, Dede Efendi’yi, Itrî’yi bilmek zorundayım ki, bize ait evrensel müzik yapabilmeliyim. Yorumcu olanlar ise bilmek zorunda değiller.” Röportajlardan kalan alışkanlık olsa gerek ısrar ediyorum. Peki sanatçı olarak bilmek zorunda değiller mi? “Bilmek zorunda değiller diyelim, öyle olsun”. Ardından ekliyor Uğurlu; “Bizim yapmamız gereken Beethoven’i, Mozart’ı çok iyi çalmak ama bu yeterli değil. Batılı müzisyenlerin, işte bunu bir Türk bestecisi yapmış diyebileceği eserler ortaya koymamız gerekiyor. Bugün Michael Jackson gibi olmalıyız. Adam kendi müziğini milyonlara dinletiyor.”
+       <br/>
+       <br/>
+       Yorumcu olarak bilmeyen Suna Kan’ın, gerçekten de bilmediği için Türk musikisini evrensel kabul etmediğini düşünüyorsanız yanılırsınız. Kan’a göre Cumhurbaşkanlığı Senfoni Orkestrasında Itrî çalmak Türkiye’yi geriye götürmekle eşanlamlı çünkü. 12 Mart Muhtırasının akabinde kurulan teknokratlar hükümetinde Kültür Bakanı olan Talat Halman, Cumhurbaşkanlığı Senfoni Salonu’nda Itrî ve Dede Efendi’nin bestelerinden oluşan bir musiki konseri verilmesini ister. Yüzü tamamen Batıya dönük isimlerin karşı çıktığı bu projenin bayraktarlığını ise harika çocuk Suna Kan ve eşi Faruk Güvenç yapar. Halman’a ‘açık mektup’ yazan Kan bununla yetinmeyip, Pembe Köşk’e giderek İsmet İnönü’ye Halman’ı şikayet eder. İktidarda olmayan İnönü’nün, ‘Olacak şey değil, ayıp, ayıp’ sözleri konserin CSO’da değil de Büyük Tiyatro’da yapılması için yeterli olur. Ve aynı gece CSO’da Suna Kan konser verir. Peki aydın ve Batılı Kan CSO’da Itrî’nin eserlerinin çalınmasını neden istemiyor. Onun da cevabı Kan’ın Halman’a yazdığı “açık mektup”ta var; “Bizim 1923’lerden beri Osmanlılıkla ilgimiz kalmamıştır... Tek sesin eğitileceği bir devlet konservatuvarı açmak, Devlet Konser Salonu’nda sazlı sözlü bir Itrî gecesi, Galata Mevlevihanesi’nde haftada iki defa Mevlevi âyini düzenlemek, hem Atatürk devrimlerini zedeler, hem de Kemalist Türkiye için kötü bir propagandadır”.
+       <br/>
+       <br/>
+       Türkçesi, çağdaşlaşmak için çok yakın tarihimizin reisicumhurunun dediği gibi, 9. Senfoniyi dinlemek ve beğenmek şart. Ancak bu görüşte olmayan harika çocuklar da var tabii. İşte Tuluyhan Uğurlu’ya göre çağdaşlaşma ölçüsü; ‘Çağdaşlık 9. Senfoni dinlemek değil, aynı kalitede beste yapıp başka ülkelere de dinletmektir. Var mı bir Bach’ımız, Beethoven’imiz. Yoksa nasıl çağdaş oluyoruz?’ Onun sorusunu biz de bir soruyla tamamlayalım: Uğurlu’nun dediği olsun ve bizim de bir Mozart’ımız, Beethoven’imiz olsun diye yurt dışına gönderdiğimiz harika çocuklar, bunu başardı mı? Yemin ederim onları kıskandığım için değil, sadece merak ettiğim için soruyorum.
+       <br/>
+       <br/>
+       E—mail:osmaniridag@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13772), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302181126/http://www.aksiyon.com.tr:80/detay.php?id=13772)

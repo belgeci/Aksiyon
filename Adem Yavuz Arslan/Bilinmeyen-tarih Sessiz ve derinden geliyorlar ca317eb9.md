@@ -1,0 +1,59 @@
+# Sessiz ve derinden geliyorlar
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Sanayi dalgıçları ya da nam-ı diğer "deniz altı işçileri"nin gözden uzak, ilginç bir yaşamları var. Yaptıkları iş ağır, riski çok ve en önemlisi suyun onlarca metre altında çalışıyorlar. Bilinenin aksine hepsi yüksek tahsilli, lisan bilen tecrübeli isimler.
+   <br/>
+   <br>
+    Türkiye, üç tarafı denizlerle çevrili ve dünyanın en önemli su yollarından birine sahip. Dolayısıyla denize bağlı sektörler oldukça geniş bir kesimi ilgilendiriyor.
+    <br/>
+    <br/>
+    Bu sektör içinde oldukça ilginç bir meslek var: Sanayi dalgıçlığı. Türkiye"de genellikle amatörce yapılan dalgıçlığın profesyonel iş kolu olarak benimsenmiş bu türü ülkemizde yeni gelişiyor. Oldukça önemli olmasına rağmen ihmal edilen bu alan, son yıllarda yapılan girişimlerle iki yıllık meslek yüksek okulu statüsüne kavuştu. Okul önemli işlere imza atan teknikerleri yetiştiriyor. Alanında, dünyada sadece üç fakültede eğitim veren sanayi dalgıçlığının Türkiye"deki adresi ise İstanbul Üniversitesi. Üniversite"nin Avcılar"daki Teknik Bilimler Meslek Yüksekokulu Sualtı Teknolojisi Programı çerçevesinde iki yıllık bir eğitimden geçen ve 1. sınıf dalgıç unvanını alan dalgıçlar Türkiye başta olmak üzere Ortadoğu ve Uzakdoğu"da büyük projelerde çalışıyorlar.
+    <br/>
+    <br/>
+    <br>
+     "Geleceğin popüler  mesleklerinden olacak"
+     <br>
+      <br/>
+      <br/>
+      <br>
+       Türkiye"de sanayi dalgıcı yetiştiren tek okul olan Sualtı Teknolojisi bölümü öğretim üyesi Yard. Doç. Dr. Murat Egi, yaptıkları işin amelelik olarak görüldüğünü ancak önümüzdeki dönemde yıldızının çok parlayacağını söylüyor. Okullarının 25 kişi kontenjanı olmasına rağmen mezun olduktan sonra yapacakları işin ciddiyeti sebebiyle yılda ancak 6 kişinin mezun olabildiğine dikkat çeken Egi imajlarıyla ilgili sıkıntıyı şöyle dile getiriyor: "Her yeri deniz olan, stratejik olarak önemli bir kavşakta bulunan ülkemizde daha fazla sanayi dalgıcı olmalıydı ama yılların ihmali var. Son yıllarda özel sektörün de desteği ile uygun bir ortamda çok kaliteli öğrenciler yetiştirmeye başladık. Ancak öğrencilerimizin kaynak yapması, enkaz kaldırması, gemi diplerinde temizlik yapması sanki yaptığımız işi bir amele işi gibi gösteriyor." Dalgıçlığın, özellikle de sanayi dalgıçlığının hataları affetmeyen bir iş olduğunu söyleyen Egi"ye göre işin riski Kilyos"ta denize girmekten çok daha fazla değil; "İş riskli de okulda çok iyi bir eğitim veriyoruz. İstatistiklere göre, son üç yılda sanayi dalışlarında ölenlerin sayısı Kilyos"ta bir hafta sonunda ölenlerin sayısından daha az. Tedbirli ve dikkatli olursanız risk ortadan kalkar" diyor. İstanbul Üniversitesi"nden mezun olan dalgıçlar Türkiye"nin bir çok hayati projesinde görev aldıkları gibi Katar, Pakistan, Suudi Arabistan gibi ülkelerde de büyük projelerde çalışıyorlar. Egi"ye göre Türkiye henüz sanayi dalgıçlığının ne kadar önemli bir sektör olduğunu fark edemedi. Bu alanda gelişmiş ülkelerin denizaltı altyapı hizmetlerinden çok büyük paralar kazandığını söyleyen Egi, Türkiye"de bir kaç yıl sonra sanayi dalgıçlığının çok popüler olacağını belirtiyor.
+       <br/>
+       <br/>
+       <br>
+        E-maille gelen iş
+        <br/>
+        <br/>
+        <br>
+         Türkiye"de değişik şekillerde dalgıç olmuş ve birinci sınıf dalgıç brovesi taşıyan 40 bin dalgıç mevcut. Ancak bu rakamın büyük bir kısmı turizm sektöründe çalışıyor ya da spor amaçlı dalıyor. Profesyonel anlamda denizaltı çalışmalarına katılıp, altyapı projelerinde çalışanların sayısı ise 50"yi geçmiyor. Bölüm başkanı Dr. Murat Egi"nin pozitif görüşlerine rağmen okuldan mezun olmuş bir çok dalgıç sanayi dalgıçlığı yapmak yerine turizm sektöründe dalıyor ya da dalış okulları açarak dalma eğitimi veriyor. 1996"dan bu yana sanayi dalgıçlığı yapan ve boru hattı döşenmesi, gemi dibi temizlenmesi türü işlerde çalıştıktan sonra Big Blue Dalış Okulu"nu açarak turizm sektörüne kayan dalgıç Engin Kondul da iş şartlarının ağır olması ve ne zaman işin çıkacağının belli olmaması nedeniyle kendine ekonomik güvence bulmak için turizm sektörüne kaydığını söylüyor. Sanayi dalgıçlığının önemli bir sektör olduğunu anlatan Engin Kondul "Denize olan merak bir çok insanın dalgıç olmasına neden oluyor. Ancak sanayi dalgıçlığı riskli ve oldukça ağır bir iş. Suyun onlarca metre altında boru hatlarında kaynak yapıyorsunuz, enkaz kaldırıyorsunuz, batık arıyorsunuz ya da denizin dibinde gemilerin altını kaplayan midyeleri temizliyorsunuz. Yapacağınız bir hata hayatınızı kaybetmenize neden olabileceği gibi aylarca iş alamadığınız da oluyor. Uzun süre bu işi yaptığınız zaman bir süre sonra meslek hastalıkları da başlıyor. Kemik ölümü gibi hastalıklar var ki bir süre sonra kesinlikle işi bırakmanız gerekiyor" diyor. Mezun olmuş ya da alaylı olan sanayi dalgıçları ajanslar aracılığı ile çalışıyorlar. Firma eğer herhangi bir iş alırsa o zaman dalgıçlarla e-mail aracılığı ile irtibata geçiyor ve birkaç ay süren iş başlamış oluyor. Kondul, bazı firmalar aylarca iş alamadığı için dalgıçların da işsiz dolaştığını, bu sebeple bir çoğunun da turizm sektörüne kaydığını anlatıyor: "Eğer iş alamazsanız nasıl geçineceksiniz? Sağlığınız bozulsa tedavi masraflarınızı bile karşılayamazsınız. Aslında kahvede iş bekleyen ameleler gibiyiz. Ama biz iyi eğitimliyiz ve onlardan farklı olarak suyun altında çalışıyoruz". Denize olan merakı ile dalgıçlığa giren daha sonra sanayi dalışlarına başlayan Metin Hızlı ise alaylı bir dalgıç. Sanayi dalgıçlığının zor ama önemli bir iş olduğunu anlatan Hızlı, deniz dibinin bir çok insanı her türlü riske rağmen bu sektöre çektiğini söylüyor. Halen İstanbul Üniversitesi Teknik Bilimler Meslek Yüksekokulu Sualtı Teknolojisi ikinci sınıf öğrencisi olan Atacan Şencan ise mesleğin zorluklarının çok olduğunu ama buna rağmen ilginin giderek arttığını söylüyor. Okulda olmasına rağmen NATO iskelesinin kurulmasında, Kocaeli ve Zonguldak"ta liman inşaatlarında çalışan Atacan Şencan iş süresince -ki bazen ayları buluyor- şantiyede kaldıklarını anlatıyor; "Birkaç ay gemide ya da platformda kaldığınız da oluyor. Tabii bunlar işin zor tarafları. Kaynak yapıyorsunuz, temizlik yapıyorsunuz ya da boru döşüyorsunuz. Ama bütün bunların suyun onlarca metre altında yapılıyor olması da işi ilginç kılıyor. Mesleğin riskleri fazla ama dikkat ederseniz denizde yüzmek kadar normal bir hadise" diyor.
+         <br/>
+         <br/>
+         <br>
+          Sanayi dalgıçları yaptıkları iş, itibariyle oldukça zor bir sektörde çalışıyorlar. Ancak denize tutkun olan, farklı bir dünyanın içinde bulunmaktan zevk alan insanların her geçen gün daha çok ilgi gösterdiği de muhakkak. Kimbilir belki de çok yakın bir zamanda üniversite sınavlarının popüler tercihlerinden birisi haline bile gelebilir.
+          <br>
+           <br>
+            <br/>
+            <br/>
+           </br>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 91 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1421), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301163832/http://www.aksiyon.com.tr:80/yazdir.php?id=1421)

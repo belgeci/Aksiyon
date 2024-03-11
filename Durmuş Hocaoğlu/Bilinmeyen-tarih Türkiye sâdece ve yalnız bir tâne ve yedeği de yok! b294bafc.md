@@ -1,0 +1,67 @@
+# Türkiye sâdece ve yalnız bir tâne ve yedeği de yok!
+
+*Durmuş Hocaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030702022820im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20030702022820im_/http://www.aksiyon.com.tr/resim/39/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Seçimlerin ve yeni hükûmetin teşkîlinin üzerinden henüz iki ayı aşkın bir müddet geçmiş bulunmakta ve binâenaleyh, henüz “yeni” hükûmet hakkında hüküm vermek için vaktin erkence olduğu düşünülebilir; ne var ki hâlâ ciddî bir doğruluk payı taşıyan bu fikre karşılık, bu müddet zarfında yaşanan çok hızlı ve yoğun sürecin, kat’iyet taşımamakla berâber, geleceğe ilişkin projeksiyonlarda bulunma ve iddialı olmamak kaydıyla, belirli hükümlere varma konularında hayli ciddî veriler sunmuş bulunduğu da kabûl edilmelidir.
+ </font>
+ <p>
+  <font class="content">
+   Buna binâen, AKP’nin ve 58. Hükûmet’in çarşambasının, ihtiyâtı elden bırakmadan, artık muayyen bir ölçüde de olsa yavaş-yavaş vuzûha kavuşmakta olduğunu söyleyebilir ve “perşembe”yi de yavaş-yavaş dile getirmeye başlayabiliriz.
+   <br/>
+   <br/>
+   İlkin; AKP kurmayları, ne yazık ki, 1999 seçimlerinin galipleri gibi, “muzafferiyetlerini kendi câzibelerine atfetmek” hatâsına düşmüş gibi görünmektedirler. Hâlbuki gerçek bu kadar basit olmasa gerek; muzafferiyetin asıl sebebi, câzibeden ziyâde, tiksinti verecek derecede kirlenmiş siyâsî ortamın yaratmış olduğu itmedir. Bunun böylece bilinmesinde fayda var; aksi hâlde, çabuk gelenin çabuk gideceği, bir önceki iktidar tecrübesinden istihraç edilmelidir.
+   <br/>
+   <br/>
+   “Akıl vermek” pek doğru birşey olmadığı gibi pek hoş karşılanacak bir şey de değildir; lâkin, böyle bir niyet taşımamakla -çünkü herkesin aklı ancak kendisine yetecek miktarda verilmiştir- ve öyle anlaşılmasını asla arzu etmemekle berâber, daha henüz seçimlerden birkaç ay öncesine gelinceye dek, Sayın Recep Tayyip Erdoğan’a “Tayyip” diye hitap edecek kadar saygısızlaşan ve tetikçilerini üstüne salan Kartel Medyası’nın, acaba niçin birden bire yüzgeri ederek tam kuvvet destek vermeye başlamış oldukları üzerinde müteemmilâne tefekkür edilmesi gerektiğini düşünmekte olduğumu da söylemeliyim.
+   <br/>
+   <br/>
+   AKP’nin galibiyeti de henüz çok tâze, hükûmeti de; ve kezâ hâlâ prestijini çok büyük ölçüde korumaya devam ediyor. Ümîdim ve beklentim zâten çok kırılganlaşmış toplumda derin inkisâr-ı hayâllere sebebiyet verilmemesidir; ancak, iki aylık vazıyete göre, büyük ve ciddî olduğu söylenebilecek hatâların yapılmaya, ilk günlerdeki aşırı iyimser atmosferin dağılmaya ve gerçeğin soğuk ve sert yüzünün ortaya çıkmaya başladığını da görmezlikten gelemeyiz. AKP’ye karşı açık sempatisi olanlarca da kısık bir sesle dillendirilmeye başlanan bu keyfiyet beni mes’ud ve bahtiyar değil bedbaht ve mey’us kılıyor. Ancak, “en büyük parti” olan “Türkiye Partisi” dışında herhangi bir partiye angaje olmayı reddeden birisi olarak, hüznüm ve üzüntüm de sevincim ve saadetim de, AKP için değil ve de olmayacaktır; bundan önce de hiçbir parti için olmadığı gibi.
+   <br/>
+   <br/>
+   Bu sebebe binâen, omuzlarına umûr-u devletin ağır yükü binmiş olan AKP, geçen yılların biriktirdiği öfke ve çaresizliğin sevki ile kendisine teveccüh etmiş bulunan kitlelerin ve bütün ülkenin beklentilerini boşa çıkarmamaya ve “iyi ve başarılı” bir hükûmet olmaya, mecbur dahi değil, mahkûmdur; çünkü bu ülkenin artık “kötü ve başarısız” bir hükûmeti daha kaldıracak gücü ve tahammülü kalmamıştır.
+   <br/>
+   <br/>
+   3 Kasım akşamı biz bir tasfiye yaşadık; çâreyi sokakta değil sandıkta gören, sokağın ve şiddetin diliyle değil sandığın ve medeniyetin diliyle konuşmayı tercih eden öfkeli ama vakur ve olgun kitlelerin eliyle gerçekleşen bir tasfiye. 4 Kasım sabahı ise “taze bir başlangıç” idi, veya öyle gibi görünüyordu. Ancak, ne var ki, kısa zamanda ümitli beklentiler kısmen ve yavaş-yavaş, en azından bâzı alanlarda belirsizliğe ve sonra da hayâl kırıklıklarına dönüşmeye başladı, veya başlamaya başladı. Mükerreren: Henüz herşeyin başındayız, paniğe hâcet yok ve dahi “iyi ve güzel” şeylerin eksik olduğu söylenemez: Meselâ, yetersiz ve eleştiriye açık hususlar ihtivâ etse de, artık bir kördüğüm olmuş bulunan YÖK mes’elesine el atılması; meselâ israfı önleyici bâzı tedbirlere gidilmesi birer örnektir; ancak asıl köklü mes’eleler başka yerlerde ve dahi “küçük” gibi görünen birçok aksi örnek de rahatsızlık yaratacak nitelikte. Meselâ: İki aydan beri Doğal Gaz’ın alım fiyatının hâlâ açıklanmamış olması; meselâ Nema ödemelerindeki belirsizlik; meselâ geçmiş hükûmetler tarafından, yaklaşık altı yıldan beri hemen-hemen tüm kalemlerdeki harcamalardan tahsîl edilen ve sâdece ve yalnız eğitim-öğretime harcanması gereken Eğitime Katkı Payı vergisinden elde edilen ve 4 milyar Dolar’ı geçmiş bulunan muazzam miktardaki meblağın amaç dışı harcanmasına mukabil, bütün ısrarlara rağmen bir hesap dahi verilmemiş olmasının şu âna kadar da devam ettirilmesi; meselâ memur maaşlarında bugüne kadar -1994 Temmuz’undaki komedi hâriç- verilen en düşük zammın tercîh edilmesi hiç de küçük, basit ve sıradan örnekler değildir.
+   <br/>
+   <br/>
+   Mutlaka üzerinde durulması gereken ciddî bir hatâ da, Avrupa Birliği konusunun, adetâ dışarıdan içeriye meşrûiyet taşıma ihtiyâcı duyarcasına aşırı derecede gerilmesi olmuştur. Nasıl bir politik felsefeye dayandı(rıl)dığı belli olmayan bu “Evropa Sefer-i Hümâyûnu”nda sergilenen tavırların ve alınan netîcelerin, bütün alâyişli propagandalara rağmen hiç de müsbet olduğu kanâatinde değilim. Planı, projesi ve en ehemmiyetlisi “felsefesi” ile gelen birikimli bir kadro karşısında bizimkilerin çok zayıf, performanslarının çok kötü ve hattâ gururumuzu kırıcı olduğunu söyleyebilirim.
+   <br/>
+   <br/>
+   AKP’nin ve 58. Hükûmet’in Kıbrıs ve Irak mes’elelerindeki politikalarını müstakil yazılarda daha etraflıca tahlîl etmekte fayda var; ancak, her ne kadar son günlerde bâzı Arap ülkelerini ve İran’ı lider konumunda örgütleyerek savaşı durdurmaya yönelik teşebbüslerinde takdir edilecek bir taraf bulunsa da hâlâ zihinlerde karmaşanın hâkim bulunduğunu ve Türkiye’yi adetâ kendisine mahkûm bir müstemleke gibi gören, 80.000-100.000 civarında muazzam bir askerî gücü ülkemize yerleştirmeyi ve bir de “şimdilik” kaydıyla “en az beş yıl” başımıza çöreklenmeyi, üstelik gözüne kestirdiği yerlerde muhtelif deniz üslerini rahatlıkla ve pervâsızca teklif edebilen Amerika’nın git-gide artan ve kabalaşan tazyikinin yaratmış olduğu şaşkınlığın bertaraf edilemediğini söyleyebiliriz.
+   <br/>
+   <br/>
+   Sâdece konu başlıkları ile dokunacağım diğer birkaç muhâlefet şerhime gelince:
+   <br/>
+   <br/>
+   Dokunulmazlıkların “bir yıl süre ile” dokunulmazlaştırılması hiç de iyi bir siyâset sayılamaz; teferruat ayrı bir bahis, ama, kabûl edilmelidir ki, bu karar, 3 Kasım’daki teveccühün arkasındaki toplumsal beklentilere taban-tabana zıttır; böyle olmamalıydı!
+   <br/>
+   <br/>
+   İhâle Kaanunu’ndaki tavır da aynı derecede rahatsızlık vericidir; niçin bâzı ihâlelerin kaanun kapsamının dışında bırakıldığı konusunda hukukî, formel açıklamalarda bulunmak mes’eleye bu taraftan bakanlar tarafından tatminkâr addedilmekte olabilir; ancak, asıl mühim olanı öteki taraftan bakanların vicdanlarınca hazmedilir olup-olmamasıdır.
+   <br/>
+   <br/>
+   Ya “Vergi Kaanunu” mes’elesine ne demeli? Sormalı değil miyiz “ne demek vergi barışı” diye? Böyle bir kavramın mevcut olmadığını söyleyen konunun uzmanlarının açıklamaları bir yana, iktisatçı olmadan da anlaşılabilmektedir ki, “vergi barışı”, aslında düpedüz vergi affından ve dahi, herkesçe mâlûm olduğu üzere, vergisini zamânında ödeyen dürüst mükellefin cezâlandırılmasından başka birşey değildir ki bunun birçok faturasından birisi de, dürüstlerin, hükûmetin vergi gelirlerini düşürmek sûretiyle alacağı intikamdır. Toplumdaki beklentileri karşılayabilmek için ciddî mânâda kaynak ihtiyacı duyan bir hükûmetin bunu anlamaması sonun başlangıcı demek olacaktır.
+   <br/>
+   <br/>
+   Bu yanlışlıklara henüz şimdilik pek öyle büyük bir aksülâmel gösterilmiş değil; demek ki hâlâ ümit devam ediyor; ama unutmayalım, bu gibi falsolar, “acaba bunlar da mı?....” suâlini bir musluktan ağır-ağır damlayan sular gibi zihinlere yerleştirmeye başlar ve dahi damlaya-damlaya göl olur.
+   <br/>
+   <br/>
+   AKP’nin, Sayın Gül’ün de dediği gibi “363 milletvekili ve 5 yılı” var; en azından teorik olarak öyle. Ama bence başarılı olmak ve 5 yılı idrâk etmek için daha birçok şeyin yanında, “Türkiye Partisi”nden başka parti tanımayan samimî muhâlif seslere de ihtiyâcı olduğunu kabûl etmeli ve hattâ “övgünün felâket olduğunu” söyleyen hikmetli sözü kaale alarak en çok da onları dinlemelidir.
+   <br/>
+   <br/>
+   Türkiye sâdece ve yalnız bir tâne; yedeği de yok!
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2331), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030702022820/http://www.aksiyon.com.tr:80/detay.php?id=2331)

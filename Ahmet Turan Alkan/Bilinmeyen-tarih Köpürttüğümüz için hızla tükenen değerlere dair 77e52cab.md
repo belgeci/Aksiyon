@@ -1,0 +1,61 @@
+# Köpürttüğümüz için hızla tükenen değerlere dair
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041217033825im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041217033825im_/http://www.aksiyon.com.tr/resim/481/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Açıkçası işin tadı kaçtı ve Atatürkçülük bahis mevzuu olduğunda kimin samimi, kimin riyâkar olduğunu tespite yarayacak kriter de kalmadı. Kendi bankasının içini boşaltıp trilyonlarca liralık banka mevduatının hesabını veremediği için haklarında işlem yapılan Uzan grubuna ait Star televizyonu, bir ay kadar önce bir kampanya başlatarak, Cumhuriyet’i korudukları ve kolladıkları sebebiyle iktidarın hışmına uğradıklarını ilan etmişler, son derece theatral birtakım gösteriler düzenleyerek açlık grevine gitmişlerdi. İşin hakiki mahiyetini biraz olsun tahmin edenler, Uzanlar’ın, kendi şirketlerinde çalışan insanları bir nevi rehine gibi kullanarak hükümet üzerinde manevi baskı yaratmak istediklerini hissettikleri için bu gösteriyi fazla ciddiye almadılar.
+ </font>
+ <p>
+  <font class="content">
+   Ama —iddia edildiği kadarıyla— trilyonlarca liralık usulsüz işlemden ötürü itham edilen bir şirketler grubunun, başı dara düştüğünde Cumhuriyet ve Atatürk gibi sembollerin arkasına sığınarak kendi meselelerini ideolojik bir düzleme çekmeye gayret etmesindeki komedi lâyıkınca değerlendirilmedi. Bu gülünç gösteride Cumhuriyet, Atatürk veya laiklik gibi kavramların, olur olmaz zamanda ve mekânda bolca suiistimal edilmesinden doğan bir laubalilik vardı. Nitekim bu tiyatroyu tertipleyenler de, koparılan “Cumhuriyet tehlikede” feryadını en azından ordunun ciddiye alarak Star televizyonuna yardıma koşacağını ve hükümete sert bir muhtıra vererek, “Bu çocuklar cumhuriyetçi, niçin bunları üzüyorsunuz bakayım” şeklinde azarlayacaklarını ümit ediyorlardı.
+   <br/>
+   <br/>
+   Ümit edilen olmadı; “bir ümit” diye sahneye konulan gösteri, Uzan grubuna ait bütün şirketlere devletin, “borcunuzu ödeyin” anlamına gelen ihtarıyla sona erdi. Bu finali, “en azından Uzan şirketlerinde yolsuzluk yapılması iddiası ile Cumhuriyet’in geleceği arasında doğrudan bir ilgi olmadığı” şeklinde anlamak da mümkün.
+   <br/>
+   <br/>
+   Polis copuna karşı İstiklal Marşı...
+   <br/>
+   <br/>
+   Bu ümitsiz eylem, bugün kamuoyuna en azından yakışıksız gibi görünüyorsa da Türkiye’de defalarca denenmiş ve büyük çoğunluğunda netice alınmış olduğunu da hesaba katmak gerekir. En basit ve naif hâliyle devlet arazisi üzerine gecekondu kurarak ileride “rantiyer” olmayı hesaplayan bazı insanlar, yıkıma gelen zabıta ekiplerini, ellerinde Türk bayrakları ve Atatürk büstleri ile karşılayarak güvenlik güçlerine, “siz basit bir zabıta işlemi yaptığınızı zannediyorsunuz ama işin ucu rejimin temel direklerine kadar gider ha!” mesajı vermeye çalışıyorlardı. 70’li yıllarda öğrencilerin yaptığı izinsiz gösteri ve yürüyüşlerde ne zaman polis kalabalığı dağıtmak için güç kullanmaya kalkışsa hep bir ağızdan İstiklâl Marşı okunması da âdettendi. Ne de olsa İstiklâl Marşı okuyan bir topluluğu polisin coplaması düşünülemezdi. Polis de bu basit gerçeği bildiği için, cop faslını marşın bitimine ertelerdi.
+   <br/>
+   <br/>
+   “Son durak; kara toprak”
+   <br/>
+   <br/>
+   Yetmişli yıllarda komünizmin Sovyet uygulaması “kesmediği” için Maocu çizgiyi tercih etmesiyle tanınan bir siyaset adamı, son birkaç yıldan beri çok hızlı Atatürkçü, Kuva—yı Millici, hatta MHP’lileri bile komplekse düşürecek kertede milliyetçi kesiliverdi. Kendisinden bu mânidar dönüşü izah edecek bir “özeleştiri” duymadık; herhalde “siyasi çizgimde bir değişiklik yok” diyerek kendisini avutup duruyordur ama deniz bitince Atatürkçülük limanında demir atması, garip olmaktan ötede Türkiye’de Atatürkçülüğün, Cumhuriyetçiliğin ve benzeri değerlerin nasıl çürütüldüğünü izah eden bir hadise.
+   <br/>
+   <br/>
+   Kim daha “hakiki” Atatürkçü?..
+   <br/>
+   <br/>
+   Aslında bu kabil samimiyetsizliği çoğaltan şey, resmi ideolojinin lüzumundan fazla gündelik tüketimini rağbetlendiren “fikri” ortamdır. Atatürkçülük, Cumhuriyet tarihi boyunca her cinsten ve meşrepten fikir erbabının gerektiğinde ardına gizlendiği bir “sütre” haline getirildi. Dindarlar Atatürk’ün eski TBMM önünde dua ederken çekilmiş resmini duvarlarına asmayı tercih ederken, komünistler Lenin’i hatırlattığı için kalpaklı fotoğrafında karar kıldılar. Modacıların favorisi, Atatürk’ün son yıllarında Florya plajında çekilen mayolu pozu oldu, enteller ise çelik çerçeveli bir portrede karar kıldılar. Böylece Atatürk, her meşrebi meşrulaştıran bir deterjan niyetiyle tüketildi; öyle ki, kavgada alta düşeceğini hisseden açıkgözler bile, son raddede Atatürk’e, Cumhuriyet’e sarılıveriyorlar.
+   <br/>
+   <br/>
+   Açıkçası işin tadı kaçtı ve Atatürkçülük bahis mevzuu olduğunda kimin samimi, kimin riyâkar olduğunu tespite yarayacak kriter de kalmadı.
+   <br/>
+   <br/>
+   Benzinlikteki Atatürk heykeli
+   <br/>
+   <br/>
+   Geçen sene yaz aylarında Ankara—Eskişehir yolunda dinlenme molası verdiğimiz bir benzinlikte gördüğüm manzara, işin tadını kaçırmakta hangi aşırılıklara vardığımızı açıkça gösteriyor. Bir sivil toplum kuruluşu (yanılmıyorsam Şoförler Derneği olmalı) tarafından kurulup işletilen bu tesiste, benzin pompalarının hemen yanıbaşında bir Atatürk heykeli vardı. Hayır büst cinsinden ufak tefek bir şey değil, (resimde de gördüğünüz gibi) orta halli bir şehrin hükümet meydanına yaraşır cesamette bir heykel. Fark ettiğimde ilk düşüncem, “galiba tesisin ruhsatında bir problem çıktı ki, böyle bir jeste ihtiyaç duyuldu” biçiminde oldu. Belki de benzinlikteki heykel son derece samimi bir niyetin eseridir ama hayli yadırgatıcı bir örnek teşkil ettiği de açık. Heykelin sanat değerinin ne kadar düşük olduğunu erbabı bilir fakat dünyanın neresinde bir benzinlikte devlet başkanının heykeli dikilse yadırganır. Biraz düşündükten sonra, “galiba gariplik bende” diye geçti içimden; her gün o işlek karayolundan geçen binlerce araç içindeki yüzbinlerce insan benzinlikteki heykeli tabii karşıladığına göre benim bakış açımda bir yanlışlık olmalıydı.
+   <br/>
+   <br/>
+   Hâlâ kararsızım; belki de benzinliğin sahipleri benim aklıma gelmeyen bir ince fikirlilik göstererek, çağdaş Atatürkçü anlayışa yeni bir yorum getirmişlerdir, bilemiyorum; en iyisi az önce sarfettiğim bir cümleyi tekrarlayarak sözü tamamlamak:
+   <br/>
+   <br/>
+   “Açıkçası işin tadı kaçtı ve Atatürkçülük bahis mevzuu olduğunda kimin samimi, kimin riyâkar olduğunu tespite yarayacak kriter de kalmadı.”
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11195), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041217033825/http://www.aksiyon.com.tr:80/detay.php?id=11195)

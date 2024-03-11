@@ -1,0 +1,76 @@
+# Gözleri kalplerinde...
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302230209im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302230209im_/http://www.aksiyon.com.tr/resim/294/8.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kur’an okumanın yasaklandığı dönemlerde köşe başlarına gözcüler dikilerek, en gözden ırak yerlerde Kur’an öğrenmeye çalıştığını anlatan büyüklerimizin heyecanlı fakat buruk hikayelerini dinlemiştir çoğumuz.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hiç bir engelin Allah’ı ve kitabını öğrenmeyi önleyemeyeceğini isbat eden bu tarihi olaylar Allah aşkının, Kur’an sevgisinin ve yenilmez azmin hikayesidir aslında. Yaşanabilecek en kötü durumlara bile göğüs gererek ilmini tamamlamaya çalışan o insanlar bizim atalarımızdı ve onların bu kararlı tutumu sayesinde dinimizi yaşama hakkına bugün hâlâ sahibiz.
+   <br>
+    <br>
+     Ancak bu, ilimde engel tanımazlık genlerimize işlemiş bir duygu olsa gerek. Çünkü bugün hiçbir dış engelle karşılaşmasa da fiziki engellerine rağmen Kur’an’ı öğrenmeye çalışan genç bir neslin varlığını haber alıyoruz. Onlar okumanın en önde gelen gerekliliğine, görme yetisine, sahip değiller; ama yine de Kur’an’ı öğrenmeyi başarıyorlar. Bu öğrenimin verdiği haz bir pırıltı şeklinde yüzlerine yansıyor şimdi. Kendilerine ayrılmış bir aylık sürenin her dakikasını değerlendirme gayretini sezmekse hiç zor değil. Şevkle, birbirleriyle yarışırcasına öğrenmek istiyorlar Kur’an’ı. Göremeyişin hiçbir şeye engel olmadığını görmeyen gözlere sokar gibi.
+     <br>
+      <br>
+       Bir haftada öğreniyorlar
+       <br/>
+       <br/>
+       Beyaz Ay Derneğinin Üsküdar Müftülüğü ile yaptığı işbirliği ve müftülüğün yönergesiyle Çamlıca Kur’an Kursunda bir ay misafir ediliyor bu gençler. Barınma ve iaşe ihtiyaçları Çamlıca Vakfı tarafından karşılanan gençlerin yaşları 15 ile 25 arasında değişiyor. Aralarında üniversite öğrencisi olanlar olduğu gibi çeşitli okullarda öğretmenlik yapanlar da var.
+       <br/>
+       <br/>
+       Eğitmenleri Adil Altınkaya 1980 Hacettepe İngiliz Dili ve Edebiyatı mezunu. Öğrencileri gibi görme engelli olan Altınkaya 4 yıldır Kur’an eğitimi veriyor. Adil Altınkaya’dan görme engellilerin Kur’an eğitiminin farklı bir sistem gerektirip gerektirmediğini soruyoruz. Sistem bir kaç fark dışında Altı Nokta’nın değişik versiyonlarından oluşan alfabeleriyle aynı. 6—7’yi geçmeyen bu farklı harflerin yanısıra harekeler de harfleri müteakip kullanılıyor. Bu yüzden yazılımda Kur’an’ın orjinalindeki gibi sağdan sola doğru değil; soldan sağa doğru.
+       <br/>
+       <br/>
+       Âmâlara verilen Kur’an eğitiminin önemine atfen Türkiye’nin bu konudaki gecikmişliğine dikkat çeken Adil Altınkaya Türkiye’de âmâlara yönelik Kur’an eğitiminin on yıllık bir geçmişi olmasına karşın diğer İslam ülkelerinde bunun en az 60—70 yıllık bir tarihe dayandığını söylüyor.
+       <br/>
+       <br/>
+       Kur’an’da âmâlardan bahsediliyor
+       <br/>
+       <br/>
+       Altınkaya Abese suresine atfen Kur’an’da âmâlardan bahsedildiğini söylerken bu surenin iniş sürecini şöyle anlatıyor: “İslam’ı çevresindekilere anlattığı sırada yanına bir âmânın gelmesi sonucu Efendimizin gerekli ilgi ve yakınlığı göstermemesine uyarı niteliğinde inen ayette ‘sana gelen kim olursa olsun dinini ona anlat deniyor.’ Yani gerek âmâlar gerekse diğer fiziksel engelliler dinin vecibelerini yerine getirmekle mükellef olduklarından haberdar edilmelidir.” Adil Altınkaya dininden haberdar olmayan, dinin getirdiği yükümlülükleri bilmeyen hatta ehl—i isyan olan yüzlerce âmâ olduğunu ve bunların büyük bir kısmının üniversite mezunu olduğunu söylerken konunun yetkililerince inanç noktasındaki bu eksikliğin doldurulması gerektiği görüşünde.
+       <br/>
+       <br/>
+       Ayrıca Altınkaya’ya göre cemaat, tarikat ya da benzeri topluluklarda aşırı bir taassup ve içe kapanmışlık var ve Türkiye’de yüz bin âmâ olduğu halde onlara dinin anlatılması konusunda tüm bu gruplar yetersiz.
+       <br/>
+       <br/>
+       Kur’an eğitiminde sınır ötesi hizmet
+       <br/>
+       <br/>
+       Türkiye’deki Kur’an eğitimi ihtiyacını şartları elverdiğince cevaplamaya çalışan Beyaz Ay’ın ileriye dönük projeleri de var. Adil Altınkaya bu projeleri şöyle açıklıyor: “Türkî cumhuriyetlerde, Bosna’da ve Almanya’da İslam inancına sahip milyonlarca insan var. Bunlar arasında da çok sayıda âmâ insan var. Yasal prosedürü tamamlayınca oralara da bu hizmeti götürmek istiyoruz.”
+       <br/>
+       <br/>
+       Son iki yıldır Çamlıca Kursu’nda âmâlara verilen bu eğitim daha önce Antalya ve İstanbul’un çeşitli bölgelerinde de verilmiş. Her yıl Türkiye’nin çeşitli illerinden gelen çok sayıda talebe olmakla beraber bu yıl Konya , Sivas, İzmir, Antalya ve Malatya gibi İstanbul’a uzak illerden de gelenler var. Ancak Beyaz Ay Derneği’ni diğer özürlüler kuruluşlarından ayıran Altınkaya bunu federasyon ve konfederasyon türü tuzaklara düşmemek için özellikle belirttiklerini söylüyor. Altınkaya’nın Beyaz Ay’a getirdiği tanım ise “ilim ihtiyacı duyan herkese resmi kurumlarla işbirliği sağlayarak yardım eden bir kurum” şeklinde.
+       <br/>
+       <br/>
+       Beyaz Ay bilgisayardan âmâların alfabesiyle çıktı veren bir printer yardımıyla alfabe ve Kur’an’ın ciltlere ayrılmış halini talebelerin kullanımına sürerek öğretimi sürdürüyor. Ancak önceki yıllara oranla özellikle kız öğrencilerin sayısında önemli bir düşüş gözlemlenmiş. Altınkaya bunun tanıtımla ilgili problemlerden kaynaklandığını söylüyor. Eskiden âmâların bir numaralı mesleği olan hafızlık da artık eskisi gibi talep görmüyormuş. Hafızlığa yönelen talebelerdeki azlığın sebebini ise farklı alanlara yönelme şeklinde açıklıyor Altınkaya.
+       <br/>
+       <br/>
+       Bu bir fırsat
+       <br/>
+       <br/>
+       Kız öğrencilerin Kur’an eğitimiyle ise beş yıl önce yine Beyaz Ay’ın düzenlediği kurslarda Kur’an’ı öğrenen Nilgün Toker ilgileniyor. O da öğrencileri gibi uzaklardan, ta Alanya’dan kalkıp gelmiş. İmam hatip lisesinde tarih öğretmeni olarak görev yapan Toker İstanbul’da ihtiyaç duyulduğunu öğrenince kalkıp gelmiş. Aşağı yukarı iki haftadır verilen Kur’an eğitimi semerelerini vermiş. Öğrenciler Kur’an’ı gayet düzgün okumaya başlamışlar bile. Dördü Sabancı Engelliler Okulu öğrencisi olan Kur’an talebeleri yakaladıkları bu fırsatı değerlendirme gayretinde. Ancak içlerinden sadece biri hafızlığı gözüne kestirebilmiş.
+       <br/>
+       <br/>
+       Onlar sadece Kur’an eğitimiyle sınırlı kalmayan ayrıntılı bir din eğitimine talipler. Ancak zamanları ve imkanları çok sınırlı. Sadece yaz aylarında elde edebildikleri bu bir aylık süreden olabildiğince verim almaya çalışıyorlar. Keşke daha uzun vadede sahip olsalar tüm bilgilere. Birileri onların bu ihtiyacına göz yumsa da onlar dünyanın öteki ucuna giderek Kur’an öğrenecek kadar kararlılar. Bu yolla öğrenmenin yaşı olmadığını gösterdikleri gibi fiziksel engellere boyun eğmeyecek güçte olduklarını da isbat etmiş oluyorlar üstelik. Onları kim tutabilir?..
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14179), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302230209/http://www.aksiyon.com.tr:80/detay.php?id=14179)

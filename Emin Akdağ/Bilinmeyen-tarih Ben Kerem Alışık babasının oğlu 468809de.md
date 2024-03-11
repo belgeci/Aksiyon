@@ -1,0 +1,183 @@
+# Ben Kerem Alışık babasının oğlu
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20031103215005im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20031103215005im_/http://www.aksiyon.com.tr/resim/45/28.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Babam bütün sevgisine rağmen beni kendini frenleyerek, uyurken sevdi. Şımartmamaya çalıştı. Herşeyi vererek değil, her şeyin ne kadar zor alındığını göstererek yetiştirdi. Onu şükran ve minnetle anıyorum, iyi ki böyle yapmış.” Türkiye’nin gelmiş geçmiş en önemli tiyatro ve sinema oyuncularından Sadri Alışık’ın oğluydu, bundan da tarifi imkansız bir şeref duyuyordu ama 7 yaşından beri hep Kerem Alışık olmanın mücadelesini verdi.
+ </font>
+ <p>
+  <font class="content">
+   Oyunculukta kendini kabul ettirdiğinde, yani 5 yıl önce, artık Kerem Alışık’tı. Hayattaki en büyük üzüntüsü, adam gibi adam diye nitelediği babasının, onun oyunculuğa başladığını görememesi. En büyük hedefi ise oğlu Sadri’nin, dedesinin ismini yeniden afişlere yazdırması. Şu sıralar Türk toplumunun değer yargılarını öne çıkaran bir dizi projesi üzerine çalışmalarını sürdürüyor. Her an kendisini takip eden magazin basınından uzak kalabilmeyi başaran Kerem Alışık, babasından evliliğine kadar bir çok konudaki sorularımızı içtenlikle cevapladı.
+   <br/>
+   - Hayata merhaba dediğiniz yıllardan başlayalım mı?
+   <br/>
+   <br/>
+   Nişantaşı’nda doğdum.  Yatılı okullarda okudum. Tepelerde uçurtma, karakollarda sabah... Erik çalmalar arkadaşlarla, öyle geçti çocukluğumuz.
+   <br/>
+   <br/>
+   - Afacan bir çocuktunuz herhalde.
+   <br/>
+   <br/>
+   Haylaz ve yaramaz bir çocukluk dönemi. Ondan sonra ortaokul ve lise dönemini yatılı olarak Işık Lisesi’nde okudum.
+   <br/>
+   <br/>
+   - Neden yatılı okul?
+   <br/>
+   <br/>
+   Beni niye yatılı verdiler sorgulamasını inanır mısınız hâlâ sürdürüyorum.
+   <br/>
+   <br/>
+   Ailenin tek evladıyım. Birincisi, çok yaramazmışım. İkincisi, anne ve babam, işlerimiz gereği pek fazla meşgul olamayız diye düşünmüşler. Artı, babam ortaokulu yatılı okutup tam büyüme çağında disipline girmemi istemiş. Bu beni son derece etkileyen bir hadiseydi. Şiir yazmam o zamanlara denk gelir. İçe dönüklüğümde, utangaçlığımda yatılı okulun da etkisi var diyebiliriz.
+   <br/>
+   <br/>
+   - Sadri Alışık ile Çolpan İlhan, birbirleriyle ilk evliliklerini mi yapmışlardı?
+   <br/>
+   <br/>
+   Hayır, babamın ikinci evliliğiydi. Ancak annemle 40 yıl evliliği beraber götürmüşler.
+   <br/>
+   <br/>
+   - Bir şiirinizde adam gibi adam diye nitelediğiniz Sadri Alışık ile çokbezeştiğinizi düşünüyor musunuz?
+   <br/>
+   <br/>
+   Babam beni hayata bakış açısı, felsefesi ve görüşüne göre yetiştiren, değiştiren bir insandı. Adam gibi adam olmak doğruluk, dürüstlük, samimiyet, vicdan sahibi olmak, hak yememek ve değer yargılarına önem vermekten, saygıdan, sevgiden, vatana-millete, topluma hizmet eden, üreten bir insan olarak yaşamaktan geçer. Bunun içine doğdum. Şu anda da öyle yetiştiriyorum oğlumu. Babamın bütün bakış açısına sahip olmaktan mutluyum. Hani derler ya aslı kurttur, yavrusu yine kurt olur. Fakat bir noktada babamdan ayrılıyorum. Babam bütün sevgisine rağmen beni kendini frenleyerek, uyurken sevdi. Beni şımartmamaya çalıştı. Herşeyi vererek değil, her şeyin ne kadar zor alındığını göstererek yetiştirdi. Annem elma mı, armut mu, muz mu diye sorduğunda, “O ne biçim soru, önüne koy ne bulursa onu yiyecek” derdi. Onu şükran ve minnetle anıyorum, iyi ki böyle yapmış. Ben oğluma öyle yapmıyorum. Ona karşı biraz daha yufka yürekliyim. Gene aynı değerleri, mesafeleri koruyorum ama babama nazaran daha geniş davranıyorum, onu kucaklayıp öpebiliyorum.
+   <br/>
+   <br/>
+   - Dengeyi koruyabiliyor musunuz?
+   <br/>
+   <br/>
+   O çok mühim bir denge. Bıçak sırtı. Çocuklarla arkadaş olunuyor ama gerekirse baba tokadıdın ensesinde olduğunu hissettirmeyi bilmek lazım. Oğlum 13 yaşında. Bunu hissediyor.
+   <br/>
+   <br/>
+   - Kiminde yaşıyor?
+   <br/>
+   <br/>
+   Daha çok bende kalıyor. Ama annesiyle aramızda öyle bir problem yok. O gün kimde kalmak isterse ona gidiyor, geliyor. Biz o işi çok güzel hallettik.
+   <br/>
+   <br/>
+   - Eski eşinizle iyi bir arkadaşsınız o zaman...
+   <br/>
+   <br/>
+   Çok güzel, boyut değiştirmiş bir dostluğumuz var. İlişkinin gidişatından memnunum. Sibel, çok sevdiğim, saygı duyduğum bir insan. Başımızın tacı, sinemizde yad-ı cemildir.
+   <br/>
+   <br/>
+   - Tekrar evlenmek sözkonusu mu?
+   <br/>
+   <br/>
+   Aşağı yukarı 10 sene oldu. O boyutu değiştirdik. Şu andaki durum o kadar güzel ki buna toz konsun istemiyoruz. Evlenirsin, tekrardan aynı sorunları yaşayabilirsin.
+   <br/>
+   <br/>
+   - Sadri Alışık nasıl bir aileden geliyor??
+   <br/>
+   <br/>
+   Kökü Araplar’a dayanıyor. Babamın babası, Rafet dedem kaptandı. Büyükannem Saffet ev hanımıydı. Dedem, Atatürk’ün kaptanlığını da yapmış. Dedemden onunla ilgili anılarını dinlerdik. Babam, Paşabahçe’de doğdu büyüdü. Aynen ailesinde gördüğünü bana yansıttı. Mesela erkek çocuk ciklet çiğnediği zaman, ne oluyor derlermiş. Bu mantığa göre yetişmiş. Oğlumu ciklet çiğnerken hiç görmedim. Çünkü benim de mantığım o.
+   <br/>
+   <br/>
+   - Babanızın adam gibi adamlığı annenizle ilişkisine nasıl yansıyordu?
+   <br/>
+   <br/>
+   Annem İzmirli. Babamla sevgi üzerine bir ilişkileri vardı. Esası saygıya dayalıydı. Babam hep şunu derdi: “İki iskambil düşünün, birbirine yaslanmış. Birini çekerseniz, öbürü de düşer. Çolpan benim hayatımda odur.” Hakikaten annem ailemizde hem bir köprü hem dengedir. Babama saygımdan gösteremediğim sevgimi annemin vasıtasıyla göstermişimdir. Mesela annem hadi oğlum babanı bir öpsene demiştir. Utancımı frenleyecek çözümler üretmiştir. O şekilde babama sarılıp kucaklaşabilmişimdir.
+   <br/>
+   <br/>
+   - Bayramlarda nasıl olurdu baba oğul ilişkisi?
+   <br/>
+   <br/>
+   Bayram sabahları her zamankinden farklı olurdu. Çok önem verirdi, dikkat ederdi. Erkenden kalkılırdı. Arife gecelerini uyanık uykular uyuyarak geçirirdik. Yeni hediyelere sarılır öyle yatardık. Sabah onları giyeceğimizin hayalini kurardık. Herkes erken kalkar, yıkanırdı. Babamla bayram namazına giderdik. İnsanlar etrafını sarardı. Bir-iki bayram namazında kayboldum. Ondan sonra bütün aile büyüklerine sırayla gidilirdi. Bizim ve annemin tarafı kim varsa. Bayramları bayram tadında yaşardık, bayram gibi kutlardık. Tatil amaçlı bayramları hiç düşünmedik, aklıma gelmedi. Sadri ile bayram namazından sonra gittiğimiz ilk yer mezarlıktır. Ben gerçi haftanın beş günü Zincirlikuyu Mezarlığı’na uğramadan geçmem. Öbür dedesine de gideriz.
+   <br/>
+   <br/>
+   - Sizin gözünüzde babanızın, karizmatik babalığı mı, yoksa oyunculuğumu ön plandaydı?
+   <br/>
+   <br/>
+   Bir kere babalık görevini tamı tamına yerine getirirdi. Zaten, oyuncu Sadri Alışık’a hayrandım. Ayna karşısında taklidini yapardım. Ama bir taraftan da kişiliğim ağır basıyordu. Her yerde Sadri Alışık’ın oğluydum. Hayır, ben Kerem Alışık’ım dediğimde yaşım 7 idi. Sadece diyordum, beni ben olarak tanıtacak bir hadise yoktu. Bunun kavgasını, mücadelesini veriyordum.
+   <br/>
+   <br/>
+   - Mücadele bitti mi?
+   <br/>
+   <br/>
+   Allah’a şükür. Ama Sadri Alışık’ın oğlu olmanın gururunu ve şerefini her zaman yaşıyorum.
+   <br/>
+   <br/>
+   - Ne zaman bitti?
+   <br/>
+   <br/>
+   Oyunculuğa başlayıp belli bir başarı elde ettikten sonra artık ben Kerem Alışık olarak kendimi kabul ettirmiştim. Yani 5-6 yıl önce.
+   <br/>
+   <br/>
+   - Oyuncu olmak için neden 30’lu yaşlara kadar beklediniz?
+   <br/>
+   <br/>
+   Bütün hissiyatım sanattan yana olmasına rağmen, kendimi babamın alanının dışında ispat etmeye çalıştım. Futbola büyük bir yeteneğim ve hevesim vardı. Futbolcu olarak kendimi ispatlamak istedim. İlk arabamı futbolculuktan kazandığımla aldım. En büyük üzüntüm babamın sanatçı olduğumu görememesidir. Görmeyi bırakın bunu düşünememesidir. Çünkü onun sağlığında gelen sanatçılık tekliflerini utangaçlığımdan ve başka bir alanda kendimi ispatlama çabasından dolayı hep reddettim. Hür irademe bırakmış, baskı yapmamıştı. İçimdeki heves ve ateşi bilseydi desteklerdi. Oyunculuk teklifine karar vereceğim son noktada mezarına gittim. Onunla dertleşirken Allah’ım bana bir işaret ver; evet ya da hayır dendiğini bir yerden, bir şeyden anlayayım dedim. Enteresandır... Kapalı bir havaydı, yağmur yağdı. Yağmur berekettir diyerek hayra yordum ve oradan telefon ederek kabul dedim.
+   <br/>
+   <br/>
+   - Futbol oynarken büyük takımlardan teklif aldınız mı?
+   <br/>
+   <br/>
+   Santrfordum, Fenerbahçe’nin kapısından döndüm. Son anda bir pürüz çıktı. Ondan sonra da tekstil ticareti ile uğraştım. Evimi, arabamı, evliliğimi, hayatımı ticarete borçluyum.
+   <br/>
+   <br/>
+   - Sibel Hanımla tekrar evlenmeyi düşünüyor musunuz??
+   <br/>
+   <br/>
+   Evliliği sürdürebilecek şart ve fedakarlıklar varsa; arada da sevgi olursa daima bir anlaşma çaresi bulunur. Bizim örneğimizdeki gibi genç yaşta evlenmenin getirdiği tecrübesizlik veya fuzuli öfkeler, sinirle kalkıp geri dönememeler olabilir. Esas olan sevgi ve saygı. Boşanmamıza rağmen aile ruhunu öldürmedik. Saygımız kaldı. Aile hâlâ aile. Sadri biliyor ki ortada bir aile var. Baba ve anne her zaman yanında. 10 yıla rağmen magazin basınında barıştılar, evleniyorlar gibi haberler çıkıyor. Bu duygusal boyuttan arkadaşlık boyutuna, aynı sevgi ve saygıyı taşımamızdan kaynaklanıyor.
+   <br/>
+   <br/>
+   -Boşanmışken sanki evli gibi çocuğa ailesizliği hissettirmeden yaşamayı başarmak, evliyken problemleri çözmeye çalışmaktan daha zor değil mi?
+   <br/>
+   <br/>
+   Doğru da. Kadınlar hayata başka açıdan bakabiliyorlar. Erkekler yuvanın kutsallığı, çocuk, çatı, barınak, aile yapısı der; kadınlarda ise ben tek başına da yaşayabilirim mantığı ağır basıyor. Bunları kadınların törpülemesi lazım. Kimse kadına kendi ayaklarının üzerinde durma demiyor zaten. Ama durmak için de şartları zorlayıp rest çekmeye gerek yok.
+   <br/>
+   <br/>
+   - Sıkılganlık ve utangaçlığınız hayatınızı nasıl etkiliyor?
+   <br/>
+   <br/>
+   Oyunculuğumda değil de özel hayatımda utangaçlığın getirdiği zorlukları yaşıyorum. Ancak bu yozlaşan dönemde artı özellik olarak duruyor sanki. Hâlâ terleyen, yüzü kızaran, sıkılan insanlarımızın olması çok önemli. Çünkü gördüğüm bir çok şeyi kendi değerlerimizden uzak buluyorum.
+   <br/>
+   <br/>
+   - Kendi değerlerimiz sözünü biraz açar mısınız?
+   <br/>
+   <br/>
+   Özünü küçümseyen, değerlerine yabancılaşan, Batı’dan aldığını taklit edenler var. Bu beni rahatsız ediyor. Burada kendi camilerinin, müzelerinin tarihçesini bilmezken, gidip Batı’nın bilmem nesini biliyor, önce onları öğreniyor. Dur bir dakika, önce tarihini okusana, farkına varsana, kültürünü incelesene! Bu yaşayış biçimlerine, dizilerdeki senaryolara kadar geliyor.
+   <br/>
+   <br/>
+   - Bir sanatçı olarak bahsettiğiniz değerlerle ilgili projeniz var mı?
+   <br/>
+   <br/>
+   Kaliteli ve beynimizle örtüşen bir proje içine girdik. Çok sevgili senaristimizle birlikte büyük bir hedefimiz var. Hiç duyurmadık. 6 aydır üzerinde çalışıyoruz. Tamamen bizden bir hikaye. Tatlı ve hoş mesajları içeren bir dizi. Seneye de tiyatroya uyarlayacağız. Mart sonunda başlayacağız.
+   <br/>
+   <br/>
+   - Yatılı okulda başlayan ve bugünlere kadar gelen şiirleriniz...
+   <br/>
+   <br/>
+   İki kasetim, bir kitabım çıktı. Bu şiirleri yazarken ailemden bile gizledim. Utangaçlığımdan kaynaklanıyordu. Şiir benim dostum, arkadaşım, sırdaşımdı. Not defteri, günlük gibi. Bir gün insanlarla paylaşacağımı hiç düşünmedim. Yakında yeni şiir kitabı ve kaseti çıkacak. Şimdi de yazarken bunlar okunacak diye aklıma takılıyor. Doğallığı yakalamak için bunu atmaya uğraşıyorum.
+   <br/>
+   <br/>
+   - Ben şairim diyor musunuz?
+   <br/>
+   <br/>
+   Öyle bir iddiada değilim. Sözlerim şiir oldukça kalıcı olacaktır. Yazdıklarıma şiir diyorlar. Bana şair derler demezler ayrı konu. Kitabım 10 baskı yaptı. Kasetler çok iyi sattı. Bu ölçü değil tabii.
+   <br/>
+   <br/>
+   - Tuttuğunuz takım var mı?
+   <br/>
+   <br/>
+   Yedi göbek Fenerbahçeliyim. Ama fanatik değilim. Objektif bakarım.
+   <br/>
+   <br/>
+   - Evladınız hangi mesleği yapacağı konusunda size açılıyor mu?
+   <br/>
+   <br/>
+   Ben babamı, oğlum da beni idol aldı. Futbolcu olacağım diyor. Ben de aynen benim gibi sanatçı olacağını biliyorum. Bütün oyunları seyreder. Bana espriler verir. Sanatın içinde yer alacağına kesin gözüyle bakıyorum. Hayatını futbol kaplıyor. Fenerbahçeli. İnşallah afişlere bir Sadri Alışık ismi daha yazılırsa çok mutlu olurum.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2443), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20031103215005/http://www.aksiyon.com.tr:80/detay.php?id=2443)

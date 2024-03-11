@@ -1,0 +1,50 @@
+# Kim bilir Sırakuza’nın mahzun kralını?
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226213634im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226213634im_/http://www.aksiyon.com.tr/resim/346/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  O güzel ilkokul kitaplarından bir takımı kütüphaneme koymak, ara sıra sayfalarını karıştırıp çocukluğumu yeniden yaşamak, hiç hatırlayamadığım anları satır aralarında bulup yeniden keşfetmek isterdim. Nasib olduğunda bir gün Milli Kütüphane’ye sadece çocukluğumun kitaplarını yeniden bulmak için gideceğim.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Benim yaşımda olanlar hatırlayacaktır ki, ilkokul çağlarında bizim çok güzel ders kitaplarımız vardı; özellikle “Hayat Bilgisi” kitabı. Hayat Bilgisi ne demek? Galiba bizden beş on sene sonra bu güzel ders kitapları, isimleriyle birlikte ortadan kaldırıldı. Fiyakasız ve sade kitaplardı; matbaacıların “kaplık” dedikleri ucuz karton kapaklı tamamı siyah beyaz tipo baskılı kitaplar.
+   <br>
+    Hayat bilgisine gelmeden önce alfabeden bahsetmeliyim, hani, “Baba bana bal al, al oğlum bu bal” tekerlemesiyle tanınan o meşhur alfabe. Yazıları neyse ama resimleri birinci sınıftı; hele aksakallı bastonlu bir dedenin gölgesinde durduğu bir elma ağacı vardı ki onca bahçe gördüm de öyle bir elma ağacına raslayamadım. Öyle yer etmiş zihnimde. Her biri birer altın top gibi kıpkırmızı elmalar kağıt üstünde bile iştahımızı kabartırdı. Hayat Bilgisi kitabımızda bir hikâye vardı. Ne ismini, ne yazarını hatırlıyorum ama konusu üç aşağı beş yukarı hâlâ zihnimdedir. Hadise İtalya’da geçiyor olmalı; zira bir isyankâr, Siraküza Kralı’na karşı affedilmez suç işlediği için ölümle cezalandırılmış ve hapse atılmıştır. Ne var ki kızkardeşinin düğünü de pek yakındır; ölmeden önce düğünde bulunmak için kraldan izin talebinde bulunur. Kral ise bu isteği anlayışla karşılamakla beraber haklı olarak geriye döneceğine dair bir teminat ister.
+    <br>
+     Mahkumun üç arkadaşı, geri dönmediği takdirde arkadaşlarının yerine aynı cezayı çekmek kaydıyla gönüllü olarak rehin kalırlar. Mahkum düğüne gider ve dönüş için yola çıkar; ne var ki Siraküza’ya ulaşması için tek geçiş yeri olan köprüyü sel götürmüştür ve nehir deli gibi akmaktadır.
+     <br>
+      Kral ise nehrin öbür yakasında durumu seyretmektedir. Mahkum bir karar vermek zorundadır; kararını verir ve coşkun nehir sularına kendini atar ve büyük bir gayretle karşıya geçmeye muvaffak olur. Bu asil davranıştan etkilenen kral, arkadaşlarıyla birlikte mahkumu da affederek kendisini de bir dost olarak aralarına almalarını ister.
+      <br>
+       Bu hikayenin bizim nesilden kaç kişiyi “zehirlediğini” tahmin edebilir misiniz? Ahde vefa denilen şey, benim için bu hikâyede anlatıldığı gibidir; arkadaşlık ise, mahzun kralları imrendirecek kadar samimi ve ivazsız bir kavram olarak yerleşip kalmıştır. Bu sade ve gösterişsiz kitaplardaki iyi seçilmiş metinlerin genç dimağlar üzerinde ne kadar derin iz bıraktığını, belki hazırlayanlar bile bilemezler.
+       <br/>
+       Aynı kitapta Yahya Kemal Beyatlı’nın “Akıncılar” şiiri vardı ve biz, o günden beri hep “Bin atlı akınlarda çocuklar gibi şendik” heyecanını, —bazen lüzumsuzluğuna kaani olsak bile— kalbimizde taşır dururuz. “Ak tolgalı beylerbeyi haykırdı; ilerle!” mısraı bize, bu yaşlara kadar ak tolgalı bir beylerbeyi aratıp durmuştur meselâ. Ömer Seyfeddin’in “Forsa” hikâyesini de o kitaptan öğrenmiştik; yâd ellerde kalebendliğe mahkum bir yaşlı bir esirin, günün birinde deniz ufkunda, direklerine Türk sancağı çekmiş gemileri gördüğünde duyduğu sevinci anlamış ve ürpermiştik. Ve sonra Refik Halit Karay’ın o unutulmaz “Eskici” hikâyesi: Yazar, muhtemelen Suriye veya Lübnan’da çakılıp kalmış bir Türk çocuğunun vatan hasretini anlatır. Günün birinde çocuğun yaşadığı mahalleye (veya köye) bir seyyar kundura tamircisi gelir. O da, muhtemelen Lozan sonrasının Misak—ı Milli hudutları dışında bıraktığı ilk gurbetçi Türklerden bir kader mahkumudur. Evin eskilerini onarırken çocukla sohbet ederler; sohbet esnasında çocuk, bütün sâfiyeti, merakı ve masumiyeti ile eskiciye Türkiye’yi sorar; adam anlatır, çocuk dinler ve nihayet onarılacak hiçbir şey kalmaz, ayrılık vakti yaklaşır ama çocuk, çölde bir vaha serinliği bulduğu bu yaşlı eskiciden ve anlattıklarından bir türlü kopamaz. Refik Halit, bu tatlı hikâyenin sonunda tam da dönüp giderken yaşlı eskicinin göz pınarlarından kopup kırçıl sakallarına dökülen gözyaşlarını öyle bir tasvir etmiştir ki, o yakıcılığı hissetmemek için köseleden bir yürek taşımak gerekir.
+       <br/>
+       Ömer Bedrettin Uşaklı ismini, meraklısı dışında kimse bilmez ama biz daha önlüklü ilkokul talebesiyken tanır ve onun “Denize Hasret” şiirini ezbere bilirdik; “İçimde bir damla su deniz olup taşıyor” mısraında bütün deniz âşıklarının zaptolunamaz hicranı vardı ve biz onu hissediyorduk; hiç deniz görmemiş olsak bile!
+       <br/>
+       Unutmuyorum: “Dik dur dik otur” diye bir okuma parçası. Bir yorgunluk anında iskemlede her kaykılışımda o küçük metin, üstündeki resmiyle birlikte gelip karşıma dikiliverir, “dik oturmaya” çalışırım ama nâfiledir; eklemler alışık olduğu gibi durmak isterler. Sonra bir başka resim daha: Ekose örtü serilmiş küçük bir masada şakakları hafiften açılmış orta yaşlı bir adam oturmaktadır; elinde bir çay bardağıyla ressamına doğru tebessüm etmektedir. Altında ise hâlâ unutamadığım o başlık: “Küçük saadetler”. Muhtevasını hatırlayamıyorum ama siz tahmin edebilirsiniz; bir nevi mutluluk oyunu, küçük şeylerin güzelliğini farkedebilmek, onları asla ıskalamamak gerektiğine dair şirin öğütler. Peki yazarı kimdi acaba?
+       <br/>
+       Zannımca ilkokul üçüncü sınıftan başlamak üzere Hayat Bilgisi kitapları son sınıfa yani beşe kadar okutulmaktaydı ve galiba ilkokul öğrencilerinde edebi zevk ve temel insani değerler uyandırmak gayesini taşıyordu. 70’li yıllara gelindiğinde ders kitapları da değişmeye başladı ve bir eskisinin yerine konulan hiçbir kitap eskisinden daha iyi olmadı. Evvela o güzelim alfabeyi değiştirdiler. Yenisi lake kapaklı baştan sona renkli cicili bicili bir şeydi  ama bizim alfabemiz başkaydı; o güzel resimler belki de bir İhap Hulusi fırçasından çıkmıştı, belki de ismini bile bilmediğimiz meçhul bir ressamın ama o meçhul ressam, çizdikleriyle kaç neslin hayalhanesini süslediğini bilebilseydi herhalde çok bahtiyar olurdu.
+       <br/>
+       İyi kitaplardı, güzel kitaplardı; Türkiye’nin mesut olduğu, insanların geleceğe güvenle bakabildiği yıllardı. Evet, darbe sonrası yıllarıydı ama biz 27 Mayıs tarihinde mekteplerin kapatılıp çocuklara bir gün tatil verilmiş olmasından hoşnutluk duyardık. Tatil tatildi ve o tatil, bize büyük yaz tatilinden birkaç gün bahşiş edilmiş bir izin temrini gibi gelirdi. O günlerde öğretmenimizin, özellikle yurttaşlık bilgisi dersinde, “Meşruiyetini kaybetmiş bir iktidara karşı Türk milletinin direnme hakkını kullanmasıyla...” teranesiyle başlayan beylik anlatımını pek de kulak asmadan dinlerdik. Kulağımızda hâlâ, “olur mu böyle olur mu / kardeş kardeşi vurur mu” marşının nağmeleri vardı ama o şiir, bizde meselâ “Şimşek gibi bir semte atıldık yedi koldan / Şimşek gibi Türk atlarının geçtiği yoldan” beytinin çağırdığı mânâ sahihliğini uyandıramadı. Kardeşini vuracak kadar zalim olan o kötü kardeş kimdi? 60’lı yıllarda çocuk havsalamız ve idrakimiz sokakta böyle kötü birilerini “ayn’el—yakin” derecesinde görmekten uzaktı. Kardeşini vuran kardeşleri biz 70’li yıllarda gördük ama o günlerde o marş çoktan unutulmuştu bile. Eskicinin yaşlı gözpınarlarından süzülüp de kırçıl sakallarının arasına karışan gözyaşlarının yakıcılığını aynı derecede hisseden biz çocuklar, yetmişli yıllarda “sağcılık—solculuk” oyununun saflarına dağıtılmış bulduk kendimizi. Biraz millici, dindar temayüller taşıyanlar sağcı oluyordu, düzeni sevmeyenler ise solcu. İş bu kadar basitti ve bu derece ayağa düşürülmüştü.
+       <br/>
+       Sonraları onlarca ders kitabı geçti herbirimizin elinden; hiçbirinde ilkokul yıllarındaki güzel kitaplarımızın sıcaklığı, güzelliği ve sarıcılığı yoktu. Hele lise ve üniversite yıllarında, geçer geçmez yakmaya ahdettiğimiz ders kitapları oldu; onlardan pek azını kütüphanemde muhafaza edebildim ama şimdi o güzel ilkokul kitaplarından bir takımı kütüphaneme koymak, ara sıra sayfalarını karıştırıp çocukluğumu yeniden yaşamak, hiç hatırlayamadığım anları satır aralarında bulup yeniden keşfetmek isterdim. Nasib olduğunda bir gün Milli Kütüphane’ye sadece çocukluğumun kitaplarını yeniden bulmak için gideceğim.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12603), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226213634/http://www.aksiyon.com.tr:80/detay.php?id=12603)

@@ -1,0 +1,73 @@
+# Olimpik Felsefe ve...
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302180337im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302180337im_/http://www.aksiyon.com.tr/resim/306/72.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Olimpiyatların açılış ve kapanış törenlerini yarım—yamalak seyrettim; görebildiğim kadarı kâfi geldi ve bir kere daha anladım ki Olimpizm felsefesi, modernitenin inşâ ettiği yeni insan tipinin “din” lerinden biridir.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu sütunlarda yayınlanan “Büyük ateşler yakmak” başlıklı yazıyı hatırlayanınız var mıdır bilemem; “olimpiyat ateşi” kavramı tam bir mistifikasyon sembolü gibi göründü gözüme; “Mâbed”de yanan ve hiç sönmeyen büyük bir ateş! Olimpiyat kürsüsü, olimpizm dininin mihrâbı, kazananların kutsandığı, yüceltildiği  ve onurlandırıldığı bir sembol makam. Hakemlere ise galiba rahiplik vazifesi düşüyor. Olimpizm dininin seyirciler açısından anlamı, olsa olsa meşrulaştırıcılıktır. “Altus, fortius,....” yani daha yüksek, daha hızlı ve daha güçlü kavramları ise olimpizm dininin akaidini teşkil ediyor ve zımnen üstün insana, “übermensch”e göndermede bulunuyor. Olimpizm’in temel felsefesi insan vücuduna ve onun fiziki kabiliyetlerine övgü ve yüceltmedir.
+   <br>
+    <br>
+     Otuz saniye içinde kendi ağırlığının iki—üç katını havaya kaldırıp birkaç saniye tutabilen bir insanı niçin övmem ve yüceltmem gerektiğini hâlâ anlayabilmiş değilim. Otomobiller, en hızlı atletten daha fazla hız yapabiliyor; dozer, vinç ve forkliftler şampiyon haltercilerin kaldırdığından daha çoğunu kaldırabildiği gibi fevkalade işe yarıyorlar. Bir yüksek atlamacı atletin 2.5 metre yüksekliğe sıçrayabilmesi, kendi adına neyse ama insanlık nâmına mânâsızdır çünkü çok sıradan bir üç metrelik merdiven, bu alanda kırılmış bütün rekorlardan ziyade insanlığa hayrı dokunan bir başarıdır.
+     <br>
+      <br>
+       Olimpiyat felsefesinin sporla doğrudan alâkası olduğunu sanmıyorum; sporun sağlık ve oyun fonksiyonunu eleştirmek niyetinde değilim ama sporun mistifikasyona uğratılmış hâlini, bütün mistifikasyonlar gibi tehlikeli buluyorum. Bu kriter ışığında haftada bir gün arkadaşlarıyla halı sahada top koşturan, sabah yürüyüşlerini mûtad hâle getiren veya kendince kültür fizik hareketlerini yaparak dinçleşen her sıradan insan, nazarımda bir olimpiyat şampiyonundan daha değerlidir.
+       <br/>
+       <br/>
+       Olimpiyat “âyin”lerinde başarılı olanların veya “kazanmak önemli değil, önemli olan yarışmak (veya olimpizmin âmentüsüne inanmak)” bahanesiyle kendini avutan başarısız sporcuların nasıl yaşadığına herhalde dikkat etmiş olmalısınız: Neredeyse bütün günü ve bütün yılı kaplayan vahşi ve sert idmanlar, bükülmez gıda rejimleri, meditasyon seansları ile bu talihsiz insanlar kendilerini sporda başarılı olmak üzere programlamakla aslında insanın naturasına ihânet ediyorlar. Olimpizm dini açısından kazananlar aziz, kaybedenler ise kurbandır (belki de “martyr!”). Kazananlar, başka ne türlü nitelikler taşıdıklarına veya ne gibi değerlerden yoksun olduklarına aldırış edilmeksizin tebcil edilirler; dopingliler müstesnâ; onlar müşriktir ve kutsal olimpizm değerlerini sinsice inkâr etmişlerdir; onlar, “arınmaları” için cezalandırılırlar; “günah”larının “kefaret”ini çekenler, günün birinde yeniden mabede alınabilirler.
+       <br/>
+       <br/>
+       Modernite’nin, Olimpizm benzeri yeni dinlere ihtiyacı olduğu açık. İnsanlar, ne dinsiz yapabiliyor, ne de mâbedsiz, törensiz ve ateşsiz. Dikkatli gözlemciler, yeni yeni “âhir zaman” dinlerini farketmekte zorlanmayacaklardır. Meselâ borsa, meselâ pop endüstrisi, meselâ “scientism” ve diğerleri...
+       <br/>
+       <br/>
+       Ne mü’min ne münafık
+       <br/>
+       <br/>
+       Türkiye’nin Sydney Olimpiyatları’ndaki performansına gelince, doğrusu bu durum ne mü’minliğe yakışıyor, ne de münafıklığa! Biz Türkler, olimpizm de dahil her türlü felsefe ihtivâ eden tutarlılıklar dizisine tâbi kalmaktan nefret ediyoruz galiba. Her olimpiyatta olduğu gibi Sydney’de de yine “okumuş çocuk” sporlarında yani yüzmede, eskrimde, teniste, atletizmde, okçulukta, kezâ takım sporları olan basketbol, voleybol, hentbol vesairede başarılı olamadık. Bütün ümidimizi sert ve erkeksi sporlara bağlamıştık. Boks branşında takımımız kafile halinde madalyasız ve yorgun döndü, çünkü sadece boks yapmakla kalmamış hayli dayak da yemişlerdi. Halterde ithal yüzaklarımızdan Halil Mutlu, beklentilerimizi karşılarken sporda ithalat çığırını başlatan ismimiz Naim Süleymanoğlu sıfır çekerek parlak kariyerini fena bir şekilde tamamladı. Ardından milletçe yabancısı olduğumuz Judo’da bir altın kazandık fakat bu başarıyı abartmaya değer bulmadık. Bir kere sporcumuz Çeçen’di ve galiba zihnen rejimin pek de hoş gözle bakmadığı fikirlere sahipti; onu çabucak unuttuk. Ardından ata sporumuz güreşe sıra geldi. Grekocularımız takım halinde minderde sürünürken ismiyle müsemmâ bir pehlivan olan Hamza, —eski günlerini mumla aratsa bile— altını kapıp yüzümüzü ağarttı. Pilav olmazsa lâpa kavliyle “serbestçi”lerimizi beklemeye koyulduk. Güreşler başladı ve hezimetimizle neticelendi. Hezimetin gerçek sebeplerini, kafilemiz yurda kesin dönüş yaptığında öğrendik ve taş kesildik:
+       <br/>
+       <br/>
+       Güreşimizi irticâ ele geçirmişti!
+       <br/>
+       <br/>
+       Biz bu 28 Şubat’ı boşuna mı yaptık netekim?
+       <br/>
+       <br/>
+       28 Şubat felsefesine gönülden bağlı olanlar, şaşkınlıkla derin bir “oh” çektiler. İrtica güreş federasyonunu ele geçirmişti ve bu mantığın icabına göre hezimetten de irtica sorumluydu. Aynı mantık, “mürteci güreşçi”lerin bile bile yenildiklerini, mindere çıkarken bayraklı forma giymekten kaçındıklarını, hatta mindere bile kasten çıkmadıklarını ilzâm ediyordu; Eldeki bir olgu bu mantığı doğruluyordu ama diğer olguları izah etmiyordu: Meselâ ben bu haberi işitince milletçe nal topladığımız bir branş olan Atletizm’de de federasyonun gericiler tarafından ele geçirildiğine hükmettim. Vay canınaydı yahu! Bu mantık ne güzel mantıktı böyle; demek ki okçuluk takımına da irticâ dal budak salmıştı; yüzücülerimiz ise tekkelerde hû çekip, bağırlarına şiş ve kama saplamaktan vakit bulamadıkları için, cümle küffârı önlerine katuben finiş çizgisine kadar bir güzel kovalamış olmalılardı. İrticâyı tehdidden saymayan gafiller uyansınlardı! Neyse ki güreş federasyonunun mürteciler, tekkeciler ve tarikatçiler tarafından ele geçirildiği tam zamanında (yani olimpiyat minderinde takım halinde paspas olduktan sonra) farkedilerek büyük bir tehlikenin eşiğinden dönülmüştü. Tabii ki bu durumda hiç kimsenin aklına güreş federasyonu başkanını başarısızlıktan ötürü sigâya çekmek gibi menfur bir düşünce gelmezdi; üstelik başkan istifa edince meydan bu defa iyiden iyiye tekkecilere, tarikatçilere kalmış olmayacak mıydı? Eski pehlivanlardan olan federasyon başkanı ertesi gün açıklama yaparak, başkanlıktan istifa etmeyeceğini ve koltuğunu kimselere kaptırmayacağını açıkladı da biraz olsun ferahlayabildikti!
+       <br/>
+       <br/>
+       Başka branşları bilmeyiz ama güreşteki irticâ sızması açığa çıktığı için ne kadar sevinsek yeridir; milletçe büyük bir felaketin eşiğinden dönmüş olmamızı —eksik olmasınlar— zinde ve uyanık güçlerin fetânetine borçluyuz; gerçi bu güçler, irticâ sızmasını olimpiyatlardan önce farkedebilmiş olsalardı daha iyi olurdu gibime geliyor fakat Türk büyüklerinin bu gibi incelikleri hepimizden daha iyi bildikleri konusunda tam bir imanımız vardır. Şöyle bir düşünelim; önce güreş federasyonu ele geçiriliyor. Güreş federasyonu ele geçirildikten sonra diğer kurumlara, yani Adliye’ye, Mülkiye’ye, ekonomi yönetimine, milli eğitime ve üniversitelere sızmak artık çocuk oyuncağı gibi bir şey olmalıdır; zira güreş federasyonu Türkiye Cumhuriyeti’nin tam da kalbinde yer almaktadır!
+       <br/>
+       <br/>
+       Enseyi karartmayalım...
+       <br/>
+       <br/>
+       Koca bir olimpiyatı işte böyle noktaladık; olimpiyat performansımızın ne olimpizm diniyle, ne olimpik mistifikasyonla, ne de düpedüz spor disiplin ve ahlâkıyla uzaktan yakından bir akrabalığı olmadığı herhalde tartışma götürmez. İşin hakikati şudur ki bizde spor başarıları, o sporun bağlı bulunduğu bürokratik mercilerin başarısı olarak kabul edilir. Türkiye’de spor yönetimi, başlangıcından son ânına —yani federasyonun gericiler tarafından ele geçirilmek üzere olduğunun farkedilmesine— kadar  yüzde yüz bürokratik, yani ne sporla, ne de spor düşüncesiyle ilgisi olan bir süreçtir. Sporda felsefe kavramı bizde, sporcunun siyasi ideolojisi şeklinde anlaşılır, olimpiyatlar ise bir nevi kıyâmet veya ölüm—kalım savaşı olarak algılanır. Kazananlar ev, arsa, cumhuriyet altını ve “aslan—kaplan” edebiyatından derlenmiş unvanlarla taltif edilirken, kazanamayanların derhal şahsi dosyalarına bakılır; herif ya gericidir ya da ülkenin temeline dinamit koymaya çalışan bir vatan haini. “Okumuş çocuk” sporlarında bugüne kadar hiçbir olimpik başarı kaydedilmediği için o branşlarda bir millî ödüllendirme veya “infaz” geleneği teessüs etmemiştir.
+       <br/>
+       <br/>
+       Şaka—maka, ya güreş federasyonumuz hepten tekkeci—tarikatçi kumpanyasının eline geçseydi halimiz ne olurdu; doğrusu düşüncesi bile insanı korkudan ürpertmeye kâfi geliyor. Neyse ki şimdi mezkûr federasyon “emin” ellerde bulunuyor; bir de tekkeci olmayan pehlivanlar nesli yetiştirdik mi gelsin altınlar, gitsin gümüşler!.... Enflasyona bir kravat bağlayıp, işsizliğe bir künde atar, eğitim meselesine boyunduruk vurup, dahili ve harici düşmanlarımızı kle ile köprüye getirir, sosyal sigorta sistemine tek dalıp, bütçe açığına bir tırpan salladık mı ortalık güllük gülistanlık olur.
+       <br/>
+       <br/>
+       Haydi enseyi karartmayın; güreş federasyonunu kurtardık; güzel günler bekliyor Türkiye’yi!
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13830), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302180337/http://www.aksiyon.com.tr:80/detay.php?id=13830)

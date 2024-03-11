@@ -1,0 +1,46 @@
+# Uyuşturucuyla mücadelede yeni dönem
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041226003658im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041226003658im_/http://www.aksiyon.com.tr/resim/478/33.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1,5 milyon Euro teklif eden uyuşturucu kaçakçıları “Narkotik’teki yeni ekibe rüşvet vermek mümkün değil” diyor. İstanbul narkotik polisinin sadece Türkiye’de değil, Avrupa çapında bir rekor kırarak tek operasyonda bir ton eroin yakalaması ve son 11 ay içinde İstanbul’da yakalanan eroin miktarının 3,5 tona çıkması, dikkatleri yeniden uyuşturucu trafiğine çevirdi.27 Ocak günü Büyükçekmece’deki bir şeker fabrikasında yakalanan, Yüksekovalı uyuşturucu kaçakçılarına ait rekor seviyedeki bu bir tonluk eroin,
+ </font>
+ <p>
+  <font class="content">
+   hem içeride hem dış kamuoyunda, “Türkiye’nin uyuşturucu ile mücadelesinde yeni bir dönem mi başlıyor?” sorusunu gündeme getirdi.
+   <br/>
+   <br/>
+   Narkotik uzmanları, İstanbul polisinin uyuşturucuyla politikası açısından dönüm noktası olarak “14 Aralık 1998” tarihini gösteriyor. Bu tarihte, İstanbul Narkotik Müdürü Ferruh Tankuş görevden alındı ve yerine Beyoğlu Emniyet Müdürü Tayfur Erdal Ceren atandı. 1998 Aralık ayından itibaren, Emniyet’te 1980’li yıllardan itibaren süregelen uyuşturucuyla mücadele yaklaşımlarında derin bir değişikliğe gidildiği vurgulanıyor. Emniyet Teşkilatı’nda temiz sicili ile tanınan Tayfur Ceren ile başlayan bütün uyuşturucu kaçakçılarının üzerine kararlılıkla gitme çizgisi, ondan görevi devralan Nihat Kubuş ile sürdü. Kubuş’tan görevi devralan yeni narkotik müdürü Tufan Ergüder ile, narkotik polisinin bu yeni yaklaşımları zirvesine çıkmış oldu.
+   <br/>
+   <br/>
+   Son yıllarda İstanbul narkotik polisinin bir yılda yakaladığı eroin miktarı ortalama 2 ton civarındaydı. Hatta 2002 yılında bu rakam 970 kiloya düşmüştü. Bu düşüş, narkotik uzmanlarınca şöyle yorumlanmıştı: 11 Eylül saldırılarından sonra ABD’nin Afganistan’a saldırması üzerine uyuşturucu trafiğinde azalma meydana geldi ve Afganistan’daki savaştan sonra uyuşturucu trafiğinde yeni rotalar bulundu.
+   <br/>
+   <br/>
+   Ancak İstanbul narkotik polisinin son 11 ayda 3,5 ton eroin yakalaması Türkiye rotasının eski önemini koruduğunu gösteriyor. Çünkü tüm dünyadaki uyuşturucu trafiği için hâlâ İstanbul, para ve eroinin güvenli biçimde buluşup el değiştirdiği en önemli “uluslararası karargah” olarak görülüyor. Bir narkotik yetkilisi İstanbul’un bu pozisyonu için, “Örneğin bir kaçakçının Yüksekova’da bir ton eroini olsun. Alıcı için hiç kıymeti olmaz. Ne zaman ki o mal İstanbul’a gelir. İşte o zaman parası verilir ve alınır. Hiçbir alıcı bu malı Yüksekova’da satın alıp İstanbul’a kadar getirme riskini kendisi üstlenmez” diyor.
+   <br/>
+   <br/>
+   İstanbul’un eski önemini koruduğu ortaya çıkınca, Tufan Ergüder yönetimindeki İstanbul narkotik polisinin 11 ayda 3,5 ton eroin yakalamasının sırrı daha da merak konusu oldu. Olayın hemen ardından Ajans France Press gibi önde gelen uluslararası haber ajansları İstanbul Emniyeti’nden röportaj talebinde bulundular. Operasyondan hemen sonra Emniyet’in ilk ziyaretçilerine bakıldığında Amerikalı uyuşturucu ile mücadele yetkilileri de dikkat çekiyordu.
+   <br/>
+   <br/>
+   Bir uzman, İstanbul narkotik polisinin son başarısını değerlendirirken ilginç bir yorum getiriyor. Narkotik Müdürü Tufan Ergüder başta olmak üzere ekibin önde gelen yeni isimlerinin “istihbaratçı” kökenli polisler olduklarını vurgulayan uzmana göre, bu polisler hem kaçakçılık olaylarına “bütüncül” bir yaklaşımla bakabiliyorlar, hem de kaçakçıların bu yeni ekibin içine nüfuz etmesi son derece güçleşti.
+   <br/>
+   <br/>
+   Örneğin 27 Ocak günü bir ton eroin yakalanırken bir kaçakçı polise, “1,5 milyon euro” rüşvet teklifinde bulunmuş. Üstelik bu parayı bir saat içinde getirme garantisi vermişler. Bir diğer kaçakçı, “Paranın miktarını siz belirleyin” demiş. Bu bilgileri veren uzman, “Uyuşturucu kaçakçıları kendi aralarında konuşurken, İstanbul’daki bu yeni ekiptekilere rüşvet verebilmek mümkün değil diyor.” şeklinde konuşuyor.
+   <br/>
+   <br/>
+   İstanbul’da yakalanan bir tonluk eroin, Türkiye üzerindeki uyuşturucu trafiğinde her zaman hatırı sayılır bir ağırlığa sahip olan Yüksekovalı uyuşturucu kaçakçılarına aitti. Uyuşturucuların 13 ayrı tarzda paketlenmiş olması, 13 ayrı gruba ait olduğu şeklinde yorumlandı. Alıcıların, şimdiye kadar isimleri duyulmuş Hakkarili büyük kaçakçılar değil, yeni bazı isimler olduğu vurgulanıyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11119), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041226003658/http://www.aksiyon.com.tr:80/detay.php?id=11119)

@@ -1,0 +1,90 @@
+# Başbuğ'un göremediği araştırma
+
+*Erkan Acar Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Alparslan Türkeş"in, 1968"den beri ülkücü hareket uğruna hayatını kaybedenler ile aileleri hakkında bilgi almak için başlattığı araştırma kitaplaştı. Araştırmayı gerçekleştiren Lütfü Yıldız aileleri tespit ederken kimi zaman tehlikeli, kimi zaman da duygulu anlar yaşadığını söylüyor. Ülkücü hareketin pek bilinmeyen yönü, 15 ciltlik külliyatta bir araya getirildi. 1968"li yıllardan günümüze bu hareket için canlarını vermiş 2 bin 800 kişiyi konu alan araştırmaya, Alparslan Türkeş"in tavsiyesi ile başlanmış.
+   <br/>
+   <br/>
+   "Destanlaşan Ülkücü Hareket" isimli eserin yazarı, hareketin geçmişinde önemli görevler üstlenmiş olan Lütfü Yıldız. Halen Bakırköy Türk Ocağı"nda görev yapan Yıldız, Anadolu"nun çeşitli kentlerini gezerek "ülkücü şehitleri" fotoğraf ve belgelerle anlatmaya devam ediyor. Yıldız"ın eseri yazması kolay olmamış. Uzun yıllar irtibat kurulamayan ülkücülerin ailelerini tespit ederken kimi zaman tehlikeli, kimi zaman da duygulu anlar yaşanmış.
+   <br>
+    <br>
+     -Böyle bir araştırma yapmaya ne zaman karar verdiniz?
+     <br>
+      <br>
+       1989"da rahmetli Ali Metin Tokdemir arkadaşımızla birlikte Alparslan Türkeş"in huzuruna çıktık. Başbuğ, hayatını vermiş olanlar konusunda hassastı. Şiir gibi bir sözü vardır: "Çoğu zaman rüyalarıma girerler. Sanki geçit resmi yapar gibi. Gözlerimin önünden geçerler. Oruç Reis ile kol kola yürür Yusuf İmamoğlu, Dursun Önkuzu, Süleyman Özmen, Erdem Arabacı gibiler. Uykularım kaçar, kalkar Cenab-ı Hakka sığınır dualar okurum. Ercümentim gelir aklıma. Mezar bile dar gelmişti yavruma. Mezara sığmamıştı." Ercüment dediği Şevket Bülent Yahnici"nin abisidir. Geride bıraktıkları ailelerini bulmamızı ve cezaevinden çıkan arkadaşlarımızın durumlarını araştırmamızı istedi. Başlangıçtaki çıkış noktamız kitap yazmak değildi.
+       <br>
+        <br>
+         -İlk olarak nereye gittiniz?
+         <br/>
+         <br/>
+         Çalışmaya 1989"da Ankara"nın Abidin Paşa semtinden başladık. Ailelere ulaştıkça elde ettiğimiz verileri tarihe not düşme noktasında kitaplaştırmaya karar verdik. Tamamladığımızda rahmetli Başbuğumuz çoktan vefat etmişti. İki-üç ayda bir rapor sunardık kendisine. Verdiğimiz bilgileri duyunca mutlu olur, duygulanırdı. Aileler de hatırlanmış olmaktan büyük mutluluk duydu. Yıllardır ziyaret edilmemişlerdi çünkü.
+         <br/>
+         <br/>
+         -Neden ziyaret edilmediler?
+         <br/>
+         <br/>
+         1980 darbesi bütün kesimlere olduğu gibi ülkücü harekete de büyük güç kaybettirdi. Hareketin önemli isimleri cezaevine kapatılmıştı. 1990"a kadar teşkilatlanma imkanı bulunamadı.
+         <br/>
+         <br/>
+         -Ülkücü hareket ilk kaybını ne zaman verdi?
+         <br/>
+         <br/>
+         İlki 1968"de Ankara İlahiyat Fakültesi öğrencisi Ruhi Kılıçkıran"dır. Sonuncuları da Zeytinburnu"nda Şükrü Sancak ve Esenyurt"ta Gencay Garip.
+         <br/>
+         <br/>
+         -İçerik olarak ne gibi malzemeler kullandınız?
+         <br/>
+         <br/>
+         Olayların o dönemde gazetelere yansımalarını verdik. Aydınlık"a kadar bütün gazetelerdeki bilgileri koyduk. Ki bu gazetenin hedef gösterdiği ülkücüler ertesi gün ya da bir hafta içinde katlediliyordu. Örneğin Aydınlık, Kartal"da Hergün gazetesini şu grup örgütlüyor diyerek arkadaşların fotoğraflarını basmış. Fotoğrafları basılan arkadaşlarımız iki üç gün içinde katledilmiş. Geçmişte verilen mücadeleyi gelecekteki neslin kavraması noktasında bunlar çok önemliydi.
+         <br/>
+         <br/>
+         -Çalışmayı yürütürken birçok yeri gezdiniz. Ne gibi olaylarla karşılaştınız?
+         <br/>
+         <br/>
+         Çalışmaya başladığımız dönemler PKK"nın yoğun eylem yaptığı zamanlardı. Birgün rahmetli Bingöl eski Belediye Başkanımız Hikmet Tekin"in mezarına gidiyorduk. Hikmet Tekin, kardeşi ve annesi ile birlikte katledildi. Mezarların bulunduğu köy ile Bingöl merkez arası araçla en fazla 15 dakika. Yola çıktığımızda o bölgedeki PKK grupları bize engel olmaya çalışıyordu. Jandarma ve Özel Harekat"ta görev yapan arkadaşlar bize etten duvar ördü. Çarpışa çarpışa köye ulaştık. Tokat"ın Gökçeli kasabasından Ahmet Karaman"ın ailesini bulmaya çalışıyorduk. Yaşadıkları köye gidip babasını sorduk. Köylüler onu oğlunun kabrinde bulabileceğimizi söyledi. 1979"da kaybetmiştik, babası o tarihten beri her gün kabrini ziyaret ediyormuş. Karlı bir gündü. Haber gönderdik. Koşarak yanımıza geldi. Durgun bir ifade ile "Oğlumun arkadaşı kim?" diye sordu. Oğlunun arkadaşı değildim ama o anda "Benim" sözü çıktı ağzımdan. Beni kucakladı, uzun süre kar üstünde yuvarlandık. Öptü öptü kokladı. Bütün köylüler ağlıyordu. Ayağa kalkınca köylülere dönüp dedi ki, "Hani gelmez diyordunuz, bak geldiler. Hep bekledim pencere önünde. Allah"a çok şükür bugünü de gördüm. Ölsem de gam yemem" dedi. Meğerse o köy solcu bir köymüş.
+         <br/>
+         <br/>
+         -Ciltlerden birini Alparslan Türkeş"e ayırmışsınız. Türkeş"in pek bilinmeyen dini yaşantısından örnekler veriyorsunuz?
+         <br/>
+         <br/>
+         Başbuğ, namazını kesinlikle ezan okunduğu vakit kılardı. İsterse yolda olsun. Namaz öncesi ve sonrasında üç beş dakika kadar pek kimse ile diyalog kurmaz, kendi ile başbaşa kalırdı. Namaz sırasında etrafta sessizlik isterdi. Tarikat İslam"da haktır. O, ehli ile yapılan tarikatların hepsine hoş görü ile baktı. Mesela Kastamonulu Mehmet Feyzi Efendi grubu vardı. Onlarla güzel diyalog içindeydi. Hala Kastamonu Alperenler grubu her sene onun için etkinlikler düzenler. Bütün Anadolu"da İslam"a güzel hizmetler yapan cemaat ve grupları ziyaret ederdi.
+         <br/>
+         <br/>
+         Kızılelma Komisyonu"nu samimi bulmuyorum
+         <br/>
+         <br/>
+         -Son zamanlarda Ülkü Ocakları"nın solla kurduğu Kızılelma Koalisyonu çok tartışılıyor. Başbuğ yaşasaydı nasıl karşılardı bu girişimleri?
+         <br/>
+         <br/>
+         Ben Kızılelma birlikteliğini doğru bulmuyorum. Materyalist, aşırı sol gruplarla birliktelik olmaz. Bugün her yerde zulüm var diyen materyalist ve Maocu gruplar var. Bunlar her yerde zulüm var diyor ancak Doğu Türkistan"da olan biteni görmezlikten geliyor. Başbuğ memleketimizin birlik ve beraberliği için hep bir olmayı tavsiye ederdi. Ancak bugün birliktelik yapılan sol grupların samimi olduklarına inanmıyorum.
+         <br/>
+         <br/>
+         -Ülkü Ocakları"nda yeniden yapılanma söz konusu mu?
+         <br/>
+         <br/>
+         Eskiden Ülkü Ocakları"ndaki gençlerin kültür seviyesi çok yüksekti. Cenaze törenlerini gösteren eski fotoğraflara baktığınızda o yıllarda nasıl bir disiplin olduğunu görürsünüz. Cenaze ortamında bile disiplinden taviz verilmiyor. Günümüzde böyle bir disiplini uygulamanız mümkün değil. Ülkücü gençlikte üniversite kesimi ile varoşlardaki gençliğin kaynaştırılmasına ihtiyaç var. İki kesim arasında kopukluk olduğu sürece disiplin sağlamak zor.
+         <br/>
+         <br/>
+         Son dönemlerde Ülkü Ocakları Genel Merkezi"nin varoşlardaki ülkücü gençliğe yönelik çalışmaları var. Varoşlardaki ülkücü gençler, tamamen sloganik hareket eder. Çok sever davasını ama bilgiye dayalı bir sevgi değildir bu. Genel Merkez, üniversite kesimi ile varoşlardaki kitleyi kaynaştırmaya çalışıyor. Güzel çalışmalar bunlar, semeresi ileriki yıllarda alınır.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 3821 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11329), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050215221126/http://www.aksiyon.com.tr:80/yazdir.php?id=11329)

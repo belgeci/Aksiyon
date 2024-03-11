@@ -1,0 +1,103 @@
+# “Her Dönemın Bır ‘Mankurt’u Var”
+
+*Nihal Bengisu Karaca Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302180959im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302180959im_/http://www.aksiyon.com.tr/resim/307/29.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Efsaneler, destanlar ve geleneksel metinlerden tevarüs eden zenginliği köy ve kır sadeliğiyle, sıradan insanın acı tatlı yaşamıyla örebilen; bir ananın çığlığını bilimkurgusal bir kahramanın uygarlık özlemiyle aynı zeminde kurgulayabilen nadir yazarlardan biri o.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Cengiz Aytmatov kültürel kodlarını bireysel duyarlılıklardan evrensel mesajlara taşıyabilmiş bir romancı/hikayeci; bozkırın ortasındaki adamı anlatırken bile bütün dünya insanlarının ortak endişelerine temas edebilmenin sırrına vâkıf bir edebiyat adamı.
+   <br>
+    <br>
+     Yazarlığının ilk dönemlerinde kaçınılmaz olarak Sovyet Komünist Partisinin istekleri doğrultusunda yazmışsa da sonrasında sahibi ve kaynağı ne olursa olsun, insanı ezen ve sömüren erk’in karşısında yer aldı Aytmatov. Köylüyü bütün manevi değerlerinden soyutlayan ve onu küçük ilkel çatışmaların nesnesi olarak gören bizdeki köy romancılarının aksine, medeni ölçülere göre gelişmemiş sayılacak küçük coğrafyalarda ne akıl almaz bir ruh zenginliğinin var olduğunu göstermeyi başardı.* Çocukluğundan beri meraklı olduğu tabiat, insanın insanlığı öğreneceği bir kılavuz kitap gibi belirdi onun hikâyelerinde; babası Törekul’u kaybetmesine neden olan Stalin dönemi dimağındaki acıyı hep taze tuttu kuşkusuz. Beyaz Gemi’nin küçük çocuğu ölüme giderken bizi de yanına kattıysa bu acıdandı, Abu Talip tren rayları arasında can verirken bizim de canımızı aldıysa bu acıdan.... Mallarme mutluluk insanın ağzına çalınmış bir parmak baldır dedi de, sanki Aytmatov’un tarifi gerekiyordu o tadın neye benzediğini anlayabilmek için. Yeni biçilmiş bir tarlanın ve ekmeğin kokusu alınabiliyordu sayfalardan, bir atın rahvan yürüyüşünde gönenmiş onurun, emekle filizlenen sevginin kabarttığı yüreğe dokunabilirdiniz. Tükenirken yenilenen ömürleri birbirine saran bağın, üç yüz yıl önce yakılmış bir ağıdın sürekliliğindeki tattı Aytmatov’un dağarcığa düşürdüğü.
+     <br>
+      <br>
+       Akademi Fuarcılık’ın düzenlediği Boğaziçi Kitap Günleri nedeniyle Türkiye’de bulunan Cengiz Aytmatov şu an Luxemburg, Hollanda, Belçika ve Fransa olmak üzere dört ayrı yerde elçilik yapıyor. 70 yaşını çoktan geride bırakan Aytmatov’la dar vakitlerde ve tercüman tarîkıyle gerçekleştirdiğimiz bir röportajı aktarıyoruz şimdi. İlginize....
+       <br/>
+       <br/>
+       —Ülkesinin sorunlarına bîgâne kalmayan bir edebiyat adamının politikanın aura’sından fazla uzak kalamayacağı açık. Sanırım ilk hikayeleriniz politik anlamdaki uyanış yıllarınız olan savaş dönemine tekabül ediyor. Edebi ve politik kimliğinizi birbirinden ayrı tutmak gibi bir kaygınız oldu mu, ya da onlar birbirine kapı aralayan iki âlem olarak mı yeraldılar hayatınızda?
+       <br/>
+       <br/>
+       Aslen yazarım, ama değiniz nedenlerden ötürü aynı zamanda da politikacıyım. Yazar kendisini seçilmiş kabul edip bir yere kapanan adam değildir bana göre, yazar kamuoyunun içinde olmalıdır. Din pahasına halkından soyutlanan manastır adamlarının çalışmalarından dogmatizm doğdu. Müslüman sofistler de kendilerini din felsefesine adadıkları için hayattan soyutlandılar. Onların yaptıklarına saygım olsa da bu tarz bana uymuyor. Aktüelin içinde olmak kitaplarım için de önemli malzeme sağladı şimdiye kadar, halkın isteklerini biliyor olmam, onların neler yaşadığına yakînen tanıklık etmem, ne yazmam gerektiği konusunda kararlı olmama yardımcı oldu. Siyasetçi ve edebi yönüm, her ikisi de, kimliğim açısından vazgeçilmez unsurlar.
+       <br/>
+       <br/>
+       — Kırgız ruhunun ağırlıklı bir biçimde yer aldığı eserleriniz Sovyet rejimine ve dolayısıyla tüm totaliter rejimlere yönelik eleştiriler içeriyordu. Rejimleri sorgularken bunun insanın psikolojisindeki karşılıklarına dokunmayı da ihmal etmiyor, onun içindeki kadim tanrılık iddiasını sorguluyordunuz (Cengiz Han’a Küsen Bulut’ta da olduğu gibi). Erk ve otorite ile olan meselenizde geldiğiniz en son nokta ne?
+       <br/>
+       <br/>
+       Benim geldiğim noktadan çok okuyucumun geldiği nokta önemli. Mesela Elveda Gülsarı’da yaşadığım dönemin şartlarını ve duygularıma yaptığı etkiyi aktarmaya çalışmıştım. Totalitarizmi yalnızca 20. yy’a özgü bir şeymiş gibi algılamak yanlış. Cengiz Han’a Küsen Bulut’ta anlattığım şey de totalitarizmin insana yaptıklarıdır, çünkü onun zamanında da totalitarizm vardı, bir Hanın iki dudağı arasındaydı insanların ömrü. Ben Stalin döneminde yaşadıklarımızı Cengiz Han’ın baskıcılığına gönderme yaparak anlatmıştım. Stalin döneminde ünlü olan bir sinema oyuncusu bayan, Amerikan ataşesi ile aşk yaşadı diye cezalandırıldı. Çünkü aşka ruhsat yoktu. Sözkonusu sanatçı ölüm kamplarına gönderilirken, ataşe ülkesine dönmeye zorlanmıştı o günlerde. Sanatçı kampta bir kız çocuk dünyaya getirdi ve o insan Amerika’da şimdi. Bu Cengiz Han’a Küsen Bulut’taki hikayenin aynıdır; her ikisinde de insanın birey olarak hiçbir değeri yoktur. Totalitarizm hep varoldu, yalnızca bazen farklı şekilde tezahür etti ve farklı şekillerde algılandı.
+       <br/>
+       <br/>
+       Mitolojiden günümüze
+       <br/>
+       <br/>
+       — Çok eski efsanelerden çıkarıp modern bilime, sosyolojiye hediye ettiğiniz kavramlar var; mankurtlaşma gibi. Duvarlar yıkıldı, pek çok ülke —Kırgızistan da dahil olmak üzere— bağımsızlıklarını kazandı, demokrasinin lafı daha çok ediliyor, bireyin önem kazandığı kamusal devlet söylemleri pekişiyor. Ancak bu ötekileşmeyi, hatta varolan bozkurtların bile giderek mankurtlaşmasını engelleyemiyor, siz ne dersiniz?
+       <br/>
+       <br/>
+       Mankurt mitolojik bir terimdi ama bizim zamanlarımızı anlatmak için de önemli bir imkandı. Totalitarizm bizi standartlaştırmak istese ve bunda kararlı olsa da bizim buna karşı direnmemizin hayati önemini anlatmak istemiştim, bu tiplemeyi eski çağlardan getirmemin nedeni buydu. Ancak Mankurt sadece eski çağların zavallı trajik yaratığı değil. Her dönemin mankurtları var. Bu zaaflarıyla malul insanoğlunun kaçınılmaz yazgısı. Mankurtlar, mankurtlaşanlar ve zaaflarına karşılık ayakta kalmaya çalışanlar, bunlar hep olacak.
+       <br/>
+       <br/>
+       —Beyaz Gemi’nin balık olmak isteyen “çocuk”u gibi isimsiz, Dişi Kurdun Rüyaları’ndaki papaz gibi kendi zamanının dışına taşan, Toprak Ana, Abu Talip gibi yaşama savaşının içinde sıradan ama duyarlıklı karakterler ürettiniz. Bunlar zaman içinde eskimiyorlar, neredeyse canlı bir silüet olarak kalıyorlar.
+       <br/>
+       <br/>
+       Onlar bir görsel efekt gibi, melodik bir müzik gibi sizi hikayeye çekmek için tasarlanmışlardır. Zihninize kazınıyorsa bu güçlü olduklarını gösterir. O kahramanları sadece sahip olduğu özelliklerle anlatsam unutursunuz, benim onlara yüklediğim resimdir onları sizde kalıcı kılan, edebiyatın dilidir.
+       <br/>
+       <br/>
+       —Bugüne geldiğimizde —ki kitaplarınız bu kuşaklarca da okunuyor— bugün için demode bulduğunuz, değiştirmek isteyebileceğiniz karakterleriniz var mı, veya şimdi kurgulasam daha başka türlü yapardım dediğiniz bir öykü?
+       <br/>
+       <br/>
+       Karakterlerimle ilgili böyle bir düşüncem yok. Çünkü onlar o döneme ait, o tarihin birer parçasıydılar. Ancak şöyle ilginiç bir konu var. Ben, Yüzyüze isimli romanımda II. Dünya Savaşı sırasında cepheden kaçıp ailesinin yanına gelen bir askerin hikayesini anlatmıştım. Canlandırdığım o kahraman bir Japon entellektüelinin Sovyetler birliğindeki asker kaçakları hakkında yazdığı bir makaleye referans teşkil etti. Yazar o kahramanı başlangıç olarak alıyor ama tamamen modern, 2000’lere özgü bir bakışaçısıyla analiz ediyordu. Oysa biz o dönemler ne evrensel insan haklarından haberdardık, ne de isteyenin savaşa gidip istemeyenin gitmeyebileceği günlere geleceğimizi biliyorduk. Oysa Japon arkadaşımız o asker ve etrafında gelişen olay örgüsünü insan haklarına ters olduğu gerekçesiyle eleştiriyordu. Benim kahramanın trajedisi buydu zaten, savaşa gitmeme kararını verdiğiniz  anda devlet düşmanı olduğu kadar halk düşmanı da oluyordunuz; sonuç olarak ailenizle yaşamanız bile zorlaşıyordu artık. İşte totalitarizmin getirdiği bu; kurallara uymazsanız yalnızlaşırsınız. Bugünden bakıldığında pek çok kahramanım ve pek çok öyküm böylesi bir yanlış anlaşılmaya müsait bir zemindeler. Onlara kendi zamanları içinden bakılmalı.
+       <br/>
+       <br/>
+       —Beyaz Gemi’nin Geyik Ana’sı, Cengiz Han’a Küsen Bulut’un Kuba’sı, Gün Olur Asra Bedel’in Karanar’ı... Hayvanlar insanın yoldaşı olmanın ötesinde garip bir bilgelik yükleniyor eserlerinizde. Dahası tabiat karakterlerinizin iç dünyasını deşifre etmek için uygun bir pozisyon alıyor sanki. İnsanın yeryüzündeki yolculuğuna tanıklık mı ediyor bütün bir doğa; yol mu gösteriyor?
+       <br/>
+       <br/>
+       Hayvanları kahraman olarak seçmek sevdiğim bir şey. İnsanın dünyada tek başına olmadığının en önemli göstergesi onlar. Allah insana onlardan farklı olarak akıl verdi; sorumlulukları kabul etme gücüne sahip olduğu için... Gerek hayvanlar gerekse bitkiler ve bütün tabiat, dünyanın parçası olan her canlı, insana yüklenen bu sorumluluğun kapsamı içinde kalıyorlar. Eski Türk halklarında bu düşünce tarzı vardı. Hasan Kaygı (Dertli Hasan) denilen bir ozan vardı mesela, onun şiirleri insanın dünyayla ilgili yükümlülüğünden izler taşırdı hep. Dertli Hasan ayağı ve kolu olmayan bir yılanın nasıl yaşadığına, kanatsız kuşların varlığına hayret eder ve onlara ilişkin doğaçlamalar yapardı ve hep o düzene işaret ederdi ozan, herşey bir düzen dairesinde oluyor. Benim yapmak istediğim de bu düzenin tezahürlerini modern insanının anlayabileceği formlarda ifade etmek.
+       <br/>
+       <br/>
+       Dünya “basit” bir yer değil
+       <br/>
+       <br/>
+       — Çok sevilen kitaplarınızdan birinde, Gün Olur Asra Bedel’de bozkır insanının çilesiyle, galaksinin öbür ucunda yaşayan Orman Göğüslüler’in uygarlığını aynı kurguda verebiliyor ve bunu yaparken de romanın bir bilimkurgu romanı ya da salt savaş sonrası Sovyet diktasını eleştiren bir siyasi roman olmasına izin vermiyordunuz. Bu kadar çok izlek ve malzeme, aynı kurguda, birbirini örselemeden nasıl yanyana durabiliyor?
+       <br/>
+       <br/>
+       Amacım zaten tam da bu. İnsan olarak basit bir şeyle karşı karşıya olmadığımızı anlatmaya çalışıyorum. Dünya homojen, tek tip, tek renk, standart “şey”lerden oluşmuyor. Bunu anlatabilmek de bizzat o malzemeyi gerçekte olduğu gibi, yaşamın içindeki gibi girift, canlı ve zengin kullanmayı gerektiriyor.
+       <br/>
+       <br/>
+       —Bir edebiyat eseri ne kadar “gerçekçi” olursa olsun gerçeğin ta kendisi olamaz sanırım. Sözgelimi kaç kadın “kendi gerçeğine sadık kalmak için büyük bir cesaret örneği sergileyen” bir “Cemile”nin tuttuğu yolu tutabilir? Kurmaca ile gerçeğin sınırları nerede ayrılıyor size göre?
+       <br/>
+       <br/>
+       Size çıplak gözümle gördüğüm gerçekleri yazdım desem.... Özellikle Cemile için söylemem gerekiyor bunu. Savaş zamanları birbiriyle bağdaşmaz görünen şeylerin çokça yaşandığı zamanlardır. Barış döneminde karşılaşamayacağınız şeylere tanık olursunuz. Savaş sizi tuhaf şeyler yaşamaya zorlar ve gerçeklerin apaçık görünmesini sağlayacak koşullar yaratır. Barış döneminde böyle bir öykü yazamazdım büyük bir ihtimalle, ama bunlar yaşandı, oldu, çünkü savaş vardı. Kurmaca adını alsa da bunlar gerçekti, yazdıklarımın bu kadar “gerçekçi” olması gerçeği yazmamdan kaynaklanıyor.
+       <br/>
+       <br/>
+       —İnsan evrenin “bilinci” olmak gibi bir misyona sahip sizin romanlarınızda. Doğa, dil, ev ve yaratıcı bu bilinci gerçekleştirmenin önemli anahtarları, köşetaşları olarak yer alıyorlar. Evreni kaybetmemek için hangi dönüşümlerden geçmeli bu “bilinç”?
+       <br/>
+       <br/>
+       İnsanoğlunun yolu evveliyatta çizildiği gibi, yani belli. Ancak bu yolu çözebilmesi için dünya üzerinde neler olup bittiğini merak etmesi, sorularına cevap araması gerek insanın. Ormanlar büyüyor mu, eksiliyor mu; denizlerin seviyesi neden yükseliyor? Neden artık Aral Denizi yok? Yeryüzünde hayat nereye doğru ilerliyor? İnsanoğlu evrenin tek sorumlu canlısıdır. Bu sorumluluğu taşıyabilmesi ise varlığının bilincine varmasına bağlı. İnsanın tabiattaki duruşunu gündelik hayatındaki politik/siyasi faaliyetlerinden ayırmamız gerekiyor. Zihnin entellektüel faaliyetini artırmak ve barışın tüm insanlar için ortak bir kültür haline gelmesini sağlamak lazım bunun için.
+       <br/>
+       <br/>
+       (*) Tesbit Doç. Dr. Ramazan Kaplan’a ait.
+       <br/>
+       <br/>
+       e—mail: nihalbengisu@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13819), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302180959/http://www.aksiyon.com.tr:80/detay.php?id=13819)

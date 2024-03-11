@@ -1,0 +1,52 @@
+# Oyun sektörü için ideal ülke: Türkiye
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bilişim sektörünün eğlence ürünlerinden biri olan bilgisayar oyunlarını hazırlayanlar yaptıkları pazar araştırmaları neticesinde projektörlerini Türkiye ve Çin gibi genç nüfus yoğunluğuna sahip ülkelere çevirdiler.
+   <br/>
+   <br/>
+   Eğlence ürünlerinin birinci sıradaki tüketicisi olarak gençlerin, son 10 yıl içerisinde bilgisayarlı oyunlara ciddi anlamda yönelmesi, ister istemez bu sektördeki yazılım şirketlerinin iştahını kabarttı. Bunun neticesinde ise, çeşitli enstrümanları kullanarak oyunlara olan bağımlılık belli bir program dahilinde yaygınlaştırıldı. Tezgahlarda kaçak olarak satılan oyun CD’lerini de bu plan dahilinde değerlendirebilirsiniz... Öncelikle ucuz maliyetle alışkanlığı sağlanan oyunlar, daha sonraki safhalarda farklı görünümlerle, kâr sağlayan yatırımlara dönüştürülüyor... Bunlar işin komplo teorileri kısmı...
+   <br>
+    <br>
+     Gelelim işin mali boyutlarına.
+     <br>
+      <br>
+       Koreli oyun yazılımcıları, yapılan araştırmalar neticesinde, zor durumda olan 19 firmayı satın alarak büyüme hamlesine girişti. Hong Kong ve Tayvan’daki çeşitli firmaları satın alan Koreli firma, bunun için 110 milyon dolar mali kaynak ayırdı.
+       <br>
+        <br>
+         En yakınındaki çok nüfuslu ülkeyi yani Çin’i gözüne kestiren Koreliler, bu yatırımdan ciddi kâr beklentisi içinde...
+         <br/>
+         <br/>
+         Yine oyun sektörünün devleri, oyun bağımlıları aracılığı ile kâr elde etmek için bir başk enstrümanı da etkili şekilde kullanmaya çalışıyor: İnternet... İnternetteki oyun sitelerinin hızla artan kullanıcı sayısı ve bunun getirdiği reklam geliri, oyun yazılımcılarını yeni yeni oyunlar üretip daha çok bağımlı kazanmaya zorluyor.
+         <br/>
+         <br/>
+         Yazılımcıların, oyun sektöründe dönen milyon dolarları görüp böylesi bir çabayla genişlemeye çalışması, elbette ki başka yatırımcıların da dikkatini bu alana çekiyor. Akabinde de Türkiye gibi hem batı kültürüne açık hem de genç nüfusa sahip ülkelerde arayışlara itiyor...
+         <br/>
+         <br/>
+         İyi haftalar,
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 44 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12556), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043824/http://www.aksiyon.com.tr:80/yazdir.php?id=12556)

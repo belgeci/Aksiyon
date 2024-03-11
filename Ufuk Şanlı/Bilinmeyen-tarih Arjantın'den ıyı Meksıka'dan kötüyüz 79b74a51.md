@@ -1,0 +1,82 @@
+# Arjantın’den ıyı, Meksıka’dan kötüyüz
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226213536im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226213536im_/http://www.aksiyon.com.tr/resim/350/49.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Arjantin’den iyisiniz.” Bu söz IMF Başkan Yardımcısı Stanley Fisher’e ait. Bu sözünü aslında ‘kötünün iyisisiniz’ şeklinde tefsir etmek mümkün. Türkiye’nin Arjantin, Brezilya ya da Meksika ile karşılaştırılması yeni bir olgu değil.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1990’lı yılların başında dünyanın belli bölgelerinde ABD, AB ve Japonya’nın dışında ekonomik ve siyasi açıdan belirleyici konuma gelecek yeni süper güçlerin doğacağını ileri süren stratejistler bu ülkelerin arasında Latin Amerika’da Arjantin ya da Brezilya, Ortadoğu’da Türkiye ya da İran, Uzakdoğu’da da Malezya ya da Güney Kore’ye şans veriyorlardı. Fakat bugün geldiğimiz noktada sözkonusu ülkeler süpergüç adayı olmaktan öte yaşadıkları ekonomik krizlerle dünya gündemini belirliyorlar.
+   <br>
+    <br>
+     Bu ortak paydanın dışında özellikle Latin coğrafyasında yaşananlarla Türkiye’nin geçirdiği süreç arasında şaşırtıcı bir benzerlik var. Yüksek enflasyon, siyasi istikrarsızlık, yolsuzluklar, gelir dağılımındaki çarpıklıkların yanında bu ülkelerin uzun süre askeri yönetimler tarafından idare edilmesi de benzer yanlarımızın ne kadar çok olduğunu ortaya koyuyor.
+     <br>
+      <br>
+       Garanti Bankası Securities’in icra başkan yardımcısı David Edgerly de benzerlikler adına kulağımıza küpe olan bir beyanat veriyor Türk gazetecilerine: “Türkiye Meksika’nın ilerlediği yoldan devam ediyor. Bundan 5 yıl sonra, Türkiye’deki tek bir banka bile salt Türk olmayacak.”
+       <br/>
+       <br/>
+       Türkiye’ye benzeyen Latin coğrafyasıyla bir diğer ortak noktamız ise Hasan Mutlucan. Ne alâkası var diye sormayın çünkü Türkiye’nin mukayese edildiği Latin Amerika ülkelerinin hepsi uzun dönem askeri yönetimler tarafından idare edildi ve bir çoğu hâlâ siyasi istikrarı yakalayamadı. Arjantin, Meksika ve Brezilya askerlerin yönetimde sürekli etki sahibi olduğu ülkeler olarak tanımlanırken, Türkiye de modern ve post—modern darbe arasındaki farkları tartışıyordu.
+       <br/>
+       <br/>
+       Merkez Bankası eski Başkanı Yaman Törüner’in “25 milyar dolar rezervle nasıl döviz krizi yaşadığımıza ilişkin” sorularına ekonomi bürokratları hâlâ cevap veremese de, artan borçlara ilişkin çözüm önerileri üretme konusunda oldukça başarılı gözüküyorlar. 2000 yılı itibariyle 114 milyar doları dış, 75 milyar doları iç borç olmak üzere 189 milyar dolar borcu bulunan Türkiye’nin özellikle sürekli artan iç borcu önemli bir problem olarak göze çarparken, IMF ve Dünya Bankası’ndan gelecek yaraya ne kadar merhem olacağı sorusu artık herkes tarafından soruluyor.
+       <br/>
+       <br/>
+       Bankacılık sektörü Meksika olma yolunda
+       <br/>
+       <br/>
+       IMF ve Dünya Bankası reçetelerini samimiyetle olmasa bile sıkıştığı için uygulayan ve bir dönem IMF tarafından model ülke olarak takdim edilen Meksika’da bugün bir tane bile yerli banka kalmadığını hatırlatan Garanti Bankası’nın yatırım kolu olan Garanti Bankası Securities’in icra başkan yardımcısı David Edgerly “Türkiye, Meksika’nın ilerlediği yoldan devam ediyor. Bundan 5 yıl sonra, Türkiye’deki tek bir banka bile salt Türk olmayacak,” derken Boğaziçi Üniversitesi öğretim üyesi Doç. Dr. Cevdet Akçay da bu konudaki benzerliklere şu şekilde dikkat çekiyor: “İleriki dönemde bankacılık konusunun Türkiye’de farklı bir konuma geleceği görülüyor. Yabancılar gerek banka alarak gerekse kurarak Türkiye’de ekonomi içinde önemli bir yere gelecekler. Bu durum faiz oranlarının rasyonel bir seviyeye indirilmesine olanak sağlaması yönünden iyi olacaktır; ancak, uluslararası sermayenin girmesiyle rekabet şansları azalan Türk bankalarının büyük kısmı piyasadan çekilecek. Bakın Arjantin’e, bugün ulusal banka neredeyse yok gibi. Tamamı yabancı bankalardan oluşuyor. IMF ve Dünya Bankası’yla çalışacağım diyorsanız, oyunu onların kurallarına göre oynayacaksınız.”
+       <br/>
+       <br/>
+       Dövizli tahvil de Meksika’dan
+       <br/>
+       <br/>
+       20 Aralık 1994’te başlayan Meksika krizi, 5 Nisan kararları ile sonuçlanan Ocak 94 Türkiye kriziyle bir çok bakımdan benzerlik taşıyordu. Bu dönemde aşırı değerlenen Meksika para birimi yüzünden dış ticaret açığı büyümüş ve ülkenin döviz rezervleri önemli ölçüde azalmıştı. O dönemde toplam döviz rezervleri 13 milyar dolar olan Meksika, programa uygun olarak döviz rezervlerinin 6 milyar dolara gerilemesine sessiz kaldı. Bunun dışında dolara endeksli Tesebonaları ülke içinde de, yurtdışında da özellikle ABD’li yatırımcılar arasında büyük ilgi gördü. Bunun sonucunda 1993 yılında ülkeye giren 30 milyar dolarlık yabancı sermayenin 20 milyar doları bono gelirlerinden oluştu.
+       <br/>
+       <br/>
+       Bu dönemde ülkede artan suikastler, siyasi gerilim ve bazı spekülatif hareketler sonucunda pesoya endeksli uzun vadeli Cetes tahvillerinin faizleri ocak 95’te yüzde 40’a yükselirken, Tesebonalarının faizleri de yüzde 25’e yükseldi. Sonuçta ülke giderek borçlanmaya ve azalan sermaye akışını hızlandırmak için de sürekli olarak faiz oranlarını yükseltmeye başladı.
+       <br/>
+       <br/>
+       Ancak deniz bittiğinde yaşanan büyük toplumsal sorunları çözmek için büyük ağabey ABD devreye girdi. Meksika için ABD’li ekonomist Larry Summers yönetiminde 52 milyar dolarlık bir acil yardım paketi devreye sokuldu, bunun dışında NAFTA anlaşması ile iki ülke arasında gümrük birliği sağlandı. Bunun sonucunda kendini kurtaran Meksika’nın bugün ihracatı 40 milyar dolardan 140 milyar dolara ulaştı.
+       <br/>
+       <br/>
+       Arjantin’in Derviş modeli
+       <br/>
+       <br/>
+       92—98 yılları arasında ise iç borçlanmaya giden hükümetlerin hesapsız davranışları sonucunda iç borçların 3.5 milyar dolardan 35 milyar dolara yükseldiği Arjantin’de 1998 yılına gelindiğinde toplam borç stoku 110 milyar dolara ulaşıyordu. Borçlarının faizlerini ödeyebilmek için borç alır konuma gelen Arjantin bu dönemde elinde satılabilecek ne kadar kamu yatırımı varsa satma yoluna giderken insanın aklına satacak bir şeyi kalmayan bir ülke neyine güvenerek bu kadar borçlanır sorusu geliyor. Bu sorunun cevabını ise Analist Dr. Ali Kubalı şöyle yanıtlıyor: “Arjantin sıcak paraya güveniyordu. Yabancı yatırımcılara sağlanan büyük kolaylık sonucu bir çok yatırımcı paralarını uluslararası bankalara yatırmak yerine Arjantin’deki bankalara yatırıyordu. Bunun sonucunda 120 milyar dolara yükselen sıcak para akışı 94’te Meksika’daki Tekila krizi yüzünden aniden çekilince ve bu duruma güvenerek doları— pezo ile eşitlemeyle artan ithalat ülke ekonomisini bunalımın eşiğine getirdi”.
+       <br/>
+       <br/>
+       Türkiye’den daha güçlü bir ekonomiye sahip olan Arjantin (GSMH 276 milyar dolar, nüfus ise 34.2 milyon, fert başına düşen milli gelir 8 bin dolar) yapılan özelleştirmelerin bitmesi ve büyümeyi devam ettirmek için alınan büyük borçlar sonucunda büyük bir finans krizi yaşamaya başladı. Siyasi krizlerin de eksik olmadığı Arjantin’de 1999 yılı Aralık ayında yolsuzluklarla ve enflasyonla mücadele edeceğini açıklayan Fernando La Rouya işbaşına geldi. Gelir gelmez ilk iş olarak ekonomiden sorumlu ‘süper bakan’ olarak Domingo Cavallo’yu işbaşına getirdi. Cavallo ise krizi aşmak için memur maaşlarını düşürmekten, devalüasyona uzanan bir dizi önlem açıkladı. Ancak Arjantin halkı kendi Derviş’lerinden pek memnun değiller çünkü 34 milyonluk ülkenin hali hazırda 14 milyonu işsiz.
+       <br/>
+       <br/>
+       Brezilya Telekom ve Türk Telekom’un öyküsü
+       <br/>
+       <br/>
+       8.5 milyon kilometrekarelik yüzölçümü, 145 milyon nüfusuyla Latin Amerika’nın en büyük ülkesi olan Brezilya, 1964 ile 1974 yılları arasında yüzde 9 gibi inanılmaz bir büyüme gerçekleştirdi. Askeri darbeler ve siyasi istikrarsızlığın daha sonra eksik olmadığı Brezilya bu tarihten sonra hiperenflasyonun, istikrarsızlığın sembolü haline geldi.
+       <br/>
+       <br/>
+       1994 yılında yeni Maliye Bakanı Cardoso’nun inanılmaz başarısı ve karizmasını da sunan Real’i piyasaya sürerek bu sıkıntıları bir parça olsun azaltmayı başarırken kendisini de 1995 seçimlerinde başkan koltuğuna hazırlıyordu. ABD Doları karşısında sabitlenmeyen Real’in ve uygulanan ‘yavaş ilerleyen düzelme— küçük devalüasyonlar’ ile başarısı sonucunda ülke ekonomisi oldukça rahatlarken, 1997 yılından itibaren başlayan spekülatif saldırılara karşı hükümet çareyi faiz oranlarını yükseltmekte buluyordu. 1999 yılındaki devalüasyonlar serisinin ardından ekonomik krizi aşmak için IMF ve Dünya Bankası’yla masaya oturuyordu. Brezilya halen ekonomik krizi aşmaya çalışıyor. Bunun için de geçtiğimiz yıllarda sattığı, kıtanın en büyük telekom şirketi Brezilian Telekom’un dışında, Türkiye’deki POAŞ ve TÜPRAŞ gibi gaz/enerji alanında hizmet veren ülkenin en büyük kuruluşu olan PetroBras’ı 4 milyar 500 milyon dolara satarak 2000 yılının en büyük özelleştirmesini gerçekleştiren Brezilya şimdilerde elde kalanları satma derdinde.
+       <br/>
+       <br/>
+       e—mail: u.sanli@zaman.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12927), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226213536/http://www.aksiyon.com.tr:80/detay.php?id=12927)

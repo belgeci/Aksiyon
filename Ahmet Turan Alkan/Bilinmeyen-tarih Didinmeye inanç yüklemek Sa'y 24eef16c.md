@@ -1,0 +1,70 @@
+# Didinmeye inanç yüklemek: Sa’y
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225163414im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225163414im_/http://www.aksiyon.com.tr/resim/380/64.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  bize lazım olan çalışmak ve emek sarfetmek kavramına yeni bir yorum getirmektir, yani “sa’y” ama Hazreti Hacer gibi muhâl ihtimalleri zorlayarak, ümitsizliğe kapılmadan, ısrarla ve kararlılıkla çalışmak
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Haydi o çok bilinen fıkrayı bir kere hatırlayalım: Askerlik haricinde yolu gurbete düşmemiş bir ihtiyar, Hac dönüşünde ziyaretçilerine intibalarını anlatıyormuş. Demişler ki, “Hacı amca, oraları nasıl yerler, neler gördün, hele söyleyiver!” Hacı amca demiş ki, “Vallah’ül azim bir meşakkat bir meşakkat; Allah hiçbir din kardeşimi oralara düşürmesin!”
+   <br>
+    <br>
+     Bu işin nükte tarafı fakat Hac ibadetinin fiiliyatta tam karşılığı, Hacı amcanın mahsus tabiriyle meşakkatten ibaret sayılabilir. Elbette bu öngörülmüş, hatta teşvik edilmiş bir zahmet. Mali boyutu neyse ama Haccın bedeni ibadet kısmı neredeyse tam bir rükün. Hacca niyet eden meşakkate de niyet edecek. Bu elbette haccın meşakkatsiz yerine getirilemeyeceği anlamına gelmiyor hatta bunun tam aksine Hac farizasının daha az zahmetle icrası için ilgililere çok görev düştüğünü de kaydetmeliyim.
+     <br>
+      <br>
+       Mekke’nin kış mevsiminde sıcaklık vasati 30 derece civarında, menziller arasındaki mesafeler sıradan bir insanın takatini tüketecek kadar uzun. En sıradan ve masum gündelik alışkanlıkların lüks addedildiği bir konaklama düzeni mevzubahis. Hele Mescid’ül Haram civarında abdest almak, namaz kılacak emin bir yer bulmak, hele bazen yürümek için müsait boşluklara raslamak bile mümkün olmayabiliyor. Buna bir de eni boyu belli mekânlarda yüzbinlerce insanın aynı anda ibadet kasdıyla bulunma mecburiyetini de ekleyince meşakkatin boyutları daha iyi anlaşılabilir.
+       <br/>
+       <br/>
+       Tavaf ve sa’y esnasındaki izdiham ise ayrı bir âlem. Bunca meşakkatin insana öğrettiği şeyler var şüphesiz: Sızlanmayacaksınız, sinirlenmeyeceksiniz, güçlüklere göğüs gereceksiniz. Zihninizi ve gönlünüzü meşakkatlere yoğunlaştırmak yerine ibadetin nihai gayesine tevcih edeceksiniz.
+       <br/>
+       <br/>
+       Ola ki şeytan, sizi küçük meşakkatlerin arasında sınamaktadır!
+       <br/>
+       <br/>
+       İşte bu yüzden Safa ile Merve arasında yürüyerek ve koşularak icra edilen ibadetin ismi çok mânidar: “Sa’y”. Bu kelime bizim lisan iklimimize hiç de yabancı değil; çalışmak, gayret göstermek, emek sarfetmek hatta didinmek. Belki didinmek kelimesi çok daha doğru bir karşılık olabilir zira Hazreti Hacer’in vaktiyle bu iki menzil arasında evladına bir yudum su bulabilmek için koşuşturması, Türkçe’de ancak “didinmek” ile tarif edilebilir. Mekke, kararmış tunç tepelerin arasına sıkışmış pek küçük bir mahal. Hacer Validemizin didinmesi, bir işçinin sıradan emeğinden farklı ve çok daha fazla bir şey. Bu çorak mahalde su bulmak ancak bir mucize gerektirecek derece muhal ihtimal. Hacer Validemizin “sa’y”i, sıradan emek değil, imkânsızı zorlayacak kertede didinmek. İşte sa’y denilince böyle bir ümit ve emek sarfına bağlanmış inancı hatırlamak gerekiyor.
+       <br/>
+       <br/>
+       Her sektörde Hazreti Hacer gibi sa’yetmek!
+       <br/>
+       <br/>
+       Hac esnasında bir hicranın daima insanın vicdanına batıp durduğundan bahsetmiştim; “İslâm âlemi niçin böyle?” sualinin bütün cevapları Mekke sokaklarında kol geziyor. İnsana hüzün veren tesbitler bunlar. Belki yeri ve zamanı değil ama insan ister istemez burada bile doğu ve batı arasında bir mukayeseye girişerek kederleniyor. Ama hemen ardından son derece müjdeliyici bir nükteyi farkederek seviniyoruz. Batı dünyası ile aramızdaki fark, az önce bahsetmeye çalıştığım “sa’y” farkıdır. Sa’y bizde bir hac menasiki olarak mevcut fakat İslam toplumları olarak sa’yi sadece Safa ile Merve arasındaki 400 metrelik mesafeyi yedi defa yürümekten ibaret bir mânâ parantezine hapsetmişiz. Açıkçası bizim yerimize onlar fiili sa’yde bulunuyorlar. Bugüne kadar batıyla aramızdaki mesafeyi biz hep bir emek ve çalışma meselesi olarak algıladık. Onlar çalışıyorlardı biz tembellik ediyorduk ve aradaki mesafe öyle açılmıştı ki onlar gibi çalışıp emek sarfetsek bile bu mesafeyi kapatmak yerine ancak muhafaza edebiliyorduk. Bu öyle ümit kırıcı bir süreçti ki, batılıların bize göre ileriliği artık kabullenilmesi gereken “de facto” bir gerçek gibi görünüyordu. Halbuki bize lazım olan çalışmak ve emek sarfetmek kavramına yeni bir yorum getirmektir, yani “sa’y” ama Hazreti Hacer gibi muhâl ihtimalleri zorlayarak, ümitsizliğe kapılmadan, ısrarla ve kararlılıkla çalışmak; öyle ki neticenin müsbet olacağına kesin bir iman ile bağlanarak sa’y etmek. Bu nükteyi bize öğreten Hazreti Hacer’in İslâm dünyasına gösterdiği o dramatik örnektir. Gayretimiz hemen hiçbir sektörde Hacer Validemizin gösterdiği inanç yüklü didinme mertebesine ulaşamadan rutine takılıp kalıyor.
+       <br/>
+       <br/>
+       Hac ibadetlerinin öteki boyutları
+       <br/>
+       <br/>
+       Hac ibadetinin belki de her safhasında böyle fikir açıcı ibret levhaları gizlenmiş olmalıdır ve Allah’ın mü’minlere öğütlediği bu çok özel ibadet biçiminde derin ilhamlar keşfedilmeyi bekliyordur. Mesela tavaf esnasında yapılacak tek şey, sol omzu daima Kâbe’yi işaretleyecek derecede tutarak dua etmekten ibaret. Dini eğitim esnasında klasik usullere bağlı kalarak evvela Arabî lisan ile formüle edilmiş, âyet ve hadislerden müntakil dua örneklerini tercih ederiz lâkin tavaf bazen öyle uzun sürebiliyor ki (Kâbe’nin üçüncü katından yapılan tavaf süre olarak asgari iki saati ve mesafe itibariyle sekiz kilometreyi bulabiliyor) ezberinizdeki bütün dualar tükeniyor ve o esnada Cenab—ı Hakk’ın “iste vereyim; yönel ki icabet edeyim” vaadinde bulunduğunu yakinen hissediyorsunuz. Öyle zannediyorum ki pek çok mü’min gibi ben de dua etmenin gerçek anlamını ve muhtevasını tavaf esnasında öğrendim. Bir başka nükte daha: Kendiniz için isteyebileceğiniz ve niyazda bulunabileceğiniz şeyler kısa zamanda tükeniveriyor. İşte orada Müslüman diğerkâmlığının ne olduğunu farkediyor ve başkaları için de dua etmek ihtiyacına kapılıyorsunuz. Elbette ki duaların kabule en yakın olanı, nefsimiz için değil, gayrısı için yaptığımız dualardır. Tavaf, duayı ve yönelişi öğretiyor.
+       <br/>
+       <br/>
+       Arafat—Mina yürüyüşünde ise aynı hedefe doğru ilerleyen kitlelerin birbirini incitmemesi lüzumu ayn’el yakin derecede bir mânâ olarak zihne yerleşiyor; birincisi olmayan, hatta herkesin kazanmış sayıldığı bir yarışta müsabık olmanın anlamını düşününüz; geriye tefekkür ve edebden başka ne kalır ki?
+       <br/>
+       <br/>
+       Hac esnasında pek çok ülke veya şirket, kendi hacılarını grup halinde gezdiriyor; hatta Şii olduklarını tahmin ettiğim topluluklar, kadınları erkeklerden örülmüş bir savunma duvarı ile koruyorlar. Grup halinde hareket etmenin avantajları çok elbette ama özellikle tavaf esnasında bu gruplar akışı kesintiye uğratıyor ve bozuyor.
+       <br/>
+       <br/>
+       Halbuki bütün ibadetler gibi Hac da ferdi bir ibadet. Orada şu gerçeği farkediyorsunuz; Müslümanlar ferdi hareket edecekleri yerle, topluca davranmak gereken anları birbirinden tefrik etmekte sıkıntı çekiyorlar. Mesela aynı dayanışmayı İslâm dünyasına yönelen haksızlıklar ve saldırılar karşısında gösteremeyişimiz bana pek mânidar görünüyor. Kezâ iktisadi, siyasi ve kültürel alanda Müslümanlar dayanışmayı bilmiyorlar. Topluluk teşkil etmek, evvela ferdiyetin mesuliyetini nazmetmekle mümkün.
+       <br/>
+       <br/>
+       Hac, bir Müslümanın sair yer ve zamanlarda tekrarlamasına imkân olmayan özel ibadet biçimleri gerektiriyor ve her ibadetin nefisten Yaradan’a yönelen boyutu dışında başka boyutları da var. Bu yönüyle ele alındığında Hac ibadeti, Müslümanlarda sanki bir beyin fırtınası yaratmak maksadını hedefliyor gibidir .
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12514), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225163414/http://www.aksiyon.com.tr:80/detay.php?id=12514)

@@ -1,0 +1,49 @@
+# ANKARA FISILTILARI (396)
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010329im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010329im_/http://www.aksiyon.com.tr/resim/396/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ankara’nın pahalı villaları
+  <br/>
+  Ankara’nın İncek semti son zamanlarda havası ve suyundan dolayı politikacıların gözdesi oldu. TBMM eski başkanlarından, eski başbakan, DYP Milletvekili Yıldırım Akbulut, yine DYP’li Amasya Milletvekili Ahmet İyimaya burada villa satın aldılar. TBMM’de kavgalarıyla ünlü Demirel sonrası ANAP’a geçen bir milletvekili, eski bir bakanın da bu ünlü semtten oldukça yüksek bir fiyata villa satın aldığı haberleri bize ulaştı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bayrak, çay paralarını toplayınca...
+   <br/>
+   <br/>
+   Bayrak, Meclis muhalefet kulisinin çaycısı... Yıllarca burada görev yapan bir isim olarak eski–yeni vekiller arasında Bayrak’ı tanımayan yok gibi. En önemli özelliklerinden birisi de kara tahtaya yazdığı çay paralarını vekillerden toplaması.. Bazı vekillerin çay paralarını aylarca ödememesi sorun oluyor. Ancak Meclis tatil olmadan hemen önce Bayrak’ın vekillerden ‘ivedilikle’ çay paralarını istemesi dikkat çekti ve espri konusu oldu; ‘acaba erken seçim o kadar yakın mıydı?’ Odacılar kadar gelişmelere duyarlı olan Meclis çaycılarının, hele hele kulis çaycısının kulağına birşeyler fısıldanmıştı, herhalde.
+   <br/>
+   <br/>
+   Sert sözcükler...
+   <br/>
+   <br/>
+   Fısıltılara göre bir uçak seyahati sırasında eski bir devlet adamı, bir partinin genel başkan yardımcısına, bir başka partinin genel başkanı için ‘Onu mahvedeceğim, bir adım bile atamayacak, politikadan silinecek’ dediği ileri sürülüyor.
+   <br/>
+   <br/>
+   İnternete sansür...
+   <br/>
+   <br/>
+   İnnova Bilgisayar Sistemleri AŞ., son zamanlarda dikkat çeken bir kuruluş. Geçtiğimiz yıl aldığı bir ödülle de adını duyurdu. Gelen bilgilere göre bu şirket son zamanların tartışma konularından birisi olan internete sansür konusunda çalışmalar yapıyor. İlk etüdler de ODTÜ bünyesinde gerçekleştirilmiş ve üniversiteye getirilen bir grup genç üzerinde çeşitli testler gerçekleştirilmiş.
+   <br/>
+   <br/>
+   Spor araştırma merkezi
+   <br/>
+   <br/>
+   Ankara Spor Yazarları Derneği yeniden yapılanıyor. Bu çerçevede dernekte bir ilginç girişim başlatıldı ve dernek çatısı altında spor araştırma merkezi kuruldu. Mütevazı şartlarda hizmet veren spor araştırma merkezinin başkentli spor araştırmacılarının çok işine yarayacak.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1529), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010329/http://www.aksiyon.com.tr:80/detay.php?id=1529)

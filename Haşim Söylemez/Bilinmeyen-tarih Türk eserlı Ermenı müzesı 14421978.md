@@ -1,0 +1,79 @@
+# Türk eserlı Ermenı müzesı
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095159im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095159im_/http://www.aksiyon.com.tr/resim/387/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Adana Müzesi’nden çalınan eserlerin yıllar sonra Beyrut’ta ortaya çıkması kafaları karıştırdı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ekim 1992’de Adana’da yaşanan müze soygunu akıllara durgunluk verecek nitelikteydi. Cumhuriyetle yaşıt Adana Müzesi’den tam 10 bin tarihi eser kaşla—göz arasında ortadan kayboldu. Soygunda kullanılan yöntem ise en az soygun kadar dikkat çekiciydi; Türkiye’de bir ilk olarak tarihe geçen ‘sahtesi ile aslını değiştirme’ metodu. Müze soyma tekniklerine bir yenisinin eklendiği bu metodla hırsızlar Çukurova’nın değişik yerlerinde ürettikleri sahte eserleri aslının yerine koyarak müzenin içini boşalttılar. Müzenin soyulması elbette çok önemliydi ancak soygundan çok soyguncular tartışıldı. Bu olayı tüm Türkiye’ye duyuran yerel Ekspress Gazetesi muhabiri Abdülkadir Kaçar soygunculara dair o tarihlerde önemli ip uçları veriyordu. Kaçar yaptığı araştırmada çalınan eserlerin arkasında Ermenilerin bulunduğunu ısrarla ileri sürüyor. Gelişen olaylar ve yıllar sonra bir Ermeni müzesinde bazı eserlerin ortaya çıkması Kaçar’ın iddialarını doğruladı. Ermeniler tarafından Beyrut’ta oluşturulan Kilikya Müzesi’nde Adana yöresine ait çok sayıda eser bulunuyor. Zaten büyük soygun olayının yaşandığı tarihlerde gizli—kapaklı gelişen olaylar, hırsızlığın sıradan olmadığına dair önemli bulgular sağlıyor.
+   <br>
+    <br>
+     Amerikan Konsolosluğu devreye giriyor
+     <br>
+      <br>
+       Soygunun ardından ortaya atılan iddialar, yaşanan tartışmalardan sonra Amerikan Konsolosluğu Adana Valiliği aracılığıyla duruma el koyar. Valilik gazeteci Kaçar’ı uyardığı gibi, konuyu bir suç duyurusu olarak Valiliğe aktaran bazı tarihçilere de ‘sus’ uyarısı yapılır. Böylece Amerikan Konsolosluğu’nun uyarısı üzerine dönemin valisi yörede araştırma yapan tarihçilerin tüm çalışmalarına son verdirir.
+       <br/>
+       <br/>
+       Şüpheler bunlarla sınırlı kalmıyor; soygunun gerçekleştiği günlerde Adana Müzesi ile iç içe olan Müze Dostları Derneği’nde Ermeni asıllı Leon Eraslan adında bir iş adamının da bulunduğu tespit edilir. Kamuoyundan gelen tepkiler üzerine dernek aynı tarihlerde çalışmalarını askıya alır ve kendisini fesheder. Soygundan sonra müze müdürlüğüne atanan İsmet İpek ise çalınan eserlerin imitasyon (taklidiyle değiştirme) yöntemi ile kaçırıldığının altını çiziyor. İpek, soygunun planlı ve uzun süreli bir çalışma olduğunu da vurguluyor. Müzenin eski müdürü İpek, Ermenilerin Fransızlarla birlikte eskiden beri Çukurova’da çalışmalar yaptıklarını söylemekten kendisini alamıyor. İpek: “Çok eser çalındığı için hangisi nereye gitti, kimler kaçırdı demek çok zor. Ama dış odaklı olma ihtimali büyük. Ermeniler de olabilir. Ermenilerin bu işi yaptığı vakidir” diyor.
+       <br/>
+       <br/>
+       Soygunun ardından Kültür Bakanlığı’nca yapılan soruşturmanın sonucu kamuoyuna açıklanmadan dosya kapatılır. Bakanlık, incelemede hangi noktaya vardığı, eserlerin nasıl ve kimler tarafından çalındığı konusuna ise bir açıklık getirmedi. Ancak müze soygunundan üç ay sonra 1993 yılının başında Beyrut’ta Ermeni Diasporası tarafından bir müze oluşturma çabalarının başlaması dikkatleri bu yönde yoğunlaştırdı.
+       <br/>
+       <br/>
+       Eserler Kilikya Müzesi’nde
+       <br/>
+       <br/>
+       Soygunun ardından Beyrut’ta Antelias Ermeni mahallesinde Kilikya Kilisesi’nin bir bölümünde oluşturulan Kilikya Müzesi’nde Ermeniler kendilerine ait olduğunu ileri sürdükleri eserleri sergiliyorlar. Müzenin resmi olarak açılışı ise 1997 tarihine denk geliyor. Yaklaşık 5 yıldır dünyanın değişik yerlerinden getirtilen Ermeni kültürünü temsil ettiği iddia edilen eserler bu müzede ziyaretçilerin ilgisine sunuluyor. Müze iki kısımdan oluşuyor. Biri herkese açık, diğeri ise sadece Ermenilerin gezip görebileceği kısım. Açık olan bölümde Ermenilerin daha çok dini mitoflerini oluşturan parçalar, eserler bulunuyor. Ancak Ermeniler, Adana’dan çalınan Ortaçağ dönemine ait birçok sikke ile küçük çaplı tarihi parçaları sergilemekte mahzur görmüyorlar. Yine altın—gümüş karışımı olan baston da bu müzede yer alıyor. Çukurova kökenli ve çalıntılar arasında en belirgin parça olan ‘Altın Kazan’ ile Adana’daki müzeden çalınan eserler arasında bulunan küçük ve büyük çok sayıdaki heykel de aynı şekilde müzenin açık kısmında bulunuyor. Sadece bunlar değil, etnografik yönden kaynak oluşturacak önemli parçalar da sözde müzedeki yerini alıyor.
+       <br/>
+       <br/>
+       Beyrut’ta yaşayan ve can güvenliği dolayısıyla isminin açıklanmasını istemeyen bir Türk’ün anlattıkları olaya ışık tutacak boyutta: Bir Ermeni arkadaşının yardımıyla 2 yıl önce müzeyi gezdiğini belirttikten sonra şunları söylüyor: “Müze iki kısma ayrılıyor; birisi açık olan kısım, diğeri kapalı. Bu kısımda çok sayıda eser bulunuyor. Bunların çoğu Türkiye’den gelme. En çok 1992 yılında eserler gelmiş. Zaten ondan sonra da hemen müzeyi oluşturmuşlar. Binlerce eser var. Gizli kısımda ise tarihi eserlerin yanısıra iskeletler de bulunuyor. Bu iskeletler güya Türklerin katlettiği Ermenilere aitmiş. Bunları ibretlik olarak kendi halklarına gösteriyorlar. Ermeniler zaten bu eserlerin çoğunun Türkiye’den geldiğini ancak kendi kültürlerine, kendi özlerine ait olduğunu söylüyorlar. Bu konuda hiç çekinmiyorlar.”
+       <br/>
+       <br/>
+       Müzede daha ne yok ki? Adana Müzesi’nden çalınan halı ve kilimler de sözde müzede sergileniyor. Ermeniler eserlerin Ortaçağda Çukurova’da kurulan Kilikya Ermeni Devleti(Krallığı)’ne ait olduğunu belirtiyorlar. Gelen konuklara müzenin açık kısmını gezdiren yetkililer burada bulunan eserlerin Ermeni kültürüne ait olduğu, hepsinin birer delil olarak kullanılacağı ancak 1441’de Ermeniya’dan sonra Türklerin sahiplendiği şerhini düşüyorlar. Yani bu aslında şu anlama geliyor; buradaki eserler bize aitti ama Türkler ele geçirmişti, biz tekrar buraya getirdik.
+       <br/>
+       <br/>
+       Müzeden Beyrut’a kaçırılan eserlerin net sayısı bilinmiyor ancak sayıdan çok eserler muhteva bakımından dikkat çekiyor. Eserlerde özellikle sikkeler, eski harita parçaları, Çukurova yöresinin tarihi özelliğini yansıtan küçük mezar taşları bulunması soy ve toprak talebi için gerekli olan envanterleri teşkil ediyor. Arkeolog Semih Yalın çalınan eserlerin sıradan tarihi eserler olmadığını, her bir eserin kültürel bakımdan anlam taşıdığını belirtiyor. Yalın, olayı şöyle değerlendiriyor: “Burada amaç kendi soylarını ve kültürlerini buraya dayandırmak. Onları daima canlı tutup Çukurova ile bağlantısını sağlamak. Yani bunun altında toprak talebi bulunuyor. Bunlar tarih açısından birer delil niteliğinde. Yoksa hiç kimse bu bizi yansıtıyor deyip eser çalıp bunu müzede sergilemez.”
+       <br/>
+       <br/>
+       İki sene önce Beyrut’ta yaşayan Haceryan ailesine mensub bir şahıs Adana Adliyesi’ne verdiği dilekçede toprak talebinde bulunmuş, mahkeme ise söylenen yerin incelenmesine karar vermişti. Hâlâ devam eden dava için şahsın eski tapu kayıtlarının yanısıra eski mezar taşlarını da birer delil olarak sunması düşündürücü.
+       <br/>
+       <br/>
+       Kaleler de Ermenilerinmiş
+       <br/>
+       <br/>
+       Beyrut’taki Ermeni Müzesi’nde fotoğraflar da sergileniyor. Ancak fotoğraflarda öne çıkan objeler ağırlıklı olarak kaleler. Ziyaretçilere tanıtılan Çukurova’daki Anavarza, Yılankale, Kınık, Çardak ve Çanakçı başta olmak üzere irili—ufaklı kalelerin Ermenilere ait olduğu tezi ileri sürülüyor. Yazılan yabancı kaynaklı eserler de Ermeniler için iyi bir rehber oluyor. Özellikle Robert W. Edwards’ın 1987 yılında yayımlanan “The Fortifications Of Armenian Cilicia” yani ‘Kilikya Ermenilerinin Kaleleri’ anlamına gelen eserinde Çukurova’daki sözü geçen kalelerin Ermenilere ait olduğu görüşü savunuluyor. Aynı şekilde Hangend Hellenkemper isimli araştırmacının eserinde de Edwards’in savunduğu tez ileri sürülüyor. Ancak Semavi Eyice bunların kesinlikle yanlış olduğunu, Çukurova’nın geniş bir kültüre beşiklik ettiğini belirtiyor. Eyice buradaki Osmanlı mirasını yok saymanın ise araştırmacılık ruhuna sığmayacağını belirtiyor. Edwards’ın casus Lavrence’nin öğrencisi olması ise dikkat çekici. Edwards’ın eserinde Çukurova ve Toros Dağları’ndaki kalelerin Ortaçağ Ermenistan Krallığı’na ait olduğunu göstermesi o dönemde yetkilileri de harekete geçirmişti. Edwards 1973—74 yıllarında Adana’ya gelip araştırmalar yapıyor. Hatta kendisine özel bir oda tahsis eden Müze Müdürü Orhan Aytuğ Taşyürek hakkında soruşturma başlatılıyor. Kültür Bakanlığı’nca soruşturmalar gizlice yürütüldü ve daha sonra da müdürün görevine son verildi.
+       <br/>
+       <br/>
+       Neden Beyrut?
+       <br/>
+       <br/>
+       Ermenilerin böylesine sakıncalı bir müzeyi  Beyrut’ta açmaları tarihi sebeplere dayanıyor. Adana’dan 1921’de ayrılan Ermeniler kendilerine Çukurova’nın eski adı olan Kilikya adını vererek 1960 yılında dini ve siyasi bir örgütlenmenin içine girdiler. Kilise kuruldu, ardından müze açıldı. Kilikya Kilisesi Diaspora Ermenilerinin dini ve siyasi lideri konumuna getirildi. Kilise 1970’li yıllarda bir yandan ASALA vasıtasıyla Türkiye’ye karşı terör ve propaganda faliyetlerini sürdürürken bir yandan da Sevr modeline uygun proje çalışmaları yapıyor. Toprak ve tazminat istekleri için belge olarak kullanılacak tarihi Osmanlı tapularının korunması, Kilikya Ermeni Devleti’ni tekrar kurmak için para, heykel, etnografik malzeme toplayan müze Beyrut’un Antelias adı verilen Ermeni mahallesinde bulunuyor.
+       <br/>
+       <br/>
+       Burada tartışılması gereken diğer bir konu ise çalınan eserlerin sözkonusu Ermeni müzesinde ortaya çıkması ile eserlerin nasıl geri alınacağı. Aslına bakılırsa bu çok zor. Çünkü; uluslararası literatürde eser kaçakçılığı ile ilgili bu kısımlar henüz net değil. Mahkeme kararı ile eserini geri alabilirsin maddesi bulunuyor. Ancak mahkemenin başlaması için bir dizi hukuki işlemlerin gerçekleşmesi gerekiyor. İşin zorluğu da bu noktada devreye giriyor. Dava açmak için önce eserin tespit edilmesi, eserin tarihinin ortaya çıkarılması, hatta eserin fotoğraflanması şart. Bu işlemler davanın açılması için yeterli değil. Müzayedelerin, müzelerin ve İnterpol’ün de onay vermesi gerekiyor. Karşı taraf bu benim kültürümün bir parçası, bana ait deyip hukuki yönden ispatı gereçekleştirirse o zaman çalınan eseri unutmaktan başka alternatif kalmıyor. Kısacası gideni geri getirmek neredeyse imkansız.
+       <br/>
+       <br/>
+       ‘Soykırım’ iddiası ile dünya kamuoyunu meşgul eden Ermeniler kendi köklerine ait olduğunu ileri sürdükleri eserleri şimdi de delil olarak kullanmaya hazırlanıyorlar. İki yönden bir adım öne geçmiş durumda olan Ermenilerin bu çabalarına karşılık artık bilinçli anti—tezlerin ileri sürülmesi ve somut verilerin biraraya getirilmesi gerekiyor. Ermenilerin fanatik kesimi bunu yapmak için kendilerine ait olmayan tarihi eserleri ‘bize ait’ deyip çalmaktan çekinmiyorlar.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11850), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095159/http://www.aksiyon.com.tr:80/detay.php?id=11850)

@@ -1,0 +1,37 @@
+# Deli dana Amerika'yı Sars'tı
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040304195841im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040304195841im_/http://www.aksiyon.com.tr/resim/473/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Geçtiğimiz kış Sars hastalığı yüzünden Çin’in başına gelenlerin benzerini şimdi deli dana hastalığı yüzünden Amerika yaşıyor. Amerikan Tarım Bakanlığı’nın, Washington eyaletinde deli dana hastalığına rastlandığını açıklaması ile birlikte ülke genelinde başlayan panik birden bire tüm dünyaya yayıldı. Amerika’dan en büyük et alıcısı Japonya ve Çin bu ülkeden yapılan et ithalatını durdurdu. Tarihinde ilk defa deli dana hastalığı ile karşı karşıya kalan ve gelişmelere hazırlıksız yakalanan Amerika’da McDonald’s, Burger King gibi şirketlerin hisse senetleri değer kaybetti.
+ </font>
+ <p>
+  <font class="content">
+   İngiltere’de patlak verdikten sonra hızla Avrupa’ya yayılan ve hayvancılık—süt ürünleri sektörlerinde milyarlarca dolarlık zarara yol açan deli dana hastalığının Amerika’ya vereceği zararın daha büyük olacağı belirtiliyor.
+   <br/>
+   <br/>
+   Türkiye et ithalini hemen yasaklamasına karşın zaten Türk hayvancılığını korumak amaçlı getirilen ağır gümrük vergileri yüzünden herhangi bir etkinin yaşanmayacağı ifade ediliyor.
+   <br/>
+   <br/>
+   ABD’de et piyasasının büyüklüğü 180 milyar dolar. Sektör kaynakları, hastalığın tek bir vakayla sınırlı kalması durumunda olayın önemli bir etkisinin olmayacağını, ancak yeni vakaların saptanması halinde, yıllık 27 milyar dolarlık büyüklüğe ulaşan et sanayiinin önemli bir darbe alacağını belirtiyor.
+   <br/>
+   <br/>
+   ABD’de görülen deli dana vakası, ABD menşeli sığır eti ithalinin birçok ülkede yasaklanmasına neden oldu. Güney Afrika, Rusya ve Ukrayna’nın yanı sıra Güney Kore, Malezya, Hong Kong, Japonya, Avustralya, Tayvan ve Singapur sığır eti ithalini yasakladı. Japon yetkililer ABD’den ithal edilmiş ve piyasada bulunan ürünlerin geri çekileceğini duyurdu. Haber, ABD’den et ürünleri ithal eden Japon lokantaların hisselerinde düşüş yaşanmasına neden oldu. Japonya, ABD et ve et ürünleri ihracatının en büyük pazarı. Yaklaşık 842 milyon dolarlık pazar değerine sahip olan ülke, ABD ihracatının yüzde 35’ini kapsıyor.
+   <br/>
+   <br/>
+   ABD Tarım Bakanı’nın bu olayda biyolojik terör izine rastlanmadığını açıklaması ABD halkını rahatlatmış görünse de ülkeleri ve global ticareti etkileyen bu tip gelişmelerin ardından biyolojik saldırılara atıfta bulunmak alışkanlık haline geldi.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3314&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040304195841/http://www.aksiyon.com.tr:80/detay.php?id=3314&yorum_id=1)

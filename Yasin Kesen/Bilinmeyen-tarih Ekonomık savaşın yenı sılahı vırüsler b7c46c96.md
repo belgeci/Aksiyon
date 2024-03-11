@@ -1,0 +1,103 @@
+# Ekonomık savaşın yenı sılahı: vırüsler
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Virüsler gündemden düştüğü zamanlarda bilgisayar kullanıcıları anti-virus programlara ilgi göstermiyor. Bu ilgiyi sürekli yüksek tutabilmek için de anti-virüs yazılımcılarının bir pazarlama enstrümanı olarak virüsleri piyasaya sürdüğü düşünülebiliyor
+   <br/>
+   <br/>
+   Her virüs furyasının ardından bir sürü spekülasyonlar yapılır. Bazılarına göre, bu virüsler bilgisayar parçası üreten firmaların himayesindeki “hacker”lar tarafından üretilip dağıtılmakta, bazılarına göre ise, anti—virüs programlarını piyasaya sunan yazılım şirketleri tarafından.
+   <br>
+    <br>
+     Bilgisayar parçası üreticilerini böyle bir şaibe altında bırakan en meşhur virüs yakın zamanda milyonlarca bilgisayarın anakartı üzerindeki bir çipi (bios) çalışmaz hale getiren Çernobil virüsü idi (Diğer bir isimle 5 Nisan virüsü). Çernobil virüsü salgını neticesinde her yıl belki yüzbinlerce bilgisayarın anakartı zarar görüyor ve bir o kadar da bilgisayar çipi satışını zorunlu kılıyor. Bu da “bios” ismi verilen çip üreticilerinin içten içe mutluluk duymasını sağlıyor.
+     <br>
+      <br>
+       Ancak diğer yandan da bu tip virüslerin anti—virüs programı üreten firmaların sinsi planları dahilinde olduğu komplosu daha ağırlık kazanabiliyor. Öyle ki, virüsler genellikle bilgisayarların donanımına zarar vermezken, sadece programlarını çökertip kullanılamaz hale getiriyor. Bunun önüne geçmek için ise, sürekli yeni güncellenmiş virüs tarayıcı yazılımları bilgisayarlarda barındırmak ve arada bir tüm dosyaları denetimden geçirmek gerekiyor. Alışverişi yapılan dosyaları ise mutlaka her seferinde kontrole tabi tutmak da cabası.
+       <br>
+        <br>
+         Anti—virüs programlara bu kadar sık başvurulmasını gerektirebilecek bir ortamın arka planını düşündüğümüzde ise, özellikle hızlı yayılan virüslerin bu yazılım şirketlerince üretilip gizlice dağıtıldığı senaryosu kuvvet kazanıyor. Zira, virüsler gündemden düştüğü zamanlarda bilgisayar kullanıcıları da anti—virus programlara ilgi göstermiyor. Bu ilgiyi sürekli yüksek tutabilmek için de anti—virüs yazılımcılarının bir pazarlama enstrümanı olarak virüsleri piyasaya sürdüğü düşünülebiliyor.
+         <br/>
+         <br/>
+         Yazılımcı ve donanımcılara yönelik bu iki basit komplo teorisi bir yana, öyle ya da böyle bu virüsler piyasaya dağılıyor ve tüm dünyada gündemin ilk sıralarına oturmayı başarabiliyor. Her bir virüs salgınının ardından belki milyonlarca bilgisayarın sistemi çöküyor, programların yeniden kurulması gerekebiliyor, birçok dosya kaybedilebiliyor. Bu kadar kaybın oluştuğu salgının bu kadar çok insanın mesaisinden aldığı zamanın maddi değeri hesap edildiği zaman ise ortaya korkunç bir tablo çıkıyor. Dünya üzerinde bir virüs salgınından etkilenen bilgisayar sayısının 100 milyon olduğu düşünülürse ve her bilgisayardaki günlük mesai kaybının ortalama 50 dolar olduğu hesap edilirse, toplam mesai kaybı maliyeti 5 milyar dolar gibi bir rakama karşılık geliyor.
+         <br/>
+         <br/>
+         Büyük şirketlerin, bankaların, holdinglerin sistemlerinin çökmesi, üretimin durması, iletişimin durması, virüsün işlemleri yavaşlatması gibi etkiler hesap edilmeye kalkıldığında ise global kaybın çok daha yüksek rakamlara varması işten bile değil.
+         <br/>
+         <br/>
+         Her bir virüsün bu kadar mali hasara yol açabilmesinden hesapla, geleceğin uluslararası savaşlarında bilgisayar virüslerinin silah olarak kullanılabileceği de insanın aklına gelmiyor değil... Ama şimdilik bu kadar uçmaya gerek yok... Günümüze geri dönelim.
+         <br/>
+         <br/>
+         Son virüs furyası ile gündeme oturan Sir.Cam virüsü, aktif hale geldiği bilgisayarlarda adres defterindeki kişilere kendini otomatik olarak gönderiyor. Her giden mesaj ile birlikte de bilgisayardan rastgele dosyaları da gönderiyor. Böylece hem karşı tarafın dosyalara daha güvenerek bakabilmesini sağlıyor hem de “özel” dosyaların gizliliğini ortadan kaldırmış oluyor. Bu yönüyle de oldukça sevimsiz bir durum. Ve yayılan virüs dalgası ile siber uzayda ilgisiz insanlara ilgisi olmayan dosyalar uçuşuyor. Otomatik olarak giden e—mailler nedeniyle de bilgisayarlarda aşırı bir yavaşlama, internet bağlantısının da aynı şekilde ağırlaşması ortaya çıkıyor.
+         <br/>
+         <br/>
+         Yeni virüs: Code Red ( Kızıl Kod)
+         <br/>
+         <br/>
+         Sir.Cam virüsünün hasarı henüz ortadan kaldırılamadı ancak Çinli hacker'lar boş durmadığı için yeni bir virüs uyarısı daha tüm anti—virüs sitelerinde yerini aldı. Code Red adı verilen yeni virüsün yine e—mailler ile dağılacağı uyarısının yanında daha öncekilere göre çok daha zararlı olduğu belirtiliyor. Zira, Code Red’in hedefi web siteleri için (hosting) sunuculuk hizmeti veren “server”lar. Sunucular içinde ise sadece Windows NT tabanlı işletim sistemlerinde etkili oluyor. Bu ayrıntıdan hareketle, yeni virüsü üretenlerin Microsoft karşıtı olduğu da kendini belli ediyor.
+         <br/>
+         <br/>
+         Kızıl Kod’un saldırısından etkilenen sunuculardan yayınlanan sitelere girilmek istenen web sitelerinde “Welcome to http://www.worm.com! Hacked By Chinese!” yazısı görünüyor. Ayrıca, sunucunun sisteminde Microsoft Index Server’a aşırı işlem yükleyerek sistemin hafıza kapasitelerini daraltıyor. Böylece sunucunun işletim sistemini çökerterek yeniden kurulmasını gerektiriyor.
+         <br/>
+         <br/>
+         Code Red, her ay başında yeni bir faaliyet periyodu izliyor. Ayın ilk 19 günü sunucuların TCP 80 portundan sisteme giriş için saldırıya başlıyor. Ayın 20—27. günleri arasında ise, girmeyi başarabildiği işletim sistemlerinde aktif hale gelip siteleri görüntülenemez hale getiriyor. 28’inden ay sonuna kadar ise yeniden uyku moduna geçerek gelecek ayın ilk gününe hazırlık yapıyor.
+         <br/>
+         <br/>
+         Kişisel bilgisayarlarda ise, kayıtlı bulunan web formatındaki dosyaların HTML kodunu etkileyerek çalışmaz hale getiriyor.
+         <br/>
+         <br/>
+         Korunmak için ne yapmalı?
+         <br/>
+         <br/>
+         Komplo teorilerimizden birini üzerlerine yüklediğimiz, anti—virüs programlardan mutlaka edinmek gerekiyor. Haftada bir veya onbeş günde bir bu programla tüm bilgisayarın denetimden geçirilmesi, e—mail, disket veya CD ile bilgisayara alınacak her türlü dosyanın virüs testinden geçirilmesi gerekiyor.
+         <br/>
+         <br/>
+         Kullanılan anti—virüs programının web sitesinin de arada bir ziyaret edilip yeni çıkan virüslerle ilgili haberlerin takip edilip, tavsiyelerin dikkate alınmasında fayda var.
+         <br/>
+         <br/>
+         Anti—virüs programları
+         <br/>
+         <br/>
+         Anti—virüs yazılım piyasasındaki rekabet nedeniyle yüzlerce anti—virüs yazılımı bulmak mümkün. Ancak, böyle kritik bir durumda mutlaka kaliteli programları tercih etmek gerekiyor.
+         <br/>
+         <br/>
+         Kullanılması tavsiye edilen bazı anti—virüs programları ve son sürümleri:
+         <br/>
+         <br/>
+         1. McAfee VirusScan for Windows 95/98 5.15.0002
+         <br/>
+         <br/>
+         2. PC—cillin 2000 (Windows 95/98)
+         <br/>
+         <br/>
+         3. Norton AntiVirus 2001 (Windows NT/2000) 7.0
+         <br/>
+         <br/>
+         4. Panda Antivirus Platinum 6.23.00
+         <br/>
+         <br/>
+         Bu programların hepsi de deneme süresi hakkı tanınarak bir kısım sitelerden yüklenebiliyor. Download.com, Zdnet.com, Softseek.com, Tucows.com, Antivirus.com gibi siteler bu yazılımları güvenli olarak sağlayan yazılım arşivleri. Ayrıca, ilgili yazılımın kendi web sitelerinden download etme imkanı da bulunuyor.
+         <br/>
+         <br/>
+         yk@yasinkesen.com
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 9 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12546), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043820/http://www.aksiyon.com.tr:80/yazdir.php?id=12546)

@@ -1,0 +1,86 @@
+# Yeni nesil araçlar da dizele tepki veriyor
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041223173050im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041223173050im_/http://www.aksiyon.com.tr/resim/519/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İthal edilen bozuk ve kaçak motorin sebebiyle yıllarca Türkiye’ye dizel araç getirmeyen büyük otomobil firmaları, AB’ye üyelik arefesinde piyasaya sundukları Eurodiesel yakıtlarla otomobilcilerin yüzünü güldürdü. Ancak, piyasaya yeni giren Eurodiesel’ler nedeniyle ortaya çıkan arızalar kafaları yeniden karıştırdı.
+ </font>
+ <p>
+  <font class="content">
+   Avrupa Birliği  yolundaki Türkiye’de otomotivin yanı sıra akaryakıt  sektöründe de büyük değişimler yaşanıyor. Yaklaşık bir yıldır ülkemize AB standartlarına uygun dizel ve performansı artıran yakıtlar ithal ediliyor. Bunun nedeni de Petrol Piyasası Kanunu’nun önümüzdeki aralık ayında yürürlüğe girmesiyle oluşacak serbest piyasa şartlarının  uygulamaya girmesi.
+   <br/>
+   <br/>
+   Bozuk akaryakıtla yıllarca mücadele eden Türkiye’de birçok otomobil bu yüzden yollarda kaldı. TÜPRAŞ’ın kalitesiz akaryakıtı yüzünden yaşanan bu olumsuzluklar Avrupa Birliği müzakerelerine yaklaştıkça giderilmeye, dizel otomobillere yönelik kaliteli yakıtlar Türkiye piyasasına girmeye başladı. Total, Shell, Opet, BP, Petrol Ofisi ve Türk Petrol gibi şirketler akaryakıt piyasasından daha büyük pay alabilmek için yurtdışında geliştirilen özel yakıt türleriyle markaya sadık bir tüketici kitlesi oluşturmaya başladı.
+   <br/>
+   <br/>
+   İthal Performa Eurodiesel ile Türk tüketicisini ilk defa yıl başında Total tanıştırdı. Euro 3 Avrupa normuna uygun 350 ppm kükürt oranına sahip yüzde yüz ithal bu ürün, çevreci olduğuna vurgu yapılıp yeşil renge boyanarak piyasaya sunuldu. Tüketiciler, bu ürünü pompa hortumlarının ucuna yerleştirilen gözetleme camından görerek yüksek oranda kükürt içeren diğer sınıf motorinlerden kolaylıkla ayırt edebildi. Yeni satılmaya başlanan bu yakıtın yeni nesil araçlarda kullanılması önerildi. Ardından da diğer şirketlerdeki istasyonlarda satılmaya başlandı.
+   <br/>
+   <br/>
+   Yeni nesil araçlar yeni nesil yakıt istiyor
+   <br/>
+   <br/>
+   Bazı otomobil firmaları TÜPRAŞ’ın bozuk ve kalitesiz motorini nedeniyle markalarını Türkiye’ye getirmemişti. Dizel motorlar temiz motorin ile çalıştıkları için kullanılan yakıtın temiz olarak motora girmesi gerekiyor. Motorin alındığında veya daha sonrası için su ihtimali yüksek bir yakıt türü olduğu için motorda arızaya neden oluyordu.
+   <br/>
+   <br/>
+   Bu yüzden, bazı otomobil firmaları, dizel modelleri, bozuk yakıttan dolayı Türkiye’ye getirmedi. Getirenler ise bazı önlemler almak zorunda kaldı. Örneğin Volvo binek otomobillerin hiçbirinin dizel’ini bugüne kadar getirmedi. Ancak şeytanın bacağı bu hafta düzenlenen  AutoShow 2004 İstanbul fuarıyla kırılıyor. Türkiye’de akaryakıt kalitesinin artmasıyla birlikte Volvo; S40, S60, S80, XC90 modellerin dizel’ini bu fuarda sunacak. Peugeot ise 407 1.6’nın  dizelini hâlâ Türkiye’ye getirmiyor. Otomobil büyük, motor küçük hacimli olduğu için bir endişe taşınıyor. Toyota ise Corolla modellerini getirmemekte ısrarlı gibi.
+   <br/>
+   <br/>
+   Son zamanlarda Eurodiesel’in bu sorunu çözeceği düşünülerek akaryakıt şirketleri farklı farklı ürünleri ithal etmeye başladı. 2004 yılında  azami 350 ppm kükürt içeren Avrupa standartlarında motorin satışı Türk piyasasına girmeye başladı. En son, akaryakıt dağıtım şirketi OPET, Avrupa’nın 1 Ocak 2005’ten itibaren standart olarak kullanacağı kükürt oranı daha düşük  olan Ultra Eurodiesel’i Türkiye’ye getirdi.
+   <br/>
+   <br/>
+   Avrupa’nın çevreci motorini Ultra Euro diesel, ülkemizde satılan Eurodiesel’lere göre 7 kat daha az kükürt içerdiği için dizel otomobiller için tavsiye ediliyor. Diğer yandan, 50 ppm kükürtlü yüksek kalitesi nedeniyle Akdeniz piyasasının en pahalı ürünü olarak gösteriliyor.
+   <br/>
+   <br/>
+   Bir taraftan eski dizel yakıtların yol açtığı hasarların yok olacağı ümidiyle Avrupa’ya uyumlu bu yakıtlar gelirken öte yandan bazı sorunların yaşanması kafaları karıştırdı. Konfeksiyon toptancısı, işadamı Faruk Tuna gibi kişiler şirketlerine aldıkları otomobillerde bu yakıtı kullanmalarına karşılık akaryakıt tanklarında arızaların oluşmasına mani olamadı.
+   <br/>
+   <br/>
+   Total topu Renault’ya attı
+   <br/>
+   <br/>
+   Faruk Tuna, 2004 ve 2005 model otomobillerine Ultra Eurodiesel çıktığından itibaren Total istasyonlarından yakıt almaya başladı. Renault Kango otomobilin Eylül ayında akaryakıt tankı bozuldu. Bunun üzerine Total Akaryakıt Pazarlama Müdürü Medar Çopur, Niksar Tokat bayiindeki pompa ve tanktan alınan numuneleri analiz yaptırdı. Verilen karar müşterisini mutlu etmedi. Total, diğer bayiler gibi bu istasyonun da devamlı denetlendiğini belirterek bu konuda başka müşterilerden herhangi bir  şikayet gelmediği için Tuna’nın yaşadığı olayı lokal olarak adlandırdı. Olayda hiçbir suçu olmadığını düşünen müşteri ise aracında 6 milyarlık hasar meydana geldiğini ileri sürüp zararın tazmin edilmesi için noter kanalından firmaya ihtarname gönderdi.
+   <br/>
+   <br/>
+   Yapılan tetkiklerde araçtan çıkan numunenin su miktarı fazla çıktı. Ancak Total bu suyun sonradan mı yoksa akaryakıttan mı kaynaklandığının belli olmadığını, diğer taraftan da dizel araçların rutin büyük bakımlarına yakıt deposu temizliği işleminin de dahil edildiğini ifade etti. Biriken suların ve partiküllerin bakım zamanında temizlenmiş olduğundan emin olunması gerektiğini söyleyen Medar Çopur dolayısıyla konunun kendi sorumluluklarında olmadığını, bir anlamda tank temizliğini yapmayan Renault’ta olduğunu ima etti.
+   <br/>
+   <br/>
+   Öte yandan Renault ise otomobilin sağlıklı hareket edebilmesi için yakıt deposundan enjektörlere kadar komple sistemin değiştirilmesi gerektiğini müşterisine açıkladı. Total’in  yaptığı açıklamanın aksine periyodik bakımlarda depo temizleme işleminin bulunmadığını bildirdi.
+   <br/>
+   <br/>
+   Sorun sadece Faruk Tuna’nın yaşadığı ile bitmedi. Dizellerle ilgili benzer olaylar internet üzerinde faaliyet gösteren sitelere de yansıdı. Mesela sikayetvar.com sitesine yansıyanların tamamının Total’in ürünü olması ve firmanın bu sorunlara cevap vermemesi kafaların karışmasına neden oluyor. Mesela, Clio Symbol dizel şirket aracı bulunan Eşref Caymaz, Total istasyonlarından Eurodiesel yakıt kullanır. Bunun sonunda otomobilinin, 1 Ocak 2003 tarihinden 1 Kasım 2004 tarihine kadar 3 kere enjektörü değiştirilir. Renault servisi  her seferinde sorunu “kalitesiz yakıt”ın oluşturduğunu ifade eder.
+   <br/>
+   <br/>
+   İhtilafları kanun çözecek
+   <br/>
+   <br/>
+   Diğer bir olay ise Erdoğan Dirican adlı otomobil kullanıcısının geçen eylül ayında Bilecik girişinde Total istasyonundan aldığı mazotla yaklaşık 5 km yol aldıktan sonra, Renault Kango marka aracının tüm motor birimlerinin iflas etmesiyle yaşandı. Dirican, aracı servise çektiğinde kendisine yaklaşık 4 milyar lira masraf çıkartıldı.
+   <br/>
+   <br/>
+   Şikayet konusu otomobillerin tamamının Renault olması da bir başka ilginç nokta. Ancak diğer bir şikayetçi Altay Seten’in yaşadığı, farklı modellerde de bu sıkıntıların ortaya çıktığını gösteriyor. Seten, yeni aldığı Peugeot 307 dizel aracına firma tarafından tavsiye edilen Total Eurodiesel mazottan 2 depo kullanıp ikinci deponun yarısına geldiğinde, aracın göstergesi yakıt filtresinde su var diye sinyal vermeye başlar. Servise götürdüğünde yakıt filtresi değiştirilir. Ancak bu sorunların hiçbirinde Total, zararların tazminini üstlenmez.
+   <br/>
+   <br/>
+   Bu olayları lokal olarak değerlendirmek mümkün görünmüyor. Yeni nesil otomobillerin yeni ithal dizellerden bu şekilde etkilenmesi kafaları tekrar karıştırmış durumda. Bu yakıtların yeni otomobilleri etkileyip etkilemeyeceğini zaman gösterecek. Bu tür ihtilaflı sorunları çözebilmek için ise Petrol Piyasası Kanunu’nun yürürlüğe girmesi gerekiyor. 2004 Aralık ayında yürürlüğe girecek olan kanun bugüne kadar doğrudan düzenlenmesi olmayan, sektörde menşei bilinmeyen ürünler tespit edildiğinde doğrudan lisans iptali yapacak.
+   <br/>
+   <br/>
+   Bir taraftan kanun müşteriyi korumaya ve piyasayı düzenlemeye yönelik maddeler koyarken öte taraftan da Türkiye’de hâlâ istenilen seviyede dizel  otomobil kullanımı bulunmadığı da diğer bir gerçek. Avusturya’daki taşıtların yüzde 61’ini dizel motorlu araçlar oluştururken 4 yıl öncesinde Türkiye’de bu rakam yüzde 4’tü. Ancak bu pazarın Türkiye’de de gelişme içinde olduğu söylenebilir. Bugün gelinen noktada bu oran satılan otomobillerde yüzde 22’ye çıkmış  durumda. Dolayısıyla, cezaların ağırlaştırılmasının, kaçak ya da bozuk akaryakıtı önleyici bir tedbir olması bekleniyor. Enerji Piyasası Düzenleme Kurulu (EPDK) ve Kanun ile daha düzenli ve serbest piyasa şartlarına uygun faaliyet gerçekleştirilmesi, art niyetli şirketlerin işini zorlaştıracak. Ancak, sektörün daha önce de yaşadığı sıkıntılardan en önemlisi olan denetleme ve yaptırımların bugün de yeterli olmaması nedeniyle hiç kimse rahatlamadı.
+   <br/>
+   <br/>
+   MEDAR ÇOPUR (TOTAL AKARYAKIT PAZARLAMA MÜDÜRÜ): DOLUM NOKTALARINDA HATALAR  OLABİLİYOR
+   <br/>
+   <br/>
+   Tanka normalden fazla su karışabilir. Faruk Tuna olayında aynı gün istasyonun pompasından ve tankından numune aldık. Bu incelemelerde  otomobilde standardın dışında bir su göremedik. O terminal noktasından dolum yapan bir sürü bayi var. Onlardan da böyle bir şikayet gelmedi. Dolum noktalarını bir takım sular basabiliyor. Tanka normalden fazla su karıştırılıp farkında olunmadan zaman zaman müşteriye verilebiliyor. Yirmi otuz arabadan sonra ortaya çıkan vakalar olur. Her firmada bu olmuştur. Sistematik bir hata var denilip o çözülür. TÜPRAŞ’ın ürünü maksimum 7 bin pmm kükürt oranında bir üründür. Bunun ortalaması 5 bin pmm’dir. Daha mükemmeliyetçiliğe sahip olan araçlar bu konularda da daha duyarlı oluyor. 60’lı yıllarda üretilmiş bir kamyon içerisine ne koysanız, madeni yağ katılmış ya da kaçak yakıt koysanız bile sorunsuz yol alabilirken, artan yeni teknoloji ürünü araçlar standart dizel’e tepki vermeye başladı. Bu yüzden biz Euorodiesel’i getirdik. Bütün otomotiv sektörü bunu destekledi.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18121&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041223173050/http://www.aksiyon.com.tr:80/detay.php?id=18121&yorum_id=1)

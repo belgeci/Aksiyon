@@ -1,0 +1,92 @@
+# 'Can'la 'patlıcan' arasında vicdan örselenmemeli
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türkiye genç bir nüfusa sahip. Bu nüfusun neredeyse yüzde 20’leri geçen oranda işsizlik batağında. Bırakınız asgari ücreti, ayda 200 lira kazanabilecek bir iş bulan genç kendini şanslı sayıyor.
+   <br/>
+   <br/>
+   Hal böyle iken emekle emeğin karşılığı arasındaki makas bu derece insafsızca açılmamalı; bu ülkenin işverenleri işle ücret arasındaki mantığın çürütülmesine karşı duyarsız kalmamalı diye düşünüyorum.
+   <br>
+    <br>
+     Ekranda yarı çıplak bir adam vardı; yaşlıydı. Hamamların soğukluk diye tabir edilen yerlerini andırır bir mekânda, göğsüne bastırdığı keçe destesini var gücüyle önündeki mermer tezgâha vurarak kan ter içinde çalışıyordu. Keçenin rutûbetli ve sıcak bir ortamda, el emeği ile, göğüsle mermer arasında belki binlerce defa yoğurulup sıkıştırılarak imâl edildiğini yıllar önce bir başka belgesel filminde seyretmiştim. Keçe döven işçilerin göğüslerindeki bütün nefesi her hamlede boşaltarak adeta inleye inleye çalıştıklarını görünce, herkes gibi ben de “bunların kazandığı para helâl” diye düşünmeden edemedim.
+     <br>
+      <br>
+       Maden ocağında vardiya bittikten sonra yeryüzüne çıkan işçilerin, bulandıkları kömür tozundan ötürü sadece gözleri parlayan kararmış çehrelerini görünce de aynı cümleyi tekrarlamadan edemezsiniz,
+       <br>
+        <br>
+         -Bunların kazandığı para helâl!
+         <br/>
+         <br/>
+         Burada “helâl” kavramını fıkhî mânâsından ziyade, bir değeri tam karşılığı emekle kazanmak cinsinden tabii bir karşılıkla izah ediyoruz. Fıkıhtaki karşılığı da buna yakındır şüphesiz; helâl, ilk planda emeğin karşılığıdır.
+         <br/>
+         <br/>
+         Kazancın helâl nitelik kazanması için illâ gözle görülür derecede yoğun beden emeği sarfedilmesi gerekmiyor elbette. Emeğin muhtelif tezahürleri olduğu gibi ‘helâl’in de birbirinden farklı tarifleri var. Helâl dini bir kavram; fıkhen emeğin helâl sayılması için, harcanan emeğin miktarı ve niteliğinden önce, evvela yapılan işin dine uygun olması lâzım. Başkalarının çantasını kaparak “gasp” fiili işleyen bir suçlu da emek harcıyor ve belki de gasp işinde kendince başarılı olmak için giriştiği risk de dahil olmak üzere hayli yoğun bir gayret sarfediyor ama neticede kazancı dinen helâl sayılmadığı için kazancı emek kriterine göre meşrûlaştıramıyor. Günümüzde üretilen değerlerin farklılığı da, meşrûluğunu dinden almayan bir farklı helâl kavramının gelişmesine sebep oluyor. Dinin hoş görmediği ama kanunun cevaz verdiği iş kollarında çalışanlar, eğer ‘iş’lerinin gerektirdiği cinsten bir emeği yerli yerince sarfediyorlarsa kazançlarını bu çerçevede “hak edilmiş” sayabilirler.
+         <br/>
+         <br/>
+         “Emek-değer” ilişkisi günümüzde kapitalist üretim tarzının gerektirdiği tarzda değerlendiriliyor; bu anlayış ‘iş’i ve o iş için harcanması gereken emeğin miktarını ve niteliğini tarif ettikten sonra neticede üretilen şeyin kıymetini serbest piyasanın belirleyeceğini öngörür; bu süreçte ‘iş’i, iş için gereken emeğin niteliğini yürürlükteki kanunlar çerçeveler; eğer üretim süreci kanunlara uygunsa, üretilen şeyin değeri emeğini sunanla onu talep eden arasındaki ön anlaşmaya göre tayin olunur.
+         <br/>
+         <br/>
+         İşte bu nokta!
+         <br/>
+         <br/>
+         Emeğin sahici karşılığından sıyrılarak aşırı değer kazanabildiği veya hiç para etmeyebildiği bu hassas nokta, insanı fıtratından uzaklaştırdığı için eleştirilmeye müstehaktır.
+         <br/>
+         <br/>
+         Moda dünyasının mankenlerini düşünün. Yaptığı işin düz emek cinsinden tarifi, podyumda yürürken bir elbiseyi teşhir etmektir; ne var ki onun sunduğu emek, “yürüyen” ve üzerinde bir elbise taşıyan milyonlarca kadının emeğinden farklı ve daha nitelikli kabul edildiği için bir manken, bir defilede, orta halli bir ailenin veya bir beden işçisinin yıllık kazancını birkaç saatte kazanabilmekte. Eğer saat hesabına vurulursa bir beden işçisinin yarım günlük emeği ile bir mankenin yarım günlük emeği arasında üçyüz-beşyüz kat fark ortaya çıkıyor; bu farkı vicdan ve insaf izah edemez; kapitalist mantıktan başka!
+         <br/>
+         <br/>
+         Profesyonel futbolcuların sarfettiği emeğin, amatör futbol liglerinde harcanan emekten miktar itibariyle farkı yok; “kalite” farkı var denebilir ama bu kalite farkı, profesyonel futbolculara ödenen yüklü ücretlerin, futbol oynamak için harcanan emekten kopuşunu izah etmiyor. Ne kadar iyi futbol oynarsa oynasın bir futbol yıldızının kazandığı para ile harcadığı emek arasında uçurumlar var.
+         <br/>
+         <br/>
+         Kapitalist mantık icabı, “alan da razı veren de” demekle iş bitmiyor; en az o futbolcular kadar iyi futbol emeği üretebileceğini düşünen binlerce delikanlı, (aynı o manken kızlarda olduğu gibi) emeğiyle fiili kazancı arasında bir kıyaslamaya giderek mutsuzluğa kapılmaktan ve hâlihazırdaki kazancından, hâlinden şikâyetlenmekten kurtulamıyor.
+         <br/>
+         <br/>
+         Resim sektörünü ele alalım. Bir tablosuna, diyelim ki on bin YTL değer biçen bir ressamın, muhtemel alıcılardan talep ettiği ücretle, o resim için harcanan emek arasında da aynı uçurumu görebilirsiniz; on bin YTL kazanmak için bir keçe işçisinin loş ve rutubetli bir odacıkta kaç gün, kaç saat keçe göğüslemesi gerektiğini kolaylıkla hesaplayabiliriz. Sanatın elbette sıradışı bir üstünlüğü vardır. İkisi de boya, fırça ve tuval kullanıyor diye ressamla badanacıyı mukayese etmenin yanlışlığı açık; yanlışlık farkı abartmakta. Fark çok abartılı.
+         <br/>
+         <br/>
+         Türkiye genç nüfusa sahip bir ülke ve bu nüfus neredeyse yüzde 20’leri geçen oranda işsizlik batağında debelenip duruyor. Bırakınız asgari ücreti, 50 yeni lira haftalıkla ayda 200 lira kazanabilecek bir iş bulan genç kendini şanslı sayıyor. Hal böyle iken emekle emeğin karşılığı arasındaki makas bu derece insafsızca açılmamalı; sosyalizm türü merkezi bir ücret planlamasından söz etmiyorum ama bu ülkenin kapitalistleri, işverenleri işle ücret arasındaki mantığın çürütülmesine karşı duyarsız kalmamalı diye düşünüyorum. Çünkü bu adaletsizliğin global ekonomi ve kapitalist mantık icabı tabii bir şey gibi kabullenilmesi çok tahripkâr sonuçlara yol açabilir.
+         <br/>
+         <br/>
+         Vicdanlar çürüdüğünde artık müsbet-menfi hiçbir değer taşıyamaz hale geliyor.
+         <br/>
+         <br/>
+         <b>
+          AKLINIZDA BULUNSUN: GEZELİM GÖRELİM
+         </b>
+         <br/>
+         <br/>
+         TRT yönetimi bu köşede medhettiğimiz programların yayın saatlerini sıkça değiştirip duruyor; kasden yaptıklarını imâ etmiyorum ama yayın saatlerinde kararlılık göstermek lâzım.
+         <br/>
+         <br/>
+         Bu yüzden TRT 1’de yayınlanan “Gezelim Görelim” isimli programın hangi gün hangi saatte yayınlandığı hususunda bilgi veremeyeceğim. Programın yapımcısı TRT’nin üretken emektarlarından Nuray Yılmaz Hanımefendi, alçakgönüllü, iddiasız ama birbirinden renkli ve samimi röportajlarıyla bize derinlerdeki Anadolu’dan pencereler açıyor. Zevkle seyrediyoruz; emeği geçen herkesin ellerine sağlık.
+         <br/>
+         <br/>
+         <b>
+          TARİH ARAŞTIRMACILARI İÇİN KILAVUZ
+         </b>
+         <br/>
+         <br/>
+         Gazi Üniversitesi öğretim üyelerinden Prof. Dr. Semih Yalçın, özellikle genç araştırmacılar için son derece kullanışlı bir rehber kitap hazırlamış: “Türkiye Cumhuriyeti Tarihinin Kaynakları”. Kitapta önce arşivler, sonra resmi yayınlar tanıtılıyor; daha sonra süreli yayınlar, başvuru eserleri, hatıra ve biyografiler hakkında etraflı bilgi veriliyor. Bu alana merak duyanlara tavsiye ederim. (Berikan yayınları, Ankara 2003; tlf: 0312 232 62 18)
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1233 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19511), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050321233137/http://www.aksiyon.com.tr:80/yazdir.php?id=19511)

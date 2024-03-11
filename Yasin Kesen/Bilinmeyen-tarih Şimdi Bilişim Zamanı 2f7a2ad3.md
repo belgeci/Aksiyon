@@ -1,0 +1,187 @@
+# Şimdi Bilişim Zamanı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Eğitim sezonunun başlamasına yakın piyasada başlayan kıpırdanmalar Bilişim Fuarı ve Bilişim Zirvesi ile birlikte teknoloji piyasasına da hareketlilik getirdi.
+   <br/>
+   <br/>
+   Almanya Hannover’de düzenlenen CeBIT Bilgi ve İletişim Teknolojileri Fuarı’nın Avrasya ayağı olarak İstanbul Beylikdüzü Tüyap Fuar Merkezi’nde düzenlenen Bilişim’01 fuarı, yerli—yabancı yüzlerce firmanın katılımı ile heyecanlı bir başlangıç yaptı. Avrasya’nın en geniş katılımlı bilgi—iletişim teknolojileri fuarı olarak İstanbul’da gerçekleştirilen Bilişim Fuarı, aynı zamanda Türkiye’de yapılan en büyük fuar olma özelliğini de kaptırmıyor.
+   <br>
+    <br>
+     Henüz İzmir Enternasyonel Fuarı kadar köklü bir geçmişe sahip olmamasına rağmen, toplumun teknolojiye ilgisinin artması nedeniyle her kesimden bir hayli ilgi görüyor.
+     <br>
+      <br>
+       Bu yıl onuncusu yapılan Bilişim’01 A CeBIT Event fuarında binlerce firmanın en son teknoloji ürünlerini sergilemesinin yanında, Bilişim Zirvesi’01 adlı diğer organizasyon ile profesyonellerin bilgi ve deneyimlerini paylaşmasına imkan sağlanıyor. Askeri Müze Kültür Sitesi ile Lütfi Kırdar Kongre ve Sergi Sarayı’nda düzenlenen Bilişim Zirvesi’nde bu yıl profesyonellere hitap eden 250’den fazla toplantı ve seminer düzenleniyor.
+       <br>
+        <br>
+         Geçen yıl CeBIT ile birleşerek büyüme hızını katlayan Bilişim Fuarına bu yıl iştirak eden firma sayısı 1000 civarında. Sektördeki büyük ekonomik krize rağmen katılımcı firma sayısının 811’den 1000’e çıkması da Türkiye’nin Bilişim geleceği açısından önemli bir işaret olarak değerlendiriliyor.
+         <br/>
+         <br/>
+         Yine geçen yıl 12 ülkeden 48 firmanın katıldığı Bilişim Fuar’ına bu yıl İngiltere, Almanya, Fransa, İtalya, Hollanda, Yunanistan, Bulgaristan, Avusturya, Belçika, İsrail, Tayvan, Birleşik Arap Emirlikleri ve ABD’den yaklaşık 100 firma katılıyor.
+         <br/>
+         <br/>
+         Kısacası, değişim ve gelişimi beraberinde getiren Bilişim’in sosyal hayatın bir parçası olmasıyla birlikte, fuar ve etkinliklere de katılım giderek artıyor.
+         <br/>
+         <br/>
+         Genişleyen Fuar Alanı
+         <br/>
+         <br/>
+         Daha önceleri CNR ve Tepebaşı Tüyap Fuar merkezlerinde düzenlenen fuar, birkaç yıl önce hizmete giren Beylikdüzü Tüyap Fuar Merkezi’ne taşınmıştı. Fuar alanının bu kadar büyümesine rağmen Fuar’ın katılımcısındaki artış oranı dolayısıyla 24 bin 570 metrekarelik kapalı alan bu yıl 29 bin metrekareye çıkarıldı. Yeni yapılan yatırımla birlikte, daha önce 6 olan salon sayısı da 7’ye çıkarılmış oldu.
+         <br/>
+         <br/>
+         Geçen yıl 5 gün boyunca açık olan Bilişim’2000 Fuarına 175 bin ziyaretçi katılırken bu yıl fuar günü sayısı da artırılarak bu rakamın 200 bine ulaşması bekleniyor. Yabancı katılımcı sayısının ise 983’ten 2000’e çıkması bekleniyor.
+         <br/>
+         <br/>
+         Bu yıl tüm girişler biletle
+         <br/>
+         <br/>
+         Önceki yıllarda fuara girişte Turkcell Sim kartları davetiye olarak kabul edilirken, girişlerdeki aşırı yoğunlaşma nedeniyle bu yıl bu uygulama bırakılarak fuar günleri de yeniden düzenlendi. Yeni uygulamaya göre, aşırı bir yoğunluğun olmaması ve profesyonellerin maksimum verim alabilmesi için 4—7 Eylül tarihleri tamamen profesyonellerin ziyaretine tahsis edildi. 8—9 Eylül tarihlerindeki ziyaretler ise, herkese açık olarak sürdürülecek. Gün ayrımı yapılan fuar organizasyonu için bilet fiyatları da yeniden düzenlenmiş oldu. Sadece Biletix tarafından satışı yapılan bilet fiyatları da şu şekilde düzenlendi: Hafta içi biletleri 10 milyon TL, hafta sonu biletleri 2 milyon 500 bin TL.
+         <br/>
+         <br/>
+         Önceki yıllarda tüm bilgisayar dergileri ücretsiz fuar bileti dağıtırken, bu yıl sadece PClife dergisinin bilet dağıtmasına izin verildi.
+         <br/>
+         <br/>
+         Yeni bölümler
+         <br/>
+         <br/>
+         yeni alanlar
+         <br/>
+         <br/>
+         İnternet kullanımındaki artışla birlikte teknolojide yeni açılımların başlaması sonucu fuara her yıl yeni bölümler ekleniyor. Bilişim’01’de açılan yeni bölümler şöyle:
+         <br/>
+         <br/>
+         “Kurumsal” bilişim girişimcileri:
+         <br/>
+         <br/>
+         Dahiyane fikirler ile e—şirketler oluşturmayı başaran girişimciler ve yatırımcıların buluştuğu bölüm.
+         <br/>
+         <br/>
+         Portallar ve yayıncılar
+         <br/>
+         <br/>
+         İnternet dünyasına içerik sağlayan internetin gizli kahramanları bu bölümde gün yüzüne çıkıyor.
+         <br/>
+         <br/>
+         Akıllı Kart (Smart Card) pavyonu
+         <br/>
+         <br/>
+         Geleceği bugüne taşıyan ve kişiye ait tüm bilgileri tek bir kartta toplayıp her türlü işlemin yapılabilmesini sağlayan Akıllı Kartlar bu bölümde tanıtılıyor
+         <br/>
+         <br/>
+         İnsan kaynakları ve eğitim günleri
+         <br/>
+         <br/>
+         Büyük emeklerle bilişim sektörüne kazandırılan yeni bilişim profesyonellerini yetiştirmek üzere seminer ve eğitim programları düzenleniyor.
+         <br/>
+         <br/>
+         Yazılım sektöründeki çözüm ortakları pavyonu Her ölçekteki işletmenin yazılım ihtiyacına çözüm geliştirmeyi hedefleyen firmaların buluştuğu bölüm.
+         <br/>
+         <br/>
+         İnternet dünyası, ofis teknolojileri, iletişim teknolojileri, bilgi teknolojileri ve yazılım dünyasını buluşturan bölümler geçmiş yıllardaki gibi yine sahnede yerlerini alacaklar.
+         <br/>
+         <br/>
+         Verimlilik artıran çözümler
+         <br/>
+         <br/>
+         Sigortacılıktan bankacılığa verimliliği artırmaya yönelik, mevzuatlara uygun çözümler Bilişim’01’de sergileniyor.
+         <br/>
+         <br/>
+         Herbiri kendi alanında uzmanlaşmış Oracle Çözüm ortakları, şirketleri yeni ekonomiye taşıyacak çözümleriyle dikkat çekiyor. Eğitim, factoring uygulamaları ve internet bankacılığı alanlarında uzmanlaşmış firmalar ile birlikte mobil çözümler sunan firmalar projeleriyle ziyaretçilerini bekliyor.
+         <br/>
+         <br/>
+         Dijital harita sistemlerinden tıp merkezleri için hasta takibine yönelik projeler, metal iş kolu, oto yan sanayii ve kimya sanayiinde satış, üretim ve planlama çözümleriyle verimliliği artıracak projeler sunan firmalar fuarda aktif tanıtım yapıyor.
+         <br/>
+         <br/>
+         ABD, iş fırsatlarını değerlendiriyor
+         <br/>
+         <br/>
+         ABD, Avrasya bölgesinde bilişim alanındaki iş fırsatlarını değerlendirmek üzere ABD ticari ataşe ve özel sektör yetkililerinden oluşan 70 kişilik bir heyetle Bilişim’01’e katılıyor.
+         <br/>
+         <br/>
+         Bölgeyle ticari ilişkilerini geliştirmek isteyen Gürcistan, Kazakistan, Azerbaycan, Ermenistan, Romanya ve Ukrayna ABD ticari ataşeleri beraberlerinde Türkiye ile iş yapmak isteyen özel sektör temsilcilerinden oluşan 70 kişilik bir heyetle fuar etkinliklerine katılıyor.
+         <br/>
+         <br/>
+         İlgiltere ile bilişim
+         <br/>
+         <br/>
+         köprüsü
+         <br/>
+         <br/>
+         İngiltere hükümetinin desteği ile 11 şirket, Avrasya bölgesindeki iş potansiyelini değerlendirmek üzere Bilişim Fuarı’na katılıyor. Computing Services and Software (CSSA) sponsorluğunda fuara katılan İngiliz firmaları fuarı yeni işbirlikleri için önemli bir araç olarak görüyor. Yazılım, donanım, akıllı tıp cihazları, modem, network, iletişim ve anti—virüs çözümleri sunan İngiliz firmaları da fuarda ilgi çeken katılımcılardan.
+         <br/>
+         <br/>
+         ...ve Bilişim Zirvesi’01
+         <br/>
+         <br/>
+         Bilişim şirketlerinin en yeni teknoloji ve çözümleri aktardığı “teknoloji toplantıları” güncel iş uygulamalarına da sahne oluyor.
+         <br/>
+         <br/>
+         En çok ilgi çeken ve bilişim profesyonellerini heyecanlandıran mobil iş uygulamaları, kablosuz ortamlarda bilgiyi uzaktan yönetebilmeyi sağlayabilen teknolojilerle dikkat çekiyor.
+         <br/>
+         <br/>
+         Her geçen gün kullanımı artan cep telefonları, dizüstü ve avuçiçi bilgisayarlar, bulunulan her yerden dünya ile entegrasyon sağlayarak iş dünyasında teknolojik sınırları ortadan kaldırıyor.
+         <br/>
+         <br/>
+         ATM’lerde reklam dönemi
+         <br/>
+         <br/>
+         Bugüne kadar sadece para çekmek ve banka hesabındaki diğer işlemler için kullanılan ATM cihazlarının yakın gelecekte yaygınlaşacak yeni modelleri tanıtılıyor. Karşısına geçilerek görüntülerin izleneceği keyifli makinelere dönüştürülecek ATM cihazları özellikle bankacılık sektörünün ilgisini çeken yeni ürünlerden.
+         <br/>
+         <br/>
+         Microsoft XP’leri tanıtıyor
+         <br/>
+         <br/>
+         İşletim sistemi ve yazılım sektöründe dünyanın en büyüğü Microsoft, Bilişim’01’de 2 ay önce piyasaya sunulan Office XP paketinin Türkçe sürümünün lansmanını gerçekleştirdi. Yıl sonuna doğru piyasaya sunulması beklenen Windows XP işletim sisteminin de tanıtımları gerçekleştiriliyor.
+         <br/>
+         <br/>
+         Microsoft’un tanıttığı diğer ürünler ise, ergonomik kullanım sağlayan ofis klavyeleri ve fareler. Kablosuz ve lazerle çalışan fareler ile birlikte, multimedya ve internet için kolay kullanım sağlayan klavye modelleri gençlerin ilgisini çekiyor.
+         <br/>
+         <br/>
+         Gözler Telekom Forumu’nda
+         <br/>
+         <br/>
+         Türkiye’nin en önemli gündem maddelerinden birini oluşturan Telekom, Bilişim Zirvesi’nde düzenlenen Telekom Forumu ile masaya yatırıldı. 5—6 Eylül tarihlerinde Askeri Müze Kültür Sitesi’nde Telekomünikasyon Kurumu’nun desteği ile gerçekleştirilen forumda uluslararası regülasyon özelleştirme masaya yatırıldı. Sıcak tartışmalar ile dikkat çeken Telekom Forumu, Bilişim Zirvesi’nin en çok ilgi gören etkinliklerinden biri olarak gerçekleşti.
+         <br/>
+         <br/>
+         Fuarın internet altyapısı Superonline’dan
+         <br/>
+         <br/>
+         Bu yıl ilk defa tüm fuar alanında internet altyapısı tek bir firma tarafından sağlanıyor. Superonline tarafından sağlanan altyapı hizmeti, 6 Mbps kapasiteli bağlantı üzerinden tüm fuar alanına dağıtılarak, tüm standlarda hızlı erişim imkanının verilmesine imkan sağlıyor.
+         <br/>
+         <br/>
+         Fuar ve etkinlikler internette canlı yayında
+         <br/>
+         <br/>
+         Geçen yıl Roma’da düzenlenen 3.ISP Forumu’nda “Bireysel Pazarda Avrupa’nın en iyisi” olarak seçilen Superonline, BTNet ile birlikte fuar alanındaki etkinlikleri canlı olarak internet ortamına aktarıyor. Fuar veya Bilişim Zirvesi’ne katılamayanlar, teknolojinin son numaralarını www.btnet.com.tr üzerinden canlı olarak izleyebiliyor.
+         <br/>
+         <br/>
+         İnteraktif Uzaktan Eğitim Paneli
+         <br/>
+         <br/>
+         Eğitimde yenilenme için sürekli tartışılan internetten eğitim projeleri de Bilişim Zirvesi’nde masaya yatırılıyor. Türkiye’de uydudan iletişim hizmeti veren Dexar’ın desteğiyle düzenlenen panele, çeşitli üniversitelerden akademisyenlerin yanısıra MEB'den de müsteşar düzeyinde katılım gerçekleşiyor.
+         <br/>
+         <br/>
+         yk@yasinkesen.com
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 6 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12856), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151320/http://www.aksiyon.com.tr:80/yazdir.php?id=12856)

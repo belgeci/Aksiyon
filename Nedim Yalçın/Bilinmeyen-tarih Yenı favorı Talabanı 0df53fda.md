@@ -1,0 +1,70 @@
+# Yenı favorı Talabanı
+
+*Nedim Yalçın Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türkiye’nin Kuzey Irak’la ilgisi uzun süre PKK’ya karşı sürdürülen mücadelenin gölgesinde kaldığı için, bölge içi gelişmeler yer yer ihmal edilmişti. Şimdilerde Türkiye bölgedeki İslami gruplar dahil etkili tüm güçlerle çok taraflı ilişkiler geliştirmeye çalışıyor
+   <br/>
+   <br/>
+   Kuzey Irak’ta bugüne kadar takip ettiği “PKK endeksli” politikaların kendisi için büyük çelişkiler oluşturduğunun farkına varan Türkiye, bölgeye yönelik yaklaşımlarını yeniden gözden geçiriyor. Körfez Savaşı’ndan sonra Kuzey Irak’ta oluşan otorite boşluğundan yararlanmaya çalışan PKK’ya karşı Irak Kürdistan Demokrat Partisi’yle (KDP) yoğun işbirliğine giren Ankara, bu çerçevede  KDP lideri Mesut Barzani’ye verdiği desteğin, bölgede bağımsız bir Kürt devletinin altyapısına  katkıda bulunduğunu artık değerlendirmeye başladı. Ankara’daki bu gelişmeyi yakından bilen Irak Kürdistan Yurtseverler Birliği (KYB) lideri Celal Talabani ise, bölgede son aylarda yaşadığı “yalnızlık”tan kurtulmak ve bu çerçevede destek aramak için olsa gerek, yaklaşık son bir yıl içerisinde üçüncü kez Ankara’ya geldi.
+   <br>
+    <br>
+     90’lı yıllar boyunca öncelikli tehlike olarak görülen PKK’nın Kuzey Irak’taki faaliyetlerini kontrol altına almak maksadıyla KDP’ye her türlü desteği veren Ankara, Barzani’yi safında tutabilmek için ona, petrol ticareti, teknik, malzeme ve doğrudan mali yardım gibi hususlarda bir çok imkan sağlamıştı. Yetkililerimiz, gelinen noktada bu desteklerin, fiili bir Kürt devletine zemin hazırladığının geç de olsa farkına vardı. Tabii öncelikle Genelkurmay tarafından hissedilen bu duruma, Dışişleri de kanaat getirmek zorunda kaldı. Bu mevzudaki rahatsızlığını zaman zaman Barzani’ye ileten Ankara, bugüne kadar KDP liderinden beklediği olumlu adımları görmenin aksine, bölgesinde bağımsız bir devletin başkanı gibi hareket eden, Irak’ın toprak bütünlüğünü gözetmek bir tarafa “Büyük Kürdistan” hayalleri peşinde koşan bir Barzani”yle karşılaştı.
+     <br>
+      <br>
+       Ankara’nın, Kuzey Irak’taki tutumunu gözden geçirmesinde etkili olan bir diğer faktör de, Barzani’nin bugüne kadar ikili oynayarak, kamuoyunda bilinenlerin aksine Bağdat’la ilişkilerini hâlen devam ettirmesi ve bölgesindeki Türkmenlere de artan oranda baskı uygulaması... Buna karşılık Talabani’nin, bölgesindeki Türkmenler’le bugüne kadar çok iyi bir ilişki kurmasının da Ankara ile diyaloğunun gelişmesinde etkili olduğunu söylemek mümkün. Mesela Talabani, en son, Süleymaniye şehrinin Dokan semtinde, her biri 200 metrekare olan 200 parsel arsayı, ev kurup yerleşmeleri için 200 Türkmen aileye verdi. Ayrıca Barzani, Türkmenler’in Erbil’de kendi imkanlarıyla yaptıkları TV yayınını engellemeye çalışırken, Talabani ise, kendi TV yayınları içerisinde günde 2 saat Türkmenler’in yayın yapabilmelerine imkan veriyor. Talabani’nin, Türkmenlere yönelik, eğitim konusunda da Barzani’den çok daha insani uygulamaları var.
+       <br>
+        <br>
+         Bütün bu gelişmeleri gözönüne alarak, Kuzey Irak’ta diyalog çevrelerini çeşitlendirme zarureti duyan Ankara, bir süre önce, KYB lideri Talabani’yle görüşmelere bu çerçevede ağırlık verdi. “Ankara, ihmalinin farkına vardı. Bugüne kadar KDP’ye verilen destek, bundan sonra KYB’ye ve diğer yerel Kürt liderlere verilecek” de denebilecek bu gelişmeye göre, bundan sonra Talabani’yle işbirliği daha da artırılacak. İşte Ankara’nın, bu şekilde hesabını gözden geçirdiği bir hengamede Talabani, geçtiğimiz 4 Mart akşamı Ankara’ya geldi.
+         <br/>
+         <br/>
+         Destek arayışı...
+         <br/>
+         <br/>
+         Ankara’da önce Dışişleri Bakanlığı Müsteşarı Uğur Ziyal ile görüşen Talabani, Kuzey Irak’taki bazı uygulamalara dikkat çekerek, Ankara’nın desteğini istedi. Görüşmesinin ardından yaptığı açıklamada da, “bağımsız, birleşik ve demokratik bir Irak” isteklerini Türk yetkililere ilettiklerini söyledi. Diplomatik kaynaklar ise, Irak’a muhtemel bir operasyon yapılırsa, Talabani’nin, kendi varlığının devamı konusunda Türkiye’nin garantörlüğünü istediğini de belirttiler. Aynı gün Devlet Bakanı ve Başbakan Yardımcısı Mesut Yılmaz’la da bir protokol görüşmesi gerçekleştiren Talabani, Ankara temaslarının ikinci gününde de Genelkurmay ve Milli İstihbarat Teşkilatı yetkilileriyle basına kapalı olarak biraraya geldi. Ertesi gün ise Ankara’daki Türkmen temsilcileriyle nezaketen biraraya gelen Talabani, o gün ayrıca,  Ak Parti Genel Başkanı Erdoğan ve CHP Genel Başkanı Baykal ile ayrı ayrı görüştü.
+         <br/>
+         <br/>
+         Talabani, bir gün sonra, Ankara’daki resmi ve özel yoğun temasları esnasında AB Dönem Başkanı İspanya’nın Ankara Büyükelçiliği’nin evsahipliğinde, diğer 14 AB üyesi ülkenin üst düzey diplomatlarının da hazır bulunduğu bir toplantıya da katıldı. Kamuoyuna duyurulmayan bu toplantıda öğrendiğimiz kadarıyla, Talabani ile  Avrupalı diplomatlar arasında ilginç bir diyalog yaşandı. “Türkiye’deki Kürtlere haklarının verilmesi için Ankara’ya  baskı yaptıklarını” söyleyen  Avrupalı diplomatlara, Talabani’nin, “Türkiye’ye baskı yapmanız yanlış. Siz sadece, Türkiye’de demokrasinin gelişmesi konusunda teşvik edici olsanız yeterli. Etnik haklara vurgu yapmayın. Irak’ta kağıt üzerinde bizim her türlü hakkımız var, ama fiilen ne durumda olduğumuz ortada. Türkiye’deki Kürtlerin durumu bizden çok çok iyi” dediği belirtiliyor.
+         <br/>
+         <br/>
+         Talabani’nin Ankara’daki gerek resmi gerekse özel temaslarında yaptığı en önemli şey “destek aramak” oldu. Talabani, Ankara’da sadece resmi çevrelerle değil siyasi partilerle de görüşerek, kamuoyunun da desteğini almaya çalıştı. Çünkü Irak’a muhtemel bir ABD operasyonu arefesinde Kuzey Irak’ta önemli bir hareketlilik yaşanıyor. Amerika’dan gelen haberlere bakılırsa Saddam bu defa kesin gidici gibi. Irak’ın nasıl bir yapıya kavuşturulacağı ise hâlâ belirsiz. Böyle bir süreç öncesinde, Türkiye’den, varlığına garanti isteyen Talabani, Ankara’nın desteğini alarak, son günlerde bölgede geri planda kalan konumunu da güçlendirmek istiyor. Bu yüzden de Washington ve enteresan bir şekilde Suriye ile İran’dan da destek gören Barzani’ye karşılık, o da Ankara’nın yanında olmasına  büyük önem atfediyor. Bu yüzden Talabani’nin, Ankara’daki temaslarında sık sık, “bağımsız, birleşik ve demokratik bir Irak” istemesi de Türkiye’nin tezlerine uygun bir istek ve aranan desteğin bir neticesi. Çünkü Kürt liderler, daha önce her fırsatta “Kürdistan Federasyonu” lafını telaffuz ederlerdi. Zaten bölgesinde kendisini güven içerisinde hissetmeyen Talabani, son haftalardaki İran—Barzani diyaloğunu gözönüne alarak, daha önce İran sınırına yakın bir nokta olan Kaleçolan’daki karargahını, bir süre önce Dokan’a taşıdı.
+         <br/>
+         <br/>
+         Ankara Süreci’ne işlerlik kazandırılmalı
+         <br/>
+         <br/>
+         Talabani’nin, Dışişleri, Genelkurmay ve MİT ile olan görüşmelerinde, —basına resmen yansımasa da— dile getirdiği önemli bir konu da, 1998’de Irak Türkmen toplumunun temsilcileri ile iki Kürt lider tarafından imzalanan ve Türkiye, İngiltere ile ABD’nin garantör olduğu “Ankara Süreci”ne işlerlik kazandırılması talebi oldu. Bu sürece göre, Erbil’in, Türkmenler’in de bulunduğu 3 topluluğun temsilcileri tarafından yönetilmesi gerekiyor, ama, şehrin idaresi, bugün tamamen Barzani’nin kontrolünde.
+         <br/>
+         <br/>
+         Aynı şekilde Barzani’nin, Ankara Süreci’nin aksine hareket ettiği bir başka husus ise, Türkiye ile olan Habur gümrük kapısından elde ettiği gelirleri, şu ana kadar hep tek başına kullanması. Halbuki bu gelirlerin de üçe bölünmesi gerekiyor ve “bölgedeki dengelerin sağlıklı oluşabilmesi” için de bu bölüşüm çok büyük önem arzediyor.
+         <br/>
+         <br/>
+         Şu anda Ankara Süreci’ne işlerlik kazandıracak yegane bölgesel güç Türkiye. Bunun için de herhangi bir çatışmaya veya fiziki güç kullanmaya gerek yok; Ankara’nın şu birkaç adımı atması yeterli: Öncelikle, Ankara Süreci çerçevesinde KDP, KYB ve Türkmen Temsilcileri uygun bir yerde masaya oturtulur ve bu esnada Barzani’nin gümrük gelirlerini, sözkonusu anlaşmaya göre adaletli dağıtması hatırlatılır. Şayet bu konuda bir gelişme kaydedilmezse ikinci adım olarak, Habur sınır kapısı ticarete ve her türlü giriş çıkışa kapatılır. Bu adımla da bir netice alınamazsa, üçüncü safhada, fikren daha önce gündeme gelen, Musul üzerinden Bağdat’a 2. gümrük kapısı hayata geçirilir. Irak ve Türkiye’nin güvenliğini ortaklaşa sağlamaları öngörülen bu koridorun açılması, PKK’nın ve bölgenin Suriye ile irtibatını sınırlandıracaktır. Aynı şekilde KYB’ye destek olmak için de Hakkari Yüksekova— Raniye—Süleymaniye istikametinde İran sınırı boyunca giden bir koridorla 3. gümrük kapısı açılır. Bu koridorun güvenliğini sağlamayı da Talabani taahhüt etmektedir. Böylece İran’ın da bölgeyle irtibatı sınırlandırılmış olacaktır.
+         <br/>
+         <br/>
+         Tabii bu adımların atılmasıyla aslında, Türkiye’nin sık sık dile getirdiği “Irak’ın toprak bütünlüğü” en reel şekilde sağlanmış, Türkiye’nin aleyhine Barzani merkezli oluşumların da önü önemli oranda alınmış olur.
+         <br/>
+         <br/>
+         ABD Başkan Yardımcısı Dick Cheney’nin 12 ülkeyi kapsayan “Irak turu”na başladığı bir dönemde  yoğun bir şekilde Irak konuşulacak. Ankara’nın sağlam ve somut bir Irak politikası ortaya koymasında Talabani ile yapılan temasların faydalı olduğuna inanılıyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 13 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12519), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301155431/http://www.aksiyon.com.tr:80/yazdir.php?id=12519)

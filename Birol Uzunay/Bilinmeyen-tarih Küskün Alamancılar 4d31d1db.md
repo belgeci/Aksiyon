@@ -1,0 +1,217 @@
+# Küskün Alamancılar
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005329im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005329im_/http://www.aksiyon.com.tr/resim/382/18.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ülkemize her yıl ortalama 4.5 milyar dolar döviz gönderen “Alamancılar” Türkiye’den yedikleri darbeler yetmiyormuş gibi Almanya’nın geriye dönük vergi istekleriyle de sarsıldılar. Devletten ve özel sektörden darbe yiyen gurbetçileri yeniden harekete geçirmek artık eskisi kadar kolay değil.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1960’larda “daha iyi yaşam” umuduyla binlerce kilometre uzaktaki diyarlara göçen yüzbinlerce Türk, geçen süre içerisinde Avrupa’nın en büyük ve en zengin azınlığı haline geldi. 3.5 milyon Türk’ün yıllık kazancı 70 milyonluk Türkiye’nin yarısından fazla: 80 milyar dolar!
+   <br>
+    <br>
+     Türkiye döviz sıkıntısı ile IMF kapılarında ‘çok özel’ şartlarla krize çare ararken işçi dövizlerinin ulaştığı boyut başta hükümet ricali olmak üzere herkesin iştahını kabartıyor. Sadece Alman bankalarında gurbetçinin 300 milyar markı yatıyor; yine Almanya’daki Türk işçilerinin gayrimenkul almaya ayırdığı para tam 380 milyon mark!
+     <br>
+      <br>
+       Dışarıda IMF’ye avuç açan, içeride bono alıcısı banka sahiplerinin her dediğini yapan Türkiye’nin, gurbetçilerle kurduğu para ilişkisi ile özellikle son yıllarda çok kötü bir bilanço ortaya koydu: Artık işçi dövizleri nostaljik bir kaynak haline geliyor. Avrupa’daki 3.5 milyon gurbetçi işçi Türkiye’ye kırgın. İşçi dövizlerinden gelen kaynak kesiliyor, yıllık 20 milyar dolarlık döviz kaynağı, fakir Türkiye yerine zengin Avrupa’ya akıyor.
+       <br/>
+       <br/>
+       Peki ne oldu da Alamancılar doğdukları, kendilerini bağlı ve borçlu hissettikleri öz vatanlarına karşı mesafe koyma ihtiyacı hissetti? Önce işçi şirketleriyle sonra bankerler aracılığıyla dolandırılan gurbetçi işçiler, devletin kendilerine verdiği sözleri tutmaması, batık bankalar ve çok ortaklı şirketlerin verdiği tahribatla Türkiye’ye küsmüş durumdalar. Türkiye’ye gönderilen para miktarı azaldığı gibi son bir yılda 2 milyar dolarlık gurbetçi para “ana vatandan” çekildi ve “yaban ellerdeki” yabancı bankalara yatırıldı. Avrupa’dan kazandıklarını Avrupa’ya yatıran küskün gurbetçiler, “memleket hasretinden de” vazgeçmeye başladılar; çünkü Türkiye’ye son iki yılda giren “Alamancı” sayısı yüzde 30 azaldı. Yakın bir gelecekte yaz aylarını şenlendiren “Alamancılar” da nostalji olacak.
+       <br/>
+       <br/>
+       Türkiye yabancı finans kuruluşlarının ve yerli bankaların peşinde kredi için avuç açarken en büyük gelir kaynağı olan gurbetçi döviz kaynağını kaybediyor. Bu durumda da “Dimyat’a pirince giderken evdeki bulgurdan olunuyor”.
+       <br/>
+       <br/>
+       Önce işçi şirketleriyle kandırıldılar
+       <br/>
+       <br/>
+       1960’larda başlayan Avrupa’ya işçi göçünün ilk etkisi 1964’te siyasete giren Süleyman Demirel’e oldu. Süleyman Demirel Hükümeti pek yatırım yapmasa da gelmeye başlayan dövizler, hükümeti başarılı gösteriyor ve 40 yaşındaki genç başbakan Süleyman Demirel, liderliğinin temelini işçi dövizleriyle atıyordu. 1964’te 8 milyon dolarla başlayan işçi dövizi birkaç yıl içinde yüz milyon dolara ulaştı. Göçün ardından 15 yıl geçtiğinde ise Avrupa’dan gelen işçi dövizleri milyar dolarla ifade edilmeye başlandı.
+       <br/>
+       <br/>
+       Ellerinde tahta bavullarla, sadece yüzde 40’lık okuma yazma oranıyla gurbete düşen işçiler, tasarruflarını kendi memleketlerinde değerlendirerek “sıla hasretini” gidermeye çalıştılar. 1960’ların sonunda kurulmaya başlayan işçi şirketleri 1970’lerde de devam etti ve bu dönemde tam 323 işçi şirketi kuruldu. İşçi şirketlerine 173 bin gurbetçi para yatırdı ve sonuç hüsranla bitti. Kurulan şirketlerin tamamı battı ve 173 bin emekçi, bazen bir madenin binlerce metre derinliğinde bazen bir lokantanın bulaşıkhanesinde kazandığı parayı kaybetmiş oldu.
+       <br/>
+       <br/>
+       Banker çok kazandırıyor dediler ve paralarını kaybettiler
+       <br/>
+       <br/>
+       İşçi şirketi adı altında, çuval fabrikalarına, tuğla atölyelerine tüm kazançlarını yatırıp kaybeden gurbetçi işçiler için 1980’lerde türeyen bankerler ideal bir kazanç kapısı görüldü. Risk almadan kazanacakları faizi düşünen gurbetçiler için Banker Kastelli isminin ayrı bir önemi var. Bugünün devlet bakanı Yılmaz Karakoyunlu’nun koordinatörü olduğu Kastelli örgütlenmesinde gurbetçileri, “Başında Karakoyunlu Hoca var” propagandasıyla ikna ettiler.
+       <br/>
+       <br/>
+       Bankerlerin başlangıçta dağıttığı tarlı kârların bir sonu vardı ve saadet zinciri çok sürmedi. Bankerlerin birer ikişer batmasıyla gurbetçiler ikinci kez Türkiye’de para batırmış oldu.
+       <br/>
+       <br/>
+       1976’da Kredi Mektup Döviz Tevdiat Hesabı uygulaması başladı. Yıllık yüzde 9’luk faiz, o dönemde işçiler için çok büyük kazançtı. 1988’de ise bu uygulamaya son verildi ve bürolar birkaç yıl içinde kapandı. Geriye işçilerin uğraşacağı yoğun bürokrasi kaldı.
+       <br/>
+       <br/>
+       Banka garantilidir dediler, faizde boğuldular
+       <br/>
+       <br/>
+       1980’lerde yaşanan banker facialarından sonra gurbetçiler için rota bankaları gösteriyordu. Başta Merkez Bankası olmak üzere yüksek faiz veren küçük bankalar gurbetçinin gözdesi oldu.
+       <br/>
+       <br/>
+       Türkiye bankalarına yıllık ortalama 3 milyar dolar para gönderen gurbetçiler, 1990’dan sonra yeniden tedirgin olmaya başladılar çünkü Almanya gurbetçilerin birikimlerini göz önüne alarak “işsizlik maaşı” verilemeyeceğini seslendirmeye başladı. Kredi Mektuplu Döviz Hesabı 1990’da 7.5 milyar dolar iken 1992’de 5.9 milyar dolara kadar düştü.
+       <br/>
+       <br/>
+       İşçiler 1994’te asıl darbeyi ise batan Impexbank, TYT Bank ve Marmara Bank’ta yaşadı. Gurbetçilerin yüksek kâr umutları bankaların kapanan kepenkleri arasında kayboldu.
+       <br/>
+       <br/>
+       Devlet güvencesi de para kazandırmadı
+       <br/>
+       <br/>
+       1964’te gurbete açılan işçiler, 38 yıllık emeklerinin karşılığında Türkiye ekonomisine nakit olarak 50 milyar dolar yolladılar. Son yıllara kadar 4—5 milyar dolar arasında Türkiye’ye para gönderen gurbetçiler, Türkiye’deki paraları için Almanya’nın da geriye dönük vergi isteğiyle zor duruma düştü.
+       <br/>
+       <br/>
+       Türkiye’de Merkez Bankası’na paralarını yatıran gurbetçiler için aldıkları faizden çok devlet garantisi ve “Türkiye adına bir şeyler yapabilme isteği” önemliydi. Merkez Bankası’na 12 milyar dolar yatıran gurbetçilerden bugün Almanya geriye dönük vergi istiyor. 1990 ile 2002 arasındaki 12 yıllık geriye dönük verginin yatırımın önemli bir bölümünü keseceğine kesin gözle bakan gurbetçiler, apar topar paralarını çekmeye başladılar.
+       <br/>
+       <br/>
+       Bugün itibariyle Merkez Bankası’nda yatırımı olan tam 300 bin gurbetçi var. Almanya’nın geçmişe dönük vergi isteğiyle 300 bin kişi vergi kaçakçısı konumuna düştü. 300 bin gurbetçi Türkiye Hükümeti’nden açıklama bekliyor ve bir bakanın Almanya’ya giderek “geriye dönük” vergi alınmaması konusunda görüşmelere başlamasını bekliyor. Bugünkü hükümetin gurbetçi dövizleri kazanma adına bir amacı olmadığı gibi, mevcut kazanılmış dövizleri koruma gibi bir çalışması da yok.
+       <br/>
+       <br/>
+       Türkiye Araştırmaları Merkezi Başkanı Faruk Şen, Almanya’nın bu tutumuna karşılık Türk hükümetinin karşı girişiminden olumlu sonuçlar alınabileceğini ve verginin bundan sonraki yatırımlar için olup, geçmişin unutulabileceğini belirterek “12 yıllık vergi demek yatırımın hemen tamamı demek. Almanya ikna edilebilir. Yeter ki girişim yapılsın” diyor.
+       <br/>
+       <br/>
+       Ömür boyu emekli olmak istediler ve...
+       <br/>
+       <br/>
+       Gurbetçilerin Türkiye’ye döviz göndermemelerinde “heba edilen emeklilik hayalleri” oldukça etkili oluyor. Gurbetçiler daha birkaç hafta önce kendilerine ulaşan tebligatta “Hesabınızdaki 500 Euro’yu çekin ve bu hesabı kapatın” emriyle karşılaştılar. Bir devlet bankası olan Anadolu Bankası’na 4 ile 12 bin mark yatırıp ömür boyu emeklilik hakkı kazanan 35 bin gurbetçi bir kez daha aldatıldıklarının farkına varıyorlardı ve bu aldatma yine devlet eliyle gerçekleşiyordu.
+       <br/>
+       <br/>
+       Anadolu Bankası 1981’de “devlet güvencesiyle” Avrupa’da özel emeklilik sigortası kampanyası açtı. 35 bin işçi, bu kampanyadan yararlanmak için bankaya başvurdu ve işçiler her ay 50 ile 150 mark arasında para yatırmaya başladılar. İşçi şirketlerinden ve banker facialarından sonra devlet garantisi gurbetçiler için çok önemliydi.
+       <br/>
+       <br/>
+       İşçilerin Anadolu Bankası’na para yatırmakta problemleri yoktu ama Anadolu Bankası’nın kapanmak gibi küçük bir problemi vardı ve 1990’da banka faaliyetlerini Emlakbank’a devretti. Emlakbank’ın emekli maaşlarını öderken 10 yıl önceki kuru baz alması işçilerin ikinci şoku oldu. İşçiler aylar süren mahkeme sonuçlarından sonra 300 bin liralık emekli maaşlarını ancak 300 milyon liraya çıkartabildiler.
+       <br/>
+       <br/>
+       Emlakbank ile yıllar süren yazışmalar, ödenmeyen emeklilik maaşlarını takiplerinin de sonu geldi ve Emlakbank da tarihe karıştı. İşçilerin bugünkü muhatabı ise Ziraat Bankası oldu. Ziraat Bankası işçilerin 500’er Euro alarak, gurbetçilerin ömür boyu emekliliği unutmasını istiyor.
+       <br/>
+       <br/>
+       Çok ortaklı şirketler de rüzgar gibi geçti
+       <br/>
+       <br/>
+       Başta Almanya olmak üzere Hollanda, Belçika, Fransa gibi ülkelere bizzat gidip, ‘vatan millet, din’ söylemleri arasında şirket projelerini açıklayan şirketler, gurbetçilere vurulan son darbe oldu. Başlangıçta herşey yolunda gibiydi. Çok ortaklı şirketler, yıllık yüzde 30’lara varan kâr paylarını dağıtıyor, tatlı kâr peşinde koşan “Alamancılar” kâr paylarını çekmek yerine kartopu misali yuvarlanan paralarını seyretmekten büyük zevk alıyorlardı.
+       <br/>
+       <br/>
+       Kombassan ve Yimpaş gibi şirketlerin iyi niyetli yatırımlarının dışında sayıları 70’e ulaşan çok ortaklı şirketler, “memleketi kalkındırma” adına para topladılar ve yaptıkları hantal yatırımları, yaşanan krizlere karşı koruyamadılar.
+       <br/>
+       <br/>
+       Son iki yılda 70 çok ortaklı şirketten kâr payı dağıtan yok ve Türkiye Araştırmaları Başkanı Prof. Dr. Faruk Şen’in tesbitleriyle bu şirketlerin 10 yılda topladığı para 12 milyar mark.
+       <br/>
+       <br/>
+       MÜSİAD Başkanı Ali Bayramoğlu’nun tesbitlerine göre ise çok ortaklı şirketlerin batırdığı para 2 milyar mark seviyesinde.
+       <br/>
+       <br/>
+       Türkiye’den soğudular,
+       <br/>
+       <br/>
+       yatırımı Avrupa’ya yapıyorlar
+       <br/>
+       <br/>
+       Avrupa’daki Türk işçilerinin “anavatana” para göndermemelerindeki en büyük sebep, Türkiye orijinli hatalar oluyor. Ancak son yıllarda yeşeren “girişimcilik ruhu”nun da Türkiye’ye para gönderilmemesinde etkili olduğu söylenebilir.
+       <br/>
+       <br/>
+       Avrupa’da yaşayan Türklerin çalışma oranı yüzde 38. Bunun anlamı yaklaşık 3 milyon Türkten 1.2 milyonu çalışıyor. Çalışmayan nüfusu öğrenci, ev hanımı ve işsiz maaşıyla geçinen kesim oluşturuyor.
+       <br/>
+       <br/>
+       Sayıları hızla artan Türk girişimcilerin yıllık ciroları 50,3 milyar markı buluyor. Bunun da 12,4 milyar markını tekrar işletmeye yatıran gurbetçiler arasındaki girişimci oranı şimdilik yüzde 15. Çok değil, daha 4 yıl önce girişimcilik oranı yüzde 7’ler seviyesindeydi. 10 yıl sonra yıllık cirolarının 250 milyar mark olması beklenen Türklerin yatırımı Alman Hükümeti’ni oldukça memnun ediyor.
+       <br/>
+       <br/>
+       Yaklaşık 152 bin aile Avrupa’da konut sahibi olurken, yatırım fonları, hayat sigortaları, hisse senetleri ve altın alımları başlıca yatırım alanlarını oluştururken Alman bankalarına yatırılan 305 milyar dolarlık para, “güvence” sebebiyle düşük faizde tutuluyor.
+       <br/>
+       <br/>
+       Dikkate değer bir diğer nokta ise bundan 5 sene öncesinde Türk göçmenlerinin sadece yüzde 6’sının Almanya’da gayrimenkul aldığı gözlenmekteyken, bugün hanelerin yaklaşık dörtte biri Almanya’da gayrimenkul edindi. Türkiye’nin yaşadığı ekonomik ve siyasal çalkantıların etkisiyle son 4 yılda gayrimenkule yatırılan para 380 milyar mark seviyesinde. Türkiye’deki gayrimenkullere yatırılan 124 bin mark, Almanya’da gayrimenkule yatırılan miktarın sadece üçte birine denk geliyor.
+       <br/>
+       <br/>
+       Göçmenlerin yarısından fazlası hem Almanya’da hem Türkiye’de yatırımlarda bulunurken, yüzde 18’lik bir kesim, ki bunlar genellikle gençlerdir, sadece Almanya’da, yine yaşlılardan oluşan yüzde 27’lik bir kesim de Türkiye’ye yatırım yapıyor. Yine Türkiye Araştırmaları Merkezi’nin tesbitlerine göre Türk ailelerinin yüzde 80’i gelecek iki yıl içinde yurtdışında gayrimenkul edinecek.
+       <br/>
+       <br/>
+       “Avrupa Türkiye’den kaçan paraları konuşuyor”
+       <br/>
+       <br/>
+       Alman bankalarına para yatıran, yurtdışında 30 yıl vadeli gayrimenkul alan, işyeri açan gurbetçilerin Türkiye’yi önemli ölçüde unuttukları anlaşılıyor. Türkiye’ye tatile gelen 1 milyon 100 bin gurbetçi işçi sayısı son iki yılda 800 bine kadar indi. Türkiye’deki belirsiz siyaset ve ekonomi politikalarının yanısıra Alamancılar kandırıldıklarını anlamaya başladılar.
+       <br/>
+       <br/>
+       Türkiye’nin herhangi bir yerinde yapacakları tatil için kendilerinden asgari 120 mark istenen Almancılar, Almanların aynı tatili 40 marka yaptıklarını görünce “memleket özlemlerini” İspanya ve İtalya’da gideriyorlar.
+       <br/>
+       <br/>
+       Gurbetçi işçilerin Türkiye ile bağlarının zayıflamasını kısmen normal karşılamak gerektiğini söyleyen Prof. Dr. Faruk Şen, yeni neslin Avrupa’da doğduğunu ve ilk neslin de acı tecrübeleri hatırladığını vurgulayarak “Gurbetçinin niçin Türkiye’ye yatırım yapmadığını sorgulamak yerine Türkiyelinin niçin dışarıya kaçtığını analiz edelim. Avrupa’da HCBS eliyle Türkiye’den kaçan paralar konuşuluyor. Türkiye’yi kalkındırmak gurbetçilere kalmamalı. Önce Türkiyeli işadamlarının niçin kaçtığını sorgulayalım. Gurbetçi kazandığı paranın vergisini veriyor. Sonrada Türkiye’de batırıyor. Bu durum ne zamana kadar tekrarlanacak?” diyor.
+       <br/>
+       <br/>
+       Türkiye altın yumurtlayan tavuğu kesiyor
+       <br/>
+       <br/>
+       1997’den bu yana ekonomik ve siyasal çalkantıların etkisiyle Türkiye’deki yatırımlarını azaltan ve son bir yılda mevcut yatırımları da geri çekmeye başlayan gurbetçiler geçtiğimiz yıl 1.5 milyar dolarlık bir para gönderdiler; oysa ki son 10 yılın ortalaması 4.5 milyar dolardı.
+       <br/>
+       <br/>
+       Almanya’da yatırımlar yapan Kemal Şahin ve Türkiye Araştırmaları Merkezi Başkanı Faruk Şen, gurbetçi yatırımlarını değerlendirirken duygusallıktan vazgeçilmesi gerektiğini ve rasyonel yatırımlarla gurbetçiye seslenilmesi gerektiğini belirtiyorlar.
+       <br/>
+       <br/>
+       Başta vergi konusundaki belirsizlikler ve kaybolan paralarının bulunmamasından dolayı “doğdukları yere değil de doydukları yere” yatırım yapan gurbetçilerden bugünkü şekliyle bile para toplanabileceğini söyleyen işadamı Kemal Şahin başta Türk Hava Yolları ve Telekom’un gurbetçilere satılması gerektiğini belirtiyor ve ekliyor: “Almanya’da bile hisselerin halk tarafından alınmasını sağlamak için ucuz bir teklifle, belirli bir kontenjan ayrıldı. Alman Telekom’u Almanya’nın oldu. Özellikle THY’nin özelleştirilmesinde bu yöntem uygulanabilir. THY’nin en büyük müşterisi gurbetçiler. Bu faktör unutulmamalı.”
+       <br/>
+       <br/>
+       Türkiye Araştırmaları Merkezi Prof. Dr. Faruk Şen de Almanya’daki Türk ailelerinin aylık ortalama gelirinin 4 bin 144 mark olduğunu ve tasarrufa ve yatırıma eğilimli bu kesimin mutlaka Türkiye’deki özelleştirme ve hazine arazilerinin satışıyla tanıştırılması gerektiğini belirtiyor.
+       <br/>
+       <br/>
+       MÜSİAD Genel Başkanı Ali Bayramoğlu Avrupa’da verdiği konferanslarda tasarruf sahiplerine “Yatırımlarınızın yüzde 51’ini Avrupa’da yapın” çağrısında bulunduğunu belirterek “Hukuku, ekonomik sistemi, tüketicisi iyi olan bir ülkede yatırım yapmak çok daha kolaydır. Avrupa’daki Türkler, ekonomik terimleri bilmiyorlar ve kandırılmaya müsaitler. Almanya’da onları kimse kandırmıyor” diyor.
+       <br/>
+       <br/>
+       E—Posta: biroluzunay@hotmail.com
+       <br/>
+       <br/>
+       Sadece para göndermiyorlar
+       <br/>
+       <br/>
+       Avrupa’daki Türkler Türkiye’ye gönderdikleri dövizin yanısıra kültürel olarak da Avrupa dengelerinde söz sahibi olabilecek seviyeye geliyorlar. Avrupa’nın bir Hıristiyan Klubü olmasını engelleyen Türklerin sayısı, Lüksemburg nüfusunun yedi katı, İrlanda ve Belçika nüfusundan daha fazla ve Danimarka ile Finlandiya nüfusunun yarısının üzerinde... Avrupa’daki Türklerin yüzde 70’i Almanya’da yaşıyor.
+       <br/>
+       <br/>
+       Türklerin Alman ekonomisine katkısı kadar, Türk—Alman ilişkilerinde de belirleyici etkisi var. Hıristiyan Demokrat Partisi ile Sosyal Demokrat Parti arasında büyük oy farkı yok. Alman vatandaşlığına geçen Türklerin sayısı aynı zamanda Almanya siyasetini de etkileyecek.
+       <br/>
+       <br/>
+       Avrupa okullarında okuyan öğrenci sayısı 40 bine ulaştı. Her yıl Türkiye’ye kesin dönüş yapan Türklerin sayısı 35 bin iken, artan nüfus ise tam 60 bin.  Almanya’daki Türk toplumunun ortalama yaşı 39 ve Almanlar’a oranla daha genç bir nüfus yapısına sahipler.
+       <br/>
+       <br/>
+       Kemal şahın:
+       <br/>
+       <br/>
+       Duygusallıkla olmaz
+       <br/>
+       <br/>
+       Şu ana kadar 50 milyar dolar Türkiye'ye yolladılar. Her yıl da 2 milyar dolar gönderiyorlar. İstismarcıların yanında devletin yanlış politikaları Avrupalı işçileri küstürdü. Avrupa'dan yeniden para akışının sağlanması için olay duygusal boyuttan çıkacak. Herşey resmi ve kayıtlı olacak. Güven bunalımı böyle aşılabilir. Kârın da zararın da olabileceği anlatılacak. Kim ne alacağını, ne vereceğini bilecek. Avrupa’da faizler yüzde 5—6 oranında. Bu biraz Türkiye'de yukarı çekilse, bakın nasıl para geliyor. Ben Avrupalı Türklerden 30 milyar mark toplanabileceğine inanıyorum. IMF'den alınacak yardım ile aynı rakamdır bu. THY, Telekom gibi kamu kuruluşları gurbetçilere satılabilir. Hiç de zor değil.
+       <br/>
+       <br/>
+       Alı bayramoğlu:
+       <br/>
+       <br/>
+       Dışarısı daha kârlı
+       <br/>
+       <br/>
+       Israrla Türkiye'ye para göndermelerindeki amaç ülke özlemiydi. Bugün o diyarlara alıştılar. Asıl önemlisi de yabancı ülkeye yatırım yapmanın kârlı olduğuna inanmaya başladılar. Türkiye'de döviz bazında zarar ettiler. Enflasyonlar, devalüasyonlar zarar ettirdi. Gayrimenkulden ciddi zarar gördüler. Alt yapısı olan bir ülkede yatırım yapmak çok daha kârlı. Akıllı bir devlet politikasıyla yılda 10 milyar mark gelebilir. Bu da fevkalede iyi bir rakam. Ekonomik terimleri bile bilmeyen işçiler bugüne kadar çok sömürüldü. Çok ortaklı şirket görünümündeki kötü niyetli birkaç şirket bile 2 milyar markı batırdı. Ben gurbetçilere paranızın yüzde 51'ini Türkiye'ye gönderin diyorum; çünkü geçmişteki örnekler ortada.
+       <br/>
+       <br/>
+       Faruk şen:
+       <br/>
+       <br/>
+       Devlet planlamalı
+       <br/>
+       <br/>
+       Herşeyden önce bir şeye karar verelim. Türkiye’ye döviz kazandırmak gurbetçinin işi değil. Bu bir devlet politikasıdır. 40 yıldır birçok olumsuz vaka yaşandı ve gurbetçinin parası hep dolandırıldı. Son yıllarda Türkiye’den giden Türk sermayesine bakmak gerekiyor. Niçin Balkanlara yatırım yapılıyor, başka ülkelere para aktarılıyor? Demek ki bir problem var. Niçin gurbetçi zor şartlarda kazandığı parasını batağa saplasın. Türkiye’ye tatile giden gurbetçi sayısında bile çok önemli bir düşüş var. Bunu kim açıklayacak? Gurbetçi tahvili, özelleştirmeyi öğrendi. Şimdi akıllı politikalarla özelleştirmelerde gurbetçi kaynakları kullanılmalı. Duygu sömürüsü dönemi bitti.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11939), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005329/http://www.aksiyon.com.tr:80/detay.php?id=11939)

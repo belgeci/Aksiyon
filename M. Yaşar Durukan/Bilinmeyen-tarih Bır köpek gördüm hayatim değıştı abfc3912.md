@@ -1,0 +1,76 @@
+# Bır köpek gördüm hayatim değıştı
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225010219im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225010219im_/http://www.aksiyon.com.tr/resim/377/10.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sokakta bir köpekle karşılaştılar hayatları değişti! Çıkarsız dostlarla yaşadıkları saf ve pürüzsüz sevgi iletişimi, tasavvufi bir bilinç uyandırdı. Onlarda gizli olan ilahi sırrın farkına varınca, hayata başka bir pencereden bakmaya başladılar. Artık tek amaçları insanların ruhundaki merhamet penceresini açmaktı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Melek, Berrin, Lale, Bilge... İstanbul’da yaşıyorlar. İyi bir kariyere ve maddi gelire sahipler. Bundan üç yıl öncesine kadar birbirlerini tanımıyorlardı bile. Tek ortak yönleri; içlerindeki insanlığın sesinin susturulmasına izin vermemiş olmalarıydı. Onlar, merhamet duygusunun çemberini tüm varlıkları kapsayacak kadar genişletmeden huzur bulamayacaklarını anlamışlardı. Bu duygu onları, sabahın köründe evlerinden çıkartıp sırtlarında içi yiyecek dolu bir torbayla İstanbul’un sokaklarındaki sahipsiz, evsiz aç hayvanları doyurmak için dolaştırıyordu. Kader, karşılıksız sevgi ve merhametin peşinde koşan bu insanları Sarıyer sırtlarında ıssız bir hayvan barınağında buluşturdu.
+   <br>
+    <br>
+     Gördükleri manzara onları nefret dolu dünyadan biraz daha uzaklaştırıp, Allah’ın yarattığı varlıklara karşılıksız hizmet etmeye yönlendirdi. Bir tarafta anneleriyle sarmaş dolaş donarak ölmüş yavrular. Diğer tarafta açlıktan ölmüş annelerinden süt emmeye çalışan başka yavrular.... İstanbul Büyükşehir Belediyesi’ne giderek “Gelin burayı beraber iyileştirelim” diyorlar. Böylece insanların gittikçe artan merhametsizlikleriyle yüzleşmelerini sağlayacak amansız savaş başlamış oluyor.
+     <br>
+      <br>
+       Cami kapısı gibi!
+       <br/>
+       <br/>
+       Ceplerindeki tüm paralarını ve zamanlarını burası için harcıyorlar. Sabah 07.00’de gelip gece 23.00’te evlerine dönüyorlar. Berrin, inşaat işçisi olmuş, —5 derecede yavrulara kulübe yapıyor, Lale bulaşıkları yıkayıp, barınağı süpürüyor, Bilge 19 kazanda yemek pişiriyor, Melek ise iğne yapıp, serum takıyor. Melek, sayım günü bile sabah 05:00’da kalkıp hasta bir yavrunun serumunu değiştirmek için barınağa gitmiş. Sokak köpekleri şimdi hiçbir barınakta sahip olmadıkları fırsatlara sahip. 50 köpekle başlayan serüven bugün 700 köpekle devam ediyor. Barınaktaki köpek sayısı artmış artmasına ama, imkansızlıklar da diz boyu. Barınağa kuru teşekkür mektupları yağıyor fakat hiç kimse elini cebine atmıyor nedense. İlk başta üç köpek konulan kafeslerde bugün 8—10 köpek kalıyor. Çoğunun da kulübesi yok. Dondurucu soğuğa dayanmak zorundalar.
+       <br/>
+       <br/>
+       Tüm bunlar yetiyormuş gibi insanlar buranın adını duydukça kapıya hayvan bağlayıp kaçmaya, cami kapısı gibi torbalar içinde yavru bırakmaya başlamış. Üstelik bir not bile yazmadan. Oysa henüz gözleri bile açılmayan bu yavruların çoğu, yeterince sıcak tutulamadığı için donarak veya barınak ortamında hastalık kaparak ölebiliyor. Küçük bir servet ödeyerek aldıkları cins köpekleri bir süre sonra sıkıldıkları için bırakanlar var. Bilge Okay, bu işe giriştikten sonra insanların gerçek yüzlerini daha iyi tanıdıklarını söylüyor; “İşkenceden kurtardığımız, uzun bir süre yürüyemeyen köpekler, kör olduğu için bırakılan hayvanlar var. Bir dalmaçyalı var, sürekli ağlıyor zavallı. Geçen hafta katarakt ameliyatı yapıldı. Bir gözünün görme ihtimali çok yüksek. Biz de bu işe vicdanımızla, öyle bir sorumluluk duygusuyla bağlanmışız ki, her kapıya bırakılan bebeği biberonlarla besleyerek yaşatma mücadelesi veriyoruz.”
+       <br/>
+       <br/>
+       Köpekler Dekart’ı affetmeyecek
+       <br/>
+       <br/>
+       Hayvanlara bu kadar işkenceyi reva görenlerin Dekart’tan haberleri var mı bilmiyoruz. Çünkü Dekart da hayvanların fiziksel veya duygusal acı çekmeyen biyolojik makineler olduğunu söylemişti. İstanbul’un sokak köpekleri; belediyecileri ve Dekart’ı hiç affetmeyecek. Hayvanların içler acısı halini gördükçe çok üzülen Doç. Dr. Tamer Dodurga ise, “Artık felsefeciler insanla hayvanı ayırt etmek için başka şeyler bulsunlar” diyor.
+       <br/>
+       <br/>
+       Bazıları da —vicdanını rahatlatmak için olsa gerek— telefon açıp sizin sayenizde rahat uyuyoruz diyormuş. Okay, “Sokağımızda sahipsiz hayvan var gelip alabilir misiniz?” diyenlere de “kısırlaştır, aşılat, yerine bırak” projesini anlatıyor. Aşılı ve sağlıklı köpeklerin o mahallenin bekçisi, güvencesi olduğunu hatırlatıyor. İtlafın 100 yıllık sorunun çözümünde geçerli bir yöntem olmadığı da anlaşılmış barınakta. Belediye ekiplerinin elinden kurtulan bu köpekler inadına dişi doğuruyor! Dokuz hayvandan 8’inin dişi doğurduğu gözlenmiş. Geçenlerde 40 köpek dünyaya gelmiş, 40’ı da dişi. Dolayısıyla bir tane kısırlaştırılmadan gözden kaçan bir köpek iki sene sonra olağanüstü bir nüfus demek.
+       <br/>
+       <br/>
+       Sokak köpeği marka olacak
+       <br/>
+       <br/>
+       Hayvan dostaları, şu anda kapasitesi dolan barınaktaki hayvanların sahiplenilmesi için çağrıda bulunuyor. Geçen yaz 150 köpek sahiplenilmiş. Fakat gelenler, daha estetik olduğu için Haski türü köpek istiyormuş. Onlar da Haski’nin soğuk iklim köpeği olduğunu, İstanbul’da yaşamaması bile gerektiğini anlatıp; “Haski bitti, sokak köpeği verelim” diyorlar. Barınakta sokak köpeğinin bilmediğimiz özelliklerini de öğreniyoruz. Meğerse bizim mahalledeki ahbap çavuşlar genetik olarak diğer köpeklerden daha sağlammış. Zeka yönünden de hiç de aşağı kalır yönü yokmuş o arabaların camından başını çıkaran ithal köpeklerden. Barınaktaki köpekler o kadar akıllı ki, düşmanlarını bile çok iyi tanıyor. İkinci katta bulunan belediye görevlileri korkudan akşama kadar aşağı inemiyor. Barınağa gelenlerin etrafını havlayarak şöyle bir çevirip, koklayıp belediyeci olup olmadıklarını kontrol ediyorlar. Ünlülerle işbirliği yapılarak İstanbul’un sokak köpeğini ‘marka’ yapmaya çalışıyorlar. En büyük hayalleri bir ünlünün barınağı ziyaret ederek bir sokak köpeğini sahiplenmesini sağlamak. Bunu bir moda haline getirmek istiyorlar. Mesela Okan Bayülgen, bir sokak köpeği sahiplenip şovuna çıkarsa hiç fena olmaz diye düşünüyorlar.
+       <br/>
+       <br/>
+       Merhamet penceresi
+       <br/>
+       <br/>
+       Kendi adımıza değil ama zaman zaman tartışma konusu olduğu için o malum soruyu patlatıveriyoruz: “İnsanların çok büyük ekonomik sıkıntı çektiği bir ülkede, neden insanlar dururken hayvanlarla ilgileniyorsunuz?” Aslında bu soruyu sorarken amacımız onların bu işi ‘dostlar sosyal etkinlikte görsün’ diye yapıp yapmadıklarını test etmekti. Soruyu sorduğumuza soracağımıza pişman olduk. Bilge Okay sorumuza ‘çok derin’ bir cevap veriyor:
+       <br/>
+       <br/>
+       “Biz merhametin belli bir tasnife tutulamayacağına inanıyoruz. Bir öncelik yok. Bütün yaratılmışlara karşı saygı duymak gerekmez mi? Böyle bir öncelik olamaz. Bizim yürüdüğümüz yol üzerinde elimi uzatamayacağım hiçbir canlı olmamalı diye düşünüyoruz. Bir sokak çocuğuyla karşılaştığımda ona da başımı çevirip yürümüyorum. 07:00’de evden çıkıyorum; kapının önündeki kedileri besliyorum. Şöyle koca bir torbayla çıkıyorum evden. Fındıklı parkında köpekleri, işyerimin önünde kedileri besliyorum ve gönül huzuruyla işime gidiyorum. Hayatında hiçbir hayvanla gözgöze bakışmamış bir insanın onun da ne kadar derin bir duygusal dünyasının olduğunu bilmesi mümkün değil. Biz aslında sokaklarda torbalarla dolaşıp, aç hayvanları doyurarak misyonerlik yapıyoruz. Zamanla insanların ruhlarındaki merhamet penceresinin açılacağına inanıyoruz. Aslında yapmaya çalıştığımız tek şey o pencereyi açabilmek.”
+       <br/>
+       <br/>
+       Başka bir boyut yakaladık
+       <br/>
+       <br/>
+       Çıkarsız dostlarla yaşanan çok saf ve pürüzsüz sevgi iletişimi, onları adeta sofileştirmiş. Berrin Okay, “Ben oraya gidip gelmeye başladıktan sonra aslında hayatın her tezahürünü sevdiğimi, hayatın her tezahürünün benim bir başka uzantım olduğunu hissetmeye başladım. Yani tasavvufi bir bilinç uyandı bende. Yani bir ağaç da benim uzantım, o da canlı, ona da artık bir başka gözle bakıyorum. Dokunduğum zaman onun yaşadığını hissediyorum. Onun acısını duyabiliyorum. Bu değişik bir duygu” diyor. Melek, Berrin, Lale ve diğerleri de aynı hisleri paylaşıyor. “İnsan acı çekmeyi göze almadan sevinç duymayı beklemesin. Biz acı çekmeyi göze aldık. Hayatın bilmediğimiz bir boyutunu yaşamaya başladık. Ama müthiş sevinçler de yaşıyoruz. Başka bir boyuta yolculuğa çıktık” diyorlar.
+       <br/>
+       <br/>
+       Sarıyer sırtlarındaki bu barınağı bir tekke gibi görüyorlar. İçeriye dostluk ve sevgiden başka hiçbirşey giremiyor. Sevgililerinin aşkı gönüllerini tamamen istila etmiş. Sevgilileri yani köpekler uğruna herşeye rıza gösteriyorlar. Şimdilik bu tarikat misali grubun 21 üyesi var. Eğer siz de katılmak isterseniz önce www.evsizhayvanlar.com adresine sonra da Sarıyer’deki barınağa uğramanız yeterli. Giderken yanınıza süt, mercimek, dalak, tavuk boynu, köpek bisküvisi alırsanız makbule geçer. Unutmadan sabah biraz erken kalkıp perdenin aralığından sokağınıza bir göz atın. Sırtında çuvalla dolaşan birilerini göreceksiniz. Melek, Berrin, Bilge Özlem ya da Lale’dir. Eğer hiç kimseyi göremezseniz bir çuval hazırlayıp bu sefer de siz verin karabaşın yemeğini. Fena mı olur yani...
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12116), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225010219/http://www.aksiyon.com.tr:80/detay.php?id=12116)

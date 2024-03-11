@@ -1,0 +1,131 @@
+# Abuzer’in en esrarengiz yılları
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092759im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092759im_/http://www.aksiyon.com.tr/resim/348/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  MİT eski Daire Başkanı Mehmet Eymür,  Abuzer Uğurlu’nun önce MİT tarafından kullanıldığını, ardından Bulgar gizli servisine kaydığını açıklamasıyla gözler yeniden ünlü uyuşturucu kaçakçısına çevrildi. İfadelerinde Uğurlu, “Ben uyuşturucu aleminde organizatörüm” diyor.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   “Ben 1943 yılında Malatya’nın Pötürge kazasına bağlı Sinan köyünde dünyaya gelmişim. 1951 yılında İstanbul’a geldim. İstanbul’da Çemberlitaş muhitine yerleştik. İlkokul tahsilimi Mahmutpaşa ilkokulunda bitirdim. Ortaokulu Kadıköy ortaokulunda tamamladım. Mahmutpaşa’da işportacılık işleriyle uğraştım, 1964 yılında askere gittim. Askerlik hizmetimi Ankara ili Tandoğan mevkiinde bulunan inzibat merkezinde tamamladım. 1966 yılında İstanbul’a geri geldim. Hırdavat üzerine dükkan açtım, bu yeni dükkanım Mahmutpaşa’da idi. Çeşitli işler yaptım, en son 1968 yılı içerisinde kuru kahve dükkanı açmıştım. O tarihte kaçak olarak getirilen 200 kilo civarında kahvem polis tarafından ele geçirildi. Fatura olmadığı için, hakkımda herhangi bir işlem yapılmaması için Bulgaristan’ın Sofya şehrinden Almanya’nın Münih şehrine kaçtım. 1968 yılından 1974 tarihine kadar Münih’te ve Sofya’da kaçak olarak dolaştım. Kaçak olmamın nedeni, İstanbul’da Mahmutpaşa semtinde kaçak yoldan dükkanımda polis tarafından ele geçirilen kahveden dolayıdır. Olayla ilgili İstanbul Cumhuriyet Savcılığı tarafından arandığımı biliyordum. 1974 yılı içerisinde çıkarılan af yasasından yararlandığım için dava düştü. 1974 yılında çıkarılan af yasasından sonra Türkiye’ye geldim. 1974 yılından 1980 yılına kadar Kadıköy Çiftehavuzlar Bağdat caddesi no:242 sayılı yerde Batı Dilleri Lisan Okulu ismi altında işyeri çalıştırıyordum. Daha doğrusu lisan kursu verdiriyordum. 1980 yılında 12 Eylül ihtilali oldu. 12 Eylül’de gözaltına alındım, Selimiye kışlasına gittim. Gözaltına alınma nedenim, 1980 öncesi elektronik eşya kaçakçılığı yaptığımdan dolayı Ankara Sıkıyönetim Komutanlığı 4 nolu Askeri Mahkemesi’nde yargılandım. 15 yıl hapis cezası aldım, 2 yıl da Yüce Divan’da yargılandım. (Gümrük ve Tekel eski Bakanı Tuncay Mataracı’ya rüşvet davası). Toplam olarak 17 yıl hapis cezası aldım. Bu cezamın tam yedi yılını cezaevinde yattım. 1988 başlarında Tekirdağ cezaevinden tahliye edildim. İstanbul’a geldim, Kadıköy Kızıltoprak’ta 1993 yılı içerisinde Volga Dış Ticaret Limited şirketi adı altında konteyner işini kurdum, halen çalıştırıyorum.”
+   <br>
+    <br>
+     İstanbul piyasasını iyi tanırım
+     <br>
+      <br/>
+      Kaçakçılık dünyasının en ünlü ismi olarak kabul edilen Abuzer Uğurlu, Sofya’dan kendisine gönderilen 7 kilo kokainin 31 Temmuz 1995 günü sınırda yakalanması üzerine 8 Ağustos 1995 tarihli polis ifadesinde hayat hikayesini böyle anlatıyor.
+      <br/>
+      <br/>
+      Mesleğini “Nakliyeci” olarak gösteren Uğurlu, Sofya’da araba alım satımı işiyle uğraştığını belirtiyor. Bildiği diller sorusuna da, İngilizce ve Bulgarca cevabını veren Uğurlu, “Ben uyuşturucu aleminde organizatör bir adamım” demesine karşılık isminin karıştığı büyük uyuşturucu olayları hatırlatılınca bunları kabul etmiyor. Örneğin, 1978 yılında Hollanda’da yakalanan 1,5 ton esrar olayından dolayı Sıkıyönetim Askeri Mahkemesi’nde beraat ettiğini belirtiyor. 1988’de yine Hollanda’da yakalanan 99 kilo eroin yüzünden yine isminin verildiğini, bu davanın ise İstanbul Devlet Güvenlik Mahkemesi’nde sürdüğünü belirtiyor.
+      <br/>
+      <br/>
+      Yalnızca kokain konusunda net konuşuyor. “İstanbul piyasasını iyi tanıdığım için beni bu kokain ticaretine sokmak istediler... Ben uyuşturucu aleminde organizatör bir adamım. Kokaini kulüp çalıştıran ve pavyon işleten kişilere satacaktım. İsim vermek istemiyorum. Çünkü benim gibi beyin bir adam bu tür olaylarda isim vermez, bizlere yakışmaz isim vermek...”
+      <br/>
+      <br/>
+      Dört yıl Ataköy’de saklandı
+      <br/>
+      <br/>
+      İnterpol tarafından 1980’de uyuşturucu kaçakçılığı suçlamasıyla Uğurcan Elmas, İdris Özbir ve Hüseyin Çil gibi şahıslarla birlikte arandığı hatırlatılınca da, “Bu şahıslarla birlikte, Hollanda’da ele geçirilen 1 ton esrar maddesiyle ilgili olarak 1980 ihtilalinde gözaltına alındık, yargılandık” diyor.
+      <br/>
+      <br/>
+      Aslında Abuzer Uğurlu’nun ismi, 20 Ekim 1999 günü İstanbul Ataköy’de bir polis baskınıyla gözaltına alınana kadar, artık neredeyse unutulmuştu. Yedi kilo kokain olayında savcı tarafından serbest bırakılmasından hemen sonra gıyabında tutuklanmış ancak, bir kaç yıl Bakırköy polis bölgesindeki Ataköy’de saklanabilmişti.
+      <br/>
+      <br/>
+      Milli İstihbarat Teşkilatı’nın eski yöneticilerinden Mehmet Eymür Washington’dan çıkardığı internet sitesinde, bir kaç gün önce onunla ilgili bir mektubu yayınlayınca yeniden ismi gündeme geldi.
+      <br/>
+      <br/>
+      Mektup, 10 Temmuz 1985 tarihini taşıyor ve bu tarihe kadar MİT’in kaçakçılık şubesini yönetmiş olan  Mehmet Eymür tarafından MİT Müsteşarı Korgeneral Burhanettin Bigalı’ya hitaben yazılmış.
+      <br/>
+      <br/>
+      Bu tarihe kadar MİT’in kaçakçılık şubesinin başında olan Eymür, önce Beyrut’a, bunu kabul etmeyince Adana’ya tayin edilmek isteniyor. Bunun üzerine MİT Müsteşarı Burhanettin Bigalı’ya, tayininin mafya tarafından yaptırıldığını belirten ağır suçlamalarla dolu bir dilekçe veriyor ve MİT Okulu’na öğretim görevlisi olarak atanıyor.
+      <br/>
+      <br/>
+      MİT onu kontrol edemiyor
+      <br/>
+      <br/>
+      İşte 10 Temmuz 1985 tarihli mektup, kaçakçılık şubesindeki görevine veda edip MİT okulundaki yeni görevine başlayan Eymür’ün, giderayak MİT Müsteşarı’na bıraktığı uyarıcı bir mesaj niteliğini taşıyor. Bu mektubu kendi derdinden ziyade mesleki sebeplerle yazmayı bir görev bildiğini belirten Eymür, dördüncü cümleden itibaren sözü Abuzer Uğurlu’ya getiriyor ve onun İstanbul Lisan Okulu çalıştırdığı yıllara değiniyor:
+      <br/>
+      <br/>
+      “Bugün bütün dünyanın adından bahsettiği Abuzer Uğurlu, 1974—1979 yılları arasında teşkilatımızca (İstanbul) kullanılmıştır. Bir dublaj operasyonu diyebileceğimiz bu faaliyetin zamanla aleyhimize geliştiği bugün apaçık ortadadır. Buna merkezi olmayan disiplinsiz bir sevk ve idare, zamanla menfaat ilişkilerine dönen mesleki temaslar ve K/O — Ajan ilişkilerinde sevk ve idare edilen şahsın geniş imkan ve para gücünün yanı sıra, elemanın hasım servisten olan menfaatlerinin kıyaslanmayacak kadar üstün olması gibi sebepler neden olmuştur. Bildiğim kadarıyla Abuzer Uğurlu ile resmi ilişkinin kesilmesinden sonra da bazı kişisel temaslar devam etmiştir.”
+      <br/>
+      <br/>
+      Eymür’ün iddiasına göre “hasım istihbarat servisi” ile ilişkisinin ağır basması yüzünden Uğurlu MİT’in kontrolünden çıktı. Eymür çarpıcı iddialarını şöyle sürdürüyor:
+      <br/>
+      <br/>
+      “Kanaatime göre Abuzer Uğurlu, Sovyetler ve Bulgarlar tarafından Türkiye’de bir ‘baş ajan’ şeklinde kullanılmış, Abuzer ve Bekir Çelenk vasıtasıyla MHP ve Ülkücülere hulul edilmiş, Türkiye’de İpekçi cinayeti, Bahçelievler cinayeti, Adana Emniyet Müdürü cinayeti gibi provokatif ve halkın güven duygusunu kaçıran, nefret yaratan ve güvenlik güçlerini sağ mihraklar üzerine teksif eden operasyonlar planlanmıştır. Ağca, Papa suikastında muvaffak olsaydı hem Hristiyan alemi Türkiye’ye cephe alacak hem de yurt dışında bulunan Ülkücüler Batı Güvenlik güçlerinin bir numaralı hedefi haline getirilecekti. Tabiatıyla bu arada hem PAPA hem de Polonya’daki direniş hareketi cezalandırılmış olacaktı.”
+      <br/>
+      <br/>
+      Sovyetler’in Türkiye’ye sızma operasyonu
+      <br/>
+      <br/>
+      Eymür’e göre, Mehmet Ali Ağca, Oral Çelik, Abdullah Çatlı, Aydın Telli gibi isimler, Abuzer Uğurlu ve Bekir Çelenk ile irtibatlıydılar. Eymür mektubun bu bölümünde Bekir Çelenk üzerinde de önemle duruyor ve şu iddiaları sıralıyor:
+      <br/>
+      <br/>
+      “Bulgarlar Bekir Çelenk’i aniden Türkiye’ye yollamışlardır. Nedeni anlaşılmamıştır. Yakın tarihte öğrendiğime göre Bekir Çelenk’in Bulgaristan’da ifadesini almaya giden İtalyan Savcı, Bekir Çelenk’in telefon defterinde, İstanbul MİT Teşkilatına ait telefonlar da tespit etmiştir. Halen bu tutanaklar Emniyet Teşkilatında mevcuttur. Bu Bulgarların hazırladığı bir mizansen olabilir. Buna rağmen Ağca davasında sıkışacaklarını anlayan Bulgarların dünya kamuoyunun dikkatini Türkiye üzerine çevirmesi mevcut ilişkileri dikkate alındığında gayet kolay olacaktır. Sovyet ve Bulgarlar, Türk yeraltı dünyasının büyük bir bölümünü bir başka amaçla daha kullanmışlardır. Normal Espiyonaj faaliyetleri ile ulaşamadıkları üst düzey yöneticilere Mafya vasıtasıyla ve menfaat ilişkileri ile yaklaşmışlardır. Bugün birçok tahkikatın engellenmesi bu ilişkilerin ortaya çıkması korkusundan kaynaklanıp, menfaat ilişkilerinin devlet güvenliğinin üstüne çıkmasına neden olmaktadır.”
+      <br/>
+      <br/>
+      1985 yılı Temmuz’unda Bulgaristan tarafından Türkiye’ye gönderilen Bekir Çelenk’in ifadesini, bu tarihte İstanbul Mali Şube Müdürü olan Cevdet Saral aldı.
+      <br/>
+      <br/>
+      Çelenk’in silah ve mermileri
+      <br/>
+      <br/>
+      Bekir Çelenk, 1934’te Kilis’te dünyaya geldi. İlkokulu 4. sınıftan terk etti, daha 18’ine varmadan, kaçak mallar getirmek üzere Suriye’ye gidip gelmeye başladı. Babasından aldığı beş bin lirayla 1952’de Ankara’ya geldi. Ankara’da bir süre bakkal işleten ve hırdavatçılık yapan Çelenk, daha sonra Ankara—Kilis arasında çantacılık yapmaya başladı. Jilet ve çakmak gibi kaçak malları getiriyordu. Ankara’da saatçilik ve kuyumculuk da yapan Çelenk, 1961’de İstanbul’a geldi.
+      <br/>
+      <br/>
+      1963’te İstanbul’da bir nakliye şirketi kuran Çelenk, aynı yıl Çanakkale’de kaçak kahve ve çakmak yakalatmaktan tutuklandı. Beş ay cezaevinde kalan Çelenk, dava sonucunda 1965’te beş yıl hapis cezasına çarptırıldı. Bunun üzerine Almanya’ya kaçtı. 1966—69 arasında, Almanya’da “exportçuluk” yaptığını, silah ve mermi kaçakçılığına bu dönemde başladığını belirtip, “10 bin, 20 bin adet mermi ile, 20—30 adet civarında dağişik marka Alman silahlarından... satarak para kazandığım silah ve mermi olayı vardır” diyor. Çelenk, silah işinden kârı hemen fark ediyor:
+      <br/>
+      <br/>
+      “Silah ve mermi işinin külliyetli miktarda Bulgaristan üzerinden yapılması sonucu Almanya’dan Bulgaristan’a gelip gittim... Bu sefer 400—500 bin civarında mermi ve 500 civarında değişik marka, genelde Çekoslovak yapısı silahları genelde gemilere elektronik ve elektrik malzemeleri ile birlikte yüklenmesi şeklinde sevkiyatına başladık... Bulgar makamları ve yetkilileri bu tür malların satışını Kintex firması aracılığı ile doğrudan kendileri yaptıkları için satışı ve sevki esnasında önemli bir müşkilatla karşı karşıya kalmıyorduk...”
+      <br/>
+      <br/>
+      Sofya’daki cezaevi günleri
+      <br/>
+      <br/>
+      Çelenk, 1970’te İsviçre’ye yerleşiyor ve Falcon saat fabrikasına 400 bin frankla ortak oluyor. Türkiye’ye döndüğü 1975 yılına kadar saat işine devam ediyor. Daha önce iki evlilik yapan Çelenk, Hülya Koçyiğit’in kız kardeşi Nilüfer Koçyiğit’le 3. evliliğini yapıyor. Bu arada İsviçre’deki saat işinden iflas ediyor ve 12 Eylül darbesinden 9 gün sonra yurtdışına çıkıyor. Yeniden Almanya’ya giden Çelenk iki gemi satın alıyor. Papa suikastinden sonra da, Bulgaristan’a geldiğinde tutuklanıyor:
+      <br/>
+      <br/>
+      “Bulgaristan’da 31 ay (tutuklu) kaldım. Bu 31 ay içerisinde Mehmet Ali Ağca ile ilgili bilgime başvurdular. Tanıyıp tanımadığımı sordular.. Bulgaristan’da bulunduğum süre içerisinde İtalyan Savcı Martella ifademi aldı. Papa suikasti ile ilgili Ömer Mersan’ı tanıyıp tanımadığımı sordu...”
+      <br/>
+      <br/>
+      Eymür’ün anlatımlarına bakarsak, Bulgarlar’ın Çelenk’e Ağca’yı sormaları anlamsızdı. Onlar, Çelenk’i de, Ağca’yı da gayet iyi tanıyorlardı. Ve sırf Türkiye’yi zor duruma düşürmek için bir mizansenle Çelenk İstanbul’a gönderildi. Bekir Çelenk İstanbul’daki sorgusundan sonra Ankara’da Mamak Askeri Cezaevi’ne konuldu. Ancak aynı yıl cezaevinde kalp krizinden öldü.
+      <br/>
+      <br/>
+      Uğurlu ve Ağca’nın Kartal buluşması
+      <br/>
+      <br/>
+      Abuzer Uğurlu ise, şu anda Mehmet Ali Ağca ile birlikte Kartal Cezaevi’nde yatıyor. Uğurlu, Sıkıyönetim Askeri Mahkemesi’nde yargılandığı sırada Abdi İpekçi suikasti dosyasından da ifade vermiş bu duruşmada, Uğur Mumcu da tanık olarak dinlenmişti. Mahkeme Uğur Mumcu’ya, Abuzer Uğurlu’nun İpekçi suikasti ile ilgisini gösterecek herhangi bir bilgi ve belgeye sahip olup olmadığını sormuş, Uğur Mumcu, “Hayır” cevabı vermişti.
+      <br/>
+      <br/>
+      Acaba Papa suikasti öncesinde Abuzer Uğurlu, Mehmet Ali Ağca’ya para göndermiş miydi?.. Bir bilgiye göre, Avukat Doğan Yıldırım bir öğrenci için Uğurlu’dan yardım isteğinde bulunmuş, Uğurlu bu isteği yerine getirmişti ve bu öğrenci Ağca’ydı.
+      <br/>
+      <br/>
+      Bekir Çelenk ifadesinde, Abuzer Uğurlu ve kardeşi Sabri Uğurlu’yu Sofya’da tanıdığını belirtiyor. İlginç olan hem Uğurlu’nun hem de Çelenk’in 1960’lı yıllarda kahve kaçakçılığı suçlarından dolayı Türkiye’den kaçmak zorunda kalıp Sofya’ya demir atmaları.
+      <br/>
+      <br/>
+      Mehmet Ali Ağca, İtalya’dan Türkiye’ye getirilmesinden sonra hakim önüne çıkınca ilk sözleri ne olmuştu: “Bir senaryo vardı, ben sadece o senaryonun aktörüydüm.” Hangi karmaşık ilişkilere girmiş olurlarsa olsunlar, biri ilkokuldan terk, diğeri ortaokul mezunu Çelenk ve Uğurlu da, Türkiye’yi 1980’lere getiren senaryonun yalnızca küçük birer aktörüydüler.
+      <br/>
+      <br/>
+      e—mail: f.mercan@zaman.com.tr
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12570), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092759/http://www.aksiyon.com.tr:80/detay.php?id=12570)

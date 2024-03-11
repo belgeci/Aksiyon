@@ -1,0 +1,71 @@
+# Futbol, yeşil sahalardan yeşil vahalara taştı
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030904092001im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20030904092001im_/http://www.aksiyon.com.tr/resim/448/62.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Endüstrileşen futbola zengin Arapların uzun süre kayıtsız kalması düşünülemezdi. Nitekim, son yıllarda meşin yuvarlağa milyon dolarlar harcayan Arap ülkeleri, ABD ve Japonya'dan sonra futbolun yeni cazibe merkezi olma yolunda hızla ilerliyor.
+ </font>
+ <p>
+  <font class="content">
+   Beşiktaş’ın Okan Koç, Ahmed Hassan ve Emre Aşık gibi oyuncuları kadrosuna dahil ettiği geçtiğimiz günlerde, oyuncu alımında oldukça yavaş davranmakla eleştirilen G.Saray, O. Lyon’un golcüsü Sonny Anderson ile prensipte anlaşmış ve ilk flaş transferi büyük oranda gerçekleştirmiş olmanın sevincini yaşamaya başlamıştı. Fakat, Sarı—Kırmızılı yöneticilerin 1 milyon 300 bin dolara el sıkıştığı Anderson, birkaç gün sonra El Cezire takımıyla anlaştığını açıkladı. Çünkü, El Cezire, Brezilyalı golcüye 2 milyon dolar önermişti. Bu duruma oldukça sinirlenen G.Saray İkinci Başkanı Ali Dürüst’ün dudaklarından şu cümleler dökülmüştü: “Para için El Cezire’yi tercih etti. Bir yıl oynayıp, cebini dolduracak, sonra da futbolu bırakacak. Gittiği takım Avrupa’da olsa ne âlâ. Adam Katar’a gidiyor.” Bu arada, Dürüst’ün bir yanlışını düzeltelim. El Cezire, Katar’ın değil, Birleşik Arap Emirlikleri’nin takımı.
+   <br/>
+   <br/>
+   Artık futbol sadece Avrupa ve Güney Amerika’dan ibaret değil. FIFA’nın tüm dünyaya sevdirmeyi başardığı meşin yuvarlak, Kuzey Amerika’da da, Afrika’da da, Uzakdoğu’da da, Ali Dürüst’ün küçümsediği Arap dünyasında da çok büyük rağbet görüyor. Özellikle Arap ülkeleri, son yıllarda futbola çok büyük yatırımlar yapmaya, büyük organizasyonlar düzenlemeye, Avrupa’nın büyük kulüplerini ağırlamaya, dünya çapındaki yıldız futbolcuları transfer etmeye ve uluslararası başarılar kazanmaya başladı. Mesela, Brezilyalı ünlü golcü Romario, geçen sezon Katar’ın El Sad takımında forma giydi. Yine Brezilyalı Bebeto, Suudi Arabistan’ın El İttihad; Paolo Sergio, Birleşik Arap Emirlikleri’nin El Wasl; İranlı ünlü golcü Ali Daei, Birleşik Arap Emirlikleri’nin El Şabab; Liberyalı ünlü futbolcu George Weah Birleşik Arap Emirlikleri’nin El Cezire, Tunuslu Zübeyr Baya da Katar’ın El Arabi takımında oynadı. 2002 Dünya Kupası’nda Senegal’e çeyrek final oynatan Fransız teknik direktör Bruno Metsu ise Birleşik Arap Emirlikleri’nin El Ain takımını şampiyon yaptı (Geçmişte de Brezilyalı ünlü teknik direktörlerden Mario Zagallo Kuveyt ve Birleşik Arap Emirlikleri’nde, Parreira da Suudi Arabistan’da görev yapmıştı). Bu transfer döneminde de Sonny Anderson El Cezire ile, Bayern Münih’in ünlü futbolcusu Effenberg de Katar’ın El Arabi takımıyla anlaştı. Bu arada, Rivaldo ve Batistuta’yı da almak için girişimlerde bulunan Arap kulüplerinden G.Saraylı Bülent’e, F.Bahçeli Ogün’e ve teknik direktör Rıza Çalımbay’a da teklif geldiğini hatırlatalım.
+   <br/>
+   <br/>
+   Çöldeki en büyük eğlence futbol
+   <br/>
+   <br/>
+   Fas’tan Mısır’a, Katar’dan Birleşik Arap Emlikleri’ne varıncaya kadar birçok Arap ülkesinde futbol çok seviliyor. Bu ülkelerdeki şampiyonluk mücadelelerinde ya da uluslararası maçlarda stadyumlar dolup taşıyor. Zengin olan kulüpler, yaşı biraz ilerlemiş de olsa dünyaca ünlü yıldız futbolcuları kadrolarına dahil ediyor. Arap ülkeleri, futbolu daha popüler hale getirmek için zaman zaman Avrupa’nın büyük kulüplerini de ağırlıyor. Mesela, geçen yıl Roma, Real Madrid ve G.Saray Mısır’a konuk olmuştu. Roma Mısır Milli Takımı ile, Real Madrid ve G.Saray da El Ahly ile bir dostluk maçı yapmıştı. Bu maçlara Mısırlılar büyük ilgi göstermişti. Yine geçen yıl, Libya lideri Kaddafi’nin oğlu El Saadi’nin de forma giydiği Libya Milli Takımı, Trablus’taki özel maçta Arjantin'i ağırlamıştı. Ayrıca, El Saadi’nin girişimleri sonucu Juventus ile Parma arasındaki 2002 İtalya Kupası finali, Libya’da oynanmıştı. Juventus’un kazandığı bu maça Libyalılar çok büyük ilgi göstermişti. Bu yıl ise bir büyük takıma ev sahipliği yapan ülke Birleşik Arap Emirlikleri’ydi. Ocak ayında ünlü futbolcuları El Talyani için bir jübile maçı düzenleyen Araplar, Juventus’un ve Ronaldo’nun eşinin de davetli olduğu organizasyona 5 milyon dolar harcadı. Alpay ve Bülent Korkmaz’ın da forma giydiği Dünya Karması ile Juventus’un karşı karşıya geldiği maçı 80 bin kişi izledi.
+   <br/>
+   <br/>
+   Konfederasyon Kupası’nı Suudiler başlattı
+   <br/>
+   <br/>
+   Meşin yuvarlağı bu kadar çok seven Araplar, dünya futboluna yeni bir organizasyon da kazandırdılar. Bu yıl Türkiye'nin de katıldığı ve gelecek için oldukça umut verdiği Konfederasyon Kupası, Suudilerin girişimleriyle başladı ve resmileşti. Ülkede futbolu popüler hale getirmek için 90’lı yılların başında harekete geçen Suudi Arabistan Futbol Federasyonu, 1992’de Arjantin, ABD ve Fildişi Sahilleri’nin katılımıyla bir turnuva düzenlemeye başladı. Kıtalararası Futbol Şampiyonası adı altında başkent Riyad’da düzenlenen ilk turnuvayı finalde Suudi Arabistan’ı yenen Arjantin kazandı.
+   <br/>
+   <br/>
+   İkincisi 1995'te yine Riyad’da düzenlenen turnuvaya bu sefer 6 takım iştirak etti. Meksika, S. Arabistan ve Danimarka A Grubu’nda; Japonya, Nijerya ve Arjantin de B Grubu’nda yer aldı. Finalde Arjantin’i yenen Danimarka, kupayı kazanan taraf oldu. Bu organizasyonu yakından takip eden FIFA, 1997'den itibaren bu turnuvayı resmileştirmeye karar verdi. Turnuvanın ismi de Konfederasyon Kupası olarak değiştirildi. 1997'deki Konfederasyon Kupası’na yine Suudiler ev sahipliği yaptı. Bu sefer katılan ülke sayısı 8'e yükseldi. Brezilya, S. Arabistan, Avustralya ve Meksika A Grubu’nda; Uruguay, Çek Cumhuriyeti, Birleşik Arap Emirlikleri ve Güney Afrika da B Grubu’nda yer aldı. Finalde Avustralya’yı farklı yenen Brezilya, şampiyon oldu. Suudilerin başlattığı ve mini bir Dünya Kupası olarak nitelenen Konfederasyon Kupası, 1999'da Meksika’da, 2001'de Japonya ve Güney Kore’de, bu yıl da Fransa’da düzenlendi.
+   <br/>
+   <br/>
+   Araplar Avrupa futboluna da el attı
+   <br/>
+   <br/>
+   Özellikle petrol zengini olan Araplar, ülkelerindeki takımlara ve organizasyonlara para harcamakla kalmıyor, Avrupa kulüplerine de ortak oluyorlar. Avrupa’nın çeşitli kulüplerini satın alan ya da satın almak için girişimde bulunan Arap işadamlarının başında Libyalı El Saadi Kaddafi, Suudi Hani Yamani ve Mısırlı Muhammed El Fayed geliyor. Libya lideri Muammer Kaddafi’nin 28 yaşındaki oğlu El Saadi, geçtiğimiz yıllarda İtalyan takımı Juventus’un yüzde 7.5, Triestina’nın da yüzde 33’üne sahip oldu. Tam bir futbol hastası olan ve birara Yunanistan’ın PAOK kulübünü de satın alması gündeme gelen El Saadi, geçen yıl borç içerisinde yüzen Lazio’ya ortak olmak için de kararlıydı. Lazio’nun pazarlama şirketi Blue Eleven’e de ortak olan El Saadi’nin kulübü satın alması sonradan gerçekleşmedi.
+   <br/>
+   <br/>
+   Uzun süredir alıcısı çıkmayan Lazio’ya geçtiğimiz günlerde Suudi Arabistan’ın eski petrol bakanı Zeki Yamani’nin oğlu Hani Yamani talip oldu. Lazio’nun kontrolünü elinde bulunduran kredi bankası Capitalia ile Yamani arasında uzun görüşmeler yapıldı. Lazio’nun önümüzdeki sezon Serie A’da mücadele edebilmesi için acilen sermaye artırımına gitmesi gerekiyordu. Ve 110 milyon euro’luk bu sermaye artırımı önceki hafta gerçekleşti. Yamani’nin Lazio’ya ortak olup olmadığı ya da ne kadarlık hissesine sahip olduğu henüz bilinmiyor.
+   <br/>
+   <br/>
+   Ritz oteller zincirinin sahibi Muhammed El Fayed ise Londra’nın en eski kulübü olan Fulham’ı (1879’da kuruldu) satın alarak futbola el attı. El Fayed, Prenses Diana ile geçirdiği trafik kazısında ölen oğlu Dodi’nin acısını, Fulham’ın başarıları sayesinde azaltmaya çalışıyordu. Nitekim, altı yıl önce 4. Lig’de oynayan Fulham, El Fayed’in yatırımları sayesinde yükselişe geçti ve önceki sezon Premier Lig’e çıktı. İki sezondur orta sıralarda yer alan Fulham’ın hedefi, daha yukarılara çıkmak ve İngiltere’yi Avrupa kupalarında başarıyla temsil etmek.
+   <br/>
+   <br/>
+   Kaddafi’nin futbol merakı Çizme’yi aşıyor
+   <br/>
+   <br/>
+   Genel olarak Arapların futbolu çok sevdiği ortada. Fakat bireysel olarak futbol sevgisini en iyi yansıtan kişi Libya Lideri Muammer Kaddafi’nin oğlu El Saadi. İtalyan kulüplerine ortak olarak bu sevgisini ortaya koyan oğul Kaddafi, şimdi de oyuncu olarak Çizme’de boy göstermeye hazırlanıyor. Libya Futbol Federasyonu Başkan Yardımcısı, El İttihad Kulübü Başkanı ve İtalya Milli Takımı oyuncusu olan Kaddafi, önümüzdeki iki sezon için Perugia ile anlaştı. Kulüp yetkilileri, Libyalı futbolcuya 600 bin euro ödeneceğini, El Saadi Kaddafi'nin de bu parayı hayır kurumlarına bağışlayacağını açıkladı.
+   <br/>
+   <br/>
+   İtalyan basını Kaddafi’nin transferine şiddetle karşı çıkarken, Perugia Başkanı Gaucci, ‘’Futbol tarihimize girecek bir olayı gerçekleştirecek olmamızdan dolayı hepimiz memnunuz. Takımda, bir devlet başkanının oğluna ve onun gibi önemli bir kişiye sahip olmak, her türlü transfer görüşmelerinden daha önemlidir.’’ diyerek eleştirilere cevap vermeye çalıştı. Perugia Teknik Direktörü Cosmi ise ‘’Kaddafi gibi ünlü birini tanıdığım için memnunum ve onu Perugia’da görmekten de memnun olacağım. Sadece bir kez izlediğim bir futbolcu konusunda önyargı sahibi olamam; ama Kaddafi, görüşmelerimizde büyük bir alçak gönüllülüğe sahip olduğunu gösteriyor.’’ dedi. Bu arada, oğul Kaddafi'nin isteği doğrultusunda Libya'nın 2010 Dünya Kupası'na ev sahipliği yapmak için aday olacağını duyuralım.
+   <br/>
+   <br/>
+   En başarılılar: Mısır ve Suudi Arabistan
+   <br/>
+   <br/>
+   Futbolu çok seven Arap dünyasında en başarılı olan iki ülke Mısır ve Suudi Arabistan. Son yıllarda Mısır takımları Afrika’da, Suud takımları da Asya’da çok önemli başarılara imza attılar. Avrupa takımlarına oyuncu (Rami Şaban—Arsenal, Hani Remzi— Kaiserslautern, El Saka—G.Birliği, A. Hassan—Beşiktaş, Ayman—Malatya, Ahmed Hossam—Ajax) göndermeye başlayan Mısır, Afrika kupalarını toplamasıyla dikkat çekiyor. Afrika Şampiyonlar Ligi’ni son iki sezonda Kahire takımları El Ahly ile Zamalek kazandı. Bugüne kadar bu kupayı Zamalek 5, El Ahly de 3 kez müzesine götürdü. Afrika Süper Kupası da son 10 yılda 4 kez Mısır’a gitti. Bunlardan 3’ünü Zamalek, birini de El Ahly kazandı. Afrika Kupa Galipleri Kupası da bir kez Zamalek, 4 kez de El Ahly’nin oldu. Mısır’ın Afrika’da yaptığını Suudiler de Asya’da yaptı. Suud takımları Asya kupalarında hep başarılı oldu. Asya Süper Kupası, 2 kez El Hilal’in, bir kez de El Nasr’ın müzesine gitti. Asya Kupa Galipleri Kupası ise 2 kez El Hilal’in, birer kez de El Kadisiyah, El Nasr, El Şabab ve El İttihad’ın oldu.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2758&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030904092001/http://www.aksiyon.com.tr:80/detay.php?id=2758&yorum_id=1)

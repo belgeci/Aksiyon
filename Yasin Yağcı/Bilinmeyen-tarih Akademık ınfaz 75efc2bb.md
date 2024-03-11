@@ -1,0 +1,70 @@
+# Akademık ınfaz
+
+*Yasin Yağcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302174956im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302174956im_/http://www.aksiyon.com.tr/resim/306/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye’nin her sene değişmeyen klasik problemlerinden birisidir YÖK. İçinden geçtiğimiz hepimizin mâlumu “süreç” ile başlayan ve periyodik bir hâl alan YÖK’ün üniversiteler üzerindeki antidemokratik uygulamaları her geçen sene biraz daha artarak devam ediyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Üstelik bu antidemokratik tutum neredeyse tüm üniversite yöneticilerine de nüfuz etmiş gibi gözüküyor. İşte bu senenin bilançosunun kısa bir özeti. Yaz ayları içinde başlayan rektör atamaları bu dönemin ne kadar zor geçeceğini gösterir gibiydi. Sonrasında İstanbul Üniversitesi’ndeki rektörün tutumu, başörtü sorununun okuldan lojmanlara değin genişlemesi ve en son olarak da görevlerinden uzaklaştırılan öğretim üyelerinin durumu. İlk iki olay çokça tartışıldı. Biz pek tartışılma şansı bulmayan ve tabiri  caizse yangından mal kaçırırcasına uygulanan görevden uzaklaştırmalarını mercek altına almaya çalıştık. Aslında görevden alınanların sayısı epey kabarık. Ama biz bir örnek olayı mercek altına alacağız: Yrd. Doç. Dr. Alev Erkilet Başer’in kovulma hikayesini.
+   <br>
+    <br>
+     Başer, Kırıkkale Üniversitesi Fen—Edebiyat Fakültesi Sosyoloji Bölümü öğretim üyesi iken yapılan soruşturma neticesinde görevine son verildi. YÖK’ün Başer’in görevine son vermedeki gerekçesi çok basit ve bildik: “Cumhuriyetin temel ilkelerine aykırı davranmak.”
+     <br>
+      <br>
+       Her şey Doç. hanımın tez konusuyla başlamış aslında. Tezin konusu ma’lum mantık açısından baktığınızda dahi ürkülecek gibi değil: “Ortadoğu’da Modernleşme ve İslami Hareketler.”
+       <br/>
+       <br/>
+       Sen misin kitap yayınlayan?
+       <br/>
+       <br/>
+       Bayan Başer, tez konusunu seçerken herhangi bir problem ile karşılaşmıyor. Tam tersi 1996 yılında bu tezi ile doktor unvanını bile alıyor. Ve araştırma görevlisi olarak çalıştığı bu süre zarfında bir çok komisyonda da görev alıyor. Derken 1997 yılında aynı üniversitede yardımcı doçentlik unvanını elde ediyor. Bu döneme kadar herhangi bir tahkikat veya soruşturmaya tâbi tutulmayan Alev Hanım’ın başı tezinin bir yayınevi tarafından basılmasıyla resmen belaya girmiş oluyor.
+       <br/>
+       <br/>
+       Kitabın yayınlanması bir nevi sonun başlangıcını temsil ediyor. Bu olaydan hemen sonra Üniversite Dekanlığı 03/03/2000 tarih ve 309 sayılı bir yazı gönderiyor. Bu yazıya göre Başer’in görev süresi 09/04/2000 tarihi itibariyle bitiyor ve YÖK’ün ilgili kanunu gereği rapor hazırlamak üzere bir görev süresi uzatma jürisi oluşturması gerekiyor. Normalde böyle bir jüri ilgili fakülte ve anabilim dalında görevli kişilerden oluşuyor. Oysa Dr. Başer’in görev süresinin uzatılıp uzatılamayacağına karar verecek jüri hiç ilgisi olmayan ana bilim dallarında görevli kişilerden oluşur. Görevin uzatılıp uzatılmaması konusunda bir sonuca varamayan jüri üyeleri bu kararı fakülte yönetim kuruluna bırakır. Hemen sonrasında toplanan fakülte yönetim kurulunun kararı görev süresinin uzatılması yönünde olur. Olur olmasına ama bu kez rektörlük karşı çıkar.
+       <br/>
+       <br/>
+       Fakülte Yönetim Kurulunun kararını değerlendirmeye tâbi tutmayan rektörlüğün gerekçesi çok kestirmedir: “Jüri üyelerinin hazırladıkları raporların sonuç kısmında kesin hükümler yok. Bu durum idari bir karar almamızı zorlaştırıyor”. İkinci bir jürinin oluşmasına fırsat bile vermeyen yönetim aynı günlerde “görev süresinin kendiliğinden dolduğunu” beyan eden bir yazı daha gönderir Başer’e. Yazıyla birlikte bir de soruşturma açılır. Yönetimin baştan beri kendisini uzaklaştırmaya meyilli olduğunu belirten Yard. Doç. Dr. Başer şöyle konuşuyor: “Dikkat edileceği üzere baştan beri mutlaka işten uzaklaştırma isteği ile hareket eden idare bunu başabilmek için üç ayrı işlemi arka arkaya uygulamıştır. Jüri yoluyla istediği sonucu alamayan idare, ‘görev süresi kendiliğinden doldu’ mantığını devreye sokmuş, bunu desteklemek için de beni ve düşüncelerimi sakıncalı ilan etmek ve karalamak yoluna gitmiştir. Nitekim davalı idarenin aynı jüriden olumsuz ikinci rapor alması ve buna bağlı olarak Fakülte Yönetim Kurulu’ndan görev süremi uzatmama yönünde ikinci bir karar çıkartması ancak 31/05/2000 tarihinde olanaklı olabilmiştir. Halbuki ben 28/04/2000 tarihinde tarafıma tebliğ edilen yazıyla işten uzaklaştırılmıştım.”
+       <br/>
+       <br/>
+       Bir fotoğrafın yaptığına bakın
+       <br/>
+       <br/>
+       Görevden alıkonulmasına rağmen Başer’in başı beladan kurtulmaz. Görevden alınmasıyla birlikte hakkında “Devrim kanunları ve irtica ile mücadele yasa ve yönetmeliklerine aykırı yayında bulunduğu” iddiasıyla soruşturma açılır. Soruşturmanın merkezine ise yukarıda da basettiğimiz “Ortadoğu’da Modernleşme ve İslami Hareketler” konulu tezi oturtulmuş. Hem de tez jüri tarafından dört sene önce kabul edilmesine rağmen. Alev Hanım’a göre bu soruşturmanın gerekçesi tekrar göreve dönme ihtimallerinin hepsini ortadan kaldırmak: “Görev süremin sona erdiği tarihte başlatılan bu soruşturma aslında Kırıkkale Üniversitesi idaresinin göreve mahkeme kanalıyla iade edilmemi engellemek ve böylece hukuksuz işlemlerini örtbas etmek amacıyla başvurduğu bir başka hukuksuz işlemdir. Dahası bu soruşturmada herhangi bir davranışım ya da eylemim değil, doğrudan doğruya kitabım tartışma konusu edilmiştir. Bu nedenle de, düşünme ve araştırma özgürlüğüne karşı girişilmiş bir saldırı niteliği taşımakta ve sadece düşünceyi cezalandırma mantığı güdülmektedir.”
+       <br/>
+       <br/>
+       Dr. Başer’e yöneltilen en büyük eleştiri, tezine neden “Besmele” ile başladığı ve sonuna neden resimler eklendiğiydi. Peki gerçekten tez “Besmele ile başlıyor ve resimler ile mi süslü?” Gelin bunu Başer’in ağzından dinleyelim: “Doktora tezimde ne besmele bulunmakta ne de resim. Doktora tezimin bir örneğini Kırıkkale Üniversitesi Fen—Edebiyat Fakültesi dekanlığına teslim ettiğim ve tezde besmele ile fotoğrafların bulunmadığını kendileri de gördükleri halde, bu konuyu bilerek çarpıtıyorlar. Besmele ve fotoğraflar tekrar ediyorum tezimde değil tezim kabul edildikten sonra bir yayınevi tarafından basılan kitabımda var. İç kapakta bulunan besmele ve fotoğraflar yayınlanma aşamasında çalışmaya ilave edilmiş. İdarenin bunları ısrarla tezimde varmış gibi göstermeye çalışması iyi niyetle ve dürüstlükle bağdaşmamaktadır. Aynı kötü niyet idarenin çalışmaya yönelik diğer isnatlarında da karşımıza çıkıyor”.
+       <br/>
+       <br/>
+       Besmele ve resimlerden sonra suçlamaya dayanak teşkil eden başka bir konu ise Başer’in çalışmaya konu olarak aldığı hareketlerden birisi olan İran Devrimini övmesiymiş. Yöneltilen suçlamalara göre Alev Hanım İran devrimini bir kültürel silkiniş olarak niteliyormuş. Biz de tekrar İran devrimini kültürel silkiniş olarak görüp görmediğini soruyoruz; “Burada zikredilmesi gereken husus, İran devrimini kültürel silkiniş olarak niteleyen ifadenin kitabın 391. safasında yer alan ve Sayın Cengiz Çandar’dan yapılan alıntıda geçmekte olduğudur. Alıntı aynen şöyle: “Humeyni’nin yönettiği İran devrimi ile birlikte... insanlığın bir milyarlık koca kesiti için bir yeniden doğuş ve kültürel silkiniş uluslararası hayatın gündemine gelmiştir”. Kitapta bu tespitten hareketle bir İran modeli olup olmadığı tartışmasına girilmektedir. Ancak bu tartışma bir devrimin, benzer ideolojiyi paylaşan hareketler açısından bir model oluşturup oluşturmadığı ile ilgilidir. Kaldı ki madem bunlar suçtu neden dört sene önce tezim kabul edildi?”
+       <br/>
+       <br/>
+       Soruşturması ile ilgili yazılı ifadesinde tüm suçlamalara detaylı cevap vermesine rağmen rektörlük görevden alınmasını talep eden bir yazıyla birlikte dosyayı YÖK’e gönderir. YÖK ise 27/09/2000 tarihinde Başer’in savunma yapmak için ek süre isteğini gözardı ederek görevine son verir. Dr. Başer’e Yükseköğretim Kurumları Yönetici, Öğretim Elemanı ve Memurları Disiplin Yönetmeliği’nin 11. maddesinin b/1 ve b/2 fıkralarından ceza talep edilmiş. Oysa sözkonusu yasanın ilgili fıkraları düşünceden ziyade ideolojik amaçlı eylemleri kamu görevinden uzaklaştırma suçu olarak varsaymakta.
+       <br/>
+       <br/>
+       Yazdığı tezin —ki daha önce jüri tarafından kabul edilmesine rağmen— kitaplaştırılmasından başka bir suçu olmayan Yard. Doç. Dr. Alev Erkilet Başer’in nasıl bir hukuksuzluk ile karşı karşıya kaldığı apaçık ortada. Aslında fazla söze de hacet yok. Ne ne diyor Orhan Pamuk Yeni Hayat’ında: “Bir kitap okudum hayatım değişti.” Herhalde Erkilet’in durumu için de söylenecek en iyi söz: “Bir tez yazdı hayatı karardı” olmalı.
+       <br/>
+       <br/>
+       E—mail: yasin2003@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13849), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302174956/http://www.aksiyon.com.tr:80/detay.php?id=13849)

@@ -1,0 +1,83 @@
+# "Ya yazacaktım ya da ölecektim"
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050125233137im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050125233137im_/http://www.aksiyon.com.tr/resim/484/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Saddam Hüseyin"in kanı ile Kur"an-ı Kerim yazan hattatı Ürdün"de bulduk. Dünya basınının röportaj yapmak için peşinden koştuğu Abbas Bağdadi; "Yazarken yemekten kesildim, saçlarım döküldü, sıkıntıdan gözlerim bozuldu. Saddam"ın 40 şişeden fazla kanını kullandım. Haftada bir cüz bitiriyordum" diyor. Saddam Hüseyin... Yaklaşık 35 yıl boyunca Ortadoğu"ya damgasını vuran bir isim. Çok tartışıldı, konuşuldu. Anlaşılmaz agresifliğini diktatörlüğe dönüştürüp halkına ve emrindekilere bir istibdat dönemi yaşatan Saddam, Amerikan güçleri tarafından devrilmesine rağmen hâlâ konuşuluyor. Kendisi tutuklu olsa da onun bir zamanlar esaret hayatı yaşattığı adamları ilginç hikayeleriyle bir bir ortaya çıkıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Çoğu zaman tüyleri ürperten, iç bulandıran anekdotlar Saddam"ın halet-i ruhiyesiyle ilgili ipuçları veriyor. Kendi kanı ile Kur"an-ı Kerim yazdırması da bunlardan biri.
+   <br>
+    <br>
+     Saddam Hüseyin"in Amerikan-Irak Savaşı öncesinde kan gibi sağlıksız ve necis bir sıvı ile Kur"an yazdırdığı hattat Abbas Bağdadi"yi (Şakir Cevdet Abbas Bağdadi) Ürdün"de bulduk. Dünya basınının röportaj yapmak için kapısını aşındırdığı hattat, Aksiyon dergisine, Ürdün"ün Amman şehrinin bir kenar mahallesindeki evinin kapısını ve sırlarını açtı. Bağdadi, kan ile yazı yazarken hayatının en büyük acısını yaşadığını söylüyor. İşte kanla yazı yazmaya zorlanan ünlü bir hattatın acı dolu dört yılının hikayesi.
+     <br>
+      <br>
+       <br/>
+       <br/>
+       "Yemekten kesildim"
+       <br/>
+       <br/>
+       Irak"ta "hattatların reisi" resmi unvanını taşıyan Abbas Bağdadi"den Saddam Hüseyin için bir Kur"an-ı Kerim yazması istenmiş. Bağdadi konumu gereği Saddam"ın bu isteğini kabul etmiş. Kısa bir zaman sonra Bağdadi"ye Kur"an"ı yazması için kağıt, mürekkep ve kalem verilmiş. Olaylar buraya kadar normal seyrinde gelişiyormuş. Ancak bir gün aynı adamlar mürekkebi değiştirip Bağdadi"ye, "Bu mürekkeple yazacaksın" emrini vermişler. Mürekep şişesini açan hattat, donmuş kanı gördüğünde gözlerine inanamaz ve kusar. Bağdadi, o anda ne yaptığını bilmediğini aktarıyor; "Kanı getiren adamlar bunun Saddam Hüseyin"e ait olduğunu söylediler. Kur"an-ı Kerim"i tamamen kanla yazacağımı bildirdiler. Saddam"ın emri ve özel isteği imiş. Örnek bir sayfayı da hemen istediğini belirttiler."
+       <br/>
+       <br/>
+       Bağdadi, 2 saat içinde midesi bulana bulana ve ne yaptığını bilmez bir halde Yasin-i Şerif"ten bir bölümü kanla yazıp adamlara verir. Pıhtılaşan kanla yazmanın çok zor olduğunu söylüyor Bağdadi. Bir gün sonra hattata gelen adamlar deneme yazının beğenildiğini ve Kur"an"ı yazmaya hemen başlaması gerektiğini söylemişler.
+       <br/>
+       <br/>
+       Kendisine her seferinde küçük bir şişede kan getirmeye başladıklarını söyleyen Bağdadi, yaşadığı o günleri "Her hafta getireceklerdi. Bazen haftalarca, hatta aylarca kan gelmiyordu. Şişe geldikten bir hafta sonra yazıları alıyorlardı. Ben de bir hafta içinde bir cüzü bitiriyordum. Kandan midem bulandığı için yemek yiyemez oldum. Hayatımın en acılı günlerini yaşıyordum. Saçlarım dökülüyor, beyazlıyordu. Sıkıntıdan gözlerim görmemeye başladı. Görev yaptığım caminin küçük odasında gece gündüz yazıyordum. Bu süre zarfında görevliler ve kameralar beni takip ediyordu" şeklinde anlatıyor. Bağdadi"nin bunları anlatırken o günlere geri gittiği gözlerinden okunuyor.
+       <br/>
+       <br/>
+       Kısa sürede pıhtılaşan ve yazılamayacak hale gelen kan karşısında çaresiz kalan hattat en sonunda çözümü bulur. Pıhtılaşmayı önlemek için görevlilerin haberi olmadan içine biraz zağferan ve su katmaya başlar. Bu karışıma rağmen kanın çok çabuk pıhtılaştığını aktarıyor Bağdadi.
+       <br/>
+       <br/>
+       Abbas Bağdadi, 1999 yılının ortasında başladığı Kur"an-ı Kerim"i 2001"in sonuna doğru bitirmiş. 40 şişeden fazla kan kullandığını anlatan Bağdadi, gelen kanların kırmızıdan çok siyah olduğunu söylüyor. Saddam, Kur"an"da emeği geçen ciltçi ve tezhipçilerden oluşan ekibin tamamına 3 bin dolar ödül vermiş. Büyük boy olarak tasarlanan ve Nesih hattı ile yazılan Kur"an-ı Kerim, Bağdat"ı ele geçiren Amerikan askerleri tarafından halen aranıyor. Tüm dünyanın merak ettiği Kur"an-ı Kerim"in o tarihlerde uzmanlar tarafından mumyalandıktan sonra Bağdat"taki Kadisiye Enstitüsü"nün özel bir bölmesinde muhafazaya alındığı bilgisini de Abbas Bağdadi veriyor.
+       <br/>
+       <br/>
+       "Yazmasaydım öldürülecektim"
+       <br/>
+       <br/>
+       Abbas Bağdadi, Kur"an"ı yazmaya başladıktan sonra meslektaşları tarafından dışlanmış. Hatta kendisini çekemeyen bazı hattatların onu Saddam"ın adamlarına şikayet ettiklerini dile getiriyor. "Neden kanla Kur"an-ı Kerim yazdınız?" sorusunu Bağdadi başka çarem yoktu diyerek şöyle cevaplıyor. "Hattatların reisi olduğum için bu görevi bana verdiler. Ya ölecektim ya da yazacaktım. Adamlar başımda bekliyordu. Çocuklarımı ve eşlerimi düşündüm. Keşke yazmasıydım. Saddam"ın adamları yazmaya başladığım ilk günden itibaren beni takibe almaya başladı. Zaten Saddam"ın iktidarı boyunca Bağdat dışına çıkamadım. Bana pasaport vermiyorlardı. Resmi görevimden dolayı ve tanınmış bir hattat olduğum için böyle yapıyorlardı. Kur"an"ı yazdığım için çok pişman oldum. Şimdi çok rahatsız oluyorum ve kâbus görüyorum."
+       <br/>
+       <br/>
+       Hattatların kan gibi necis bir sıvı ile Kur"an yazılmayacağını, bunun günah olduğunu söylediklerini hatırlatıyoruz. Aldığımız cevap bizi tatmin etse de hattatları edecek mi bilemiyoruz. İşte Bağdadi"nin bu konudaki cevabı: "Onlar benim yerimde olsalardı acaba ne yapacaklardı? Bile bile ölümüme sebep olmam da günah. Allah katında hesabım görülecek. Cezam veya ödülüm varsa hepsini göreceğim. Bu hadise hayatımı alt-üst etti. Bu acılar bana yeter."
+       <br/>
+       <br/>
+       Saddam"ın kanı ile yazılmış Kur"an-ı Kerim"in bir sayfasını "Olmadı" diyerek kendisine alan hattat bunu acı bir hatıra olarak ilk kez bize gösteriyor.
+       <br/>
+       <br/>
+       Eşlerinden birini ve ondan olan çocuklarını alıp 3 ay önce Ürdün"e kaçan Bağdadi"nin diğer eşi ve çocukları halen Bağdat"ta yaşıyor. Güney Amman"ın varoşlarında küçük bir evde yaşayan Bağdadi geçimini levha yazarak kazanıyor. Bağdadi evinin kapılarını bize açarken Osmanlı torunu olduğumuz için kendisiyle görüşmemizden çok memnun olduğunu söylüyor; "Beni çok mutlu ettiniz. Herkes benimle konuşmak istiyor. Kimseye konuşmadım. Yaptıklarımı ve yaşadıklarımı kimseye aktarmadım. Siz Sultan Abdülhamid"in torunlarısınız, yeriniz ayrı. Ben bugün mazlumum, hakkım elimden alınmış. Irak"ta devletin verdiği evi Şiiler elimden aldı. Hattatlar beni istemiyor. Ben de Ürdün"e gelip yerleştim. Burada ne kadar kalacağımı bilemiyorum."
+       <br/>
+       <br/>
+       Kanını Allah"a feda etmiş
+       <br/>
+       <br/>
+       Saddam Hüseyin, Kur"an-ı Kerim"in giriş sayfasına, yaptığı her işin Allah (c.c) tarafından bağışlanması için dua niyetine şu sözü yazdırmış: "Allah"ım görüşlerimdeki hatalarımdan dolayı beni bağışla." Bağdadi, Saddam Hüseyin"in kanı ile Kur"an-ı Kerim yazdırmasının sebebini şöyle açıklıyor: "Saddam yaptığı her işi doğru buluyordu. Kendini Allah"ın tek temsilcisi ve sözcüsü olarak gösteriyordu. Bu yüzden kendi kanının da önemli olduğunu söylüyordu. "Allah (c.c) beni düşmanlarımdan koruduğu için ben de kanımı ona feda ediyorum" diyerek böyle anlamsız bir davranışın içine girdi. Rabbinin yolunda hizmetler yapacağına böyle sapık bir emelin peşine düştü. Bunun için de bizim gibi mazlumları zorla kullandı. Allah bundan razı olmaz. Zaten cezasını çekiyor."
+       <br/>
+       <br/>
+       Abbas Bağdadi, ünlü bir hattat. Değişik ülkelerde öğrencileri bulunuyor. Öğrencileri IRSICA"nın düzenlediği uluslararası hat yarışmalarında birincilikler alıyor. Hattatlar tarafından Arap âleminin en önemli hattatı kabul ediliyor. 1951"de Bağdat"ta doğan Bağdadi, Osmanlı döneminde Mescid-i Nebevi"nin yazılarını yazan hattat Abdullah Zühdi"nin torunu. Başta Mustafa Rakım ve Sami Efendi olmak üzere Türk hattatların hepsini takip etmiş ve yazılarından feyz almış. Onları rüyasında gördüğünü de anlatan Bağdadi duygularını şöyle aktarıyor: "Bütün hattatları biliyorum. Onlardan feyz aldım. Keşke onların döneminde yaşasaydım. Neredeyse hepsini rüyamda gördüm. Yazılarıma bakıp mutlu oldular. Onlar Osmanlı zamanında ve sonrasında hattı zirveye taşıdılar. Şimdi de Mehmet Özçay gibi isimler yaptıklarını devam ettiriyor."
+       <br/>
+       <br/>
+       Hat sanatı ile ilgili çok sayıda kitabı da olan Bağdadi sanat hayatına ilk önce resimle başlamış. Bu noktada hayatı, hattın yanında resim de yapan Mustafa Rakım Efendi"ye benziyor. Küçük yaşta resimleriyle ünlenen Bağdadi, annesinin resim yapmanın haram olduğunu ve Allah"ın ayetlerini yazmasının daha iyi olacağını söylemesiyle bu uğraşısını bırakmış. 1965 tarihinden sonra resim yerine hatta başlayan Bağdadi, Iraklı hattat Haşim Bağdadi"den sonra Arap dünyasının en önemli hattatı sıfatına kısa sürede ulaştı.
+       <br/>
+       <br/>
+       Bir diktatör, bir iş ve bir hattat... Saddam Hüseyin"in yazdırdığı yazıdan sonra hayatı alt-üst olan Abbas Bağdadi şimdi vatanından uzak zor şartlar altında hayatını sürdürüyor. Öğrencileri Ürdün"de de kendisini yalnız bırakmıyor ama o kanla Kur"an yazmanın toplum gözündeki cezasını çekiyor.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11263&yorum=888), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050125233137/http://www.aksiyon.com.tr:80/detay.php?id=11263&yorum=888)

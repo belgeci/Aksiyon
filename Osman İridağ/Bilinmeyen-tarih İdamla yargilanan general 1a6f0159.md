@@ -1,0 +1,169 @@
+# İdamla yargilanan general
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Mustafa Rüştü Erdelhun, dönemin genelkurmay başkanı idi. 27 Mayıs İhtilali’nden sonra Yassıada Mahkemeleri’nde büyük haksızlıklara uğrayanların başında geliyordu. Bu süreçte ilk kez bir genelkurmay başkanının tüm rütbeleri söküldü ve er statüsünde yargılandı. Sonuç idamdı...
+   <br/>
+   <br/>
+   Türk siyasi tarihinde nice acılara sebebiyet verilmiş, dönülmesi zor kararların alındığı bir tarih 27 Mayıs...10 yıl süreyle ülkeyi idare eden ve tek parti dönemine son veren merhum Başbakan Adnan Menderes ve iki bakanı Fatin Rüştü Zorlu ile Hasan Polatkan’ın idam edilmeleri sürecini başlatan 27 Mayıs 1960 tarihinin bugün 42. yıldönümü. Darağacına gönderilen bir başbakan ve iki bakanın yanısıra yüzlerce politikacı ve bürokrat da müthiş mağduriyetler ve kısıtlamalar yaşamıştı, anılan dönemde. Bunlardan birisi de dönemin genelkurmay başkanı Org. Rüştü Erdelhun idi.
+   <br>
+    <br>
+     Elleri arkadan bağlıydı
+     <br>
+      <br>
+       Genelkurmay başkanı iken 27 Mayıs İhtilali yapılmış ve gelen ihtilal yönetimi tarafından apar topar bir hafta içinde emekliye sevkedilmiş, ardından da tüm Demokrat Partililer gibi Yassıada’ya sevkedilmişti. İmralı’ya yüzbaşı Erdoğan Argun kumandasındaki subay ve erlerin muhafazasında elleri arkadan kelepçeli olarak götürülmüştü.  Diğer siyesilerle birlikte Rüştü Erdelhun için de acılı günler başlamıştı; zira, Yassıada’ya olağanüstü şartlar içinde götürülmüş, tüm rütbeleri sökülmüş ve konumu er statüsüne indirgenmişti. Yassıada Mahkemesi Başkanı Salim Başol, Başsavcı Ömer Altay Egesel ve öteki yetkililer kendisini adeta bir partili gibi yargılamışlar, asker olmasına karşılık ‘partili’ sınıfına sokmaya büyük çaba göstermişlerdi. Tüm yargılama süreci içinde Mahkeme Başkanı ile Erdelhun Paşa arasında geçen konuşmalar bunu açıklıkla gösteriyordu.
+       <br>
+        <br>
+         Önce idam verildi
+         <br/>
+         <br/>
+         Yassıada’nın olağanüstü şartlarından çıkan karar ise yine olağanüstü idi: İdam. Türkiye Cumhuriyeti tarihinde bir ilk daha gerçekleşiyor ve yıllarca orduya hizmet eden, son olarak da ordunun başı olan bir komutan, bir dönem emrinde çalışan kişilerin reyleriyle idama mahkum ediliyordu. Bu kararın ardından toplanan Milli Birlik Komitesi İrtibat Bürosu’nun 58 Sayılı Tebliği şu şekildeydi; 1– Yüksek Adalet Divanı’nca ölüm cezasına mahkum edilen sanıklardan sakıt Reisicumhur Celal Bayar, sakıt Başbakan Adnan Menderes, sakıt Dışişleri Bakanı Fatin Rüştü Zorlu ve sakıt Maliye Bakanı Hasan Polatkan’ın ölüm cezaları Milli Birlik Komitesi’nin 15 Eylül 1961 gün ve 75 numaralı kararı ile tasdik edilmiştir. Ancak sakıt Reisicumhur Celal Bayar’ın 65 yaşını bitirmiş olması dolayısıyle verilen ölüm cezası müebbet ağır hapse tahvil edilmiştir. 2– Ölüm cezasına mahkum edilen Refik Koraltan, Agah Erozan, İbrahim Kirazoğlu, Ahmet Hamdi Sancar, Nusret Kirişçioğlu, Bahadır Dülger, Emin Kalafat, Baha Akşit, Osman Kavrakoğlu, Zeki Erataman ve Rüştü Erdelhun’un cezaları da 15 Eylül 1961 gün ve 75 numaralı kararla müebbet ağır hapse çevrilmiştir. Tebliğ olunur.
+         <br/>
+         <br/>
+         Hapiste ne kadar kaldı?
+         <br/>
+         <br/>
+         Yassıada Yüksek Adalet Divanı tarafından 146/1 hükmünce ve oy çokluğu ile –Hıfzı Tüz, Abdullah Üner, Selman Yörük ve Başkan 146/3’ün teşdiden tatbiki reyini kullandılar– önce ölüm cezasına çarptırılan ardından da bu hükmün müebbet hapse çevrildiği Erdelhun Paşa öteki Yassıada mahkumlarıyla birlikte yaklaşık 1 sene Kayseri Cezaevi’nde kalır. Afla ilgili çalışmalar Milli Şef İsmet İnönü başbakanlığındaki koalisyon hükümeti döneminde 1962 yılında hızlanır ve cezaların azaltılmasıyla 283 kişi serbest bırakılır. Bundan sonra Cumhurbaşkanı Cemal Gürsel de kendi yetkisini kullanarak Refik Koraltan, Nedim Ökmen, Selim Yatağan, Kemal Aygün, Agah Erozan, Namık Argüç, Dilaver Argun, Bahadır Dülger, Samet Ağaoğlu, Selahattin İnan, Hilmi Dura, İzzet Akçal’ı affeder. Afedilenler arasında bir isim daha vardır; Rüştü Erdelhun. Eski genelkurmay başkanı için tutukluluk yılları sona ermiştir. 1964 yılının sonunda da Yassıada mahkumu kalmamıştır. Paşa, hapisten çıktıktan sonra İstanbul’a yerleşir.
+         <br/>
+         <br/>
+         Erdelhun’un itirafları...
+         <br/>
+         <br/>
+         Rüştü Erdelhun’un Kayseri'deki cezaevi günlerine tanıklık edenlerden biri de Demokrat Partili eski bakanlardan Rıfkı Salim Burçak’tı. Ölümüne kadar Demokrat Kulübü Başkanlığını sürdüren Burçak anılarını derlediği kitapta Erdelhun’la ilgili bölümlere de yer veriyor. Erdelhun kendisine Genelkurmay Başkanı olduğu 26 Ağustos 1958’de, Ankara’da büyük bir subay kitlesinin Halk Partisi'yle sempatize olduğunu, Ankara’da teşekkül eden grupların hükümeti devirecek kuvvetleri elde edebilmek için kendi adamlarını kilit noktalara getirdiklerini, Milli Savunma Bakanı Ethem Menderes’in de buna farkında olmayarak göz yumduğunu aktarır. Personel tayin yetkisinin Genelkurmay’dan alınarak Savunma Bakanlığı uhdesine alınmasını  da ihtilale giden yolun önemli bir kilometre taşı olarak belirtir eski Genelkurmay Başkanı. Erdelhun’un, Burçak’a anlattıkları arasında altı çizilmesi gereken bir ‘itiraf’ da şu; 21–22 Mayıs gecesi Erdelhun Paşa Çankaya’ya çağrılır. Ondan önce Ankara Garnizon Komutanı Selahattin Kaptan Paşa da Köşk’tedir. Tedbirler konuşulur ve herkes dağılır. Erdelhun tedbir olarak İzmit’ten ve Adapazarı'ndan 2. Tümeni Ankara’ya getirecek, Harbiye Ankara dışına çıkarılacaktı. Bu tedbir konusunda fikrini almak için MS Bakanı Ethem Menderes, Selahattin Paşa’yı makamına çağırır ve Paşa’dan şu cevabı alır; “Eğer Erdelhun Paşa böyle birşey yaparsa işte o zaman ihtilal çıkarırız. Böyle bir hareket orduda ikilik yaratır..” Erdelhun bu tepkiyi Burçak’a “Bu sözleri söyleyen Selahattin Paşa meğer ihtilalciler tarafına geçmiş imiş. Benim ikinci hatam bu zatı tanıyamamış olmamdır.” sözleriyle dile getirir.
+         <br/>
+         <br/>
+         Rıfkı Salim Burçak, Erdelhun’un cezaevinde de, cezaevinden çıktıktan sonra da çok sessiz bir hayat yaşadığinı anlatıyor; “ Rüştü Erdelhun ihtilalin eşiğinde, Ethem Menderes tarafından karşısına engeller çakarılmayıp da kendi takdir ettiği askeri tedbirleri alabilmiş olsaydı ihtilal acaba önlenebilir miydi? Faraziye üzerine kesin birşey söylenemez ama daha 1954 yılında ihtilal örgütünü kurduklarını iftiharla ilan edenlerin bu sevdadan kolay kolay vazgeçemeyecekleri kanaatini taşıyorum.”
+         <br/>
+         <br/>
+         Bayar hep ayağa kalkardı
+         <br/>
+         <br/>
+         Rüştü Erdelhun’un sonraki zamanda görüştüğü kişilerden biri de Celal Bayar’dır. Evli olmasına rağmen hiç cocuğu olmayan ve İstanbul’da sakin bir yaşam sürdüren Rüştü Erdelhun sık sık Celal Bayar’ı ziyaret eder. Yassıada’da Hasan Polatkan’ın avukatlığını üstlenmiş olan Hüsamettin Cindoruk bu ziyaretlerden birkaçına şahit olur; “Celal Bayar’ın saygı duyduğu, Adnan Menderes’in güvendiği bir isimdi. Sakin, efendi, siyaset dışı bir adamdı. Celal Bayar yaşlılık döneminde sadece Erdelhun geldiği zaman ayağa kalkardı. Hepimiz elini otururken öperken, 100. yaşını kutladığı zaman bile dikkat ettim sadece Rüştü Erdelhun geldiği zaman ayağa kalktı. Bayar’a dış politika ve askeri hareketlerle ilgili fikir verirdi. Ama asla siyaset konuşmazdı.”
+         <br/>
+         <br/>
+         Siyaseten mahkum edildi
+         <br/>
+         <br/>
+         Cindoruk, Erdelhun’un tamamen siyasi sabeplerle mahkum edildiğini, hiçbir zaman Demokrat Parti’den yana tavır almadığını söylüyor. Öğrenci olaylarının bastırılması sırasındaki tavırları nedeniyle suçlanmasının da anlamsız olduğunu ifade ediyor; “Hakkındaki itham öğrenci hareketlerinin bastırılmasında şiddet gösterilmesi idi. Ordunun tarafsızlığı ilkesi içinde kalmak kaydıyla hükümetin talimatlarını yerine getirdiğini söyledi. Türkiye öğrenci olaylarına yabancıydı. Bütün demokrasilerde polis izinsiz gösterileri bastırmakla yükümlüdür. O dönemde sıkıyönetim var ve olayların bastırılması için askerler de kullanıldı. Demokrat Parti döneminde meydana gelen öğrenci olaylarında sadece iki kişi hayatını kaybetti. Biri yanlışlıkla seken kurşunla ölürken, diğeri de tankın paletleri altında kaldı. Yani doğrudan hedef belirleyerek açılan bir ateşle ölen olmadı. Polis ve askerin üniversiteye girmesi çok tartışılmıştı. Şimdi üniversitelerde polis karakolları var. Olaylar daha da sert biçimde bastırılıyor ama kimse çıkıp genelkurmay başkanını suçlamıyor.”
+         <br/>
+         <br/>
+         Kader birliği yaptık
+         <br/>
+         <br/>
+         İhtilal yapıldığında henüz 14 yaşında olan merhum Adnan Menderes’in oğlu, DYP İstanbul Milletvekili Aydın Menderes de vefat edene kadar “kader birliğimiz vardı” dediği Erdelhun Paşa ile görüşenler arasındadır. Aydın Menderes, sağlığında İstanbul’a birkaç kez giderek Paşa’nın elini öper, sağlık afiyet diler, bunun karşılığında Paşa da Ankara’ya geldiğinde merhum Berrin Menderes’i ziyaret eder. Karşılıklı ziyaretler bu şekilde devam eder. Erdelhun’un Yassıada günlerini ve neden bu konunun yaygın olarak bilinmediğini soruyoruz; “Genelkurmay eski Başkanı Erdelhun ile birlikte ordu komutanı olan Namık Argüç ve bir Kore gazisi ve kahramanı olan Tahsin Yazıcı Paşa’ya kadar pek çok emekli askere çok kötü muamele yapılmıştır. Yassıada’da, 27 Mayıs tarihine kadar görev almış askerlere ve paşalara yapılan maumele ile sonrasında haklarında verilmiş olan kararları bugün kabul etmek, tasvip etmek mümkün değildir. Siyasi kökenli olanlar işin doğası gereği gündemde kaldı.” Erdelhun’nun Demokrat Partili olarak suçlanmasını maksatlı bulan Menderes bunların siyasal propaganda amacıyla gerçekleştirildiğini belirtiyor; “Belli bir propaganda süreci, Erdelhun Paşa’yı Demokrat Parti’nin yanında, ona yardımcı gibi göstermek istemiştir. Demokrat Parti hiçbir gün Silahlı Kuvvetler’le ilgili siyasal bir tasarrufta bulunmamıştır. TSK’dan kendi iktidarına payanda olmak gibi en ufak bir şey beklememiştir ki rahmetli Rüştü Erdelhun Paşa’nın bu noktada bir kusuru ortaya çıkmış olsun. Demokrat Parti TSK’ya hiç müdahalede bulunmamış, hele hele onu hiç politize etmemiştir. Hiçbir zaman iktidarına payanda yapmaya çalışmamıştır. Bunun somut örneği de 1958’de ortaya çıkmış olan 9 subay hadisesi ve merhum Adnan Menderes’in başvekil olarak burada ortaya koyduğu tavırdır. Bunun aksini ispatlayabilecek hiçbir somut iddia ortaya sürülememiştir. Sadece fısıltı gazetesine malolmuş birtakım dedikodu malzemesi vardır.”
+         <br/>
+         <br/>
+         Genelkurmay’da iki yıl
+         <br/>
+         <br/>
+         Rüştü Erdelhun’un genelkurmay başkanlığına gelene kadarki askerlik yaşamı başarılarla doluydu. 1894 yılında Edirne’de doğmuştu. 1914 yılında topçu asteğmen rütbesi ile Harp Okulu’nu bitirmiş, topçu birliklerinde batarya takım komutanlığı ve yaverlik görevlerinde bulunmuştu. Paşa, İzmir Silah Komisyonu’nda görevli iken 2 Nisan 1921 tarihinde Anadolu’ya geçerek Milli Ordu’ya iltihak etti. 1923 yılında girdiği Harp Akademisi’ni 1926 yılında bitirerek kurmay olmuş, 1945 yılına kadar çeşitli karargah ve birlikler ile Tokyo, Roma ve Londra ataşeliklerinde görev yapmıştı. Erdelhun Paşa, 1945 yılında tuğgeneral, 1947 yılında tümgeneral, 1952 yılında korgeneral ve 1956 yılında orgeneralliğe yükseldi. Tuğgeneral rütbesi ile 15’inci Tugay Komutanlığı ve Genelkurmay Eğitim Yarbaşkanlığı, tümgeneral rütbesi ile Genelkurmay Eğitim Daire Başkanlığı, 6’ncı ve 51’inci Tümen Komutanlığı, MSB İstanbul Tetkik Kurulu üyeliği, korgeneral rütbesi ile Tokyo İrtibat Heyeti Başkanlığı, 18’inci Kolordu Komutanlığı ve Genelkurmay II’nci Başkanlığı görevlerinde bulundu. Orgeneral rütbesinde 2’nci Ordu Komutanı iken, 1 Ağustos 1958 tarihinde Kara Kuvvetleri Komutanlığı’na atandı. 23 Ağustos 1958 tarihinde atandığı Genelkurmay Başkanlığı görevinden 3 Haziran 1960 tarihinde emekliye sevk edildi. İngilizce, Fransızca ve Japonca bilir. 1’inci Dünya Savaşı ve İstiklal Harbi’ne katıldı. 9 Kasım 1983 tarihinde vefat etti.
+         <br/>
+         <br/>
+         İlginç isimler
+         <br/>
+         <br/>
+         Recep Ergün, Fahri Özdilek, Teoman Koman ve Akay Şakman... Bu isimlerden Recep Ergun, Erdelhun ile ilgili Yassıada duruşmaları sırasında şahitlerden birisiydi. Ergun, 12 Eylül İhtilal yönetiminde Ankara Sıkıyönetim Komutanıydı. Daha sonra Anavatan Partisi’nden Kayseri milletvekilliği ve Meclis’te Komisyon Başkanlığı yapmıştı. Milletvekili olmadığı dönemlerde de –ölümüne kadar– Meclis’e sık sık gelip gitti. Fahri Özdilek de, Erdelhun ile ilgili yargılamalar sırasında dinlenen şahitlerden birisi. Özdilek, 12 Eylül ihtilalinden sonra Meclis yönetiminde görev aldı. Hatta, Meclis Camii’nin yapılmasında büyük çabaları oldu. En çok tartışılacak isimler ise Teoman Koman ve Akay Şakman olsa gerek. Koman ve Şakman o dönem üsteğmen rütbesindedirler. Bunlardan Koman, general olduktan sonra bir dönem Milli İstihbarat Teşkilatı Müsteşarlığı yaptı, Ordu’da en üst rütbelere kadar gelerek Jandarma Genel Komutanlığına kadar yükseldi. Meşhur Susurluk kazasıyla ilgili olarak birkaç kez Meclis Araştırma Komisyonu’na çağrıldıysa da ifade vermeye gitmedi. Emekli olduktan sonra batık bir bankanın yönetiminde bulunması ise eleştirilere konu oldu. Yassıada’da DP’lilere karşı eli değnekle gezenlerden birisi olarak ifade edilen son isim, Akay Şakman’ın da en son Milli Güvenlik Kurulu Genel Sekreter Yardımcılığı görevini üstlendiği biliniyor.
+         <br/>
+         <br/>
+         Bir ayrıntı
+         <br/>
+         <br/>
+         En yüksek askeri makam olan genelkurmay başkanlığı koltuğunda otururken bir anda rütbeleri sökülen ve er statüsünde Yassıada Mahkemelerinde yargılanarak, Türk siyasi tarihine ‘Genelkurmay başkanı sıfatıyla ilk kez idama mahkum edilen’ isim olarak geçen Paşa’nın Yassıada günlerine ilişkin bir ayrıntıyı burada vermek gerekiyor. Paşa, Yassıada’da yargılama süreci devam ederken Mahkeme Başkanlığı’ndan bir istekte bulunur; askeri mahkemede yargılanmak ister; bunu Yassıda Yüksek Adalet Divanı’ndan isterken gerekçesini şöyle açıklar; “Bütün duruşmalarda burada görüldüğü veçhile bendenize suç diye isnad edilen şeyler, tamamen askeri mahiyettedir. Hükümetin umumi siyasetine genelkurmay başkanı sıfatı ile iştirak etmek veya ondan mes’ul olmak hususunda kanuni bir vasfım yoktur. Adalet Divanının takdirleri ile yahut vazifesizlik kararı ile bunu istiyorum.” Paşa, bu talebini, Yassıada yargılama süreci içinde kendisine yardımcı olan avukatları S. Talip Diler ve Gültekin Malkoç aracılığıyla iletir. Ancak Mahkeme Başsavcısı Egesel buna karşı çıkar ve eski genelkurmay başkanının bu talebinin ‘yersiz ve mesnetsiz’ olduğunu ileri sürer.
+         <br/>
+         <br/>
+         ‘Değilim’ demesi kurtarmaz...
+         <br/>
+         <br/>
+         Eski genelkurmay başkanına yöneltilen suçlamalardan birisi de ‘Kışla’da Demokrat Parti’nin propagandasını yapmak’tı. Erdelhun bu suçlamaya yönelik olarak kendisini şöyle savunuyordu; “Ben Tugay’a veda için gittiğimde Demokrat Parti için propaganda konuşması yapmadım. Benim bütün hassasiyetim ordunun siyasete ve politikaya karışmaması idi. Tabii birtakım hadiseler vardır, gençlik vardır, subaylar, askerler mütemadiyen heyecan halindedir. Ordu nihayet memleketin otoritesini temin edecek. Bu esnada İstanbul’da birçok yabancı kimseler gelmiş, Nato Konseyi toplanmıştı. Çok hassas bir devre yaşıyorduk. Bu bakımdan subaylara politik işlere karışmamaları için nasihat ettim. Hükümetin kendileri lehine düşündüğü birçok hususları anlattım. Fakat asla Demokrat Parti lehine propaganda yapmadım. Maksat herhangi bir parti propagandası değil.”
+         <br/>
+         <br/>
+         Ancak, Paşa kendisini ne kadar savunursa savunsun, Demokrat Partili olmadığını ne kadar anlatmaya çalışırsa çalışsın sonuçta bunlar nafile çabalar yerine geçecek, idama mahkum edilecektir. Devlet ise, o yıllarda darağacına gönderdiği Menderes ve arkadaşlarının itibarlarını yıllar sonra iade edecek, Erdelhun Paşa’nın cenazesine de yüksek düzeyde katılarak bir bakıma ‘özür’ dileyecekti. Rüştü Erdelhun ise Yassıada’nın izlerini ömrünün sonuna kadar hayatından çıkaramamış ve cezaevinden çıktıktan sonra münzevi bir yaşamı tercih etmiş. Siyasetten, politikadan ve sosyal yaşamdan soyutlamış kendini. Birinci Cihan Harbi’nde genç bir teğmen olarak başarılar göstermiş, 1921 yılında da Anadolu’ya geçerek Kurtuluş Savaşı’na katılmış ve İstiklal Madalyası’na sahip olmuştu. Demokrat Partili olmakla yargılanmış ama hiç bir zaman siyasete girmemiş. Politikaya karışmamış ve gelen bütün siyaset tekliflerini de geri çevirmiş.
+         <br/>
+         <br/>
+         Yassi Ada tutanaklari
+         <br/>
+         <br/>
+         Yassıada Yüksek Adalet Divanı Tutanakları’ndan... İstanbul Ankara Olayları Davasından yargılanan Genelkurmay eski Başkanı Rüştü Erdelhun ile Mahkeme Başkanı Salim Başol arasındaki diyaloglardan bir kısmı şu şekilde geçmişti;
+         <br/>
+         <br/>
+         .....
+         <br/>
+         <br/>
+         “Bütün bu olaylar sırasından durumu sanıklardan Celal Bayar’la Adnan Menderes ve Vekiller heyeti hakkında yukarıda verilmiş olan izahat sırasında açıklanmış bulunan Erdelhun 30 Nisan’da sabık Reisicumhurun emir ve tensibiyle şahsi temsilcisi olarak İstanbul’a gitmiş, kanunen bir vazifesi ve selahiyeti olmamasına mukabil hadiselerin taarruzla bastırılması hususunda Örfi İdare kumandan ve makamlarına ve hatta zabıtaya şifahi ve ayrıca kendi el yazısı ile kaleme alınmış yazılı emirler vermiştir.”
+         <br/>
+         <br/>
+         Başkan: Eski Cumhurbaşkanı da sizi şahsi temsilci olarak göndermiş, öyle mi?
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Bu noktalar üzerinde maruzatta bulunacağım. Burada şahsi temsilcisi deniyor, yanlıştır. Bendeniz oraya dört muhtelif vazife ile gelmiştim.
+         <br/>
+         <br/>
+         Başkan: Nato ve Nato’ya ait kısımları bırakınız. Örfi İdare Kumandanı ile irtibat tesis etmişsiniz, helikopterle emirler atmışsınız. Bir de şifahi emirler vermişsiniz.
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Yok öyle bir şey efendim.
+         <br/>
+         <br/>
+         Başkan: Şahitler gelince söyler, o gün okuduk, bu emirlerle orada ‘taarruz’ diyorsunuz. Sonra, ikincisi ‘niçin olmadı, ivedi’ diyorsunuz. Taarruz, düşmana karşı tecavüzkarane bir hareket ve saldırmaktır. Kime saldıracak tank ve birlikler, talebeye mi?
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: O gün de arzettiğim gibi bunlar atılmış notlardır. İkaz mahiyetinde nottur. Bu notu Tugay Kumandanına bir emir olarak telakki etmek doğru olamaz.
+         <br/>
+         <br/>
+         Başkan: Bir defa bu bir emirdir deniliyor, iddiaya göre. Hatta muhatabı kumandan bunu şayanı dikkat ve nesillere ibret olsun diye harp ceridesine geçirmiş ve bir emir olarak kabul etmiş.
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Fakat o emrin emir olması için bazı şartlar vardır.
+         <br/>
+         <br/>
+         Başkan: Helikopterle atılan emir bu kadar olur.
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Emir olabilmesi için emrin altına tam olarak imzanın atılması lazımdır. Oraya yalnız (R.E.) işareti konmuştur.
+         <br/>
+         <br/>
+         ............
+         <br/>
+         <br/>
+         Başkan: Kimlere karşı taarruz emri veriyorsunuz, yabancı bir memlekette değilsiniz ki. Zırhlı Tugay Kumandanlığına Belediye karşısındaki bayraklı gruba tanklarla taarruz..
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Yani Tugay Kumandanı bunu aldıktan sonra tanklarla yapacağı bir hareketi vardı, taarruz kelimesi ile seri hareketli bir müdahale kastedilmiştir. 90 milimetre çapındaki toplar ile tabii taarruz edilmez. Böyle bir şey yoktur.
+         <br/>
+         <br/>
+         Başkan: Bir taarruz emri vermişsiniz. Top mu atar, tüfek mi atar, orası bilinmez.
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Ateş meselesi Örfi İdarenin yetkisi dahilindedir. Bunda benim bir selahiyetim yoktur. Taarruz kelimesi Tugay Kumandanına seri harekette bulunması için verilmiştir.
+         <br/>
+         <br/>
+         Başkan: Ne yapacak, tanklar yürüyecek, oradakiler ezilerek ölecek..
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Hayır, tanklar sağdan soldan kuşatır, bunu oradaki Tugay Kumandanı yapar. Yazınız meydanda, bu emri kabul ediyorsunuz, Ankara’da iken bu emri verdiniz.
+         <br/>
+         <br/>
+         Sanık Rüştü Erdelhun: Evet, yalnız müsaade buyurursanız, Reisicumhur veya Başvekil ile İstanbul’da bulunurken herhangi bir temas yapmadım. Ne emir aldım ne de birşey yaptım.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 32 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11873), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022533/http://www.aksiyon.com.tr:80/yazdir.php?id=11873)

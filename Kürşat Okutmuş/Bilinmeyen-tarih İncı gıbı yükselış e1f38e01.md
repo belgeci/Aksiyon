@@ -1,0 +1,82 @@
+# İncı gıbı yükselış
+
+*Kürşat Okutmuş Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Zadie Smith, 2001 yılına tam 9 ödül sığdırdı...
+   <br/>
+   <br/>
+   “25 yaşıma geldim, hâlâ bir kitabı bitiremedim” diye dövünen genç yazar adaylarının takıntılarını biliriz: Tanınmış yazarların ilk kitaplarını çıkardıkları zamanki yaşlarıyla avunurlar sonra da “her şeyin bir zamanı var” diyerek bir çırpıda kandırırlar kendilerini! Bakalım buna ne diyecekler: Jamaikalı genç yazar Zadie Smith, 1975 doğumlu ve 2000 yılı itibariyle altına imzasını attığı başarılar yazar adaylarını değil tescilli yazarları bile kıskandıracak cinsten. Mesele edebiyat olduğunda başarı plaketlerle, madalyonlarla ölçülmez, ya da iyi edebiyatın ölçüsü ille de ödül, ille de nişan değildir. Ancak bu bilinç Smith’in enerjisine gölge düşürecek cinsten değil.
+   <br>
+    <br>
+     Kuzeybatı Londra’da doğan ve halen o bölgede yaşayan bu genç yazar “İnci Gibi Dişler” adlı romanıyla girdi edebiyat dünyasına. Bu roman İngiltere’de 2000 yılının en çok konuşulan romanı olarak büyük sükse yaptı. Zadie Smith, daha 21 yaşına basmıştı ki, kitabının 80 sayfasını Hamish Hamilton yayınevine götürdüğünde 250 bin sterlin avans almış ve kitabı çıktıktan sonra da yayıncısını pek mahçup etmemiş. (Bu bilgi yayınevinden.) Sonrası da bir iplik söküğü gibi zaten, başarılar “inci gibi” dizilmiş ardı sıra: The Guardian Çıkış Romanı Ödülü — Frankurt Kitap Fuarı En İyi e—Kitap Ödülü — Britanya En İyi Kitap ve En İyi Yazar Ödülü — Whitbread Ödülü — Yılın En İyi Yeni Yazarı Ulusal Ödülü — Orange Ödülü Finalisti — Commonwealth En İyi İlk Kitap — W.H.Smith Yılın Genç Yeteneği... Bir de romanın BBC 1 televizyonu tarafından dizi yapılmak üzere 5 milyon sterlin karşılığında satın alınışıyla başlayacak olan televizyon klasiği...
+     <br>
+      <br>
+       “Miguel Sokağı”nı
+       <br>
+        <br>
+         anımsatıyor
+         <br/>
+         <br/>
+         “İnci Gibi Dişler”, Londra’yı içlerine sindirememiş gurbetçiler, kültür farklılıkları ve ayakta kalmaya çalışan insanların bir arada yaşadığı oldukça keyifli bir roman. Kitabın diyaloglarla gerçekleşen kendine has komik bir havası Nepaul’un “Miguel Sokağı”nı anımsatıyor. Birbirleriyle tamamıyla farklı görünen karakterlerin yaşadıkları her şey öylesine bağlantılı ki, ortaya yaşam koşullarına ışık tutan bir eser çıkıyor. “İngiliz” olmanın kalıplaşmış şartlarından tutun da o bölgede yaşayan diğer insanların geldikleri yerlerden getirdikleri takıntılara kadar değiniyor kitap, genç yazar mizahi havayı ancak bu kısımlarda verebiliyor okuyucuya. Kitabın başında, eski tüfeklerden ve II. Dünya Savaşı’nda aynı cephede savaşmış olan Archie Jones (işçi sınıfından bir İngiliz) ve Samet İkbal’in (Bangladeşli) dostluğu anlatılıyor.
+         <br/>
+         <br/>
+         Everest Yayınlarının ve internet denen mucizenin yardımıyla görüştüğümüz Zadie Smith’in ödüllerine, hayatına ve yazma eylemine bakışı da okuyucuyu ilgilendirebilecek cinsten....
+         <br/>
+         <br/>
+         Edebiyat voroluştur
+         <br/>
+         <br/>
+         Edebiyata üniversitede İngiliz Edebiyatı okuyarak başlayan Zadie Smith, yaratıcı yazarlık derslerine hiçbir zaman katılmadığını ve o tür derslere karşı her zaman bir korkusu olduğunu söylüyor. Çünkü o sınıflarda yazmanın terapi eden yönüne inanan yazar grupları toplanırmış. “Oysa yazmak terapinin tam tersi. Bu yolda yapabileceğiniz en iyi şey ve tek gerçek çaba başkalarının yazdığı kitapları okumak.” Genellikle İngiliz Edebiyatı bölümünden mezun olmanın modern dünyada gereksiz bir çaba olarak algılanmasının yanı sıra (bunu bilmiyorduk!), bu durumun kendisi için bildiği tek varoluş biçimi olduğunun altını çiziyor Zadie Smith. 5 yaşından 15 yaşına dek bir müzikal film yıldızı olmak isteyen genç yazar, insanların artık müzikal filmlerle uğraşmadığının farkına varana dek on yıl boyunca step dans çalışmakla meşgul olmuş. Bütün istediği ise MGM’de Arthur Freed, Gene Kelly ya da Vincent Minelli için çalışmakmış. Ne yazık ki, tarihi ve coğrafi zorunluluklar bunu imkansız kılmış da, o da yavaş yavaş ama kesin bir şekilde kalemin kendisi için acemice yapılan ayak oyunlarından daha güçlü olmaya başladığını farketmesini sağlamış.
+         <br/>
+         <br/>
+         Beş iyi arkadaş...
+         <br/>
+         <br/>
+         Kitabı yazarken yardım edenler olmuş muydu? Kitabının filizlenmesinde ve gelişmesinde esaslı rolleri olan beş iyi arkadaşın varlığından bahsediyor. Doğal ışığı olmayan herhangi bir küçük odada ve genelde öğleden sonraları yazmış romanını, fakat bu konuda kısıtlamalara gelemiyor. “Sabah dörtte kalkarım, köpeğimi yürüyüşe çıkartırım, günde üç litre koyu kahve içerim ve üç bin kelime yazarım” ya da “iki haftada bir bir buçuk saat yazıp, o meşhur ‘yaratma anı’ öncesi ve sonrasında kafamın üzerinde dikilirim” gibi açıklamaları saçmalık veya lak lak olarak buluyor!
+         <br/>
+         <br/>
+         Romanın tarihi bölümleri için ise ilginç bir yaklaşımı var genç yazarın: Bir soyağacı nasıl araştırılırsa o da öyle yapmış; yani kütüphaneler, internet, filmler, zaman zaman insanların anlattığı hikayeler ama en çok da kitaplar. O yılları yaşamış bir insandansa o yıllara ait kitapların daha gerekli ve daha önemli olduğuna inanan Zadie Smith bu durumu bir örnekle açıklıyor: Bütün bir asrı yaşamış 98 yaşında zeki bir bayana I. Dünya Savaşı’nın nasıl olduğunu sor, o sana 1916’da yan dairede yaşayan komşusunun ne kadar lezzetli tavşan pişirdiğini anlatsın!
+         <br/>
+         <br/>
+         Şöhreti yazıyor...
+         <br/>
+         <br/>
+         Bir sonraki kitabının —şöhret ve film hakkında— olduğunu söyleyen Zadie Smith, ahlak dersi veren kurallarla pek ilgilenmiyor: “On beş yıl önce birkaç yazar sırf elleri kalem tuttuğu için önemsiz şeyler yazmışsa, yazma denen şeyin küçümsenmesi gerektiğine hiç mi hiç inanmıyorum. Benim önemsediğim tek şey var, o da kendim olarak iki kat daha fazla iyi yazabilmektir. Ve bunu bir kereliğine değil, bir çok defa yapabilmektir.” İnci Gibi Dişler’in kendi kendini okuttuğunu ve karakterlerden çok üslubuyla öne  çıktığının farkında olduğunu belirten genç yazar bu durumun çok da hoş olmadığını ifade ediyor. Bunun da icabına bakabileceğini belirterek, okumaya devam ettiğinin, hâlâ bir çok şey öğrendiğinin ve bunların hepsinin çok güzel uğraşlar olduğunun altını çiziyor. Bu hayat tarzı onun bütün bir ömrünü alabilirmiş ama, zaten o da bu duruma uzun zamandır razıymış. Trendlere inanmıyor ve yazar olmak için bir trende gerek olmadığını da söylüyor. Her zaman ilham nerededir diye hiç düşünmeden, her şeyi okuyor ve bütün iyi yazarların aynı şeyi yaptığına inanıyor.
+         <br/>
+         <br/>
+         “Bazı ödüller aptallaştırdı beni”
+         <br/>
+         <br/>
+         Zadie Smith oldukça şaşırtıcı ödüller aldı ve böylelikle başta da belirttiğimiz gibi bütün yazar adaylarını kıskançlıktan çatlattı. Zadie Smith’i bu maceranın başlangıcında ilk heyecanlandıran şeyin, kitabı ilk defa bir rafta görmek olduğunu öğreniyoruz. Hâlâ bunu atlatabilmiş değil ve hâlâ gizlice kitapçılara gidip şaşkınlıkla raflara bakıyormuş! Evde ise kitabın bir kopyası bile kalmamış, kim geldiyse bir tane araklamış ve öyle gitmiş.
+         <br/>
+         <br/>
+         Orange gibi ciddi ve büyük ödülleri biraz tuhaf buluyor Zadie Smith, özellikle aday olarak gösterilmesinin insanın kendisini aptal gibi hissettirdiğini ifade ediyor. Ama Guardian gibi ilk kitaplara verilen ödüllerin harika olduğunu ve insanın içine daha çok sindiğini, bu çapta ödüller karşısında kendisini daha rahat hissettiğini söylüyor. “En güzel lokma” ise, kitabını okuyan insanların yakaladıkları yerlerde beğenilerini ifade edişleri imiş. Hâlâ yaşadığı sokağın köşesindeki otoparkta bile tanınmadığından yakınan Zadie Smith, meşhur olmayı kontrol edilebilir bir şey olarak görüyor. “Ün dünyanın elde edilebilir en kolay ve en lanet şeyi, iyi yazmak ise oldukça zor.”
+         <br/>
+         <br/>
+         New York’ta Harrison Ford’la bir partiye gittiğini ve bu yürüyüşü herkese anlattığını söylüyor Smith, sonra da kendisini şöyle savunuyor: “Bunu herkese anlatmak zorundayım. Kimseye söyleyemiyorsanız, bu insanlarla tanışmanın ne manası olur değil mi?” Yol boyunca birlikte yürümüşler ve Harrison Ford’u izleyen kişilerin neredeyse kalplerinin duracağını hissetmiş: “İşte bu meşhur olmaktır. Yani neredeyse insanlara kalp krizi geçirtmek. İşte meşhur olmanın verdiği tek şey budur.”
+         <br/>
+         <br/>
+         Zadie Smith’e göre romanının kahramanları gibi orta sınıftan olmak, oldukça hoş bir şey. Her zaman orta sınıf olmak istemiş ve şimdi de olmuş işte! Ülkedeki çoğunluk gibi bu “baş döndürücü sükse” onda alerjik reaksiyonlar meydana gelmesine neden olmuş ama “Bu benim sanatım” diyor. Bunun için acı çektiğini ve memnuniyetini ifade ediyor. Zadie Smith’ten Türkiye’yi merak ettiğini, Türkiye’de kitabına olan ilgiden haberdar olduğunu öğreniyoruz, yakın bir zamanda  Türkiye'yi ziyaret etmesi bile sözkonusu.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 10 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12131), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227214849/http://www.aksiyon.com.tr:80/yazdir.php?id=12131)

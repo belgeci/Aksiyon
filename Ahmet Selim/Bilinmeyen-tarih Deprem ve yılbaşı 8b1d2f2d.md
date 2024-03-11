@@ -1,0 +1,64 @@
+# Deprem ve yılbaşı
+
+*Ahmet Selim Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050129205123im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050129205123im_/http://www.aksiyon.com.tr/resim/526/38.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  2005 ne getirecek? Doğru soru şöyle: Biz 2005’e ne vereceğiz? Elimizde olmayan şartları elimizde olan imkanlarla nasıl yaşayacağız? Fikri yardımlaşmanın maddi yardımlaşmadan daha önemli olduğunu kabullenelim, idrak edelim; bakın neler olur, neler doğar. Müşterek dualarımıza eklediğim özel duam bu benim.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hep söyledikleri şu: “Deprem öldürmez, binalar öldürür.” 8.9 büyüklüğünde bir deprem hangi tedbirle kayıpsız atlatılır acaba? Dünyanın bütün imkanlarını ve zenginliklerini konutlara harcasalar bile bir acziyet noktası her zaman var. 8.9, 9 olamaz mı? Biraz daha geçemez mi? Üst sınırı var mı bunun? Dünya ekseninden kaydı gibi bir laf edildi Amerikalı bilim adamlarına atfen. O ihtimallere kadar uzanır mesele. Tedbiri elbette ki lüzumsuz saymıyorum. Savunduğum, ‘çok yönlü tedbir şuuru’dur, tedbir ukalalığı değil.
+   <br>
+    <br>
+     İnsanlar dünyayı ve kendilerini israf ediyorlar. Çağın gerçeği işte bu. O facia yaşanırken, İsrail’in saldırıları da, canlı bomba eylemleri de hiç aksamadan devam etti. Depremi bile tamamen maddi sınırları içinde izole ederek düşünmek, bir gaflet zirvesidir. Kendini, insanları, hayatı, acıları, sıkıntıları, akılsızlıkları, aldanışları, inatları, bile bile yapılan yanlışları, yoksullukları, duyarsızlıkları; bir durum muhasebesi idraki içinde düşünmeyeceksin. Yaşayış tempona bir virgül bile koymadan öylece sürdüreceksin. Bu tavır, tedbir şuuru ile ilgili bir tavır olamaz; ne kadar teknolojik hüneri olursa olsun.
+     <br>
+      <br>
+       Yılbaşı kutlamalarını seyredin ve düşünün. Yılbaşı kutlamaları için harcananları kaba taslak şöyle bir tasavvur edin. Kutlamalar sırasındaki insani seviyeyi müşterekin en asgarisine göre kıyaslayıp tartın...
+       <br/>
+       <br/>
+       Uzaktan bakıldığında rengarenk, ışıl ışıl görünen bir nimetler-lütuflar yumağı halindeki küremizde neler oluyor? Bir UFO(!)lu baksa, “delirmiş mi bu insanlar” demez mi?
+       <br/>
+       <br/>
+       15 trilyon çıksaymış, neler yapılırmış? Bir kanal açıklama getiriyor. Yaz desen, yüzde 99’u yazamaz 15 trilyonu... Kaç milyar ettiğini söyleyebilen azdır. Ama, “bu bana çıksın” diye herkes talip! Satın almaların çokluğu 15 trilyon için. En büyük ikramiye 1 trilyon olsa, biletler bu kadar çok satılmaz! Loto devredince, hasılat katlanıyor. İnsanlara çok da değil, “çok-çok” para lazım! Kullanmayı, yönetmeyi, saymayı, hesaplamayı bilemeyecekleri kadar!
+       <br/>
+       <br/>
+       Bu olmayacak, ama şu olmaya devam edecek: İnsanlar böyle bir bakış açısının taşıyıcısı olarak yaşayacaklar. Bakış açısının, ruh halinin, öz dengenin, ...Ve sevgiler, vefalar, sorumluluklar, duyarlılıklar bu açının kıskacında ne kadar yer bulabilirse o kadar var olacak. Kime ne çıkacağı meçhul, ama bu kesin.
+       <br/>
+       <br/>
+       Bir büyük depremde, binaların altında kalanlardan çok, “kurtuldu” denilenler ölür. Erişemezsiniz, hayatı en zaruri ihtiyaçlar seviyesinde bile yeniden kuramazsınız. Tasvir etmek bile istemiyorum... “Dayanışma, yardımlaşma, paylaşma” şuuru, kitlevi ölçekte, her toplum için son derece düşüktür. Bunu da (tasviren) deşmek istemiyorum...
+       <br/>
+       <br/>
+       Ben takvimleri çok severim. Geçenlerde, 40 yıllık takvim göstergelerini indirdim internetten. Ramazan ve Kurban bayramları işaretlenmiş. Bütün (ferdi- sosyal) hatıralarım, yeni bir aydınlanmadan geçti adeta. Takvimler, yıllar, günler, hayatımızdaki delâletleriyle elbetteki önemlidir. Şu şartla ki, zamanın ve özümüzün bütünlüğü önde tutulursa. Şuur ve kişilik dokusu sıhhatli tutulmaya çalışılmışsa. Tek kelimeyle “düşünce” var ise. “Düşünce” kullanmayan için hatıraya da hafızaya da ihtiyaç yok. Ambar memuru gibi geleni gidene ekleyip kayıt düşmek ne anlam taşır?
+       <br/>
+       <br/>
+       Behçet Necatigil’i severim. Onun hayatıyla ilgili bir programı çok etkilenerek ve severek izledim. Eşiyle, kızlarıyla ve arkadaşlarıyla konuşmuşlar... Bir gün İlhan Berk’le Beşiktaş Çarşısı’nda yürüyorlarmış. İlhan Berk “Bu insanlar benim şiirimden ne anlar” gibi bir laf edince Necatigil durup gözlerine bakarak, “Benim şiirimden anlarlar!” demiş ve İlhan Berk ile haftalarca konuşmamış. Senin şiirini, iki göz odanın, semtteki çarşı pazarın, komşulukların, çocuklukların, iç dünyasındaki derinlikli ama basit görünümlü güzel insanlar hiç anlamıyor ve yabancılıyor ise; eksiklik sende demektir, kardeşim. Şiiriyetin menbâı, üretilen şiiri kendine âşina bulmuyorsa, “anlamıyorum” der. O “hissetmiyorum” demektir. Şiir zaten, anlaşılmaktan çok hissedilir... Bütün MÜLAKATÇILAR ve RÖPORTAJCILAR o programı seyretsinler isterdim. Şunu da yeri gelmişken ekleyeyim: “Şiirin anlamı” demek bile yanlıştır; şiir var olan anlamları ışıtır, aydınlatır, canlandırır. Şiir, farklı boyuttaki bir fotoğraf (resim) gibidir. Siz onu hep bilirsiniz de, farklı görünümüyle fark etmezsiniz. Şiir onu yapar işte. Onu verir size. Bir insanın hayatında şiir yoksa, onun hayatındaki bazı manalar ve anlayışlar eksiktir. O manalar şiirde yazılmaz ama şiirle bulunur. Biz dualarla, şiirlerle, şarkılarla, türkülerle büyüdük. Kendimizi değil, büyütenleri övmek ve aynı başarıyı gösteremediğimizden dolayı sızılarımı belirtmek için söylüyorum bunu.
+       <br/>
+       <br/>
+       Hep söylendi ve söylenecek. “Ne olur sanki yılbaşında biraz sevinip serpilmekten. Yasak mı var?” diye. Ben bunu söylüyor değilim ki. Söylemeye çalıştığımızın karşılığı bu değil. Yılbaşı, haftabaşı. İnsan bir şeyleri kutlar, bir şeyleri sevinç haliyle karşılar. Önemli olan; tavrın, duruşun, anlayışın mahiyetidir. Kişilik yapısının nasıl yansıdığıdır. Bir meseleye karşılığı (tekabülü) olmayan bir başka meselenin cevabıyla yaklaşmak, mutad yılbaşı mantığına benziyor! Bizim bayramlarımızda bile biraz hüzün vardı. Dedemin elini öptüğümüzde saçlarımızı koklar, gözleri dolu dolu olurdu. İlk sarı 25 kuruşu ondan almıştım. Şimdi ben de dedeyim ve şu satırları yazarken benim de gözlerim doluyor. Sonuna kadar tekrar edip duracağım: Bazı insanların zeki sayılamayacak biçimde davranması, zekalarından değil, yüreklerinden ötürüdür. “Duygusal zeka” kavramı keşfedildi; bir gün “zekanın duygusal kaynağı” da keşfedilecek. İşareti sarâhaten tebliğ edilmiş ama, ihtiyaca uygun yorum bir türlü gelemiyor. (“Kalbinizle akledin”)
+       <br/>
+       <br/>
+       Duanız makbul müdür bilmem. Ama bildiğim kesin bir şey var: “Dua duruşu” içinde bulunmanın faydası mutlaktır. O duruş size, akıl edemediğiniz duaların nasibini bile kazandırabilir. Yeter ki, ruh haliniz uygun olsun. “Kalbinizle akledin” bana şunu da çağrıştırıyor: Aklınızla dua edin! Ruh halinin buna ihtiyacı vardır. Rasyonalizm, rasyonel değildir ama şu söylediğim rasyoneldir. Aklını kullanan insan, dua duruşundan uzak kalmaz. Aklına kullanan insan, hiçbir hâlin mahpusu olmaz; kendi bütünlüğünde, onu da aşan bir coşku terkibiyle hürriyetine kavuşur. Gerçek hürriyetine...
+       <br/>
+       <br/>
+       2005 ne getirecek? Doğru soru şöyle: Biz 2005’e ne vereceğiz? Biz insanlar! Elimizde olmayan şartları elimizde olan (bize tevdi edilen) imkanlarla nasıl yaşayacağız? Fikri yardımlaşmanın (ona tabi olan) maddi yardımlaşmadan daha önemli olduğunu kabullenelim, idrak edelim, örnekleyelim; bakın neler olur, neler doğar. Müşterek dualarımıza eklediğim özel duam bu benim.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=19338&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050129205123/http://www.aksiyon.com.tr:80/detay.php?id=19338&yorum_id=1)

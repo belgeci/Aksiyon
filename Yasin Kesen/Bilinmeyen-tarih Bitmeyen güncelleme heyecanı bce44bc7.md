@@ -1,0 +1,97 @@
+# Bitmeyen güncelleme heyecanı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bilgisayarla ilk tanıştığım günleri hatırlıyorum. Orta—1. sınıfın ilk günleriydi ve devrim niteliğinde bir icraatla okulumuza bilgisayar laboratuvarı kurulmuştu. Büyük bir olaydı 1987 yılı için..
+   <br/>
+   <br/>
+   Korka korka dokunduğumuz bilgisayarlar Amstrad 64 diye bir modeldi hatırımda kaldığı kadarıyla. Siyah/yeşil monitörlerle tanışmamızın ardından renkli monitör görmek çok daha heyecan verici gelmişti. Pascal, Basic gibi programlarla basit programcıklar yazmaya çalışıyorduk kendi yarı çapımızla.
+   <br>
+    <br>
+     Lise—1’e geldiğimizde okulumuza harika(!) makinalar geldi. 286 idi galiba. 386 teknolojisi de mevcuttu ama henüz aşırı lükstü! Sonra okulumuz Earn'e (Avrupa bilgisayar ağı) bağlanan ilk okul unvanını aldı. Bizler de bir radyoya demeç vermiştik “çok sevinçliyiz” falan diye.
+     <br>
+      <br>
+       İnternetin temellerinden sayılan Earn bağlantısından sonra Lise—2’de Macintosh ile tanıştık. Ama Mac bambaşkaydı. Ekran renkli idi. Göze hitap eden grafik ekranın bağlayıcı bir özelliği vardı. Mac’lerin ilk taklidi sayılabilecek Win 3.1 çıktı  ve PC ile yeniden barıştık. Bundan sonra da bir güncelleme hikayesidir aldı götürdü. Windows’95 çıktığında 486 olan bilgisayarımın performansı oldukça zorlandı ve 3.1’e geri döndüm. Bir müddet sonra Pentium’a upgrade yaptım ama yine 3.1 ile devam ettim. Taa ki 98 Nisan’ında 95 kurmaya karar verdim, daha doğrusu mecbur kaldım. Çünkü artık internete sürekli bağlanmam gerekiyordu. Bir de zaten ICQ’ya bulaşmıştık.
+       <br>
+        <br>
+         Ben 95’i kurduktan 4 ay sonra Windows 98 çıktı. Tabii bu sefer zaman saptırmadan hemen update ettik. Şimdi de update senaryolarının sonuncusu olan Windows 2000 ile karşı karşıyayız ve bu işin sonu gelmez bundan emin olun.  Eğer kullandığınız bilgisayarın performansı çok yüksek değilse (en az Pentium—III—500, 128 MB Ram) siz siz olun sisteminizi Windows 2000 ile tanıştırmayın...
+         <br/>
+         <br/>
+         Yanlış anlamayın; güncelleme yapmayın demiyorum.  Güncelleme sevdasıyla ihtiyacınız olmayan aşırı yükteki yenilemelerin altına girmeyin. Size başka bir tavsiyem var. Kullanmakta olduğunuz Windows’ta Başlat’ı tıkladığınızda en üstlerde Windows Update var. Mutlaka dikkatinizi çekmiştir. Windows’taki yenilenmeler bu yöntem ile bilgisayarınıza çekilebiliyor. Ben yaptım, mutluyum; mutlaka siz de yapın.. İyi güncellemeler..
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Bu sayfaya büyükler giremez!
+         <br/>
+         <br/>
+         İnternet, bazı sayfalardaki animasyonlar ve müzikli ortam nedeniyle küçük çocuklar için de cazibe ortamı sayılabilir. Bir de sırf küçük yaştaki çocuklara hitap eden, küçük çocukların eğitimine adanmış siteler var. www.kidsdomain.com bu sitelerden biri.
+         <br/>
+         <br/>
+         Sitedeki ana bölümler, Kids (çocuklar), Downloads (program çekimi), Grownups (Yetişkinler) ve Reviews (Tekrarlar).
+         <br/>
+         <br/>
+         Çocuklar bölümünde çocukları bağımlı hale getirebilecek nitelikte 12 bölüm yer alıyor. Yarışmalar, online oyunlar, çekimlik oyunlar, oyun alanı bölümleri çocukların kendilerini yalnız hissetmeyecekleri, karşılıklı aktivite olan bölümler.
+         <br/>
+         <br/>
+         Program Çekimi sayfasında ise 2—5, 4—8 ve 8 yaş üstü ve büyükler gibi kategorilere ayrılmış şekilde müzik oyunundan zeka oyununa, matematik oyunundan dil eğitimi oyununa kadar 25 farklı oyun hem PC hem Mac formatında çekilebiliyor.
+         <br/>
+         <br/>
+         Sözlük-online
+         <br/>
+         <br/>
+         Yabancı kaynaklardan ve internetten araştırma yapanların müracaat ettikleri programlardan biri de sözlük programlarıdır. Amerika’dan bir okurumuz 10 dilde hizmet veren sözlük programını çekebileceğiniz adresi siz okurlarımıza duyurmak için göndermiş.
+         <br/>
+         <br/>
+         www.babylon.com 'dan çekebileceğiniz sözlük ne yazık ki Türkçe kelimeleri içermiyor. Baştan söylemiş olalım. İngilizce, Almanca, Fransızca, İspanyolca, Japonca, Flemenkçe, Portekizce, Çince, İtalyanca ve İbranice.
+         <br/>
+         <br/>
+         Bu program ayrıca, bu ülkelerin para birimleri arasında hesap yapma kolaylığı da sağlıyor.
+         <br/>
+         <br/>
+         Birden fazla dil bilenlerin faydalanabileceği bu programın Türkçe versiyonunun çıkması için programcıların harekete geçmesini beklemekten başka şansımız yok...
+         <br/>
+         <br/>
+         Bu programa ihtiyacınız var!
+         <br/>
+         <br/>
+         Takip ettiğiniz belli web siteleri varsa ve her defasında bu sayfaların açılması için beklemekten sıkılıyorsanız bu programa ihtiyacınız var. Netsonic adlı bu program isminden anlaşılacağı üzere hızlı sörf yapabilmenizi sağlıyor. Normalde kullanmakta olduğunuz web tarayıcılarınız (İnternet Explorer veya Netscape) kendi altlarında Temporary Internet Files veya Cache diye klasör açar ve çok ziyaret edilen sayfalardaki resim dosyalarını buraya kaydeder ki bir dahaki sefere sayfa daha hızlı açılsın. Ama bu yöntemin verdiği performans ne yazık ki birçok sörfçüyü tatmin etmiyor.
+         <br/>
+         <br/>
+         Bahsini ettiğimiz program ise bu işi ayrı bir klasör açarak ve girilen sayfadaki bütün nesneleri farklı bir yöntemle kaydederek sörfünüze hız getiriyor.
+         <br/>
+         <br/>
+         Siz herhangi bir adres yazdığınızda ücretsiz olan bu programın reklam penceresi açılıyor. Bu pencereyi görmemek isterseniz üzerindeki “Hide” düğmesine tıklamanız yeterli.
+         <br/>
+         <br/>
+         Diğer bir özelliği de internet bağlantınız kapalı iken daha önce ziyaret ettiğiniz sayfaları görüntüleyebilmeniz.
+         <br/>
+         <br/>
+         Sık sık güncellenen sayfalarda yenilikleri görüntülemek için süreye ihtiyaç duyması bu programın getirdiği bir dezavantaj; lakin bunu da ekranınızın sağ alt köşesinde çıkan simgesine sağ tıklayıp “Disable acceleration” komutunu işaretleyerek giderebilirsiniz..
+         <br/>
+         <br/>
+         Netsonic programını çekebileceğiniz adresler: www.web3000.com   www.netsonic.com
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14691), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151527/http://www.aksiyon.com.tr:80/yazdir.php?id=14691)

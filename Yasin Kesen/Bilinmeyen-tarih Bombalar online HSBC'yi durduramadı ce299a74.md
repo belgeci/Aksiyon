@@ -1,0 +1,60 @@
+# Bombalar online HSBC'yi durduramadı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050118065209im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050118065209im_/http://www.aksiyon.com.tr/resim/470/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  20 Kasım"da yaşanan terör saldırısına hedef olan HSBC Bank, bilgisayar sistemlerini yedekli oluşturduğu için, faaliyetlerinde aksama yaşanmadı. HSBC"nin web sitesindeki işlemler de patlamadan etkilenmedi.
+  <br>
+   <br>
+    Yıl 2001. 11 Eylül"de ABD"yi kalbinden vuran uçaklar, büyük şirketlerin bilişim yatırımları için iyi bir ders verdi.
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Global çaptaki birçok şirketin merkezini barındıran ikiz kulelerdeki şirketlerin data kaybına uğramaması MIS (Yönetim Bilişim Sistemleri) üzerine verilen eğitimlerde ana ders konularından birinin en popüler örneği haline geldi. Afet durumunda bilgisayar sistemlerinin güvenliğini sağlamayı amaçlayan bilişim altyapı stratejilerini doğru şekilde uygulayan şirketler, 11 Eylül"de haklı çıktı ve ertesi gün faaliyetlerini kaldığı yerden devam ettirdi. Yıl 2004. Ve İstanbul"da da beklenmedik saldırılar yaşandı. Halen, saldırıların arka planı araştırılıyor. Bu saldırılardan birine hedef olan HSBC Bank, ikiz kulelerdeki şirketler gibi doğru bilişim altyapısı kurduğu için, merkez haricindeki birimler saldırıdan etkilenmedi. Saldırı ile birlikte devre dışı kalan merkezî bilgisayar sistemlerinin yerine çok kısa bir süre içerisinde yedek sistemler devreye girdi. Patlama ile birlikte HSBC"nin web sitesinde herhangi bir kesinti oluşmadı. Gerek web sitesi gerekse şubeler üzerinden yapılan online işlemler de hiç bir aksama olmaksızın devam etti.
+   <br>
+    <br>
+     Deprem ya da sel baskını gibi doğal afetler, bombalı, uçaklı intihar saldırıları, komşu ülkelerde çıkan savaşlar sonrasındaki gelişmeler iş âleminin altyapı yatırımları konusunda doğru strateji izlemeye başladığının bir göstergesi. HSBC Bank da hem dünyanın hem de Türkiye"nin başından geçenleri doğru şekilde okuyabildiği için bilişim altyapısını doğru şekilde kurmuş. İngiliz sermayesinin bir bankası olduğuna bakarak, Türk şirketlerinde böyle bir yapılanma var mı diye hayıflanmaya hiç gerek yok. Çünkü HSBC, Cıngıllıoğlu ailesinin kurup yeşertmeye başladığı dönemde krize kurban verdiği Demirbank"ın ta kendisi. Yani kuruluşu itibariyle bir Türk bankası. Hatta, İngiliz HSBC Grubu bankayı devraldıktan sonra da şu meşhur söz hep söylendi: "Bu banka çalışanından yöneticisine kadar her şeyiyle Türk, sadece sermayesi İngiliz."
+     <br/>
+     <br/>
+     Bilişim"de Afet Stratejisi nedir?
+     <br/>
+     <br/>
+     HSBC"nin bilişim altyapı stratejisini Türkiye"deki birçok büyük kuruluş uyguluyor. Stratejinin temel noktası, tüm veri sistemlerinin coğrafi olarak farklı mekanlardaki iki farklı veri yönetim merkezinde tutuluyor olması. Böylece, afet veya diğer menfi olayların gerçekleştiği mekanda bulunan sistemler zarar görse de, diğer merkez sağlıklı şekilde çalışabiliyor. Örneğin, İstanbul merkezli bir holding, veri merkezlerinin gölgesini Konya"da kuruyor. İstanbul"da oluşabilecek deprem, sel, yangın, terör gibi menfi olaylar coğrafi olarak uzak bir şehir olan Konya"yı etkilemeyeceği için, veri kaybı söz konusu olmuyor. Bazı uluslararası şirketler bu stratejiyi farklı ülkelerde gölge veri merkezleri kurarak uyguluyor. Böylece ülke çapında meydana gelebilecek aksi olaylardan etkilenme riskini de sıfıra indirmiş oluyor.
+     <br/>
+     <br/>
+     Birçok firma, verilerinin bir yedeğini oluşturmayı unutmuyor belki ama en çok ihmal edilen şey, yedeklenen verilerin aynı sistem odasında tutuluyor olması. Farklı coğrafyalarda yedek veri merkezi kurmak her çapta şirketin gücünü aşabilir fakat, yedeği alınan verilerin, şirket merkezi dışında güvenli ortamlarda tutulmaması intihar etmekten başka bir şey değil.
+     <br/>
+     <br/>
+     Türk Telekom"da ihmal var
+     <br/>
+     <br/>
+     HSBC"nin bombalanması, Türk Manhattan"ı olarak da anılan Levent semtindeki tüm plazaları olumsuz etkiledi. Bu etkilerden en büyüğünün sorumlusu olarak da Levent"te bulunan Telekom gösteriliyor. Zira, patlama ile birlikte elektriği kesilen semtin iletişimini sağlayacak olan Telekom"un jeneratörleri devreye girmedi. Santraldeki elektrik kesintisi nedeniyle sabit telefonlarda karmaşa yaşanması bir yana, Telekom binasının üzerinde bulunan cep telefonu baz istasyonlarının çalışmaması da ayrı bir skandalı ortaya koydu. Her gün ekranlara kesintisiz iletişim hizmeti vermeyi gurur vesilesi edinen reklamlarla çıkan GSM operatörlerinin baz istasyonları en gerekli oldukları yerde ne yazık ki çalışmadı. Patlamadan yaklaşık bir saat sonra bölgeye ulaşabilen GSM operatörleri, kaza yerine geç varan ambulanslar kadar eleştirilmedi...
+     <br/>
+     <br/>
+     HSBC"nin veri kaybına uğramadan online işlemlerine devam etmesi, tüm mudiler için bir merak konusu. Yedek sistemlerin nerede tutulduğunu, altyapının ne şekilde kurulduğunu öğrenmek isteyen birçok kuruluş var. Altyapı çözümleri sunan bilişim şirketleri de bankaların uyguladığı yedekleme sistemlerinin mikro modellerini, küçük şirketlerde uygulayabilmek için öğrenmek istiyor. Faciayı yaşayan HSBC, yeni bir saldırıyla karşılaşmamak için yedek sistemlerini nerede tuttuğunu ve ne şekilde bir afet yapılanması yaptığını açıklamıyor. Diğer bankalar da, sistemlerinin güvenliğini riske atmamak için ne şekilde bilişim altyapısı kurduğunu deklare edemiyor. Buradaki toplumsal bilgilendirme görevi, banka gibi önemli kuruluşları yönlendiren bilişim şirketlerine kalıyor. Küçük ve orta ölçekli şirketler de yıllarca emek vererek oluşturdukları varlıklarını korumak için bu tür olaylardan ders çıkararak mikro planda da olsa yedekleme çalışmalarını ihmal etmemeli.
+     <br/>
+     <br/>
+     Web siteleri de mutlaka yedeklenmeli
+     <br/>
+     <br/>
+     Bilgisayar sistemleri sadece şirket bünyesindeki verilerin yedeklenmesi ile kalmamalı. Web sitesi açarak çalışmalarını internet ortamına aktaran kuruluşlar, sitelerinin bir yedeğini mutlaka web sunucu haricinde bir ortamda tutmalı. İnteraktif web sitesi kurarak müşteri kayıtlarını internete aktaran şirketler, belirli periyotlarla bu verilerin yedeğini almalı. Sadece hacker saldırılarına karşı önlem almak için değil, web sunucuların başına gelebilecek doğal afet ya da donanım arızalarının doğurabileceği riski ortadan kaldırmak için de web sitelerinin yedeği alınmalı.
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3259&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050118065209/http://www.aksiyon.com.tr:80/detay.php?id=3259&yorum_id=1)

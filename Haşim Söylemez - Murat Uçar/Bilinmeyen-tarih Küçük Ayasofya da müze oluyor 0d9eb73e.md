@@ -1,0 +1,82 @@
+# Küçük Ayasofya da müze oluyor
+
+*Haşim Söylemez - Murat Uçar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161559im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161559im_/http://www.aksiyon.com.tr/resim/339/9.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ayasofya Camii’nin ani bir kararla müzeye dönüştürülmesinden sonra, Türkiye’de çok yönlü bir tartışma başlamıştı. Cami, kilise, müze üçgeninde odaklanan tartışmalar zaman zaman sert tepkilere de sebep olmuştu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye’de yaşayan Müslümanlar aradan yıllar geçmesine rağmen hâlâ Ayasofya Camii’nin müzeye dönüştürülmesini hazmedebilmiş değil. Böylesine bir tablo hâlâ dünkü gibi hafızalarda canlılığını korurken şimdi de bu planın ikinci merhalesi devreye sokulmaya çalışılıyor. İstanbul’un Fethi’nin 548. yıl dönümü kutlanırken bu şehrin kullanılabilir en eski yapısı olan Ayasofya’nın kardeşi Küçük Ayasofya Camii de müzeye dönüştürülmek isteniyor. Tarihe bir göz atıldığında Ayasofya’nın müzeye dönüştürülmesinde takip edilen yol, aynen Küçük Ayasofya’da da takip ediliyor. Zaten yıllardır kendi haline terk edilmiş olan tarihi cami her an yıkılma tehlikesi yaşıyor. Yeterli ödeneği ayırmayan yetkili kurumlar, göz göre göre bu tarihi yapının yok olmasını bekliyor. Böylesine bir beklenti ortadayken, yabancı güçler de devreye girmiş durumda. İtalyanlar Küçük Ayasofya Camii’nin restorasyon ve tamirat işini yapmak için gerekli ödeneği sağlayacaklarını söylüyorlar ama bir şartla; cami müzeye dönüştürülecek...
+   <br>
+    <br>
+     İtalya’dan sonra Rotary Kulübü
+     <br>
+      <br>
+       Küçük Ayasofya Camii’nin tamir ve onarımını müze şartı ile üstlenmek isteyen sadece İtalyanlar değil, İstanbul’daki Rotary Kulübü de devrede. Rotary yetkililerinin hemen hemen hergün Küçük Ayasofya Camii’ni ziyaret edip birtakım keşifler yaptıkları mahalle sakinleri tarafından dile getiriliyor. İtalya’da faaliyet gösteren bir inşaat şirketi İtalya hükümeti adına İstanbul Büyükşehir Belediyesi’ne başvuruda bulunarak caminin restorasyon ve tamiratı için gerekli olan 3.5 milyon doları vermeye hazır olduklarını ancak birtakım haklara da sahip olmak istediklerini belirttikleri vurgulanıyor.
+       <br/>
+       <br/>
+       Eski bir kilise olan Küçük Ayasofya Camii’nin tıpkı Ayasofya gibi Hıristiyanlar için büyük önem taşıdığını belirten Mimar Süleyman Anıl; “ Küçük Ayasofya da aynen Büyük Ayasofya’nın durumunu yaşıyor. Büyük Ayasofya’nın başına gelenler aynı şekilde Küçük Ayasofya’nın başına geliyor. İşler kademe kademe illerliyor. Şu ana kadar da başarılı olmuşlar. Kimse sahip çıkmazsa Küçük Ayasofya müzeye dönüştürülecek. Zaten bu yeni bir olay değil, adamlar yıllardır bu işi takip ediyor. Bu zamana kadar beklediler, şu anda Türkiye’de ekonomik krizi de öne sürerek maddi bakımdan bir adım önde gidiyorlar” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Vakıflar ilgisiz, Büyükşehir talip
+       <br/>
+       <br/>
+       Yabancılar Küçük Ayasofya Camii için devreye girerken, tarihi camilerden sorumlu olan Vakıflar Genel Müdürlüğü gelişen olaylar karşısında sessizliğini koruyor. 20 gün boyunca Vakıflar Genel Müdürlüğü’nden bilgi almak istedik ancak, bize Küçük Ayasofya Camii ile ilgili olarak bir bilgi verilmedi. Yaptığımız araştırma neticesinde cami ile ilgili herhangi bir dosyanın Vakıflar Genel Müdürlüğü’nde bulunmadığı ortaya çıktı. İtalyanların dahi bu konudan haberdar olup ilgilenmeleri karşısında vakıfların bu vurdum duymazlığını anlamak mümkün değil.
+       <br/>
+       <br/>
+       Vakıflar Genel Müdürlüğü birçok vakıf malına göstermiş olduğu ilgisizliği Küçük Ayasofya Camii için de gösterirken Büyükşehir Belediyesi caminin onarım ve restorasyonuna talip olduğunu açıkladı. Büyükşehir Belediyesi Yapı İşleri Sorumlusu Yunus Balta, Büyükşehir Belediyesi’nin üstesinden gelemeyeceği hiçbir konu olmadığını belirterek; “Bize görev verilirse biz bu işin üstesinden geliriz. Vakıflar bize devren verip, tamamen bize bırakırsa biz gereken ne ise yaparız; hatta eskisinden daha sağlamlaştırırız. Gerekli olan 3.5 milyon dolar para belediye için çok büyük bir miktar değil. Zaten Büyükşehir Belediyesi’nin yapmış olduğu restorasyon ve  tamiratlara bakıldığında görülür ki, belediye bunun da altından çok rahat kalkar” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Küçük Ayasofya Camii’nde şu anda kuzeydoğu ve güneydoğu kısımlarında özellikle exedralarda yoğunlaşan çatlaklar bulunuyor. Süreklilik arz eden bu çatlaklar kubbeden başlayıp exedralar üzerindeki yarım kubbelerden ve galeri tonozlarından geçip yapının dış duvarlarına kadar iniyor. Yapının güvenliğini tehlikeye düşüren bu çatlakların sebebi ise tam olarak tespit edilebilmiş değil.
+       <br/>
+       <br/>
+       Yerli bilmiyor, yabancı akın akın geliyor
+       <br/>
+       <br/>
+       Cankurtaran ile Kadırga semtleri arasında, sahile çok yakın olan Küçük Ayasofya Camii Türkiye’de pek bilinmiyor. Türkiye’deki insanlar tarafından bilinmeyen cami yabancılar tarafından hergün ziyaret ediliyor. Küçük Ayasofya Camii, İtalya, Almanya, İngiltere gibi ülkelerden gelen ziyaretçilerin akınına uğruyor. Küçük Ayasofya’yı ziyarete gelenler ağırlıklı olarak 50–60 yaş ve üstündeki insanlardan oluşuyor.
+       <br/>
+       <br/>
+       Küçük Ayasofya Camii’ne yakın bir yerde oturan 78 yaşındaki Cemal Kula yıllar boyunca takip ettiği Küçük Ayasofya ile ilgili izlenimlerini şöyle anlatıyor: “Ben yıllardır buradayım. Küçük Ayasofya’nın insanımız tarafından ziyaret edildiğini çok az gördüm. Ama ecnebiler yaz kış her daim geliyorlar. Bir de cami ile ilgili her türlü bilgiye sahipler. Gelince çok duygulanıyorlar. Yaşlılar daha çok geliyor, genç turist sayısı çok az. Ben Küçük Ayasofya’yı başka yerde anlattığımda insanlar ilk defa duyuyorlarmış gibi hayretle bakıyorlar. Burası cami ve yüzlerce yıldır cami olarak ibadete açık. Kimse burayı müzeye çaviremez. Yalnız kim ilgilenecekse ilgilensin yoksa yıkılacak.”
+       <br/>
+       <br/>
+       İstanbul’un en eski yapısı
+       <br/>
+       <br/>
+       Küçük Ayasofya’nın çok eski bir tarihi bulunuyor. Bazı kaynaklarda yapının yakınında Hormidas Sarayı olarak bilinen Büyük Saray’ın bir pavyonu, bitişiğinde de Havari Petrus ve Pavlos adına yapılmış bazikal planlı bir kilise bulunduğu belirtiliyorsa da günümüzde bunların yerini tam olarak belirleyen hiçbir iz yok. Günümüzde İstanbul’un kullanılabilir en eski yapısı olan Küçük Ayasofya Camii ya da eski adıyla Ss. Sergius ve Bacchus Kilisesi 527–536 tarihleri arasında inşa edilmiş. Kaynaklarda yapının inşaatı ile ilgili olarak şöyle bir efsane geçer; I. Anastasyus devrinde I. Justiniaunus ve amcası I. Justinos, imparatorun aleyhindeki bir ayaklanmaya adları karıştığı için idama mahkum edilirler. Hüküm yerine getirilmeden bir gece önce çifte azizler Ss. Sergius ve Bacchus İmparator Anastasyus’un rüyasına girip I. Justinos ve I. Justiniaunus lehinde tanıklık ederler. Bu olaydan etkilenen imparator onları affeder. I. Justinianus tahta çıkıp imparator olduğunda çifte azizlere karşı şükran borcunu ödemek için adak kilisesi olarak Ss. Sergius ve Bacchus kilisesini yaptırır. Yaklaşık 1000 yıla yakın bir süre kilise olarak kullanılan yapı İstanbul’un fethinden sonra 1504’te II. Bayezid döneminde Kapu Ağası Hüseyin Ağa tarafından camiye çevrilir.
+       <br/>
+       <br/>
+       Çok deprem gördü
+       <br/>
+       <br/>
+       Kaynaklara göre Küçük Ayasofya’nın ilk hasarı ve buna bağlı olarak ilk onarımı 9. yüzyıldaki İkonoklazm Hareketleri sonrasında olmuş. Bunu takiben 1204 Latin istilası sonrasında da iç süslemelerin onarılması gerçekleşmiş. 1504’te Kapu Ağası Hüseyin Ağa’nın yapıyı camiye çevirmesi sırasında yapının tüm iç süslemeleri değiştirilip iç kısmında güneydoğuya minber, kuzeybatıya müezzin mahfeli, dış kısımda da batı duvarı önüne son cemaat yeri olmak üzere camiye özgü bazı bölümler eklenmiş, cephelerinde Osmanlı mimari özelliklerine bağlı olarak farklı boyutlarda pek çok pencere açılıp, varolan pencerelerin bir kısmı kapatılmış. Yapının güneybatı köşesinde esas yapıdan bağımsız bir minare inşa edilmiş. Kaynaklar 18. yüzyılda barok üslup özelliklerine uygun yeni bir minarenin yapıldığını belirtir. Kurşun kaplı klasik bir külahı olan bu minare bilinmeyen bir nedenle 1936 yılında kürsüsüne kadar yıkılmış, bir süre yıkık kalan minare 1955 yılında şimdiki haliyle inşa edilmiş.
+       <br/>
+       <br/>
+       Önemli deprem kuşağı üzerinde bulunan İstanbul’da 1600’den günümüze kadar 6 şiddetinden daha büyük şiddetli 89 deprem kayıtlı olduğuna göre Küçük Ayasofya Camii’nin çok daha fazla deprem yaşadığı ortada. Kapu Ağası Hüseyin Ağa’nın Vakfiyesinde 1648 depreminde sıvaları döküldüğü, kuzey ve güney camlarının kırıldığı, 1763 depreminde de yapının büyük hasar gördüğü ve restorasyon işlerinde Ahmet Ağa’nın görevlendirildiği belirtiliyor. 1870–1871’de yapıyla deniz suları arasında kalan bölgeye yapıdan yaklaşık 5 metre mesafeden geçecek biçimde demiryolu inşa edilmiş. Zemin seviyesinden 1 metre yükseklikte bulunan demiryolu yaklaşık 50 yıl tek hat olarak hizmet vermiş. Kaynaklarda belirtildiğine göre her tren geçişinde güney duvarlarının taşları döküldüğü için 1877’de Osmanlı örgü üslubuyla bir duvar örülmüş. 20. yüzyılın başlarında demiryolu zemin seviyesinden 3 metre yükseltilerek çift hatlı hale getirilmiş. Balkan Savaşı sırasında savaştan kaçanlar tarafından barınma mekanı olarak kullanılan yapı Cumhuriyet döneminde 1937 ve 1955’te olmak üzere iki büyük onarım geçirmiş. Daha önce sıvalı ve badanalı olarak bilinen yapının cephesi 1955’ten sonra bakım görmüş ve kubbe kasnağı dışında tüm cephede tuğla ve taş örgüleri görünür hale getirilmiş.
+       <br/>
+       <br/>
+       e—mail: hsoylemez@hotmail.com
+       <br/>
+       <br/>
+       muratucar@mynet.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12983), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161559/http://www.aksiyon.com.tr:80/detay.php?id=12983)

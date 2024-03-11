@@ -1,0 +1,86 @@
+# Nazım'a, memlekete, sürgüne ve muhalif duruşa dair...
+
+*Zeynep Dağı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119204910im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119204910im_/http://www.aksiyon.com.tr/resim/497/66.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Nazım Hikmet'i farklı bir şekilde okumak mümkün mü?
+  <br>
+   Mitleştirilen kimliğinin peşine takılmak, ya da "hain" deyivermek Nazım'a ilişkin yapılabileceklerin en kolayı olurdu herhalde. Nazım 'böyle' de okunabilir mi? Denemekte fayda var.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Nazım"ın ölümünün 41. yılı. O, ideolojik kimliğinin yanı sıra, bu ülkenin yakın tarihini de anlatan bir şair. 1902 yılında doğan Nazım,
+   <br>
+    Osmanlı"dan devredilen bir bakiye. 19. yüzyılda iki çocuğunu İstanbul"da bırakarak Paris"e resim kursuna gidebilen ressam bir ananın Osmanlı konaklarında büyüyen oğlu. En az Yahya Kemal kadar "beynelmilel" ve "milli", Necip Fazıl kadar muhalif...
+    <br>
+     <br>
+      Nazım"ın devraldığı emperyal miras ve sonradan benimsediği "enternasyonal-sosyalist" kimlik onu besleyen ana kaynaklardan. Nazım"la birlikte, bu ülkenin Osmanlıdan cumhuriyete geçiş sürecinin sancılarına, Soğuk Savaş siyasetinin kurbanlarına, yaşanan ideolojik kıskaca tanık olmak mümkün. Nazım özelinde özellikle sistemle ters düşen insanların acısı ve bu ülkenin yakın tarihine damgasını vuran sorunlu devlet-toplum-birey ilişkisi de daha görünür oluyor.
+      <br/>
+      <br/>
+      Her ne kadar sol kimlik onun önemli bir parçası olsa da, özgürlük sevdalısı bu adamı ölümünün 41. yılında "ideolojinin" dar kalıplarının ötesinde düşünme ve tartışma zamanı. İdeolojinin zincirlerinden kurtararak Nazım"ın özgürleştirilmesi, Anadolu"nun bütününe ve zenginliğine dahil edilmesi artık daha da özel bir önem kazanıyor.
+      <br/>
+      <br/>
+      Memleket ve hasrete mahkumiyet
+      <br/>
+      <br/>
+      Memleket, hasret, aşk, direniş Nazım"ın dizelerinde gerçekliğe kavuşur. Sisteme-iktidar odaklarına ters düşerek "vatan hainliği" de dahil olmak üzere pek çok suçlamayı hiç hak etmediği halde taşımak zorunda kalır. Vatan hainliği damgasının ağırlığını memlekete olan özlemiyle hafifletmeye çalışır. Orta Asya"dan gelip Akdeniz"e bir kısrak başı gibi uzanan "memleket", Nazım"ın dizeleriyle bir coğrafya olmanın çok ötesinde ete-kemiğe bürünür. Karşı kıyıdan, Varna"dan "memleket-memleket" diye seslenişi, o ulaşamadıkça ulaşılmaz olan hasreti, muhalif olmanın somut diyetidir. Nazım, memleketinin artık kendisine yıldızlar kadar uzak olduğunu bilerek, muhalif kimliğini ölünceye kadar taşır. Vasiyetinde dile getirdiği, öldüğünde Anadolu"suna kavuşma özlemi ise hâlâ gerçekleşmedi; sürgünlerde ölüme mahkum ettiğimiz insanların "dönüşünü" hak ettiğimizde gerçekleşmeli bu... Türkiye"den beslenmiş, bu topraklara emeği geçmiş insanların sırf "muhalif" kimliğinden ötürü, topraklarından koparılışı artık imkansız olduğunda gerçekleşmeli... Pek çok uygarlığa evsahipliği yapmış bu toprakların kendi insanına ve farklılığına tahammül edemeyişi sona erdiğinde"
+      <br/>
+      <br/>
+      Muhalif kimliklerinden ötürü "memleket"lerinden koparılan, gurbete müebbeden mahkum edilen insanların acılarını dindirecek olan, bedenlerinin geri dönüşü değil. Bu insanların mezarlarını ülkemize getirmek, ancak bu ülke her kesimden insanıyla barıştığında anlamlı. Diğer türlü o mezarlar, dışarıda, otoriteryenizme kafa tutan sembollerimiz olarak kalmalı. Yakın tarihle hesaplaşmadıkça, özgürlüğü sadece bir kesime hak gördükçe, 12 Eylül"le insanları memleketinden koparanlardan hesap sormadıkça ve hâlâ gidenlerin memleketine dönemediği bir ülkede, "ölülerin" dönüşü neyi değiştirecek?
+      <br/>
+      <br/>
+      Bireyin ve kollektivizmin harmanlanması
+      <br/>
+      <br/>
+      Nazım"ın sosyalist kimliğiyle özdeşleşen "kollektif anlayışı" daha çok ön plana çıksa da, onun "birey"e atfettiği önem hep gözden kaçırıldı. Nazım"ın "bir ağaç gibi tek ve hür, bir orman gibi kardeşçesine" diye dile getirdiği hasreti, bireyi ve toplumu harmanlayan bir sentez olarak karşımıza çıkmakta. Bu harmanlayış aslında Doğu ve Batı kültürünün de güzel bir sentezidir. Çünkü bu sentezdeki mutluluğun anahtarı, birey olmayı toplumsallaştırmasıdır. Normalde, ideolojilerin kutsallık atfederek beslediği "dava"lar, bireyi ve özel yaşamı kendine bir tehdit olarak algılar ve bireyi dava mitlerine kurban edilebilecek bir nesneye dönüştürür. Kendini "dava"ya adamış bir şair de olsa, Nazım"ın o katı şartlar altında bile "birey"i ve özel yaşamı ön plana çıkarabilme gücünü gösterebilmesi önemlidir. Bir ağaç gibi tek ve hür olabilmeyi arzulayan Nazım, davasının yanı sıra "aşklarını" da yani yüreğini de ortaya koyabilmiştir. Piraye"ye bir çingene ağzı ile "abe biz de anlarız bu işlerden Hatçem" diye yazdığı dizelerde aşkı, yani bireyi ve bireyin duygularını yüceltir. Nazım"ın davaya rağmen bireyi de ön plana çıkarabilmesi, vatan hainliği suçlamasının yanı sıra insani olan her şeyi küçümseyen, yabancılaştıran bir tarzda "küçük burjuva" ve lümpen gibi eleştirilerle de karşılaşmasına yol açtı. Nazım, aslında sol içinde de "muhalif" bir kimliğe ve duruşa sahipti.
+      <br/>
+      <br/>
+      Nazım, güçlü bir birey olmanın yanı sıra toplumsal yaşamda kollektif ruhu da çok iyi taşıdı. Uzun yıllarını geçirmek zorunda kaldığı cezaevleri, onun kollektif yanının en iyi yansıdığı mekanlar. O zor şartlar altında, cezaevindeki arkadaşlarına kendi birikimini, çoğulluğunu edebiyattan resime, yabancı dil öğretmeye kadar aktardı. Cezaevinde A. Kadir"e ve diğer arkadaşlarına yabancı dili, Balaban"a fırçaları tanıttı; Orhan Kemal"den Kemal Tahir"e, Bedri Rahmi"ye "ustalık" yaptı, yani birikimiyle Türk edebiyatını besleyen ve onu dışarı taşıyan ana damar oldu. Nazım enternasyonal kimliği ile sadece Türk değil dünya edebiyatını da besledi.
+      <br/>
+      <br/>
+      Onuncu Köy
+      <br/>
+      <br/>
+      Rus şair Yevtuşenko, Nazım"dan öğrendiği "doğru söyleyeni dokuz köyden kovarlar" atasözüne referansta bulunarak, kitabının önsözüne "Onuncu Köy" başlığını vermiştir. Sovyetler Birliği"nin Nazım için "onuncu köy" olduğunu aktaran Yevtuşenko, Nazım"ı ve dolayısıyla Türkiye"yi tanıma bahtiyarlığını içtenlikle anlatır. Fakat Nazım bu "onuncu köy"de memleket hasretinin yanı sıra daha başka acılara da katlanmak zorunda kalır.
+      <br/>
+      <br/>
+      Nazım"ı memleket hasreti kadar yaralayan bir başka olay, Sovyetler Birliği"nde TKP içinde kendine karşı yürütülen güç mücadelelerine tanıklığıdır. Nazım, "Benerci Kendini Niçin Öldürdü?" kitabında TKP içindeki güç mücadelesini ve kendisine yöneltilen "hain"lik suçlamasını dolaylı bir şekilde aktarır. Davasına inanmış bir insan olarak "yoldaşları" tarafından ihanetle suçlanması, "inadına yaşamayı" öğütleyen bir adama ölümü düşündürebilmiştir. Nazım"ın muhalif yapısı "onuncu köyde"ki dostlarını da rahatsız etmiştir. "Yaşama, muhalif bir rüzgar gibi" giren Nazım yalnızca Türkiye"de değil, Sovyetler Birliği"nde bile "muhalif" kimliğini taşıyarak oradaki otoriteryen uygulamaları eleştirebildi. Dolayısıyla Nazım sadece Türkiye"de değil, dışarıdaki yaşamında da sürgündeydi.
+      <br/>
+      <br/>
+      Madem ki bu kerre mağlubuz, netsek neylesek zaid.
+      <br/>
+      <br/>
+      Madem ki fetva bize aid, verin ki basak bağrına mührümüzü.
+      <br/>
+      <br/>
+      Türkiye"nin 20. yüzyılda yetiştirdiği belki de ilk "global şahsiyeti" olarak Nazım, "Şeyh Bedrettin Destanındaki" bu dizelerle aydının muhalif kimliğine ve gerektiğinde mağlubiyetine vurgu yapar. Onun için gerçek yenilgi aydının muhalif kimliğini terk etmesidir, yoksa sistem tarafından yenik gözükmesi değil.
+      <br/>
+      <br/>
+      Nazım"ın bu toprakları karış karış gezisini anlatan, ayak basamadığı yerlere olan özlemini anlatan dizeleri, bu toprağa, insanlarına, güneşine özlemi"  "Mehmet"ten Mehmet"e yoktur merhamet" demesine rağmen, oğlunun adını "Memed" koyarak, sanki bütün Mehmetlere kucak açması"  İdeolojisini çağrıştıracak bir isim yerine, oğluna sıradan ve geleneksel bir isim vermesi, bu topraklardaki yerelliğiyle barışıklığı. Gençliğinde başlattığı eskilerle ve eski değerlerle hesaplaşan "Putları Yıkalım" kampanyasına karşı daha sonra yaptığı özeleştirisi ve yerelliğini sahiplenişi"
+      <br/>
+      <br/>
+      Nazım ve Nazım gibileri hâlâ yattığı topraklardan memleketine ve Mehmet"ine seslenişine devam ediyor". Bu seslenişte kimse düşüncelerinden dolayı topraklarından koparılmasın isteniyor" İşitiyor musunuz?
+      <br/>
+      <br/>
+      *Atılım Üniversitesi, Yrd.Doç.Dr.
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11594&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119204910/http://www.aksiyon.com.tr:80/detay.php?id=11594&yorum_id=1)

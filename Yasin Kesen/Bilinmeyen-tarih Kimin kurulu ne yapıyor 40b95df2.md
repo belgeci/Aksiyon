@@ -1,0 +1,43 @@
+# Kimin kurulu ne yapıyor?
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Geçtiğimiz hafta ABD’de yine ilginç bir internet olayı gerçekleşti. FTC (Federal Ticaret Komisyonu), 13 yaşından küçük çocukların kişisel bilgilerini istemeleri yüzünden 3 web sitesine toplam 100 bin dolarlık para cezası verdi.
+   <br/>
+   <br/>
+   Kaydedilen kişisel bilgilerin gizliliği konusunda net açıklama ve güvence vermeyen sitelerin gelecekte bu bilgilerle çocuklara yönelik kötü amaçlı faaliyetler düzenleyebileceği ihtimali üzerine böyle bir karara varıldı. Karar gereğince şimdiye kadar toplanan tüm bilgilere ait disklere de el konularak imha edildi.
+   <br>
+    <br>
+     Kişisel bilgilerin gizliliği ve güvenliği konusunda hassasiyetini sık sık gösteren ABD toplumu, daha önce de bazı alışveriş sitelerinin kayıtlarındaki kişisel bilgileri satışa çıkarmasını protesto etmişti.
+     <br>
+      <br>
+       Sitelerin kurumsal yapılanması ile çok fazla meşgul olmayan FTC, daha çok site ziyaretçilerinin geleceğine yönelik endişeye düştüğü zamanlarda derhal harekete geçip çeşitli önlemler almaya çalışıyor.
+       <br>
+        <br>
+         Bizde ise bu tür “Üst Kurul”lar ne yazık ki sitelerin ziyaretçilerine yönelik aktivitelerinden çok sitelerin sahiplerine veya sitelerin içeriklerine kafayı takıyorlar. Bir kısım çevrelerin ısrarlı şekilde RTÜK nev’inden İnternet Üst Kurulu istemelerinin de altında bu neden yatıyor. Başarılı projelerden çok ideolojik projelerin hayatta kalmasını isteyen bu çevrelerin gelişmiş ülkelerdeki internet kullanımından ve internet komisyonlarının faaliyetlerini izlemedikleri ise kesin. Böyle bir ufukları olsaydı herhalde içinde bulundukları kısır döngüden kurtulur, gündeme oturacak web sitesi projelerine destek sağlarlardı ve toplum ahlakına zarar veren bir kısım sitelerin temizliği veya revize edilmesi ile meşgul olurlardı…
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 5 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13093), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151252/http://www.aksiyon.com.tr:80/yazdir.php?id=13093)

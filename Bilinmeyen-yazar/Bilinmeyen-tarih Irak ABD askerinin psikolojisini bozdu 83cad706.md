@@ -1,0 +1,75 @@
+# Irak, ABD askerinin psikolojisini bozdu
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040419172158im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040419172158im_/http://www.aksiyon.com.tr/resim/486/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  ABD’nin Irak’ta başlattığı savaşın üzerinden bir yıl geçti. Son bir yılda yaşananlar çeşitli açılardan analiz edilirken, ABD Kara Kuvvetleri’nin yaptığı bir araştırma, Irak’taki Amerikan kuvvetlerinin içinde bulunduğu durumu gözler önüne seriyor. Araştırmaya göre, Irak işgalinden sonra Amerikan askerleri arasında intihar vakaları arttı, 10 bin asker ruh sağlığı bozulduğu için bu ülkeden ayrılmak zorunda kaldı. Rapor, Irak’ta Ağustos—Ekim 2003 tarihleri arasında görev yapan ruhbilim uzmanlarının verilerinden yararlanılarak hazırlandı.
+  <br>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   <br/>
+   Amerikan ordusu içindeki intihar istatistiği dikkate alındığında Kuveyt ve Irak’ta intiharların arttığı ve geçen yıl (2003) 24 askerin yaşamına kendi eliyle son verdiği kaydediliyor. ABD Kara Kuvvetleri’nde ortalama 100 binde 12,8 olan intihar oranı, Irak işgalinden sonra 100 binde 17,3’e çıktı. Halbuki, 1995—2002’nin 7 yıllık ordu ortalamasında intihar oranı yüz binde 11,9 olmuştu. 2003’te Irak harekatına katılan askerler arasındaki 24 intihar, operasyondaki askerlik görevi biterek yurduna dönen ve intihar edenleri kapsamıyor. Devlet kurumu olan Hastalıkları Denetleme ve Önleme Merkezi’ne göre, 2001’de ABD’de sivil intihar oranı 100 binde 10,7 olarak belirlendi.
+   <br/>
+   <br/>
+   Irak’ta savaş bölgelerinde 750 askeri muayene eden uzmanlar, “çok şiddetli gerilim içinde bulunduklarını” belirtenlerin oranını yüzde yedi olarak buldu. “Orta çapta veya düşük düzeyde gerilim yaşadığını” belirten askerin oranı yüzde 77 olarak saptandı. Irak’ta mülakata alınan askerlerin yüzde 80’i doğrudan “muharebe alanına” girdiğini söyledi. ABD ordusunun savaş bölgesine ruhbilim tahlil uzmanları heyeti göndermesi nadir görülüyor. Temmuz’da Irak’ta beş askerin intihar etmesi üzerine bu araştırmanın yapılması ve yayınlanması hızlandı. Temmuz’dan sonra Irak’ta Amerikalıların intihar ortalaması ayda iki oldu.
+   <br/>
+   <br/>
+   ABD ordusu askerleri için, 20 Mart 2003’te başlatılan ve 9 Nisan’da Devlet Başkanı Saddam Hüseyin’in devrildiği büyük çaplı Amerikan askeri saldırısında haziran ve temmuz ayları “çok zor darbe deneyimi” oldu. Çünkü ABD Başkanı George Bush, 1 Mayıs 2003’te “Savaşın esas kısmı bitmiştir” demesiyle birçok asker savaşın gerçekten bittiğini zannettti. Halbuki Irak’taki direnişçilerin pusuları ve yol kenarlarına kurdukları bombalı tuzaklar 2003 yazında yoğunlaştı, her gün ortalama bir Amerikan askeri ölmeye başladı. Irak’ın yaz sıcağı ve diğer zor şartlar da, askerler için gerilim kaynağı durumuna geldi. ABD Savunma Bakanlığı Sağlık Dairesi Başkanı Dr. William Winkenwerder, ocak ayında yaptığı açıklamada, ruh sağlığı bozulan toplam 10 bin askere Irak’tan “geçici” ayrılma için izin verildiğini bildirdi. 400 asker de temelli Irak’tan uzaklaştırılarak tedavi altına alındı. Irak’ta bulunan 130 bin Amerikan askerinin yüzde bire yakını her hafta akıl sağlığı tedavisinden geçiriliyor.
+   <br/>
+   <br/>
+   ABD, Körfez Savaşı’ndan (Ocak—Şubat 1991) 12 yıl sonra giriştiği ikinci Irak savaşında, son bir yıl içinde (370 gün) 282’si 1 Mayıs 2003 tarihinden sonra olmak üzere toplam 397 askerini kaybetti. İngiltere’nin toplam kaybı 20 olurken, diğer koalisyon ülkelerinden 36 asker hayatını yitirdi. Savaş dışı kazalarda 189 Amerikan askeri ölürken, bu rakam İngiliz askerleri için 38, diğer ülke askerleri için de altı olarak kayıtlara girdi.
+   <br/>
+   <br/>
+   Saddam Hüseyin iktidarının, “18. vilayetimiz” diyerek Kuveyt’i 2 Ağustos 1990’da işgal etmesinden beş buçuk ay sonra, Irak ordusunu Kuveyt’ten çıkarmak için 16 Ocak—28 Şubat 1991’de yapılan Körfez Savaşı’nda ABD toplam 147 asker kaybetmişti.
+   <br/>
+   <br/>
+   Powell’dan da ‘haçlı’ gafı
+   <br/>
+   <br/>
+   ABD’de 11 Eylül 2001 saldırılarının neden önlenmediği ve El Kaide’ye karşı niçin etkili önlem alınmadığı sorularına cevap arayan ulusal komisyon, Başkan Bush’un ekibini sorguladı. Aralarında Savunma Bakanı Donald Rumsfeld, yardımcısı Paul Wolfowitz, Dışişleri Bakanı Colin Powell ve Genelkurmay Başkanı General Richard Myers’ın da bulunduğu pek çok yetkili, komisyona  bildiklerini anlattı.
+   <br/>
+   <br/>
+   16 sayfalık bir ön rapor yayınlayan komisyon, hem Clinton hem de Bush yönetimlerini eleştiriyor. Raporda, Bush yönetiminin El Kaide’yi elektronik yollarla dinleme imkanlarını artırmadığı ve 2001 başlarında Bush’un, Afganistan’a operasyon düzenlenmesi çağrılarına kulak tıkadığı görüşü dile getiriliyor. Eleştirilere cevap veren Rumsfeld, “Ladin’i öldürseydik de 11 Eylül olurdu. El Kaide aylardır zaten ABD’deydi. Ladin’in ele geçirilmesinin 11 Eylül’ü önleyeceğini düşünen kimseye rastlamadım” derken, Paul Wolfowitz, teröre karşı mücadeleye yeni bir perspektif getirdiklerini öne sürüyor.
+   <br/>
+   <br/>
+   ABD Dışişleri Bakanı Colin Powell ise, komisyona ifade verirken, hem Haçlı Seferleri hem de mücadele kampanyası anlamına gelen ‘crusade’ sözünü kullanarak Bush’un iki buçuk yıl önceki gafını tekrarladı. Pakistan liderini Taliban ve El Kaide’ye karşı savaşa ikna etme çabalarından söz eden Powell, “Devlet Başkanı Pervez Müşerref’i arayarak, ‘Sizin bu kampanyanın, bu haçlı seferinin parçası olmanıza ihtiyacımız var’ dedim” ifadesini kullanıverdi. ABD Başkanı Bush da, 11 Eylül sonrası terörle mücadele koalisyonu kurmaya çalışırken ‘haçlı seferleri’ ifadesini kullanarak İslam âleminde öfkeye sebep olmuştu.
+   <br/>
+   <br/>
+   Oturumlarda Clinton döneminin Dışişleri Bakanı Madeleine Albright, Savunma Bakanı William Cohen’in yanı sıra CIA Başkanı George Tenet de ifade verdi. İfadesi merakla beklenen kişi ise, daha ilk haftasında 400 bin satan ‘Tüm Düşmanlara Karşı’ kitabında Bush yönetimini El Kaide ve terörle mücadeleyi umursamayıp Irak’a saplanmakla suçlayan eski terörle mücadele koordinatörü Richard Clarke oldu. Clarke, komisyon üyelerinin sorularını cevaplarken, Bush döneminde terörle mücadelenin bir ölçüde geriye itildiğini ve bu konunun büyük aciliyet taşımadığını söyledi.
+   <br/>
+   <br/>
+   <br/>
+   Petrolün ve doğalgazın gücü adına
+   <br/>
+   <br/>
+   Dünyada insanı şaşırtan gelişmeler oluyor. Bunlardan biri de İngiltere Başbakanı Tony Blair’in Libya’yı ziyaret etmesi. Muammer Kaddafi ile çadırda buluşan Blair, bu ülkenin enerji kaynaklarından pay alabilmek için geçmişi unutmuş görünüyor. Gezinin, diplomasi dilinde, Libya’nın yeniden uluslararası toplumla bütünleşmesine katkı anlamına geldiği vurgulanıyor. Libya, Aralık 2003’te kitle imha silahları üretmekten vazgeçtiğini açıklamıştı.
+   <br/>
+   <br/>
+   Tony Blair, bir yandan Libya’ya giderek bir risk aldığını söylüyor bir yandan da terörizmi kınayan devletlerle işbirliği yapılması gerektiğini savunuyor. Bazı İngiliz politikacılar ve Pan Am Amerikan yolcu uçağının 1988’de İskoçya’nın Lockerbie kasabası üzerinde düşürülmesi sonucu ölenlerin yakınları ise, geziyi eleştiriyor.
+   <br/>
+   <br/>
+   Eleştiriler olsa da gezinin esas amacı, açılacak ihalelerde Libya’nın zengin enerji kaynaklarından İngiliz şirketlerinin aslan payını kapması. Nitekim, Blair’in 1951’den bu yana bu ülkeyi ziyaret eden ilk İngiliz başbakanı olarak yaptığı tarihi gezi sırasında dev petrol şirketi Shell’in, Libya’daki gaz tesislerinin işletilmesine yönelik milyonlarca dolarlık bir anlaşmayı imzalaması bekleniyor. Libya’da geçen hafta sadece Blair yoktu. ABD Dışişleri Bakan Yardımcısı William Burns de  Libya lideri Kaddafi’nin konuklarından biriydi.
+   <br/>
+   <br/>
+   <br/>
+   Kırım Tatarları geri dönecek
+   <br/>
+   <br/>
+   İkinci Dünya Savaşı’nda Almanlara yardımcı oldukları gerekçesiyle sürülen Kırım Tatarlarının “topraklarına dönüş” mücadelesi mutlu sona ulaşıyor. Ukrayna Parlamentosu’nda (Rada) “yaşadıkları yerlerden zorla çıkartılan insanların tüm haklarının tanınmasına” ilişkin yasa tasarısı geçen hafta yapılan ilk oylamada kabul edildi. Rada’daki ikinci oylamanın ardından cumhurbaşkanının onayıyla yürürlüğe girecek yasadan 300 bin Tatarın yararlanması bekleniyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11293&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040419172158/http://www.aksiyon.com.tr:80/detay.php?id=11293&yorum_id=1)

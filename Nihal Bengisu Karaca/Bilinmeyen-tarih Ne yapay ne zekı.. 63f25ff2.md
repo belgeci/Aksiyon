@@ -1,0 +1,73 @@
+# Ne yapay, ne zekı..
+
+*Nihal Bengisu Karaca Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093319im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093319im_/http://www.aksiyon.com.tr/resim/358/61.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bilgisayarda çalışan bir grafiker arkadaşınız varsa başına çöküp ondan bir vazo yapmasını isteyebilirsiniz. Sonra onu İ.Ö. III. binde yapılmış bir Sümer vazosuna dönüştürmesini de isteyebilirsiniz.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Size şöyle sorması muhtemeldir: “Vazo denizde mi bulunmuş olsun, karada mı?” Sekiz dakika sonra istediğiniz evsafta bir vazo önünüzdedir. Tamamen sanal, ama işte orada ve oldukça heyecan verici. Siz neredesiniz peki? Sıradışı bir yerlere sürüklenip gittiniz, ne burada ne de oradaydınız; uzam sanaldı ama zaman “gerçek” kalmıştı. Bu ana “gerçek” demekte bir beis görmediniz.
+   <br>
+    <br>
+     Gerçeklik algımızı belirleyen en yaşlı çiftin zaman ve uzam ikilisinin ayrılışına şahit olduğumuz bir yüzyıldı bu. İçinde bulunduğumuz yüzyılın sonlarına doğru, bu altı pek çizilmemiş ayrılmanın daha da kristalize olması ve insanoğlunun yeni yeni sorumluluklarla başetmek durumunda kalması işten bile değil. Sözgelimi şöyle bir 50-100 yıl sonrasında olduğumuzu ve zamanda yolculuk yapabildiğimizi hayal edelim, saniyenin binde biri kadar bir zamanda Fransız ihtilalini baştan sona yaşıyoruz, döndüğümüzde, daha kahvemiz bile soğumamış oluyor! Aklınıza heyecanlı ihtilalcilere “aralarından pek çoğunun giyotine gideceği” gerçeğine dair yaptığınız gevezelikler geliyor.
+     <br>
+      <br>
+       “Nasıl olsa artık çok uzaktayım”
+       <br/>
+       <br/>
+       İhtiyaçlarımızın çokluğu ve azalan kıt kaynaklarımız yüzünden yemeyen, içmeyen, tüketmeyen hizmetçi robotlarla yaşadığımızı düşünelim; ya da aralarında “hissedebilenlerinin” de olduğu, sahici arkadaşları, sahici evlatları aratmayan robotlarla yaşadığımızı. Ama bir yerden sonra canımızı sıkmaya başlıyorlar, kara kara onlardan nasıl kurtulacağımızı düşünmeye başlıyoruz:
+       <br/>
+       <br/>
+       “Nasıl olsa gerçek değiller”
+       <br/>
+       <br/>
+       Kubric/Spielberg ikilisinin son yapıtı A.I’nin sorduğu şu soru ateşli bir ilgi gerektiriyor daha şimdiden: Gerçek nedir?
+       <br/>
+       <br/>
+       Paslanmaz, kir tutmaz,sever, incinir...
+       <br/>
+       <br/>
+       Küçük David 6 yaşında, kumral, kahverengi gözlü bir çocuk olarak tasarlandı. Eşsiz, çünkü bir evladın ailesini sevebileceği türden bir sevme kapasitesiyle donandı. Bu robotlar aleminde bir devrim, zira o güne değin hiçbir robotta bu düzeyde bir bilinçaltı geliştirilemedi. David kendisini “evlat edinme” prosedürlerine benzer bir formaliteyle evlat edinen aileyi, özellikle annesi Monica’yı özel bir şekilde sevmekte. Hatta küçük beyni-kalbi mi demeliyim-  kendisinin sonsuzluğa mahkum edilmiş ömrüne karşın bir ölümlü olan annesinin bir gün ölüp gideceği fikriyle acımakta daha şimdiden. David’in yüreğinde ya da devrelerinde şaşılası bir sevgi var; en âlâsından bir sevgi bu, kitabi değil, her gün sevecek bir şey daha bulabilmekte annesinde. David’in yoğun bir hayatta kalma içgüdüsü var, tehlikede olduğunu anladığında tıpkı bir insan gibi paniğe kapılmakta ve en yakınındakinden yardım istemekte. David’de bir sevilme arzusu başgösteriyor giderek; umutsuz ve tehlikeli olabilecek bir bekleyiş bu. Çünkü ailesinin, çaresi bulunmayan bir hastalıktan dolayı dondurulmuş durumda olan oğulları iyileşti ve geri geldi. Oğullarının acısına katlanmak ve onun yokluğunu doldurmak için David’i almış olan ailenin aslında bu oyuncağa pek fazla ihtiyacı kalmadı artık. Anne Monica kendisine kraliçeler gibi davranan-ve hatta bu konuda gerçek oğul Martin’i fersah fersah aşan- bu çocuğu gözden çıkarmayı düşünmüyordu başlarda. Ama David’in “sevilme” ihtiyacı, daha doğrusu sevmeye ve sevilmeye programlanmış ve bu durumda pek tabii giderek insanlaşmış olması sorun olmaya başladı. Kocası Harry, Monica’ya şu soruyu soruyor: “Bir şey böylesine sevebiliyorsa nefret de edebilir, o zaman ne olur düşünebiliyor musun?”
+       <br/>
+       <br/>
+       Film David’i “nasılsa gerçek değil” diyerek “atan” ebeveynin durumundan çok bir ihtiyacı görmek üzere tasarlanmış bu oyuncağın acısı üzerine odaklanıyor. Hikayesini dinlediği Pinokyo gibi “kendisini gerçek bir çocuk yapabilecek” Mavi Peri’yi aramaya koyuluyor çocuk robot. Bu arayış aynı zamanda 21.yy’ın ortalarından fütürist manzaralarla da buluşturuyor bizi. Robotların insan ırkını tehdit ettiğine inanan ve ele geçirdiklerini seremonik bir biçimde parçalayıp yok eden Ku Klux Klan benzeri örgütler, bir şekilde yaşamaya çalışan düşkün robotlar, değişen iklim ve neredeyse yok olmuş bir Manhattan. İnsanlığın kendi kendisiyle yaptığı bir intihar sözleşmesinin uzantısı gibi her şey; sorumsuzca kirletilen doğa ile sorumsuzca pazarlanan, “ötelenerek çoğaltılan” ve bir mağduriyet haline sokulan ‘sevgi’ nin ‘insan eli değmiş’ hali pür melali bu.
+       <br/>
+       <br/>
+       A.I, ( Artifficle Inteligent)  /Yapay Zeka Stanley Kubrick’in 15 yıllık projesi. Binlerce storyboard çıkarmış Kubrick bu film için. Projenin büyük ustanın ölümüne değin hayatiyet kazanamamış olmasının  nedeni ise anlattığı şeyin zorluğundan kaynaklanıyor olsa gerek. Çok zor, ahlaki sorulara değiniyor film, fakat ne yazık ki işaret edip kaçıyor, sorduğu soruları önemsemekte aciz kalıyor.  İlk sekansta robot projelerini yürüten Dr. Hobby’e yöneltilen bir soru oldukça dikkat çekici: Bizi böylesine koşulsuz bir biçimde sevecek olan varlıklara karşı herhangi bir sorumluluğumuz olacak mı? Cevap son derece kısa ve manidar: “Tanrı da Adem’i sevilmek için yarattı değil mi?” Bu cümleye telaffuz edilmeyen ama işaret edilen ikinci bir cümleyi eklemek mümkün: Tanrı bile kendisini sevmek için yarattığı kulları kendi kaderleriyle başbaşa bırakmadı mı?” Dr. Hobby’nin öngörüp de görmezden gelmek istediği şey ise Tanrı’nın her şey için bir açık kapı bıraktığı gerçeği. Kullarını mutlak acıya, mutlak sevgiye, mutlak savunmasızlığa, mutlak korkuya “programlamadığı”, onlara yeryüzündeki duruşlarına yön verme ve seçim yapma gibi bir hak tanıdığı. Oysa David ‘in annesini sevmekten başka çaresi ve alternatifi yok. David’e insana bahşedilen en önemli lütuflardan biri bahşedilmiyor ne yazık ki: David’in unutmak ve ayıklamak gibi bir lüksü yok! Avcıların eline düşmezse kolay kolay ölmeyecek bir varlığa, hele ki bu varlık acı çekebiliyorsa, sonsuza kadar sürecek bir sevgi zerketmek, onu odaksal bir acıyla kıvrandırmak olsa olsa bir insanın işi olabilir. Nefes almayan, yemek yemeyen, her nasıl oluyorsa hissedebilen bir varlığın acısını perdeye nakletmek ise “Bu aslında kimin acısı?” sorusunu sorduruyor insana. Bu trajedi kimin trajedisi? Cenneti ya da cehennemi olmayan, a’rafta kalmış, son derece değerli ama yalnız ve mutsuz bir robot için mi ağlayalım; “gerçeklik” dediği şeyin kendi gerçekliğinden, yaşadığı anın doluluğundan bağımsız olamayacağını bilemeyen, kurduğu hiçbir ilişki biçiminde bedel ödemeye razı olamayan insan için mi? Büyük icadlar yapan sonra bu icadlarıyla çelişen, sözleşme imzalayan sonra pişman olan, önce seven sonra çöpe atan insan için mi?...
+       <br/>
+       <br/>
+       Bir parça Kubrick, bir parca Spielberg
+       <br/>
+       <br/>
+       A.I /Yapay Zeka Spielberg’e özgü imge denizinden de nasibini almış bir yapım. Hayli varlıklı bir ailenin hijyenik yaşantısı, Monica’nın dondurulmuş oğlunun başucunda İncil okuması, robot avcıları, ırkçı söylemlerin yerini almış “türcü” söylemler, hurdalıkları karıştıran ve buldukları yedek parçalarla oralarını buralarını onaran “kaçak” robotlar; yeni evsizler, herşeyi bilen ama 5 dolara söyleyen Einstein simülasyonu Dr. Know, fast food benzeri kiliseler bize 21. yy.ın ortasında da olsak kesinlikle Amerika’da olduğumuzu gösteriyor. Sular altında kalmış lunapark ise bir parça güzel, bir parça umut ve temenni taşıyan günlerin kollektif hafızanın gün yüzü görmeyecek bölgelerine itildiğini imliyor adeta. Ve... evet, tahmin ediniz lütfen insana ait son güzel hatıraları büyük bir sevgiyle benimseyip taşıyacak olan kim? Elbette ölüm gibi bir lütuftan yoksun ve elbette “kader el verdiğince” yaşayacak olan küçük çelişki: David.
+       <br/>
+       <br/>
+       Film gerek görsel gerekse çağrışım diliyle başlangıçtan bitişe değin pek çok filmden izler taşıyor. David’in tasarlandığı ve ailesiyle geçirdiği ilk günler Kubrick’in özellikle A Clockwork Orange /Otomatik Portakal ve Uzay Macerası 2001’de geliştirdiği görsel dile gönderme yapıyor. Geniş, sade mekan ve nesnelerin keskin hatlarını okşayarak yumuşatan ışık kullanımı Kubrick’i andırıyor. David’in yolculuğu ise The Wizard of Oz /Oz Büyücüsü, Blade Runner ve bence en önemli karaterlerden biri olan süper oyuncak ayı Teddy sayesinde Toy Story’ye eklemlenen Spielberg diliyle şekilleniyorlar. Finale yaklaşırken gördüklerimiz  ise yine Spielberg’in hayal gücüne ve teknik ustalığına hayran bıraktıracak ama bir yandan da “iyi uçuşlar” temennisiyle hafifçe gülümsenebilecek bir format içeriyor.
+       <br/>
+       <br/>
+       Günümüzde gerek medya gerekse Hollywood filmleri tarafından fazlasıyla gündeme getirilen/kullanılan ve aslında “şüyuu vukuundan beterdir sözünün andıracağı gibi şimdiden baymış bir mesele olan klonlama olgusuna ise ilginç bir yaklaşım getiriyor film. Deniliyor ki, hayat sahnesinde belli bir zaman ve mekan boyutunda ortaya çıkmış, yaşamış ve sona ermiş canlıları geri getirdiğimizde bedenlerini  ancak bir gün yaşatabiliyoruz. Onca dağınıklığa, bağlamdan kopmalara ve hikayelerin iç içe geçememe sorununa rağmen filmin David dışındaki en hoş yanı bu söz. Ruh-beden ilişkisinin muamması, insanı, Tanrı’nın arzusu dışında yeniden diriltmeye elvermiyor.
+       <br/>
+       <br/>
+       İnsan algısıyla ve aklıyla aşabiliyor, gevşetebiliyor zaman mekan arasındaki mesafeyi ama en nihayetinde ontolojik anlamda “O’ndan gelmiş ve O’na dönecek “ olmaklığıyla sınırlı bir güç bu.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12758), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093319/http://www.aksiyon.com.tr:80/detay.php?id=12758)

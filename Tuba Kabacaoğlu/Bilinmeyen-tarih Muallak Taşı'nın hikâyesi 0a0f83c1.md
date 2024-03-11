@@ -1,0 +1,46 @@
+# Muallak Taşı'nın hikâyesi
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Kaya
+   <br>
+    Kenan Makiya, Literatür
+    <br>
+     430 sayfa, 0 212 292 41 20
+     <br/>
+     <br/>
+     Kaya... Bir taş parçası insana neyi ne kadar anlatabilir? Öyle bir kaya düşünün ki, ilk insandan bu yana var olsun... Dili olmasa da çok şey anlatsın... Menkıbeler ve efsanelerle örülü olsun... Uğruna savaşlar yapılsın ve hâlâ tüm insanlığa anlatacak hikayesi olsun, tüm yaşanmışlıklara rağmen gizemi korunsun... "Kaya işte" denilecek cinsten değil. O kaya ki, Hz. Adem"i sarıp sarmalayarak yeryüzüne okşarcasına indiren, Hz. İbrahim" in tüm insani zaaflarını, benliğini ve "can"ını yani oğlunu asıl sevgilisine kurban etmek isterken nasıl neden sorularının dile hiç dolanmadığı o anın ve Hz. Muhammed"in Mirac" a çıkışının şahidi...
+     <br>
+      <br>
+       Kudüs ve orada bulunan Muallak Taşı her zaman anlatılagelir. Kaya, tüm Museviler, Müslümanlar ve Hıristiyanlar için farklı nedenlerle kutsal sayılır. Az çok hepimiz biliriz Hacerü"l Esved" in kardeşi Muallak Taşı"nın hikayesini...
+       <br>
+        <br>
+         Kenan Makiya bu hikayeyi gerçek insan ve olayları temel alarak tekrar oluşturmuş. Hikaye Hz. Ömer" in 7. yüzyılda Kudüs"ü, Kitab-ı Mukaddes" te geçen adıyla Yeruşalim" i almasından, Kubbetü"s Sahra"nın yapılışına kadar olan zaman dilimini anlatıyor. Kitap sıradan ya da bildik olaylar zincirinden farklı. Gerçek temel alınmış ama kurgulanmasıyla birlikte olaylar çok daha zevkli, okunası, merak uyandırıcı hale bürünmüş. Kitabın anlattığı konu düşünülecek olursa tamamen tarihi romanlardan farklı olduğunu da kabul etmek gerekiyor. Hikaye geniş bir tarihi, kültürü ve üç din için de önemli kişilerin hayatlarını kapsıyor. Sadece Kudüs"ten bahsedilmiyor o dönemdeki Mekke, Medine ve Suriye"nin kültürleri, yaşam tarzları, toplu göçler, dört halife dönemi, yapılan savaşlar, barışlar, antlaşmalar vs. hakkında da bilgi sahibi oluyorsunuz. Aynı zaman diliminde farklı dinden, kültürden insanların Kubbetü"s Sahra"nın inşasına bakış açısını görüyorsunuz. Kitap geniş bir konu ve zamanı anlatmasına rağmen sayıca az kişiye yer veriyor. Bu da hikayenin zihinde oturmasını kolaylaştırıyor. Üç din ve bu dinlere ait kültürler kitaba çok ideal ve eşit oranda serpiştirilmiş. Tevrat, İncil ve Kur"an-ı Kerim"den alınan bölümlerle hikaye desteklenmiş. Ara ara ayetler ışığında olayları anlıyor olmak da farklı bir duygu veriyor. Kitapta pek çok olay Müslüman olduğunda Yakup ismini alan Yahudi asıllı Ka"b El-Ahbar"ın dilinden anlatılıyor. Ka"b bilge bir kişidir; anlattıkları yaşanmışlığı ve inanmışlığı yansıtıyor. Yazar, Kubbet"üs Sahra"nın inşası aşamasında mimarı İshak"ın ilk olarak hayalinde yapmaya başladığı mescidin tüm gelişimini küçük çizimlerle okuyucu ile de paylaşıp son haline tanık ediyor.
+         <br/>
+         <br/>
+         Başka kitaplarda görmeye alışık olmadığımız yanı ise, roman bittikten sonraki "Ka"b ve Kaya üzerine tarihi notlar" kısmında uzun uzun romanı oluşturan gerçek kişilerin özelliklerinden tutun da yazarın hangi yönü nasıl bir düşünceyle ön plana çıkarmak istediğine ilişkin niyetleri tüm ayrıntıları ile öğreniyor olmamız. Ayrıca kaynakça bölümünde sadece yararlanılan kaynağın yeri verilip geçmek yerine yazarın aldığı tek bir cümle ayrıntısıyla aktarılıyor.
+         <br/>
+         <br/>
+         Romanda zaman ilerledikçe geriye kalan ne insanlar ne de olaylar... Tek bir şey kalıyor, o da Yeruşalim"deki Kaya...
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1377 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11205), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050129111559/http://www.aksiyon.com.tr:80/yazdir.php?id=11205)

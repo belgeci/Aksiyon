@@ -1,0 +1,67 @@
+# Hamallar Derviş yerine, ‘kafa doktoru’na başvurdu
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161021im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161021im_/http://www.aksiyon.com.tr/resim/353/11.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Daha güneş doğmadan İstanbul Yenihamam’daki ‘Amele Pazarı’na gelen hamallar, akşam eve götürecekleri katıksız ekmeğin parasını çıkarabilmek için köşebaşında iş bekliyor. “Ne iş olsa yaparız abi!” deseler de iş yok işte. Malum kriz var...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Saat 12.00’yi vurduğunda sokağın başında eksozu patlamış bir kamyon belirir. O gelen sadece kırmızı külüstür bir kamyon değil umudun ta kendisidir aslında. Kamyon durduğunda ameleler etrafını sarar. Ancak aralarından sadece dört kişi seçilir. Geride kalanlar umutsuzca umudu gözlemeye başlarken, ne iş yapacaklarını bile sormadan kamyonetin tahta kasasına doluşan ameleler Şişli’ye doğru yol alır.
+   <br>
+    <br>
+     Kısa süren yolculuğun ardından kamyonet ara bir sokaktaki iş merkezi önünde durur. Camdan aşağı sarkan kadın, amelelere işlerini söyler. Üçüncü kattaki ofis, Etiler’deki yeni yerine taşınacaktır. Ameleler hemen işe koyulur. Bir yandan da kimin işyerini taşıdıklarını merak ederler. Tabelada “psiko, misiko” bişeyler yazıyorsa da çıkartamazlar. Birkaç saat içinde taşıma işlemi tamamlanır. Hamallardan biri dayanamayıp ofiste çalışan görevlilerden birine sorar; “Bacım afedersin! Bu abla ne iş yapi acaba?” Bayan, hamallara taşıdıkları yerin bir psikolojik hizmetler merkezi, bayanın da bir psikolog olduğunu anlatmanın uzun olduğunu düşünerek “kafa doktoru” olduğunu söyler. Bu sefer hamallar hastalıklarından bahsederek yardımcı olmasını isterler. Görevli bayan, bir psikoloğun aslında ne yaptığını uygun bir dille ifade eder. Yorgunluktan bitkin düşen hamallar birden irkilir, gözleri parlamaya başlar. “Bizim tam da böyle bir gafa tokturuna ihtiyacımız vardı ama paramız yok. Gendimizi çok kötü hissediyoruz” diyerek dert yanmaya başlarlar. Bu duruma hem şaşıran hem de üzülen Oya hanım, “Zengin insanların nasıl tedaviye ihtiyacı varsa sizin de hakkınız var. Onun için biz kendimizden fedakârlık edelim, size destek olalım; tedavi ücretinin üçte birini alalım” der. Ancak bu imkansızdır. Çünkü hamalların cebinde beş kuruş bile yoktur. Bunun üzerine hamallar, “Abla bahşişlerimizi almayalım, sen bize hele bi bak” diye rica ederler. Kafa doktoru, hamalların bu davranışı karşısında çok etkilenir ve ‘bahşiş karşılığı terapi’yi kabul eder.
+     <br>
+      <br>
+       Hamallar incinmiş
+       <br/>
+       <br/>
+       Demli çaylarından birer yudum alıp, sigaralarından da derin bir nefes çektikten sonra dertlerini anlatmaya başlar hamallar. Fotoğrafları çektikten sonra biz de krizzede hamallarla uzman psikoloğu yalnız bırakarak dışarı çıkıyoruz. 45 dakika süren seans sonunda kapı açılır ve hamallar bu sefer tebessüm ederek dışarı çıkar. Küfelerini yüklendikten sonra “Abla senden Allah razı olsun” diyerek Danışman Psikolojik Hizmetler Merkezi’nden ayrılırlar.
+       <br/>
+       <br/>
+       Bu ilginç seansın ardından Uzman Psikolog Alanur Özalp’e tesbitlerini soruyoruz. İçeride neler konuşulduğu etik olarak orada kalacak fakat Alanur Özalp, bir hamalın bile psikolojik yardım alacak kadar incindiğini, dengesini kaybettiğini, yalnız kaldığını, psikolojik olarak güçsüzleştiğini söylüyor. Üst tabaka ayda beş giysi alırken bunu ikiye düşürüyor ama alım gücü durmuyor. Orta tabaka tabakasını değiştirip aşağı doğru kayıyor. Fakat alt tabaka son ekmek parasını bile kaybetmiş aç dolaşıyor. Bir hamalın “Psikolojik sıkıntılarım var, bir yere gitmem gerekiyor, yardım almalıyım” demesi ve gelip görüşme talep etmesi inanılmaz bir olumlu gelişme toplumumuz açısından.
+       <br/>
+       <br/>
+       Ekonomi ve eğitim düzeyi bakımından toplumun en gariban sınıfını temsil eden hamalların böyle birşey yapması hayra mı yoksa şerre mi alâmet? Bundan 5 sene öncesine kadar psikolojik yardım almak için insanlar çok tedirgin oluyorlardı. Bu ihtiyaçları olduğu zaman bile erteliyorlardı, hatta sıkıntıya katlanıyorlardı. Böyle bir yardımı almaktan rahatsız oluyorlardı. “Ben deli miyim ki? Bir psikologla görüşmek için deli olmak gerekir! Ben aklımı kaçırmadım” diyorlardı. Oysa şimdi o bilinç gerçekten yavaş yavaş oluşmaya başlamış. “Ben iş işten geçmeden yardım almalıyım” diyor. Biraz medeni cesaret... Böyle eğitim düzeyi düşük olan grubun “Benim gideceğim doğru yer bir psikolog. Bir hoca değil, bir cinci değil de ben bir psikologdan yardım almalıyım. Yani pozitif bilimden yardım almalıyım” diyebilmesi insanı etkiliyor doğrusu. Psikologlar bu nedenle mesleki açıdan sevinçli.
+       <br/>
+       <br/>
+       Hayra alâmet değil
+       <br/>
+       <br/>
+       Bu açıdan bakıldığında hayra alâmet. Fakat hamalları psikoloğa getirecek sebepler açısından değerlendirildiğinde şerre alâmet. Psikolog Özalp, bu şerrin nedenlerini şöyle şöyle anlatıyor: “Bir kere ekonomik krizin o insanları ne kadar derinden hırpaladığına şahit oldum. Kriz ilk önce en dibe vuruyor. En fakir fakirleşiyor. Bu krize kadar insanlar psikolojik açıdan kendi kendine yardımcı oluyordu ama bu sefer... Bu sefer kriz uzun sürdü. Daha önceki krizler daha kısa sürüyordu ve krizden bir çıkış noktası vardı, hafif bir rahatlama düzeyi vardı veya bir düzlüğe çıkış sözkonusuydu. Biz bir savaş yaşadık, Irak Savaşı. Orada çok yoğun bir ekonomik kriz oldu. Birden başaşağı döndük. Ama kısa sürdü. Savaş ömür boyu sürmedi, bir şekilde bitti. Bu sefer ise krizin tam güçlü olduğu anda bir de üzerine deprem bindi ve deprem tehlikesi hâlâ geçmiş değil. Bugün hâlâ bir dibe doğru gidiyoruz görüntüsü var. Savaştan bile beter! Hiç olmazsa savaşta ben o düşmanın üstüne giderim, boğazını sıkarım, süngümü batırırım ama burada sizin yenebileceğiniz bir düşman yok. O kütlesel bir düşman, global bir düşman. Şu an yapabileceğiniz bişey yok çünkü her yerde kriz var. Ekonomik kriz, elektrik, su, doğalgaz, yiyecek zamlarıyla kurşunlar yağıyor. O kurşunların her biri bir başka yerinizi deliyor, yaralıyor, parçalıyor, kanatıyor. Böyle bir ortamda artık vücut gücüyle çalışan bir hamal bile dengesini kaybetmiş.”
+       <br/>
+       <br/>
+       İnsanlar açlığa daha fazla dayanamaz
+       <br/>
+       <br/>
+       Bir hamalın dengesini kaybetmesi bu kadar önemli mi ki? Ferdi anlamda bakıldığında pek önemli değil gibi ama toplumsal açıdan hamallar bir barometreyi ifade ediyor. Veya oldu, olacak diye beklenen sosyal patlamanın başladığını gösteriyor. Uzman psikolog Alanur Özalp, bu verilerden yola çıkarak bundan sonra olabilecekleri şöyle sıralıyor:
+       <br/>
+       <br/>
+       “Bu durum toplumun eğitim ve kültür düzeyinin aşağı kayması demektir. Sinemaya gidemiyorsunuz, tiyatroya gidemiyorsunuz; kültüre ayıracak paranız olmuyor. Kitap okuyamıyorsunuz, gazete alamıyorsunuz, dergi okuyamıyorsunuz. Yerine göre Tv bile seyredemiyorsunuz. Çünkü elektriğiniz kesik olabiliyor. Eve misafir gelmesini bile istemeyebiliyor insan. Çünkü ikram edeceğiniz pek bir şeyiniz yok. Veya iletişim dediğiniz, dostluk dediğiniz olumlu paylaşımlar ortadan kalkıyor. Daha yabancılaşıyor, daha izole oluyor, daha birbirlerine karşı öfkeli oluyor insanlar veya çok çabuk parlayabiliyorlar. Çok çabuk sinirlenmeyi ve bunun da eyleme dönüşmesini görebiliyoruz. Bu bağlamda hamalın bile psikoloğa ihtiyacı varsa o zaman saldırganlık artabilir. Gasp olayları artabilir. Toplumda suç oranı artar. Çünkü insanlar açlığa daha fazla dayanamazlar. O zaman birtakım dükkanlara, evlere saldırmak gibi toplumsal olaylar bekleyebiliriz. Suça yönelme var, kişisel saldırganlıklar var. Cinsel suçların artması bekleniyor! Yine cinayet, yaralama gibi şiddete yönelik suçlar artacaktır. Bunlar ekonomik refahın en alt düzeyde olduğu tabakada daha çabuk saldırganlığa, kitle hareketlerine dönüşebilir.”
+       <br/>
+       <br/>
+       Ortadirek yıllar önce yokolduğundan en alt tabakada, zeminde yaşananlar devletin dengesini sarsabilir hatta bozabilir. Sınırlarda dolaşan sadece hamallar değil. Psikoloğun telefon santrali almak için gittiği telefoncu esnafı da yardım istemiş. Tedavi için parası olmadığını ama alacağı santralden terapi parası kadar indirim yapabileceğini söyleyerek kendisini tedavi etmesini istemiş esnaf. Görüştüğümüz psikiyatristler ve psikologlar ayaküstü görüşüp, ilaç yazdıkları vatandaşların her geçen gün daha da arttığını anlatıyor. Tünelin ucundaki ışık eğer yakın zamanda görünmeyecekse, devlet hamallardan, asgari ücretlilerden başlamak üzere para yerine hiç olmazsa psikolojik destek hizmeti sağlamalı. Ekonomik bakımdan toplumun en alt tabakasını oluşturan hamallar Bakan Derviş yerine “kafa doktoru”na başvuruyorsa bu oturup üzerinde düşünülecek bir durum. Kısaca söylemek gerekirse vatandaşın kafasını bozmayın! Yoksa...
+       <br/>
+       <br/>
+       E—mail: mydurukan@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12867), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161021/http://www.aksiyon.com.tr:80/detay.php?id=12867)

@@ -1,0 +1,91 @@
+# Dünya sağır, onlar şampiyon
+
+*Behram Kılıç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050331001208im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050331001208im_/http://www.aksiyon.com.tr/resim/527/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İşitme Engelliler Futbol Takımı 8 sene önce Olimpiyat Şampiyonu olmasına rağmen sesini Türk kamuoyuna duyuramamıştı. Hatta hak ettikleri halde ödül dahi alamamışlardı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Geçtiğimiz günlerde bir kez daha olimpiyatların yolunu tuttular. Şampiyonların bu sefer iddiaları hiç yok...
+   <br>
+    <br>
+     1990’ların ikinci yarısı, A Milli Futbol Takım’ının elde ettiği başarılarla Türk futbolunun yükseliş trendine girdiği yıllardı. Hepimiz, gol dahi atamasak, 1996’da İngiltere’de yapılan Avrupa Futbol Şampiyonası’na katılmanın zafer sarhoşluğu içerisindeydik. Avrupa bu ilk buluşmamızda Türklerin “ayak sesini” duymuştu. 98 Dünya Kupası’na katılamadık; ama olsundu. 2000 yılında yine Avrupa’daydık, üstelik G.Saray UEFA Kupası’nı müzesine götürmüştü. 2002’de gelen dünya üçüncülüğü ise yükseliş grafiğimizi taçlandırmıştı.
+     <br>
+      <br>
+       1996-2002 yılları arasında futbolda alınan başarılar bunlar. Ama o yıllarda futbolda elde edilen bir Olimpiyat Şampiyonluğu var ki, bunu hatırlayanların sayısı belki de bir elin parmağını geçmez... 1997 yılında, Danimarka’nın başkenti Kopenhag’da İşitme Engelliler Olimpiyatı düzenlenir. Türkiye, oyunlara dört branşta 58 sporcuyla katılır. İşitme engelli futbol takımımız hiç yenilmeden ve berabere kalmadan finale yükselir. Rakibi Fransa’dır. Yaklaşık 2 bin Türk seyircinin izlediği Parken Stadı’ndaki bu karşılaşmayı Türkiye 3-1 kazanır ve Olimpiyat Şampiyonu olur. Takımımızı ilk kutlayan kişi, Kopenhag Büyükelçisi Turhan Moralı olur.
+       <br>
+        <br>
+         Asıl hikâye ise bundan sonra başlar. Sporcularımız ertesi gün, elde ettikleri başarının kamuoyuna nasıl yansıdığını görmek için bütün gazeteleri satın alır. Sadece birinde (Hürriyet) biraz büyükçe kullanılan bir haber vardır. Onun dışında medyamız birkaç kutucukla olayı adeta görmezden gelir. Sporcularımız bu başarıya medyanın değer vermemesine oldukça alınır. Kendi kendilerini “Nasılsa hakkımızı devletimiz verir.” diye teselli ederler. Zira, 1993 yılında çıkan yasaya göre, olimpiyatlarda altın madalya alan sporcuları devlet ev ve arabanın yanında 80 cumhuriyet altınıyla ödüllendiriyordur. Üstelik evler, yapılan anlaşma gereği Emlak Bankası konutlarından tahsis ediliyordur.
+         <br>
+          <br/>
+          Hediye olarak kol saati
+          <br/>
+          <br/>
+          Günler, haftalar geçer. Bir gün takım, dönemin Cumhurbaşkanı Süleyman Demirel’in makamına çıkar. Cumhurbaşkanımız makamını temsilen onlara birer kol saati hediye eder. Dönemin Spor Bakanı Yücel Seçkiner’in talimatıyla da 20’şer cumhuriyet altını sporculara dağıtılır.
+          <br/>
+          <br/>
+          Normal sporcuların aldığı ödülü bekleyen sporcular, 20 cumhuriyet altını ve kol saati hediyesi alınca “şoke” olur. 1993’teki kanun Olimpiyat Oyunları’nda başarılı olan sporculara verilecek ödülleri sıralarken “engelli” veya “normal” diye ayrım yapmıyordur. Yetkililer, ödüllerin az olması hususunda sporculara şu açıklamayı yapar: “Sizin için özel bir madde yok.” Ellerinde Olimpiyat Şampiyonu olduklarına dair resmi belgeler bulunduğu halde dertlerine kimse çare olmaz.
+          <br/>
+          <br/>
+          Toplanıp bir karar verirler. Haklarını mahkemede arayacaklardır. Devlete dava açarlar. Bu işlerden anlayan bir avukat bulurlar Ankara’dan. Bu kişi Olcay Mis’tir. Dava başlar ve aylarca sürer... Ama bir neticeye varılmaz. Hatta avukat Mis, bu işi fazla kurcalamayın bile diyerek onları uyarır. Bir kez daha toplanırlar. Çevreden, Avrupa İnsan Hakları Mahkemesi’ne (AİHM) gitmeleri tavsiye edilir. Gerisini, olayın tanıklarından takımın teknik direktörü Zekai Yılmaz şöyle anlatıyor: “Biz milletimizi, bayrağımızı temsil etmenin onurunu yaşadık. Türkiye için kazandık. Türkiye için oynadık. Türkiye için yola çıktık. Türkiye’yi mahkum edecek bir davayı açamazdık. Sineye çektik. Bazı kesimlerin baskılarına rağmen AİHM’ye gitmekten vazgeçtik.”
+          <br/>
+          <br/>
+          Konuyla ilgili olarak Gençlik Spor Genel Müdürü Mehmet Atalay, geçmişe dönük ödül vermediklerini söylüyor. Ancak sporcuların mahkemeyi kazanmaları halinde onlara vaat edilen ödülleri verebileceklerine dair açık kapı bırakıyor. İşitme engelli futbolculara, Genel Müdür Atalay’ın söylediklerini aktardığımızda, avukat tutup bu işlerin peşinde koşturacak paraları olmadığını dile getiriyorlar.
+          <br/>
+          <br/>
+          Ödül yönetmeliği değişti
+          <br/>
+          <br/>
+          Kopenhag Parken Stadı’nda sessiz sedasız elde edilen şampiyonluğun üzerinden tam 8 yıl geçti. Türkiye İşitme Engelliler Futbol Takımı şu günlerde Avustralya’nın Melbourne kentinde... 20. İşitme Engelliler Olimpiyatları için bu ülkeye, futbol takımının dışında atletizm, güreş, yüzme, basketbol, masa tenisi, voleybol ekiplerimiz Türkiye’yi temsilen gitti. Ayın 5’inde başlayan İşitme Engelliler Yaz Olimpiyat Oyunları 16 Ocak’ta sona eriyor. Kafilede toplam 136 sporcu ve yönetici bulunuyor.
+          <br/>
+          <br/>
+          Futbol takımının başında yine Zekai Yılmaz var. Kadro 20 futbolcudan oluşuyor. Ödül yönetmeliği Gençlik Spor Genel Müdürü Mehmet Atalay’ın girişimleriyle bir netliğe kavuştu. Atalay, daha önce hiç ödül verilmeyen engelli sporcuların normal sporcuların üçte biri oranında ödül almalarını geçtiğimiz temmuz ayında çıkarttıkları yönetmeliğe ekleyerek bu alanda geçmiş yöneticilere ait bir yanlışı kısmen de olsa düzeltti.
+          <br/>
+          <br/>
+          2004 yılında Atina’da yapılan Uluslararası Paralimpik Oyunları’nda  25 metre atışta altın madalya ve 50 metrede bronz madalya kazanan bedensel engelli Korhan Yamaç, bu iki madalyasının karşılığı olarak 540 milyar lira değerinde 4 bin cumhuriyet altını aldı. Bu olay engellileri oldukça sevindirdi. Genel Müdür Mehmet Atalay ayrıca engellilere yerinde destek vermek için Avustralya’ya gidecek.
+          <br/>
+          <br/>
+          Olimpiyat takımı 5 yıl öncenin oyuncularından kurulu
+          <br/>
+          <br/>
+          Ancak İşitme Engelliler Futbol Takımımızın bu olimpiyatlarda ilk üçe girmesi pek mümkün görünmüyor. Çünkü 2000 yılından beri Türkiye’de İşitme Engelliler Futbol Ligi lağvedilmiş durumda. Teknik Direktör Zekai Yılmaz, 20 kişiden oluşturduğu takımı ağırlıklı olarak 2000 yılındaki 15-16 yaş Genç Milli Takımı oyuncularından oluşturmuş. Bu çocuklar şimdi 20-21 yaş civarında. 1997 yılındaki kadrodan ise sadece 3 oyuncu takımda bulunuyor. Türkiye’de İşitme Engelliler Futbol Liginin lağvedilmiş olması takım için büyük bir handikap. Maç tecrübesi olmayan oyunculardan kurulu bir ekiple yola çıktığını belirten Zekai Yılmaz, “Buna rağmen elimizden geleni yapacağız. Avustralya’ya gitmek için Macaristan ile eleme oynadık. Onları geçmeyi başardık. Derece belki zor ama biz elimizden geleni yapacağız.” diyor.
+          <br/>
+          <br/>
+          Engelliler olimpiyatlara Edirne, Balıkesir ve Antalya’da kamp yaparak hazırlandı. Teknik Direktör Yılmaz, Edirne’deki kamp çalışmalarında ancak 11 oyuncuyu bir araya getirebildi. Antalya’da ise 20 kişiye ulaştı. Burada 28 hazırlık maçı yapmayı planlamasına rağmen 15 günlük kamp dönemi boyunca sadece 4 takımla hazırlık maçı oynanabildi. “Amatör küme takımları ve lig takımları taleplerimize olumlu cevap vermedi. Yabancı takımlara da karşılaşma yapma teklifinde bulunduk. Özellikle Rus takımları bize önce sıcak baktı. Daha sonra, ‘İşitme engellilerden kurulu bir takıma yenilebiliriz.’ düşüncesiyle olsa gerek, maç yapamayacaklarını söylediler.” diyor.
+          <br/>
+          <br/>
+          İşitme Engelliler Ligi’nin neden lağvedildiğini sorduğumuz Federasyon Başkanı Oktay Aktaş ise çeşitli turnuvalar düzenlediklerini söyleyerek savunmaya geçiyor. Olayın asıl sebebi ise “Türkiye’de futbolu Futbol Federasyonu yönetir” düşüncesi. Futbol Federasyonu, engelliler için bir lig oluşturmak gibi bir görevinin olmadığını söylüyor. 2000 yılında görevde bulunan Gençlik Spor Genel Müdürlüğü yetkilileri İşitme Engelliler Federasyonuna yeterince bütçe ayırmadığı için lig lağvediliyor.
+          <br/>
+          <br/>
+          Lig şubatta başlıyor
+          <br/>
+          <br/>
+          Türkiye’de şu an 73 tane işitme engelliler futbol takımı bulunuyor. Federasyon Başkanı Aktaş, önümüzdeki şubat ayında bu takımlardan başarılı olma durumlarına göre birinci, ikinci ve bölgesel lig oluşturacaklarını belirtiyor. Gençlik Spor Genel Müdürlüğü’nün 1,3 trilyon TL bütçe ayırdığı, 600 milyar dolayında da ek ödenek verdiği İşitme Engelliler Federasyonu’nun sadece futbolda değil, hemen hemen bütün branşlarda faaliyet gösterdiğinin altını çizen Aktaş, zamanla her şeyi rayına oturtacaklarını iddia ediyor.
+          <br/>
+          <br/>
+          1997 yılında Türkiye’ye Olimpiyat Oyunları’nda futbolda ilk kez altın madalya getiren Zekai Yılmaz’ın teknik direktörlüğünü yaptığı Kadir, Şaban, (Yılmaz) Ahmet, Selahattin, Birol, Ali, Hakan, Burhan, Muhammet, Hasan, Hüseyin’den kurulu İşitme Engelliler Futbol Takımının başarısı bugün hâlâ aşılabilmiş değil. Yeni takımın Avustralya’da dereceye girmesi zor görünüyor. Ancak, onların 8 sene önce elde ettiği başarıyı kutlamamak da elde değil.
+          <br/>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=19357&yorum=2703), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050331001208/http://www.aksiyon.com.tr:80/detay.php?id=19357&yorum=2703)

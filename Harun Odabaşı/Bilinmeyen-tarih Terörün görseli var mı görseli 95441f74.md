@@ -1,0 +1,95 @@
+# Terörün görseli var mı görseli
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   11 Eylül Saldırısı, HSBC Bank ve İngiliz Konsolosluğu'nun bombalanması ve Beslan'daki okul katliamının ‘görsel dehşet’ boyutu çok yüksekti. Eylem planları medya dikkate alınarak gerçekleşti.
+   <br>
+    Hedef kitle, müşteri memnuniyeti, ürünün ya da haberin etkileme gücü, imaj oluşturmak, marka olmak, farklılık meydana getirme, görünür kılmak, akılda kalıcılık vb... Reklam ve halkla ilişkiler şirketleri, yaptıkları mutad toplantılarda aşağı yukarı bu kavramlar etrafında dolaşarak müşterilerinin ürünlerini en iyi şekilde kamuoyuna sunmaya çalışır.
+    <br/>
+    <br/>
+    Sanılanın aksine kaynakların bol, pazarın kıt olduğu bu piyasada tutunmak zordur. Acımasız şartlar modern çağların cazip mesleğini büyük bir rekabetin içine sokuyor. Çünkü bir sürü sıra dışı reklam ya da tanıtım kampanyasının arasından sıyrılarak kendi ürünlerini 'en doğru' biçimde öne çıkartmak sadece geniş bütçe imkanlarına bakmıyor; aynı zamanda üretken fikirlere ve insanlara ihtiyaç duyuyor. Bundan olsa gerek, reklam sektöründe en marjinal, en sıra dışı, en uçuk kaçık tiplere rastlamak mümkün...
+    <br>
+     <br>
+      Eylem planları medyaya göre yapılıyor
+      <br>
+       <br>
+        Reklamcıların her gün kafa yorduğu kavramları küresel terörün aktörleri de çok yakından takip ediyor. Aynı soruları sorarak farklı alanlarda faaliyet gösteriyorlar. Marjinallik iş teröre bulaşanlara gelince çok farklı bir anlama bürünüyor. Teröristler reklamcılar gibi ‘Hedef kitleyi nasıl yakalayabilirim?’ sorusunun cevabını bulduktan sonra operasyon safhasına geliyorlar. 11 Eylül saldırısı, HSBC Bank ile İngiliz Konsolosluğu'nun bombalanması ve Beslan'daki okul katliamında medyaya verilen görsel malzeme zengin materyallere sahipti: İnsan cesetleri, devletin çaresizliği, yüksek sayıda can kaybı. İkiz kulelerin yıkılışı, insanlık tarihinin en görkemli terör eylemi oldu. ABD'nin Afganistan ve Irak'a asker çıkarmasını tetiklemesi ile ikiz kule saldırısı bu açıdan tam bir milat.
+        <br>
+         <br/>
+         İletişimciler, Hollywood senaristlerine taş çıkartacak seviyedeki terör organizasyonlarının vasat insanlar tarafından hazırlanamayacağını, planlamanın iletişimden anlayan deha seviyesinde kişileri gerektirdiğini düşünüyor. Her üç saldırının başlangıç saati ve mekanı kullanılan mekan medyanın canlı yayın yapmasına uygundu. Yani eylem planlanırken medya tasarımın bir parçası olarak hesaba katılıyor. Saldırı görüntüleri kamuoyuna ulaştırılmasaydı ülke yönetimleri ve halk üzerinde aynı etkiyi yapması mümkün değildi. Medya bu haliyle eylemin reklam edilmesini sağlıyor.
+         <br/>
+         <br/>
+         Yaklaşık bir sene önce televizyonlarda Boğaz Köprüsü üzerinde intihar eylemleri çok sık haber olurdu. Bir süre sonra vatandaş intihar eylemlerine o kadar alıştı ki köprüden atlamayanları dövmeye veya 'atla atla' diye tezahürat yapmaya başladı. Televizyon kanalları olayın şov boyutunun ön plana çıktığını, başkalarına örnek teşkil ettiğini görünce intihar eylemlerini yayınlamama konusunda prensip kararı aldı. O günden sonra Boğaz Köprüsü'nde intihar girişimleri yok denecek kadar azaldı. Medyanın dehşeti bütün boyutları ile afişe etmesi terörün elini daha da güçlendirdiği gibi etki yapmak isteyen terör örgütlerine de destek vermiş oluyor.
+         <br/>
+         <br/>
+         Marjinal Reklam Kreaktif Direktörü Abdürrahim Sönmez, Boğaz Köprüsü eylemlerinde olduğu gibi medyanın haberi verirken teröristlerin ekmeğine yağ sürüldüğünü kabul ediyor. Ancak bu sebeple haber verme özgürlüğünün kısıtlanması halinde sansürün devreye gireceğini, bu durumun ise ilkinden daha kötü sonuçlar doğurabileceğini savunuyor. Basın Konseyi Başkanı Oktay Ekşi ise medya-terör ilişkisinin hukuk seviyesinde henüz olgunlaşmadığını, tıpkı uzay hukuku ve internet hukuku gibi boşlukların olduğunu, zaman içerisinde bu yönde çalışmaların ortaya çıkabileceğini belirtiyor.
+         <br/>
+         <br/>
+         Şiddetin dozu sürekli artıyor
+         <br/>
+         <br/>
+         Bundan 20 sene önce pembe idealler uğruna pusuya yatıp saldırı yapanlar veya sokaklarda göğüs göğüse kavga edenlerden, teknolojinin her türlü imkanından yararlanarak masum halkı, hatta çocukları öldürecek kadar işi azıtan ölüm makinalarına nasıl gelindi? Şiddetin dozu neden sürekli yükseliyor? Marka Reklam Ajansı Yönetim Kurulu Başkanı Hulusi Derici'ye göre, görsel şovu ön plana alan eylemlere gidilmesinin en önemli sebebi normal şiddetin kanıksanması. Televizyonlar o kadar çok ölü ve yaralı görüntüsü veriyor ki, sıradan terör eylemleri insanların hafızasında kalmadığı gibi haber sıralamasında arka plana düşüyor.
+         <br/>
+         <br/>
+         Hulusi Derici'ye göre eskiden problemler kıtlıktan çıkıyordu, şimdi bolluk problem. Her şeyden bol miktarda var. Gıda markası, blucin, otomobil, televizyon ne ararsan bulabiliyorsun. Örneğin o kadar otomobil markası var ki bunların arasından kendi markanı ön plana çıkarmak, görünür kılmak için çok farklı tanıtım metotları denemek zorundasın: "Normal olmak dikkat çekmiyor, çünkü benzerlerin çok fazla. Reklamlara bakın en sıra dışı olan akılda kalıyor ve müşteriyi etkiliyor. Terör için de aynı durum söz konusu. Dünyanın dört bir tarafında o kadar çok terör eylemi oluyor ki artık teröristler uluslararası çapta mesaj vermek istediklerinde görünür olmak için en sıra dışı eylemleri gerçekleştirmek istiyorlar. Bu anlamda teröristin anormal olması gerekiyor. HSBC ya da İngiliz Konsolosluğu saldırısını herkes biliyor ama sıradan terör eylemlerini kimse hatırlamıyor."
+         <br/>
+         <br/>
+         Terör bir iletişim metodu
+         <br/>
+         <br/>
+         Terörün tasvip edilmese de bir iletişim yolu olduğunu söyleyen Abdürrahim Sönmez, terörün amacında insan öldürmenin dışında dikkat çekmek yattığını, televizyonlarda ölüm haberleri kanıksandıkça dehşetin dozunun arttığını söylüyor: "İşin içine devletler girmiş durumda. Eylemlerin sofistikeliğine baktığımızda müthiş bir zeka gerektiriyor. Beslan'daki katliamda okula bombaların inşaat döneminde koyulduğunu öğrendiğimizde eylemin çok önceden planlandığını ve uygun şartları beklediğini anlıyorsunuz. Eskiden terör eylemleri askeri hedeflere yapılırdı. Şimdi ise sivillere yöneldi. Çünkü askerin hayatını kaybetmesi doğaldır ve feda edilebilir. Sivil ise feda edilemez. Terörün ahlakı yoktur bu açıdan; doğasına uygun hareket ediyor. Terör çocuklara kadar düştü. Bu saldırı kimsenin artık."
+         <br/>
+         <br/>
+         "Terör eyleminin amacı şöhrete kavuşmak ve korku salmak ise başarılı kabul edilebilir" diyen Hulusi Derici, "Ancak Beslan eyleminden sonra da görüldü ki Müslümanlar kendi aralarında ılımlı ve radikal kavramlarını tartışmaya başladı ve bu bir ayıklamaya sebep olabilir. Terör eylemi bu yönden hiç beklemedikleri bir ayrışmayı da tetikleyebilir" diyor. Abdürrahim Sönmez ise amaçları açısından son eylemi başarılı bulmuyor. Çeçenlere sıcak bakanların bile Beslan'ı gördüklerinden sonra soğuduklarını, çünkü çocuklara saldırının savunulamayacağını belirtiyor.
+         <br/>
+         <br/>
+         Terör eylemlerini bugünden yarına engellemek mümkün gözükmese de belki terörün medya ayağı üzerinde durularak bazılarının iştahı kursağında bırakılabilir. Boğaz Köprüsü'nün bunalım takılanların uğrak yeri olmaktan çıkması, sorumlu medya anlayışının bir örneği. Bu örneği geliştirmek çok mu zor? Yoksa önce medya terörünün önüne geçmek mi gerekiyor?
+         <br/>
+         <br/>
+         MARKA REKLAM AJANSI YÖNETİM KURULU BAŞKANI HULUSİ DERİCİ:
+         <br/>
+         TERÖR, GÖRSELLİĞİ VE ETKİ GÜCÜNÜ BİRLİKTE DÜŞÜNÜYOR
+         <br/>
+         <br/>
+         Terörün amacı, ölüm korkusu vasıtasıyla, vermek istediği mesajı daha fazla insana iletmek. Terörist için yaptıkları eylemin sadece görsellik yönü olması yetmez. Haber değeri olabilecek bir özelliğinin de olması lazım. Geçen haftalarda Irak'ta 60 insan öldürüldü. Ancak o gün haber ajanslarında ve gazetelerde birinci haber Madonna'nın bir başka bayan sanatçıyı dudağından öpmesi idi. Irak'taki dehşet ise ikinci haberdi. Terör eylemlerinde bazen görsellikten ziyade etki gücü ön plana çıkabiliyor. Örneğin Sinagog saldırısında medyanın kullanabileceği görsel malzeme pek yoktu. Ama bütün dünyada etki gücü çok yüksekti. Çünkü bu topraklarda Musevi, Hıristiyan ve Müslümanlar yüzyıllar boyunca huzur içinde yaşamışlar. Hatta Museviler Avrupa'da zulümden kaçarak Osmanlı'ya sığınmış. Son yıllarda Türkiye ile İsrail arasında ekonomik ve siyasi iş birliği de gelişme sürecine girmişken Sinagog'a yapılan saldırı çok etkili olabildi. Terör artık görsellik ve etki gücünü birlikte düşünüyor. Tarihçi Emin Oktay'ın okul kitabında Osmanlı'nın Sırbistan'a saldırmasına bir Sırp'ın bir yeniçeri askerini öldürmesinin yol açtığını yazar. Yani arka plandaki birikim mahfuz kalmak şartıyla küçük bir hadise dünya çapında büyük değişikliklerin sebebi olabiliyor. 11 Eylül'de ikiz kulelere yapılan saldırılarda ölen insan sayısı belki trafikte günde kaybedilen insan sayısı kadardır. Ancak bu saldırı ABD'nin Afganistan ve Irak'a yaptığı askeri çıkartmanın sebebi oldu.
+         <br/>
+         <br/>
+         OKTAY EKŞİ (BASIN KONSEYİ BAŞKANI):
+         <br/>
+         TERÖR–MEDYA İLİŞKİSİ TAM SORGULANMADI
+         <br/>
+         <br/>
+         – 11 Eylül, HSBC, İngiliz Konsolosluğu, ve yakın zamandaki Beslan saldırısı gösterdi ki terör etki gücünü artırmak için görsel malzemeyi kullanıyor. Medyaya kullanabileceği çok iyi materyal sunuyor. Terörün medyayı mesajını iletmede bir araç olarak kullanmasının önüne geçmek için uluslararası çapta bir otokontrol sistemi getirmek mümkün mü?
+         <br/>
+         <br/>
+         Sorunuz çok ilginç, ama doğrusu haber verme ve haber alma özgürlüğü ile taban tabana çelişen bir soru. Ben de kabul ediyorum; medya haberi bütün çıplaklığı ile aktarırken, terörün vermek istediği mesaja aracılık ediyor. Tam bu noktada kamusal yarar ilkesinden hareketle haber verme ilkesi göz ardı edilebilir mi? Benim bildiğim kadarı ile bu soruya net bir cevap veren olmadı. İyi niyetli bir yaklaşım olsa bile yasa yolu ile böyle bir düzenlemeye gidilmesi sansüre sebep oluyor. İngiltere'nin eski başbakanı Margaret Thatcher, IRA örgütünün terör eylemlerini yayınlamaya sınırlama getirmek istedi, ama bir sonuç alamadı. Aynı uygulama farklı açıdan İrlanda için de söz konusu oldu. Sonuç aynı. Kısıtlayıcı önlemlerle bir yere varmak mümkün olmuyor. 15–20 Kasım 2003 bombalama eylemleri sonrasında kurumlarını temsilen 40 basın mensubu bir araya gelerek terör eylemlerinin nasıl verilmesi gerektiği hususunda tavsiyelerde bulunmuştuk. Haber verme özgürlüğünün yasal yolla kısıtlamaya gidilmesinin çok tehlikeli boyutları var. Medya kendi arasında alacağı bir karar ile denetleme yapabilir. Bağlayıcılığı olmayan bu kararı birisi uygularken diğeri uygulamazsa tekrar aynı noktaya gelinir. Yani demokrasilerde net bir cevabı yok bunun.
+         <br/>
+         <br/>
+         – Basın Konseyi bir otokontrol sistemi için teklif veremez mi?
+         <br/>
+         <br/>
+         Türk Silahlı Kuvvetleri 1990'ların ortalarında Kuzey Irak'a büyük bir askeri operasyon yaptığında yabancı basında, özellikle İngiliz ve İtalyan basınında Türkiye'ye ağır hakaretlerde bulunmuşlardı. Yalan ve iftira dolu suçlamalarının hiçbirisi çıkmadı. Biz bu konuyu Dünya Basın Konseyleri Birliği'ne götürdük. 1998 yılında İstanbul'daki toplantıda bu tür iftiraların önüne geçilmesi konusu uzun uzun tartışıldı. Ama ABD'nin başını çektiği bir grup tazminattan korktukları için düzenlemeden kaçındılar. İngiltere ve Fransa da ABD'yi destekledi. Tabii bu teklif terörü içermiyordu. Sizin öneriniz ilk defa benim karşıma geliyor. Önemli olduğunu kabul ediyorum. Ama bu konuda çalışma hatırlamıyorum. Tıpkı uzay hukuku, internet hukuku gibi henüz olgunlaşmış bir hukuk sistemi değil. Belki zamanla olabilir.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1031 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=15471), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050216181500/http://www.aksiyon.com.tr:80/yazdir.php?id=15471)

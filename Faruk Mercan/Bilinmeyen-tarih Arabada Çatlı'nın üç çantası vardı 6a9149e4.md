@@ -1,0 +1,87 @@
+# Arabada Çatlı'nın üç çantası vardı
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050122213239im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050122213239im_/http://www.aksiyon.com.tr/resim/517/28.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1970’li yılların hızlı sol eylemcilerinden Önder Aktosun, yıllar sonra sağ kulvarın en etkili isimlerinden Abdullah Çatlı ile dost oldu. Aktosun-Çatlı dostluğu, Çatlı’nın Susurluk kazasında öldüğü güne kadar sürdü.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Abdullah Çatlı ile Önder Aktosun, 1992'de Florya'da Bilge Kağan kolejinin önünde tanıştılar. İkisinin de kızları burada okuyordu. Abdullah Çatlı, kendisini Mehmet Özbay olarak tanıtınca Aktosun'un kızı, "Baba galiba Mehmet Bey, Selcen'in üvey babası. Çünkü Selcen'in soyadı Çatlı" dedi. Avukat Önder Aktosun, 1970'li yılların hızlı sol eylemcilerinden biriydi. Çatlı soyadının ne anlama geldiğini gayet iyi biliyordu.
+   <br>
+    <br>
+     Çatlı, 1992'de bir gün Aktosun'un bürosuna gelerek, "Artık gerçek ismimle ortaya çıkmak istiyorum. Yargı önüne çıkarsam cezaevinde ne kadar yatarım?" diye sordu. Çatlı, Haluk Kırcı'nın yedi kere idam cezası aldığı 1978'deki Bahçelievler katliamı davasından dolayı 1980'den beri gıyabi tutuklu olarak aranıyordu. O akşam Ankara Bahçelievler'de Türkiye İşçi Partili yedi gencin ölüm emrini vermekle suçlanmaktaydı. Avukat Aktosun, ona "Yargı önüne çıkarsan kısa sürede cezaevinden çıkacağını söyleyemem" cevabını verdi.
+     <br>
+      <br>
+       1992'de başlayan Aktosun-Çatlı ilişkisi Susurluk kazasının meydana geldiği 3 Kasım 1996'ya kadar sürdü. Bu zaman diliminde birbirlerine aile ziyaretleri de yaptılar. Hatta Çatlı'nın ölümünden sonra Aktosun, eşi Meral Çatlı ve iki kızının avukatlığını üstlendi. Bu yüzden, üzerinden tam sekiz yıl geçen Susurluk kazasından bugüne hâlâ süregelen tartışmalar konusunda Aktosun, bazı önemli bilgilere sahip bulunuyor.
+       <br/>
+       <br/>
+       Çatlı'nın infazına karar verilmişti zaten
+       <br/>
+       <br/>
+       Aktosun ilk olarak, "Susurluk kazası olmasaydı da Çatlı ölecekti. Çünkü infazına karar verilmişti" diyor. Hatta, kazadan bir süre önce Çatlı'nın oturduğu Florya'daki Füze Sokak’ta, "bomba ihbarı var" gerekçesiyle evlerin kapısına teker teker gidilip kimlik tespiti yapılmış. Aktosun, "Bu bir deşifre operasyonuydu. Amaç Meral Çatlı ve iki kızının kimliklerini deşifre etmekti." diyor. Çatlı'nın her an ortadan kaldırılabileceğini bildiği için çelik yelek kullandığını belirtiyor: "Önceleri daha kalın bir çelik yelek giyiyordu. Sonradan daha hafif ve incesini kullandı. Susurluk kazasında öldüğünde bu ince çelik yelek üstündeydi."
+       <br/>
+       <br/>
+       Son günlerin en tartışmalı konularından biri olan Çatlı'nın çantası konusuna geliyoruz. Kazada yaralı olarak kurtulan Şanlıurfa eski Milletvekili Sedat Edip Bucak, sekiz yıl sakladığı Çatlı'nın çantasındaki belge ve fotoğrafları İstanbul'da mahkemeye sundu. Aktosun, "Çatlı'nın bir tane değil, üç çantası vardı. Kızı, 'Babamın günlüğü vardı. Onu da çantasında taşırdı' diyor. Bu günlük de ortaya çıkmadı" şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Abdullah Çatlı'nın henüz ortaya çıkmayan günlüğünde, 1980'lerin başında Fransa'da Ermeni terör örgütü ASALA'ya karşı görev alması, 1990'da İsviçre'deki cezaevinden kaçıp Türkiye'ye gelmesi, geldikten sonra altı yıl boyunca hangi olaylarda ve ilişkilerde yer aldığı gibi konuların bulunup bulunmadığı merak ediliyor. Önder Aktosun, onun 1990'da Türkiye'ye gelişini şöyle anlatıyor: "Zamanın cumhurbaşkanı Turgut Özal, o tarihlerde özel bir birim kurmak istiyor. Özal'a, 'Çatlı'yı getirtelim' diyen kişi ANAP milletvekili Alpaslan Pehlivanlı. Özal 'tamam' deyince Çatlı cezaevinden kaçırılıyor. Hatırlarsanız Özal, Naim Süleymanoğlu'nu da benzer bir operasyonla Türkiye'ye getirtti. Çatlı o gün cezaevinden çıkarılırken, eşi Meral Hanım 500-600 metre mesafede arabanın içinde kendisini bekliyor. Çatlı, Atatürk Havalimanı'na geldiğinde VİP salonundan askerî elbise ile içeri alıyorlar. Meral Hanım ve çocukları ise, nüfus cüzdanları bile olmadığı halde  Kapıkule'den karayolu ile giriş yapıyor. Abdullah Çatlı 1994'e kadar hep maddi sıkıntı içindeydi. Aldığı görevler, yoğun olarak 1994'ten itibaren başladı."
+       <br/>
+       <br/>
+       Takipteki beyaz kasalı Mercedes
+       <br/>
+       <br/>
+       Aktosun'a göre, Susurluk'ta 3 Kasım 1993 günü meydana gelen kazaya, arkadan gelip onları sıkıştıran beyaz kasalı bir mercedes sebep oldu: "Sedat Bucak'ın şoförünün kullandığı ve korumaların da içinde bulunduğu arabayı önden gönderiyorlar. Susurluk'un ilerisinde Ulusoy veya Varan tesisleri var. Korumalar orada yer hazırlayacak ve orada yemek yiyecekler. Dolayısıyla Hüseyin Kocadağ'ın sürdüğü ve içinde Çatlı, Bucak ile Gonca Us'un bulunduğu araba geride tek kalıyor. Susurluk'u geçince arkadan bu beyaz Mercedes çıkıyor ve bunları sıkıştırıyor. Hüseyin Kocadağ da arabanın hızını arttırıyor. Kazanın sebebi arkadan gelen bu arabanın sıkıştırmasıdır. Böylece Mercedes önüne çıkan kamyona çarpıyor. Şimdi arkadan gelen bu beyaz Mercedes araçta vahim silahlar var. Kazadan sonra, Çatlı'nın içinde bulunduğu arabanın bagajını açıp bu silahları oraya koyuyorlar. Beyaz Mercedes'teki kişiler, oradan ayrılmadan kaza yapan arabanın sol arkasında can çekişen Abdullah Çatlı'nın fotoğrafını da çekiyorlar. Bu fotoğraf, Susurluk kazasının ertesi günü gazetelerde yayınlanan fotoğraftır."
+       <br/>
+       <br/>
+       Acaba gerçekten de arabanın bagajından çıkan silahlar, kazadan sonra mı oraya kondu? Kazadan sonra Susurluk Jandarma Karakol Komutanı Fatih Kadir Çelik, Susurluk Savcısı'na verdiği ifadede aynen şöyle diyor: "Kaza yapan arabanın ön iki koltuğunun arasında bulunan bölmenin yanında şoför tarafında bir adet Baretta marka tabanca, arka koltukların orta kısmında bulunan kol dayama bölgesinin içinde bulunan sürgülü çekmecenin içinde ise 22 kalibre Baretta tabanca ile yanında iki adet susturucu çıktı. Bagajdaki Nike spor çantanın içinde ise yüz adet M-16 mermisi ile 13 adet Biksi (BKC) mermisi çıktı. Arabada, koltukta ve yerde üç tabanca ile iki MP-5 tabanca alındı. Toplam olarak 5 adet tabanca, iki adet MP-5 ve iki adet susturucu çıktı."
+       <br/>
+       <br/>
+       Topal'ı kumar işine bir Yahudi soktu
+       <br/>
+       <br/>
+       Önder Aktosun'un iddiası doğruysa, arabanın içinden çıkan iki Baretta dışındaki silahları oraya arkadan gelen kişiler koymuş oluyor. Aktosun, 1996 Temmuz'unda öldürülen "Kumarhaneler Kralı" lakaplı Ömer Lütfi Topal hakkında da ilginç açıklamalar yapıyor. Buna göre Topal'ı kumar işine ünlü bir Yahudi kumar baronu soktu: "Topal, 1960'larda İstanbul'da Fındıkzadeli Muhterem'in yanında çalışan sıradan bir insan. Bir gün birilerinin kışkırtmasıyla Muhterem'i bıçakla öldürüyor. Muhterem, o zamanlar hatırı sayılır meşhur bir insan. Üstelik babası ağır ceza reisiydi. Topal, ilk defa bu olayla isim yapıyor. Daha sonra uyuşturucu kaçakçılığı suçundan 1980'lerde Amerika'da cezaevinde kalırken bir Yahudi ile tanışıyor. Topal, cezaevinden çıkınca bu Yahudi onu Las Vegas'a götürüyor, kumarhaneleri gösteriyor. Topal kumar işini ilk orada görüyor. İstanbul'da bu işe başlarken de kullandığı para İsrail sermayesiydi. Ama daha sonra Topal, Yahudi patronları gücendirdi. Onların paralarının üstüne yattı."
+       <br/>
+       <br/>
+       Aktosun, Topal'ı İsrailli kumar baronlarının ortadan kaldırdığını ima ediyor. Benzer bir iddiayı mahkemede Susurluk'un ünlü isimlerinden Sami Hoştan da dile getirmişti. Hoştan, "Topal'dan 45 milyon dolar alacaklı Yahudiler vardı" demişti. Ancak Topal'ın Yahudilerle ilişkisi bakımından bilinen iki somut olgu var. Bunlardan birincisi İstanbul'daki Polat Rönesans'ın kumarhanesinde İsrailli Ruen Gavrieu ile ortak olması, ikincisi ise İsrailli turistleri güneydeki kumarhanelerinde ağırlamasıydı. Önünde İsrail bayrağı dalgalanan tek kumarhane Polat Otel'dekiydi.
+       <br/>
+       <br/>
+       Yeşil, Kundakçı'nın odasına girip tekmil vermiş
+       <br/>
+       <br/>
+       Aktosun, Susurluk'un ünlü eylemcisi Yeşil kod adlı Mahmut Yıldırım hakkında da çok ilginç bir açıklamada bulunuyor. Buna göre, 1993'te Kıbrıs'taki Türk Barış Kuvvetleri Komutanlığı görevinden Diyarbakır'daki Asayiş Kolordu Komutanlığı görevine atanan Korgeneral Hasan Kundakçı'nın göreve başlamasından birkaç gün sonra odasına Yeşil giriyor. Ayağında bot, üzerinde askeri pantolon, kazak ve başında yün bir bere ile Komutanın huzuruna çıkıp, kendisine "Komutanım ben Yeşil, bugünden itibaren emrinizdeyim" diye tanıtan Yeşil'e, Korgeneral Kundakçı çok sert bir tonla, "Şimdi derhal Diyarbakır'ı terk et. Yoksa bizzat ben seni alnından vururum" karşılığını veriyor. Bu tarihten itibaren de Yeşil Ankara ve İstanbul'a geliyor. Hatta Korgeneral Kundakçı'nın korkusundan, Ankara'da kendisini rahat hissetmiyor, çoğunlukla İstanbul'da, diğer bölgelerde kalıyor, bazen de yurtdışına çıkıyor. Aktosun, “Bu olayı bizzat Kundakçı Paşa'dan dinledim” diyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### serdar demirdil, 06-Kasım-2004
+> ah şu sırlar: 
+> Çok merak ediyorum, acaba sırların üzerindeki perde ne zaman kalkacak?
+
+### serdar güzel, 04-Kasım-2004
+> Karanlık ilişkileri bir gün öğrenebilecek miyiz?: 
+> Devletimizin gizli ya da karanlıkta kalmış işlerini bir gün gelecek öğrenebilecek miyiz? Belki de birileri illa öğrenmeniz mi gerekiyor kardeşim, diyordur bir yerlerde. Bence karanlık işler geçicilerin (cumhurun) değil, kalıcıların, atananların, ele geçirenlerin işi olmalı. Bir gün, devleti seçilmişlerin yönettiği gerçek manada cumhuriyet olabilirsek, o zaman ışık her yere ulaşacaktır. Sisler dağılınca olup bitenleri daha net görebileceğiz. Kanaatim şu ki en az yirmi yıl beklememiz gerekiyor bunun için. İnşallah yanılıyorumdur.
+
+### selçuk zirekoğlu, 02-Kasım-2004
+> ömer lütfü topal: 
+> Bence de Ömer Lütfü Topal'ın ölüm sebebi Yahudiler. Çünkü Sami Hoştan'ın ifadesi de onu gösteriyor.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17609&yorum_id=2223), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050122213239/http://www.aksiyon.com.tr:80/detay.php?id=17609&yorum_id=2223)

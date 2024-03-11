@@ -1,0 +1,36 @@
+# Olimpiyatlarda internet polemiği
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bizde olimpiyatlardan çekilen Süreyya Ayhan’ın doping kullanıp kullanmadığı tartışılırken, ABD’li ve Avrupalı yayıncılar yarışmaların internet yayın hakları konusunda çelişkiye düştü.
+   <br/>
+   <br/>
+   Atina’da devam eden 2004 Yaz Olimpiyat  Oyunları, televizyon yayıncılarıyla internetin en popüler spor portallarını karşı karşıya getirdi. Olimpiyat oyunlarının internet üzerinden yayın hakları yeni bir polemik başlattı. Yarım asırdır televizyondan yayınlanan olimpiyatlar, 1 milyara yakın kullanıcının bulunduğu internet ortamında da kendine yer buldu.  Başta BBC olmak üzere Avrupa’daki televizyon kanallarının eş zamanlı olarak internetten yayınladığı olimpiyat oyunlarına Avrupa dışından erişimin kapatılması istendi. İnternetten yayın yasağı kararını Avrupa Yayıncılar Birliği (European Broadcasting Union-EBU) aldı.  EBU bu sınırlamayı getirerek ABD’nin en büyük yayın kuruluşlarından NBC’nin internet yayınları için ekstra telif ücreti ödemesini istedi. NBC kanalı da 793 milyon dolar ücret ödeyerek 2004 Yaz Olimpiyat Oyunları’nın ABD’deki tek yayıncısı oldu. Yaklaşık 1 milyar dolarlık bu para 16 günlük yayın hakkı için ödendi.
+   <br>
+    <br>
+     NBC Grubu satın aldığı toplam 1210 saatlik yayın hakkını NBC, CNCB, MSNBC, Bravo, USA, Telemundo kanallarının yanısıra NBCOlympics.com web sitesinde değerlendiriyor. Sözleşme gereği televizyonda yayınlanmadan önce hiçbir yarışma internete aktarılamıyor. Gruba bağlı televizyon kanallarından herhangi birinde yayınlandıktan sonra hem hem web sitesi hem de AT&amp;T cep telefonu operatörü yarışmalardan görüntü verebiliyor. Diğer yanda İngiltere’nin resmi kanalı BBC için durum farklı. BBC, televizyondan canlı olarak yayınlanan tüm yarışmaları eş zamanlı olarak internetten verebiliyor. (http://news.bbc.co.uk/sport1/hi/olympics_2004)
+     <br>
+      <br>
+       Amerika’da NBC Grubu dışındaki televizyon kalanları günde sadece 2 dakikalık özet görüntü yayınlayabiliyor. Grup dışındaki haber veya spor portalları ise hiçbir video görüntüsü yayınlayamıyor. Sesli anlatımları da ancak 30 dakika gecikmeli olarak verebiliyor.
+       <br>
+        <br/>
+        <br/>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1510 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14789), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050217132159/http://www.aksiyon.com.tr:80/yazdir.php?id=14789)

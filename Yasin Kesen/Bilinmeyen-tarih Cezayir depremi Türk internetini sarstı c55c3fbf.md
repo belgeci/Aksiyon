@@ -1,0 +1,38 @@
+# Cezayir depremi Türk internetini sarstı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030630112457im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20030630112457im_/http://www.aksiyon.com.tr/resim/442/76.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Geçtiğimiz günlerce gerçekleşen 6.7 şiddetindeki Cezayir depremi, Türk Telekom’un dünya ile bağlantılarını sağlayan fiber optik kablolarının kopmasına neden oldu. Marmara depreminde bile hasar görmeyen Türk Telekom fiber hatları, Cezayip depremi ile birlikte Türkiye’nin dünya ile olan internet bağlantısının sekizde bir kapasiteye düşmesine sebep oldu.
+ </font>
+ <p>
+  <font class="content">
+   Normalde 1.2 GB bant genişliğine sahip Türk Telekom İnternet Omurgası, İtalya ile Fas arasındaki (Portekiz önlerinde olma ihtimali de mevcut) denizaltı kablo arızası nedeniyle 150 MB’lik kapasiteye düştü. Bu da, yurtdışındaki internet sitelerine erişimi olumsuz yönde etkilediği gibi, Türkiye’den yayın yapan internet sitelerine de yurtdışından erişimi durdurdu.
+   <br/>
+   <br/>
+   Türkiye’nin yurtdışı internet bağlantısı konusunda Türk Telekom’un web sitesinde (www.telekom.gov.tr) yer alan “Cezayir yakınlarında meydana gelen depremden dolayı, İtalya ile Fas arasındaki denizaltı kablolarında (SMW3) arıza meydana gelmiştir. Bu nedenle yurtdışı internet (ABD—Sprint 622, ABD—C&amp;W 155, İngiltere—C&amp;W 155) hatlarımız kesilmiştir. Elimizde olmayan kesintiden dolayı özür dileriz” açıklamasına göre, Türkiye’nin internet bağlantısını sağlayan 622 MB bant genişliğine sahip en önemli hat olan ABD—Sprint adlı fiberoptik bağlantının koptuğu anlaşılıyor.
+   <br/>
+   <br/>
+   Türk Telekom’un fiber hatlarında gerçekleşen problemin ardından İnternet Servis Sağlayıcısı konumundaki firmalar, anlaşmalı oldukları uydu şirketleri vasıtası ile alternatif servis sağlayıcılara yöneldiler. Fiber kablolar kadar hız kapasitesine sahip olmayan uydu bağlantıları ise, internet kullanıcılarının yurtdışındaki sitelere çok yavaş da olsa bağlanabilmelerini sağlıyor.
+   <br/>
+   <br/>
+   Fiberoptik kablo arızasının, deniz altındaki bağlantılarda gerçekleşmiş olması nedeniyle deniz yoluyla yola çıkarılan teknik ekibin, arızayı tam olarak tesbit etmesinin ve onarmasının günler sürebileceği belirtiliyor.
+   <br/>
+   <br/>
+   İnternet Servis Sağlayıcısı konumundaki firmalar, Türkiye’de internet pazarında hakim konumdaki Türk Telekom’un tek bir omurga üzerinden dünyaya açılıyor olmasından kaynaklanan bu aksamayı, daha önce yaptıkları uyarıların dikkate alınmamasına bağlıyor. İnternet hatlarının, bant genişliği nedeniyle, yetersiz gelmeye başladığını da belirten servis sağlayıcı firmalar, Türk Telekom’un sadece gelir elde etmeye çalışmak yerine yatırımlara yönelmesi gerektiğini vurguluyorlar.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2611&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030630112457/http://www.aksiyon.com.tr:80/detay.php?id=2611&yorum_id=1)

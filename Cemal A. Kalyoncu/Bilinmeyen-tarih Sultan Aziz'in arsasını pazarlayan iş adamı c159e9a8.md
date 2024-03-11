@@ -1,0 +1,112 @@
+# Sultan Aziz'in arsasını pazarlayan iş adamı
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005755im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005755im_/http://www.aksiyon.com.tr/resim/389/48.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Akseki’nin kendine has coğrafyasından çıkardığı bir iş adamı olan Ali Katırcıoğlu, Sultan Aziz’in torunları Şükriye ve Mihrişah Osmanoğlu’nun arazilerini de satan kişidir
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fethullah Gülen Hocaefendi’nin, Türkiye’de yapılmış bu güzelliklere katkıları olduğunu söylediği ve rahmetli Hacı Kemal Erimez ile birlikte ismini  en önemli kişilerden biri olan Ali Katırcıoğlu (Ali Kervancı diye de tanınmaktadır), yokluklar içindeki bir aile ortamında doğmuş, geçinebilmek için, hem de kilometrelerce yol katedip çok uzaklara giderek çalışmak zorunda kalan bir Anadolu köylüsünün, Abdülkadir Bey’in oğludur. Çok azimli olmasına ilaveten onun Aksekili olması, sıfırdan başladığı hayatında bugün bulunduğu noktaya gelmesini açıklamaya yeterdir sanırım.
+   <br>
+    <br>
+     Aksekililer bilindiği gibi ticarette elde ettikleri başarıları ile meşhurdurlar Türkiye’de. Bu özellikleri ile öne çıkmalarındaki en önemli etken ekonomiktir şüphesiz. Çünkü ne toprak ziraate müsaittir Akseki’de, ne de sanayi devrimi gerçekleştirilebilmiştir. Bu durumda iki çıkar yol vardır onlar için: “Akseki’de yerleşik olan ahali genellikle dışarıdaki hemşehrilerinin yaptıkları yardımlarla geçimlerini sağlıyorlar.” İkincisi de gurbete gidip çalışmaktır. Ali Katırcıoğlu da bunu yapacaktır, ekmeğini Bursa, İstanbul, İzmir arasında mekik dokuyarak kurduğu işlerle kazanacaktır. Hatta o kadar büyüyecek ve piyasanın güvenini kazanacaktır ki, Sultan Abdülaziz’in torunu ve Yusuf İzzettin Paşa’nın da kızları olan Şükriye ve Mihrişah Osmanoğlu bile, özellikle İstanbul Çamlıca ve Ümraniye’deki arazilerini onun vesilesi ile satacaktır.
+     <br>
+      <br>
+       Ali Katırcıoğlu, ismini aldığı ve  zamanın şartlarında köyden kazaya ve vilayete katırla nakliye yapan Ali Bey'in torunu, hayatını Salihli ve Aydın’da seyyar manifaturacılık yaparak kazanan Abdullah Bey'in de oğludur. İşte bu Abdullah Katırcıoğlu’nun, Çanakkale Şehidi Mehmet Ali Çavuş’un kızı Fatma Hanım’la yaptığı evlilikten en büyük çocuk olarak (diğerleri Mehmet ve Miyase Aydın) 1937 yılında dünyaya gelen Ali Katırcıoğlu’nun küçüklüğü yokluklar memleketi Akseki’nin Büyükalan Köyü’nde geçer. Çok başarılı bir öğrenci olmasına ve hatta Aksu Köy Enstitüsü’ne kaydı yapılmasına rağmen tahsilinin devamını getiremez: “Nasip değilmiş. İyi ki de gitmedim. Elhamdulillah.” Kaderde iş adamı olmak vardır ki, Bursa Yenişehir’de iş yeri olan hemşehrisi ‘eli ayağı düzgün’ birisini istediğinde ilkokul hocası Mehmet Ercan, onun ismini verecektir. Böylece Katırcıoğlu, 15 Mayıs 1950 tarihinde, hayatını değiştirecek bu yolculuğa çıkar: “Bu tarihi unutamıyorum; çünkü 14 Mayıs 1950 pazar günü seçimler yapıldı ve iktidara Demokrat Parti geldi. Biz Akseki’den Konya’ya 20 saatte gelebildik. Otobüs yolda seçim sandıkları ve evraklarını topluyordu.”
+       <br/>
+       <br/>
+       ‘En büyük demokratikleşme o Arapça ezandır’
+       <br/>
+       <br/>
+       Katırcıoğlu, Bursa’ya ulaşır ve 1955 senesine kadar hem evinde kalacağı hem de yanında çalışacağı Hacı Hafız Mustafa Fevzi Aksoy’un dükkanında işe başlar. Ali Katırcıoğlu’nun yıllık aldığı miktar dün gibi aklındadır: “1951’de 60 lira yıllıkla çalıştım, aylık değil. 52’de maaşım yıllık 120 lira oldu. 1953’te 240, 54 yılında 360, 1955’te de 480 lira.”
+       <br/>
+       <br/>
+       – O tarihler Türkiye’de demokratikleşme, çok partili düzene geçiş tarihleridir. Neler hatırlıyorsunuz o günlerden?
+       <br/>
+       <br/>
+       “Benim hiç unutamadığım bir hadise var. O senelerde imamların, müftülerin resmi kıyafet giymeleri yasaktı. Bizim Hacı Hafız Mustafa Fevzi Aksoy, memlekette Geriş diye bir köy var, o köyde medresede okurken, o zamanın Diyanet İşleri Başkanı Ahmet Hamdi Akseki ile beraber okumuşlar. Dolayısıyla medrese arkadaşı idiler. 1952 veya 53 senesi idi. Ahmet Hamdi Akseki resmi arabası ve kıyafetiyle Yenişehir’e Hacı dayıya ziyarete geldi. Herkes Diyanet İşleri Başkanı’nı görmek için sokaklara dökülmüştü. Allah bana orada Ahmet Hamdi Akseki’ye hizmet etmeyi nasip etti. Orada yine bende çok büyük bir tesir bırakan, unutamadığım ikinci bir hadise de Demokrat Parti iktidara geldikten  kaç ay sonra tam bilemiyorum, Türkçe ezanı aslına çevirdi. Bir cuma günü idi, ikindi kılıyordum, ilan ettiler ‘bugün ezan okunacak’ diye. Herkes sokaklara döküldü. O cuma günü Allahü Ekber Allahü Ekber diye duyduğum o ilk ezanı unutamıyorum. Demokratikleşme dediniz de, benim için en büyük demokratikleşme o ezandır.”
+       <br/>
+       <br/>
+       “Patronumun damadının Konya’da bir üvey kardeşi var, Hacı Ömer Çopur diye. Yenişehir’e gezmeye geliyordu ara sıra. Oraya gelirken, Üstad Bediüzzaman Hazretleri’ni ziyaret etmiş, onun kitaplarından edinmiş, Yenişehir’e gelirken bir tane Gençlik Rehberi varmış yanında. Onu bana hediye etmişti. Sene 54 olabilir. Gerçi o zaman bir şey anlayacak kapasitede değildim, gazete okur gibi okumuştum onu. İlk tanıma öyle oldu. Gene tevafuktur, sonradan idrak ettim. 1950’li yıllarda Zaman gazetesi basılmaya başlanmıştı. Bizim patron orada Zaman gazetesine abone olmuştu. Zaman gazetesi ile tanışmam da 50’li yılarda Yenişehir’de oldu.”
+       <br/>
+       <br/>
+       1955 senesine gelindiğinde Ali Katırcıoğlu, artık burada öğreneceği yeni bir şey kalmadığını düşünerek Aksoy’un dükkanından ayrılmak ister. Patronu önce onu bırakmak istemez. Bıraktığında da Katırcıoğlu, önce köye, sonra da İstanbul’a gider. Çeşitli işlerde çalışır. Hiçbirini beğenmez.
+       <br/>
+       <br/>
+       İşportacılık da yapıyor
+       <br/>
+       <br/>
+       Bu sefer Tahtakale’de, üç ay kadar da seyyar işportacılık yaparak gömlek, çorap, mendil vs. satar. Tez canlılığı ve aceleciliği bu işte de rahat bırakmaz onu ve tanıdığı kimsenin olmadığı, kendisini yalnız hissettiği İstanbul’dan ayrılır, İzmir’e gider. Katırcıoğlu, işportacılığı burada devam ettirir. Sene 1956’dır. Bu arada, eski patronu beş yıl boyunca kazandığı 960 lirayı, memleketindeki babasına ulaştırır. Elinde biriktirdikleri ile birlikte 2 bin lira sermayesi vardır. Artık kendi işini yapmak istemektedir. Tekrar Bursa’ya döner. Ve bir gün okuduğu Hürriyet gazetesinde, hayatta aradığı hareketliliği sağlayacak bir ilan görür: “Günde 100 lira kazanmak ister misiniz? Trikotaj makinaları o zaman Türkiye’de henüz yoktu. Fiyatı 3795 lira, 555 lirası peşin, ayda 180 lira ve 18 ay vade. Bunlar benim için unutulmayacak rakamlar.” Katırcıoğlu, hemen makineleri görmek için İstanbul’un yolunu tutar. Hatta senetleri imzalayıp bir tane satın bile alır. Ve Sirkeci’deki Büyük Eskişehir Oteli’nde dinlenmeye çekilir: “Saat 9–10 gibi büyük bir gürültü ile uyandık. Kıyamet kopuyor. Hemen indim, otelciye ‘Ne oldu?’ dedim O da bilmiyor. Çıktık Sirkeci Meydanına. Baktık tanklar gelmiş. Ve her taraf yağmalanıyor. O olayları görünce bende şafak attı. Acaba benim makine aldığım dükkan ne âlemde? Koştum köprüye, o arada köprü açıldığı için karşıya geçemedim. O akşam uyuyamadım. Büyük Postane binası o zaman adliye binası idi. Merdivenlerine çıktım, kumaşın bir ucunu dükkanın kepengine, diğer ucunu da tramvaya bağlayıp çektiklerini gördüm. Kapalıçarşı ve Bahçekapı’daki Rumlar’ın iş yerlerini böyle yağmaladılar.”
+       <br/>
+       <br/>
+       6–7 Eylül’ün en yakın şahidi
+       <br/>
+       <br/>
+       – Tanklar müdahale etmiyor muydu?
+       <br/>
+       <br/>
+       “Polis de, asker de müdahale etmedi.”
+       <br/>
+       <br/>
+       Neyse, Ali Katırcıoğlu, makinesini alıp Bursa’ya döner. Önceleri, Bursa’daki firmalara üretim yapar, daha sonra direkt satıcılara ulaşır. Siparişlere yetişememektedir artık. Memleketteki babası ve kardeşini de Bursa’ya çağırır. 1957 yılında ise 24 aylık askerliğini yapmak için Malatya’ya gider. Askerden döndüğünde babası rahatsız, kardeşi de asker olduğu için iş yerini 1959 senesinde İzmir’e taşır. Katırcıoğlu, üretimine burada da devam eder: “Bu arada nasipmiş Salihli’den, uzaktan akrabamız da olan Mustafa Sarıgedik’in kızını, annemin ısrarı ile istediler ve paramız da olmamasına rağmen 1960 senesinde evlendik.” Nejla–Ali Katırcıoğlu çiftinin üç çocuğu olur. 1961’de Fatma Nuray, 1965’te Abdullah ve ondan altı yıl sonra da Mustafa doğar. (Fatma Nuray, Mehmet Demircan ile evlidir. Çiftin altı çocuğu olur: Semra, Ümeyra, Fethullah, Süheyp, Esra, Fatih. Abdullah da, Fethullah Gülen Hocaefendi’nin kardeşi Mesih Bey’in kızı Ümeyra ile birleştirir hayatını. Onların da Sümeyra, Ali Mücteba ve Mehmet Murtaza adında üç çocuğu gelir dünyaya. Mustafa’nın ise Ali adında bir çocuğu vardır.) Katırcıoğlu’nun işleri evlendikten sonra daha da artar: “Evlendikten sonra işimiz rast gitmeye başladı. Sızıntı ufak derecikler oldu, kızımdan sonra benim işlerim çok açıldı.”
+       <br/>
+       <br/>
+       Ali Katırcıoğlu, 27 Mayıs’tan hemen sonra, 1962’de İzmir çarşısında, Durmuş Yaşar’ın eski dükkanının karşısında bir yer tutar. Bu arada, Yaşar Tunagür Hoca da İzmir Kestanepazarı’nda vaaz etmektedir: “Cuma günleri Tunagür Hoca’yı dinlemeye giderdik. Yine bu sırada İzmir’de çalışırken Uşşaki Şeyhi Kulalı Hacı Bekir Efendi vardı, Tilkilik Camii’nde. Oraya devam ettik. Yani benim cemaatlerle ilk defa tanışmam Hacı Bekir Efendi iledir. Bir gece rüya gördüm, ne olduğunu tam hatırlamıyorum. Eşim de Abdullah’a hamile. Kalktığımda hanıma, Allah bizim kısmetimizi herhalde İstanbul’da verecek dedim.” Mal almak için geldiği İstanbul Mercan’da bir dükkan kiralar Katırcıoğlu. Ve böylece aradan üç ay geçmeden ailesi ile birlikte İstanbul’a taşınır: “Benim esas gayrımenkul işine başlamam, 1967’de Eminönü’ndeki Yeşildirek’te Sosyal Sigortalar Kurumu’nun bulunduğu eski binanın kiralanması işiyle oldu.” Ali Katırcıoğlu, daha sonra, Sultan Abdülaziz’in torunlarına ait Çamlıca ve Ümraniye’deki arazilerin satışını da yapacak kişi olacaktır: “O zamanlar Çamlıca ve civarı çok tenha idi. Ümraniye’de bazı araziler alıp satmaya başladık. Bu arazileri biz daha çok Sultan Abdülaziz’in oğlu Yusuf İzzettin Paşa’nın kızları Şükriye Osmanoğlu ve Mihrişah Osmanoğlu’ndan aldık. Çamlıca’daki caminin yerini de onlardan almıştık. Onların Ümraniye’de büyük arazileri vardı.”
+       <br/>
+       <br/>
+       Sultan Aziz’in torunlarının arsasını satıyor
+       <br/>
+       <br/>
+       –Tanıştınız mı onlarla?
+       <br/>
+       <br/>
+       “İlk alışverişi avukatları vasıtasıyla, sonrakileri aracısız, görüşerek yaptık. Gördük ki, bu insanlar halktan kopuk yaşamışlar. O güne kadar kiminle görüşmüşlerse, hepsinden zarar görmüşler. Onun için kimseye itimatları kalmamış. Daha yakından tanıyınca, bana güvendiler tabii. Ben onların mirasçısı olsa idim, bana mirastan şu anda kalan kadar mal kalmazdı. Bunu niye diyorum? Kıymetini bilmezdim belki. Onlardan o kadar mal aldım; çünkü bana güvendiler. Param yoktu, vadeli aldım, itiraz etmediler.”
+       <br/>
+       <br/>
+       Katırcıoğlu, İzmir’deki işini kardeşine bırakıp geldiği İstanbul’da bir süre sonra hayatında bir boşluk fark eder: “İzmir’de cemaate alışkın olduğum için bir boşluk hissettim. İstanbul’da Süleyman Efendi’nin damadının hizmeti olduğunu öğrendim. Ümraniye’de Süleyman Efendi’nin cemaatinin büyük bir kursu vardı. Süleyman Efendi’nin damadı Kemal Kaçar Abi ile orada tanıştım. Sohbetlere geliyordum. Bir müddet böyle devam etti.”
+       <br/>
+       <br/>
+       Bir süre sonra buradan ayrılan Ali Katırcıoğlu, hayatında tekrar bir boşluk hissetmeye başlar. Yıl bu sefer 1973–74’tür: “O zaman bizim o Sigorta Han’da kiracı olan Özşah Örme Sanayii vardı. Zekeriya Özen ve Necati Şahin. Onun müdürü de Erdoğan Bey’di. O dönemde Erdoğan Bey, Fethullah Gülen Hocaefendi’nin vaaz kasetlerini getirip Necati’ye veriyormuş. O da dinleyip bana veriyordu. Böylece ilk irtibatımız gerçekleşmiş oldu.” Aradan bir süre geçtikten sonra, Ali Katırcıoğlu, Fethullah Gülen’in pazar vaazlarını dinlemek için İzmir’e gidip gelmeye başlar.
+       <br/>
+       <br/>
+       Camiayla yakınlaşması, bugün Çamlıca’da Kur’an kursu da olan caminin yapımına vesile olur. Burada sonraları yakın ahbabı olacak pek çok simayla tanışır: “Bir gün Çamlıca'da mahalleden iki üç arkadaş, ‘İşte Hacı Abi, etrafımızda cami yok. 100–200 metre arsa verseniz de küçük mescid gibi bir şey yapsak’ deyince ben uyanmış oldum. Düşüneyim dedim. Düşündüm ve bu fırsat bir daha ele geçmez, iki–üç yüz metre değil de, biraz daha büyükçe bir yer ayıralım dedik ve Çamlıca Camii’nin temelini böylece attık.”
+       <br/>
+       <br/>
+       Bir rüya
+       <br/>
+       <br/>
+       Ali Katırcıoğlu devam ediyor: “Fakat benim o günkü düşüncem şu idi. Şişli Camii özel vakıftır. Biz de Şişli Camii gibi, imam evi, müezzin evi, gasilhane, şadırvan gibi ihtiyaçları caminin altında olsun diye plan proje yaptırmıştık. Saygı duyduğum bir dost, bizim oraya temel attığımızı duyunca, inşaatı gezdirdim ve ona da anlattım projeyi. O dostum ‘Hacı Abi, elalemin ölüsü senden mi sorulur, herkes ölüsünü nereden kaldırırsa kaldırsın, bu kadar diri ölü varken’ dedi ‘Buraya bir kurs yapalım, talebe okutalım’ dedi. O anda cevap veremedim. Hocaefendiyi ve arkadaşları tanıyorum, hizmeti tanıyor ve beğeniyorum ama şöyle bir tereddüdüm oldu. Daha önce başka bir yerde arkadaşlar imam hatibi uygun görmedikleri için acaba burada da öyle yanlış bir şey olur mu diye düşüneyim’ dedim. Benim bu konuda tereddütte olduğum bir gece, çok enteresandır, rüyamda, uyurla uyanık arası bir durum, sesi şu an bile çok net hatırlıyorum; bir ses işittim. Bu, bana bir ikazdı. Ondan sonra caminin altını kurs yapmaya karar verdik. Caminin inşaatı devam ederken bir ara Fethullah Gülen Hocaefendi İstanbul’a geldi. Çırağan Sarayı’nın üzerinde Yahya Efendi Dergahı var, orada vaaz edecekti. O akşam Yahya Efendi Dergahı’na gittik, yemek yedik, Hocaefendi vaaza başladı. Hiç unutamıyorum, Hocaefendi’nin ‘Ya Rasulallah, o alnı boyalı atınla Arap diyarlarında dolaştığın yeter artık, gel biraz da bizi gör, gözet. Biraz da bizim memleketimizde celalane dur’ gibi bir yakarışı vardı. O beni yaktı. O bana çok büyük tesir eden bir durumdu.”
+       <br/>
+       <br/>
+       Daha sonra inşaatı bitecek camiyi de 1986 yılında, Hocaefendi hizmete açacaktır: “1978–79 senesinde açıldı galiba eğitime. Ancak caminin resmi açılışını Hocaefendi yaptı, 1986’da. Fakat ilk seneki talebeler çok gayretliydiler. Onların o aşk ve şevki, bizim yurdu genişleterek yanındaki yurt binasını yapmamıza vesile oldu.”
+       <br/>
+       <br/>
+       Hayatın, tüm istediklerini kendisine bahşettiğini söyleyen Ali Katırcıoğlu, bunlar için şükürlerini de ifade etmektedir bugün: “Hayatta ne istemişsem Allah bana hepsini lütfetti, elhamdulillah. Her şeyi teferruatlı anlatmaya gerek yok. Yalnız Hocaefendi, Allah razı olsun, benim çok açık sözlü olduğumu bilir. Herhangi bir sohbette aklıma yatmamışsa açık açık hocam ‘niye/nasıl öyle’ diyenlerden bir tanesiyim. Hocaefendi’nin de, niyetimi bildiği için benden incinmezdi. Mesela sene 1986. Ben, daha önce 74–75–76’da üst üste üç defa hacca gitmiştim. Sonra Hocaefendi’yi daha yakinen tanıyınca, biz hac işine ara verdik. Hocaefendi gitmeden ben nasıl giderim? Bir gün girdim odasına, yalvardım, ağladım, ‘Siz buradasınız, biz de gidemiyoruz. Hacca bir niyet etseniz, bizi de yanınıza alırsanız... Çok arzu ediyoruz’ dedim. Kırmadı, Allah razı olsun. 1986 yılında hacca gittik beraber.”
+       <br/>
+       <br/>
+       “Ben Hocaefendi’den bir sene evvel doğmuşum. Başka gençler dahi o kadar yapamazken Hocaefendi her gece üç umre yaptı. Ben ancak bir yapabildim. Hocaefendi’nin ‘Kimse duymasın hacca gittiğimizi’ demesine rağmen duyan gelmişti hacca. 83 kişi olduk orada. Sonra hac dönüşü haber aldık Hocaefendi Türkiye’de aranıyormuş. Herkes döndü, Mehmet Demircan, ben ve Hocaefendi üçümüz kaldık; dönüş biletlerini yakma pahasına, biraz tereddüt geçirsek de orada kaldık. Ben Arapça bilmiyordum, Demircan da çat pat. Hocaefendi ülkemizi çok seviyordu. Her ne pahasına olursa olsun ülkemize dönmemize karar verdi. Orada bulunan Muhammet Sungur’u da yanımıza alarak karayolu ile gelmeye karar verdik. Sonra Cidde’den Şam’a kadar uçakla gelip oradan da karayolu ile Halep’e geçtik. Daha sonra kara yoluyla sınırı, oraları bilenlere parasını da ödeyerek ve Hocaefendi’nin de dahil herkesin ayakları yalınayak tabii, geçip Türkiye’ye geldik. Sonradan öğrendik ki, Hocaefendi’nin arandığı yanlış bir habermiş.”
+       <br/>
+       <br/>
+       Hizmet, Anadolu insanının hamurunda vardır. Hizmet ehli olmaktan zevk alır onlar. Hizmet etmek onların gönüllerine ferahlık serper. Ve bu ‘meçhul kahramanlar’ öyle bir iştiyakle, içten yaparlar ki bunları, dünyanın asıl amacının ne olduğunun farkına vardırırlar sizleri... Onların yaptıkları gün yüzüne çıktığında da, kendinize bakar ve pişman olursunuz...
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12037), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005755/http://www.aksiyon.com.tr:80/detay.php?id=12037)

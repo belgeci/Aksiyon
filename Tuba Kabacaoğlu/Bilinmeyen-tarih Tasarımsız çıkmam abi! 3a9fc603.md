@@ -1,0 +1,76 @@
+# Tasarımsız çıkmam abi!
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Büyük bir kitabevindesiniz... Raflardaki birbirinden canlı, renkli, farklı kitaplar tasarımlarıyla ilginizi çekiyor. Elinizi hangi kitaba atsanız etkileniyorsunuz. Kapak tasarımı  ile ilgili sorular kafanıza bir bir geliyor. Zihninizi fazla yormayın çünkü tüm cevaplar burada...
+   <br/>
+   <br/>
+   Gözün değdiği her şeyin tüketildiği günümüzde nesnelerin görseli, daha doğrusu tasarımı ne kadar önemli, ortada. Çevremizdeki nesnelerin bir tasarım ürünü olduğunun farkında mıyız? Esas soru; aldığımız, kullandığımız, sevdiğimiz ürünlerin bizi satın almak eylemine ikna etmesinin nedenleri içinde tasarımının payı ne kadardır?
+   <br>
+    <br>
+     Tasarım, detaylardaki sorunlarla uğraşmak, problemleri çözümlemek olarak tanımlanıyor. Tasarımın hayatımızdaki yeri mağara döneminden günümüze kadar geliyor. Fakat, birçok tasarımcıya göre kökü çok eskilere dayanmasına rağmen yeni yeni tanımlanabilmiş bir meslek. Tüketim toplumunun yükselen mesleği demek mümkün tasarım için.
+     <br>
+      <br>
+       Günümüzde çikolatadan arabaya her ürünün var olma ve alım nedenleri kadar, nasıl gözüktüğü, hangi renklerin kullanıldığı, logosu, ambalajı yani bütünüyle tasarımıda önemli hale geldi. Ancak entelektüel bir faaliyet sayılan kitapların da bir çikolatadan farksız şekilde tasarım işinin merkezinde yer alacağını kimse düşünemezdi. Sadece yazarından, konusundan değil, kapağından etkilenip de kitap satın alabiliyoruz. Birbirinden güzel tasarlanmış, dikkat çekici kitap kapaklarının amacı kişinin satın almasını sağlamak. Tüm yazarlar ve yayınevleri bu etkinin farkında. Bunu anlamak için kitabevlerinin raf düzenlemelerini, özel kitap tanıtım standlarını ve profesyonel tasarımcılar tarafından yapılan birbirinden ilginç ve dikkat çekici kitap tasarımlarını görmek yeterli. Peki, içeriğinin yanı sıra dış görünüşünden de etkilenerek satın aldığımız kitapların tasarımı nasıl yapılıyor?
+       <br>
+        <br>
+         Günümüzde yayınevleri ve yazarlar, kapak tasarımı için profesyonel grafik tasarımcılarıyla çalışmayı tercih ediyor. Tasarımı yapış şekli erbabına göre değişiyor. 25 yıldır bu işi yapan ve Timaş Yayınları"nın kapak tasarımını üstlenen Kenan Özcan, önce kitabı anlamak ve ortak bir dil oluşturmak gerektiğini vurguluyor. "Bunu da yazarla konuşarak, kitabın özetini okuyarak, genel başlıklara bakarak sağlıyorum. Ressam olduğum için kendi dilimi kullanarak kara kalemle aklıma gelen fikirleri çiziyorum ve eser için hangisi daha iyi örtüşüyorsa onu seçiyorum." Uzun yıllar Mimar Sinan Üniversitesi Grafik Bölümü"nde eğitim veren, tasarım şirketi sahibi Mehmet Şan Yıldızhan"a göre tasarım yapılırken bir okuyucunun düşünebileceği her şeyi düşünmek ve zihinlerinde oluşacak etkiye göre de seçim yapmak gerekiyor. Yıldızhan, tasarımcıların amacının özgür, tüm insanların anlayabileceği, baktıklarında aynı çağrışımları yakalayabilecekleri çalışmaları yapmak olduğuna dikkat çekiyor.
+         <br/>
+         <br/>
+         1975 yılından bu yana kapak tasarımı  yapan Bülent Erkmen ise birçok tasarımcının dile getirdiği "kapağın içeriği yansıtması gerektiği" fikrine katılmıyor. "Kitap kapağı benim için kitabın içindekinin "işareti"dir. Kitabın içindekini kapakta anlatmam, kitabı kapağında hikaye etmem. Kitabın içinden gelen değil, kitabın dışından gelen ve kitabı "zenginleştiren" çalışmalar yapılması gerektiğine inanıyorum." Bugüne kadar 100"ün üzerinde kapak tasarımı yapan Kerem Öztürk de "içindekini sembolleştirme"nin dışında kapağın dikkat çekmesi gerektiği üzerinde duruyor: "Tasarım sadece çözümlemek değil, cezbetmektir de. Eğer sesli mesaj yoksa insan görsel ilişki kurar. Her kitap yüzlerce "bana bak, beni al, beni oku" mesajı veren kitapla yan yana duruyor. İyi tasarımın kriterlerinden biri de, kitabı "diğerlerinden ayrı, görünen, dikkat çeken" kılmasıdır."
+         <br/>
+         <br/>
+         Süslü değil "doğru" olması önemli
+         <br/>
+         <br/>
+         Tasarımcılara göre okur kitlesi iki gruptan oluşuyor. Birinci grup ne okuduğunu ve istediğini bilen, yazar ve içerik ile ilgilenen kişilerden oluşuyor. Onlar için dizaynın önemi ve değeri yok. Yazarşair Nurullah Genç"e göre bu okuyucu kitlesi yüzde 5"lerle ifade edilebilecek kadar az. İkinci grup ise, kitabevine gittiğinde belirli bir amacı olmayan, estetik zevkleri daha ön plana çıkmış kişilerden oluşuyor. Bu grup, kitabın rafta duruşundan, kapak tasarımına kadar tüm ayrıntılarından etkilenerek "satın alan" kişilerin tümünü içine alıyor.
+         <br/>
+         <br/>
+         Grafik tasarımcısı Mehmet Şan Yıldızhan"a göre okuyucu kitabı yüzde 80 oranında çevresinden, yani kitabın kitabevindeki konumundan, dış görünüşünden, raftaki duruşundan, iç tasarımına kadar her özellik ve farklılıktan etkilenerek alıyor. Grafik tasarımcısı ve çizer Osman Turhan"a göre de bu kişilerin oranı yüzde 50"lerden fazla. Tasarımın etki oranı dizaynırlara göre farklılık gösterse de üzerinde birleşilen ortak düşünce tasarımın okuyucuyu "satın aldırmak" için fazlasıyla yönlendirdiği gerçeği. Uzun süre, İletişim Yayınları"ndan çıkan kitapların kapak tasarımını yapan Ümit Kıvanç, kitap tasarımının herhangi bir tasarım olmadığına dikkat çekiyor ve ekliyor: "Teorik olarak sadece kitabın ve yazarın adını dümdüz yazarak da kitabı satabilmelisiniz. Çünkü bu bir kitap. Hiçbir şey onun "içinden" daha önemli olamaz. Görsellik çağı, şu bu derken iş biraz gösterişe yöneldi. Tek dikkat edilmesi gereken şey kapağın kitaba haksızlık etmemesi olmalı. Süslü değil, doğru kapaklara ihtiyacımız var."
+         <br/>
+         <br/>
+         Yazar, hayallerinin tecellisini görmek istiyor
+         <br/>
+         <br/>
+         Kitap tasarımında bir önemli öğe de yazarlar. Yazarların da yayınevi ve tasarımcıdan çeşitli istek ve beklentileri var. Bundan dolayı zaman zaman problemler yaşanabiliyor. Yazarların tasarım hakkındaki beklentilerini anlatan Bülent Erkmen şunları söylüyor: "Günümüzde kitapta tasarım unsuru ortaya çıktıkça, yaygınlaştıkça, dikkatleri üzerine çektikçe, konuşuldukça yazarların da tasarıma verdiği önem artıyor. Ancak yazarlar genellikle, yazdıklarıyla okurun arasına tasarım unsurlarının girmesini istemiyor. Çünkü onlar için kitap, yazdıklarını okuyucuya götüren bir "taşıyıcı" konumunda. Gerçi son zamanlarda yapılan ve tasarımı kitaptan daha ön plana çıkan çalışmalar, yazarların bu konudaki hassasiyetlerini haklı çıkarmıyor değil." Osman Turhan yazarlarla yaşadığı sıkıntıları şu cümlelerle aktarıyor: "Bazı yazarlar kafasında şablonlarla geliyor. Ve hayallerinin karşılığını bulmak istiyor. Yapmış olduğunuz tasarım yazarın zihnindekiyle örtüşmüyorsa problem çıkıyor. Biz tasarımcılar da özgün olmak, işimizi en iyi şekilde yapmak istiyoruz. Bence yazarın işi yazarlık, tasarımcının işi tasarım olmalı. Mevcut sorunları yayınevi aracılığıyla çözmeye çalışıyoruz." Mimar Sinan Üniversitesi Grafik Tasarımı Bölümü hocası Savaş Çekiç de, yazar ve tasarımcının arasında her zaman bir gerginlik olduğunu kabul ediyor. Bu çatışmada tasarımcının işinin daha zor olduğunu düşünüyor. Çünkü yazar kendi iç dünyasını özgürce dışa dökerken, işin tasarımcıya kalan kısmı ise bu çerçevede bir kapak hazırlamak; dolayısıyla kapak yaparken yazar kadar özgür olamayabiliyor. Çekiç"e göre aslında yaşanan tüm problemlerin temelini bu ayrıntı oluşturuyor.
+         <br/>
+         <br/>
+         "Yazara veto hakkı verilmeli"
+         <br/>
+         <br/>
+         Peki yazarlar için durum nasıl, beklentileri neler sorusu akla geliyor. Yazar Prof. Dr. İskender Pala kitap kapağı tasarımının okuyucuyu etkileme açısından çok önemli olduğuna dikkat çekerek "Kesinlikle tasarımlar profesyonel kişilerle çalışılmalı. Ayrıca yazarın da tasarım içinde düşünceleriyle var olması gerekiyor. En son kitabım L&amp;M"de söylediğim şekilde çalıştık. Okuyucuyu kavrayan tasarımın başarıda payı büyük" diyor.
+         <br/>
+         <br/>
+         Fotoğraf sanatçısı Kamil Fırat"ın bu zamana kadar yayınlanmış yedi kitabı var. Sanatçıya tasarımdan beklentilerini sorduk. Fırat "Beni kesinlikle temsil etmeli. Kitap bir tasarım nesnesidir. Tabii ki tasarımcı da kendi düşüncesini ortaya koymalıdır. Orta yol bulunmalı. Bir kitap için 1015 yıl fotoğraf çekerek emek harcıyorsunuz. Yapılan işin ruhunu yansıtmasını istiyorsunuz. Hiçbir tasarımcı yazarın beklentisini yüzde yüz karşılayamaz. Tasarımcıyla çalışırken içinize tam sinmese de kabul etmek zorunda kalıyorsunuz. Biz fotoğrafı kestirmeye kıyamayız, tasarımcı da kesmek ister." Yazar Nurullah Genç"e göre kapağı yapan eseri anlamalı, tasarım kesinlikle eserin ne önüne geçmeli ne de arkasında kalmalı. Yazar Atilla Akar da kapak tasarımının kitabın içindekileri konsantre olarak yansıtması gerektiğine inanıyor. Akar"ın konuyla ilgili birtakım eleştirileri var: "Son zamanlarda içerikle tasarım uymuyor. Cafcaflı kapakların ardında hiçbir şey bulamıyorsunuz. Var olan bu düzen, okuyucunun ambalaja karşı zaafını kullanıyor. Bu da gayri ahlaki bir durum. Sonuçta okuyucunun da yazara güveni kalmıyor. Üstelik çok az tasarımcı yazara veto hakkı veriyor. Bu da işin başka çıkmaz yolu."
+         <br/>
+         <br/>
+         Kimisi zor, kimisi kolay...
+         <br/>
+         <br/>
+         Kitabevine ilk girdiğimiz andan itibaren birbirinden farklı türde yüzlerce kitapla karşı karşıya kalıyoruz. Her tarz kitabın kendine göre bir tasarım şekli var. Kimisi girift, kimisi sade. Tasarımcılar göre soyut imge ağırlıklı kitapların tasarımı daha zor. Tasarımı en kolay olarak bilinen kitap tarzı da biyografi kitapları. Fakat tasarımcıların sanatlarını konuşturdukları, farklılıklarını ortaya koyabildikleri alanların başında da soyut çalışmalar geliyor. Ümit Kıvanç edebiyat kitaplarının "gazla gitsin"e müsait olduğunu her halükârda bir şeyler bulup buluşturmaya müsait olmasıyla birlikte hakkı verilerek yapıldığında da en zoru olduğunu ifade ediyor.
+         <br/>
+         <br/>
+         Peki yapılan iş sanata girer mi? O biraz şüpheli. Yayıncının, yazarın ve okurun karıştığı bir işte tasarımcıya sanatçı denemeyeceği ortak bir görüş.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1414 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11543), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224171823/http://www.aksiyon.com.tr:80/yazdir.php?id=11543)

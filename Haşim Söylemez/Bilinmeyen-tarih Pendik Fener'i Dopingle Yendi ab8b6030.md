@@ -1,0 +1,130 @@
+# Pendik, Fener'i Dopingle Yendi
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050120114049im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050120114049im_/http://www.aksiyon.com.tr/resim/471/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  FB adına tarihe "Pendik hezimeti" olarak geçen maç hâlâ konuşuluyor. Ancak karşılaşma öncesinde GS"li bir grup komutan tarafından Pendikspor oyuncularına "doping" uygulandığı ortaya çıktı. GATA"da bir hafta boyunca seansa tabi tutulan Pendikspor"un ilk 11"i 90 dakika boyunca sahada basmadık yer bırakmadı. Sonuç; "Pendik United: 2, FB:1"
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hakemin düdüğü ile maç bittiğinde köklü futbol takımlarımızdan Fenerbahçe"nin tarihine kara harflerle yazılacak bir skor ortaya çıkmıştı: 2-1. Fenerbahçe 2. Lig ekiplerinden Pendikspor"la Türkiye Kupası 3. Tur eleme maçı oynamış ve yukarıdaki sonuçla 90 dakikayı bitirmişti. Fenerbahçe"de hüzün dönemi başlamış, hem takım içinde hem de yöneticiler arasında aykırı sesler yükselmeye başlamıştı. "Fenerbahçe Pendikspor"a yenilir mi?" sorusu Fenerbahçe camiasında sürekli soruluyor, hesap sorma niteliğinde bunun cevabı aranıyordu. Ancak durum Pendikspor cephesinde farklıydı; futbolcu ve yöneticilerde Fenerbahçe gibi büyük bir takımı kısıtlı imkanlarına rağmen iyi bir oyunla yenmenin mutluluğu yaşanıyordu. Oyuncular tarihe geçiyor ve çeşitli hediyelerle ödüllendiriliyordu. Öyle ki, bulunduğu ilçeden gelen kırk yıllık Pendikspor adı, Fenerbahçe"nin ezeli rakibi Galatasaraylı taraftarlar tarafından "Pendik United" olarak değiştiriliyordu.
+   <br>
+    <br>
+     Tarihe geçebilecek kadar önemli olan ve hafızalarda her zaman tazeliğini koruyan bu maçta Pendikspor nasıl olmuştu da Fenerbahçe"yi rahatlıkla yenebilmişti? Kimisine göre bu bir tesadüf, kimisine göre de ciddi bir çalışmanın ürünü. Üçüncü görüş ise Fenerbahçe çok kötüydü ve o maçta Pendikspor"u yenecek güçte değildi. Tartışmalar ve polemikler hâlâ sürerken deşifre edilen yeni bir ayrıntı yıllar önce oynanmış bir maçı tekrar gündeme taşıyacak gibi. Küçük bir ayrıntı olarak ortaya çıkan bilgiye göre o maçta Pendiksporlu oyuncular "doping"liydi. Üstelik bu doping işlemi Galatasaraylı doktorlar tarafından yapılıyordu.
+     <br>
+      <br>
+       Hiperbarik doping
+       <br/>
+       <br/>
+       O tarihlerde Türkiye"de pek bilinmeyen bir yöntemle Pendiksporlu futbolculara "doping" yüklendi. GATA Haydarpaşa Askeri Hastanesi Deniz ve Sualtı Hekimliği"nde bir hafta boyunca GS"li komutanlar tarafından basınç odasına alınmaları futbolcuların maçı kazanmasında etkili oldu. Bir operasyonla gerçekleştirilen "doping" yükleme olayı sonunda futbolcuların 90 dakika boyunca hiç yorulmadan koşmaları sağlandı.
+       <br/>
+       <br/>
+       Fenerbahçe maçında oynayacak Pendiksporlu 18 oyuncu maç tarihinin açıklanmasından sonra bir hafta boyunca her gün 1.5 saat olmak üzere GATA Haydarpaşa Askeri Hastanesi"ndeki basınç odasına alındı. Askeri doktorlar nezaretinde gerçekleştirilen bu seanslar sonunda sporcuların kondisyonu yüzde 70 oranında artırıldı. Galatasaraylı Doç. Dr. Kadir Dündar, yazar Selahattin Duman"ın 1999 yılındaki bir yazısına verdiği cevapta bu konuyu teyit ediyor. Dündar birçok futbolcuyu Hiperbarik Basınç Odası (HBO) ile tedavi ettiklerini belirterek; "Pendiksporlu futbolculara topluca HBO tedavisi uyguluyoruz. HBO sistemini Galatasaray"a önerdik. Ancak bunu kulübün doktoru Burhan Uslu"ya anlatamadık. Bunun altında başka kaygıların olduğunu tahmin ediyorum" şeklinde yorumda bulunuyor. O maçta sahaya çıkan Pendiksporlu futbolcular GATA"daki seanslara kondisyon artırmak amacıyla katıldıklarını belirtiyorlar.
+       <br/>
+       <br/>
+       Yasal doping
+       <br/>
+       <br/>
+       HBO tedavisi sırasında oksijen artışı, kanda çözülen oksijen miktarının binde 3"ten yüzde 6 vole çıkmasına bağlı. Yani tedavi ve seansların tüm esprisi kanda çözülmüş oksijen miktarını ve basıncını yaklaşık 30 kat artırarak oksijenden adeta bir ilaç olarak faydalanılması. Aslında yapılanlar, ilaçsız doping tanımına giriyor. Kondisyon, doping ilaçlarıyle yüzde 10 artırılabiliyor. HBO ile doping ilaçlarının 30 katı verim almak mümkün. HBO yöntemi, FİFA"nın dopingle ilgili kriterlerinin belirlendiği dönemde bilinmediği için yasak sınıfına konulmamış. Fakat son dönemlerde sporcuların bu yönteme ilgi göstermesi FİFA"yı yeni tedbirler almaya zorluyor. FİFA"nın önümüzdeki dönemlerde uzmanlarla bir çalışma yapıp konuyu değerlendirmeye alacağı belirtiliyor.
+       <br/>
+       <br/>
+       Pendiksporlu oyuncuların kondisyon artırmak amacıyla girdikleri HBO, aslında spor yaralanmalarında ve sakatlanmalarda da başvurulan önemli bir yöntem. Öyle ki, bu yöntemin uygulanması halinde (kırıklar dışında) sakat futbolcu hiç ara vermeden tekrar bir sonraki maça çıkabiliyor. Spor yaralanmalarını çok hızlı tedavi etmesi, sporcu kondisyonu ve vital kapasitesini artırıcı etkisi olduğu bilimsel olarak da kanıtlanmış. İskoçya"da profesyonel futbolcuların sakatlanmaya bağlı kaybettikleri gün sayısı ile ilgili bir çalışma yapılmış, sonuçta fizyoterapistin tahmin süresine göre yüzde 55 daha kısa bir sürede HBO tedavisi ile futbolcular iyileştirilmiş. Temple Üniversitesi"ndeki bir araştırmada da ayak bileği burkulması vakalarında HBO gören hastaların diğer hasatalara nazaran yüzde 30 daha kısa bir zamanda eski aktivitelerine döndükleri tespit edilmiş. Özetle HBO tedavisi sayesinde sporcular yaralanmalardan sonra aktif antremanlara daha hızlı ve çabuk dönebiliyor.
+       <br/>
+       <br/>
+       Özellikle NBA"deki basketbolcuların Heperbarik Basınç Odalarından sıklıkla yararlandıkları biliniyor. "Populer Sience" adlı bir belgeselde spor ve HBO konusu ele alınıyor. Programda sakatlanan, NBA"li bir oyuncunun iyileşmesi için en az 15 güne ihtiyaç olduğu belirtiliyordu. Basınç odasına sokulan oyuncu 13 saat sonra maça hazır hale gelmişti. Belgeselde verilmek istenilen mesaj, doping etkisi yapan bu cihaz sayesinde NBA"de maç eksiği olan hiçbir oyuncunun olmaması. NBA"de HBO hemen hemen bütün takımlar tarafından uygulanıyor.
+       <br/>
+       <br/>
+       Türkiye"de uygulayan var mı?
+       <br/>
+       <br/>
+       Türkiye"de HBO yöntemi sporcular tarafından pek bilinmiyor. Ama bilenlerin yolu da sık sık bu oksijen odalarından geçiyor. Pendiksporlu futbolcular malum seanslardan sonra bireysel olarak kullanmaya başladılar. Fenerbahçeli Rapaic ve Mirkoviç HBO"ya belirli aralıklarla katılıyorlardı. Özel Derya Hiperbarik Oksijen Tedavi Merkezi yetkilisi İlhan Kocamaz, iki futbolcunun kondisyonlarını artırmak için merkezlerinde 10"ar saatlik seanslara katıldığını söylüyor. Fenerbahçeli eski futbolcu Mustafa Doğan da kondisyon sağlamak ve sakatlıklardan kurtulmak için Hiperbarik Oksijen Odası"nı kullanan bir başka futbolcu.
+       <br/>
+       <br/>
+       Türkiye"de futbolcuların henüz tam olarak ne olduğunu bilmedikleri bu yöntemden Avrupa ve özellikle Almanya"daki önemli kulüpler sık sık faydalanıyor. Milli futbolcumuz Ümit Davala"nın oynadığı Werder Bremen"de bir HBO merkezi bulunuyor. Kulübün idman sahası yanında kurulan tesiste futbolcular tedavi görüyor, kondisyon artırıyor. Bremen"den etkilenen Stuttgart da aynı tesisi kurmuş durumda. Bir zamanlar Galatasaray Spor Kulübü de HBO"nun mini bir benzeri olarak Ali Sami Yen"deki soyunma odasına oksijeni artırıcı bir sistem kurmak istemiş fakat para olmadığı için projeden vazgeçilmişti.
+       <br/>
+       <br/>
+       Hamza, Olimpiyat şampiyonu oldu
+       <br/>
+       <br/>
+       Sadece futbolcular ve basketçiler değil, başka spor dallarındaki sporcular da HBO"ya başvuruyor. Türkiye"de basınç odasına giren önemli bir isim de Hamza Yerlikaya. Otoriteler tarafından "Asrın Güreşçisi" lakabını alan Hamza Yerlikaya"ya, Sidney Olimpiyatları öncesi GATA"da HBO"da kondisyon yüklendi. Yerlikaya, bunun büyük fayda sağladığını düşünüyor. Haydarpaşa Gata"da 20 seanslık bir HBO"dan geçen Yerlikaya oksijen deposu olan basınç odasını yeni keşfettiğini söylüyor; "Şampiyonluk benim için sadece bir unvan ama daima korumam gereken bir değer. Bu değeri korumak için 4 yıl deliler gibi çalıştım, yetmedi gücüme güç katacak her şeyi araştırdım. Sonunda GATA Askeri Hastanesi"nde gerçek bir oksijen deposu olan basınç odasını keşfettim. Çok ileri düzeyde nefes darlığı ve akciğer yetersizliği olanların kapasite artırabilmek için başvurduğu bir yöntemmiş ama sağlıklı bir insan için hücre gibi bir yer. Sidney"e gitmeden önce 20 defa Gata"ya gidip basınç odasına girdim. Oradaki Kadir Binbaşım bana çok yardımcı oldu. Aldığım madalyada onun payı çok büyük."
+       <br/>
+       <br/>
+       Basınç odaları önce askeri amaçlı kullanıldı. Türkiye"de 1970"li yıllardan beri Deniz Kuvvetleri Komutanlığı"na bağlı Beykoz Kurtarma ve Sualtı Komutanlığı bünyesinde faaliyet gösteriyor. Ancak daha sonra bu yöntem askeri alandan sıyrılıp tedavi amaçlı olarak kullanılmaya başlandı. GATA Haydarpaşa Askeri Hastanesi"nin ardından da Çapa Tıp Fakültesinde sağlık amaçlı olarak devreye sokulan HBO yöntemi son 5 yıldır Türkiye"de yaygınlaştı. Açılan özel basınç oda merkezleri 30 çeşit hastalığın tedavisinin yanı sıra estetik ve sporculara yönelik kondisyon amaçlı olarak da kullanılıyor. Bu yöntem sporcular tarafından hâlâ yeterince bilinmiyor. Pedikspor"un kullanmasıyla kamuoyu tarafından öğrenilecek olan basınç odalarının bundan sonra büyük ilgi göreceği kesin. Ama öncelikle estetik ve kondisyonda.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### mstafa acar, 21-Nisan-2004
+> dr. meslektasım yerden göğe kadar haklı: 
+> dr. meslektasım yerden göğe kadar haklı bunun baska tarif ve izahı olmaz
+
+### Gökhan, 10-Mart-2004
+> Aklama Kampanyası: 
+> Yani bu haber ne niteliğinde anlamak mümkün değil. Şimdi aktüel bilim mi, yoksa spor magazini mi. Ne edimler bizi bi sonuca götürüyo ne de sonuçlar mantıklı. Yani futbol sadece koşmmaktan ibaret değil kaldı ki bir takım istediği kada koşsun futbol gibi takım oyunlarında top hakimiyeti, oyun kurma, pozisyon alma bambaşka meziyetler isteyen ve ve kompleks olarak uygulanması gereken unsurlar.Eğer iki takımda yetenek !!! açısından birbirine yakınsa iki türlü kondüsyon söz konusudur ilki fiziki ikincisi moral motivasyon yani psikolojik kondüsyon. Şimdi eğer Pendik takımı kondüsyon ile galip gelebiliyorsa o zaman bu oyuncular zaten 1, lig düzeyinde teknik ve taktik kapasiteye sahip olmalarının yanısıra motivasyon olarakta Fenerbahçe gibi bir takımı yenebileceklerine inancına sahip çok değerli bir takımın elemanları. Ki bu gerçekten imkansız ya da Fener kulübü bu takımı toplama oluşturmuş demektir. Şimdi tüm bunların ışığında bir daha düşünün?!! O maç pendik mi aldı yoksa Fener mi kaybetti
+
+### ulvi, 07-Mart-2004
+> neeeeeeeeee: 
+> çok mutluyum pendikspor adına
+
+### cem sarıyıldız, 03-Mart-2004
+> katılmıyorum: 
+> pendik-fb macı için yazdıklarınıza kesinlikle katılmıyorum        ULTRA ARSLAN
+
+### recep şeker, 19-Şubat-2004
+> fenerli hezeyanı: 
+> ilk yorum sahibi haberdede adı geçen hadir binbaşının görüşlerine yazıda niye yer verilmedi acaba?
+
+### fatih cetin, 19-Ocak-2004
+> yasa fener: 
+> Sayin Fatih Asar! Aksiyon dergisine ve fenerli dediginiz yazarlarina neden bu kadar ofkelendiniz anlayamadim. Hele himmetlere yaziklar olsun seklindeki tavrinizi hic begenmedim. Hizmetle, dergide yazilan bir yazi arasinda baginti kurmak bizlere hic yakismaz. Fenerbahce ile kisisel probleminizi lutfen hizmete karistirmayiniz. Vermis oldugunuz himmetlerin karsiligini obur tarafta beklemek en mantiklisi. Aksiyon amigolari kadikoyde her halde daha huzurlu olurlar. Cunku orada sevgi var. Orada ASY deki kumpas, cift dalma, tukuruk, tekme, hakeme saldirma vb. turlu rezillikler yok. Takimlarini gonulden seven insanlar var. GS in serefsizce kazandigi sampiyonluklari arastirmani tavsiye ederim. Mesela 1987 sezonu futbol ve basketbolde butun kurallari alt ust ederek kazandiginiz adi sampiyonluklar. 1993 de zalad denen ahlaksizin yaptiklarini bizler hic unutmadik. Siz de unutmayin. FB nin YUZDE YUZ penaltilarini vermeyen gs li hakem camiasini yazmama herhalde gerek yok. Turk sporunda 25 yildir gs li serefsizler yapmadiklarini birakmadilar. Gs uefa kupasindan once dopingi, sikeyi, hileyi Turkiyeye ilk getiren kuluptur. 1987 de bjk-malatya macindan once malatyali serefsizlere (futbolculara) verdikleri prim, araba ve doping ilaclarini dun gibi hatirliyorum. Gecmiste bizler gibi nice taraftarlari defalarca aglattiginizi hic dusunmuyorsunuz. Size gs nin kahpe gecmisini tum ayrintilariyla anlatabilirim. Bir pendik maci bizim takimimiza olan sevgimizi eksitmez. Bizim bu kulube askimiz kurtulus savasindan geliyor. O yuzden Rabbim o basarisiz oldugumuz 2000 sezonunda dahi rakiplerimize karsi boynumuzu bukturmedi. O yilki 1-0 lik gs galibiyetini 10 tane 6-0 lik galibiyete tercih ederim. Zira o macin tadi bambaskaydi. Sibiryaya bahar henuz gelmemisti. Ama Fener galibiyeti baharin mujdecisi gibi icimi ferahlatmisti. Pendik bizi yensede ne mutlu Fenerliyim diyene" Fatih Cetin           cetinfatih2003@yahoo.com Tel:    0073952390848
+
+### harun  ün, 03-Ocak-2004
+> hüseyin kardeşime cevap: 
+> Hüseyin kardeşim bu yazıyı yazan ya fenerli ya da gs düşmanı derken kendinin de gs li olduğunu hiç çaktırmıyor. bahsedilen metodun ayrıntısını fazlaca bilmiyorum ama günümüzde FİFA tarafından artık yasaklanan bir şey olduğunu ve kişinin performansını %50 den fazla artırdığını biliyorum. söz konusu komutanların  günümüz gs si için neden bir şey yapmadığını soruyor. maalesef gs nin mevcut haline değil yasal olanlar yasal olmayan doping ve performans artırıcı metotlar bile işe yaramaz. Ayrıca o komutanların bugün Hakk"ın rahmetine ecelleri ile kavuştuklarını tahmin ediyoruz o olmasa bile kesin 6 Kasım 2002 deki 6-0 lık faciadan sonra dayanamamış vefat etmişlerdir. vefat etmemişlerse de 7 kasımdan bu yana ya gs yi bırakmış ya da fenerli olmuşlardır.   yani anlayacağınız işiniz Allah"a kalmış Hüseyin kardeşim
+
+### Murat, 29-Aralık-2003
+> Farkettmez: 
+> Farkettmez  biz dopingli pendiğede yenilsek  , dopingsiz FENERBAHÇE herzaman galatasarayı ezecektir. Bu böyle biline. Hazmedemeyenler soda içecekler. Kolay değil  6 porsiyon.........   Öpüldünüz .............
+
+### Fatih Asar, 29-Aralık-2003
+> fener amigosu aksiyon: 
+> Aksiyon dergisi, fenerbahcenin aleyhine penalti verilmeden bitirdigi sezon sonrasi sampiyonlugunda ozel sampiyonluk albumu veren ama Galatasaray'in 4 defa sampiyonlugu ve UEFA kupasi basarisinda hic bir ekstra yaziya gerek duymayan tamamen partizan, amigo zihniyetli bir dergi.. Simdi "Galatasaray'da isler kotuye gitmeye basladi, bir tekme de ben atayim"zamani ya, aksiyon da geriye kalmiyor. boyle bir derginin kurulmasi ve hayatta kalmasi icin veridigimiz himmetlere yaziklar olsun. Demek ki hala aksiyonun fenerli yazarlarinda pendik'in kestigi kuyrugun acisi var. Yazik, hizmet falan hikaye..aksiyon amigolari kadikoye...
+
+### özgür çağlar, 29-Aralık-2003
+> Yazıklar olsun: 
+> Futbolumuza kara leke düşmüştür. Türkiye kupası meşruiyetini yitirmiştir. "Fitbol" grubu adına dopingi lanetliyorum. Sözlerimi Mustafa Kemal'in ünlü sözüyle bitireceğim: "Ben sporcunun zeki, çevik ve aynı zamanda ahlaklısını severim."
+
+### Mehmet Dogan, 29-Aralık-2003
+> kel alaka: 
+> Bu kadar sacma bir haberi Aksiyon Dergisinde gormek beni uzdu acikcasi. Biraz daha dikkat...
+
+### okan sivri, 29-Aralık-2003
+> Dogru mu?: 
+> Fenerbahce gibi tarihi zaferlerle dolu bir takim Pendiksporu hiperbarik degil bütün dopingleri alsa yenmesi gerekirdi.Futbol sadece kondisyona bagli bir oyun degildir.
+
+### hüseyin gökkaya, 22-Aralık-2003
+> Tamamen saçma bir haber: 
+> Bu haberi hazırlayanlar ya fenerli ya da galatasaray düşmanı. Madem bu yapılan doping bu kadar tesirli niye pendiklilerden başkasına yapılmıyor. Bu Galatasaraylı komutanlar bu seneki Galatasarıyn halini görmüyorlar mı?
+
+### dr.kadir dündar, 18-Aralık-2003
+> hiperbarik oksijen doping değildir: 
+> 1-hiperbarik oksijen terdavisi dopink değildir ülkemizdede 20 yıldır belli merkezlerde uygulanan bir tedavi yöntemidir 2-hbo tedavisi halen 20 hastalıkta başarıyla uygulanmaktadır 3-spor sakatlanmaları ve yaralanmalarında da başarıyla kullanılomaktadır 4-pendik sporlu futbolculardanda sadece birkaç tanesi haydarpaşa askeri hastanesinde değil özel bir merkezde bir seans tedaviye alınmış ve yetrli tedavi uygulanamadan tedaviyi yarım bırakmışlardır 5-böyle bir habere böyle bir yorumu  herhalde komiklik olsun diye yaptınız ayrıntılı bilgi almak isterseniz dr kadir dündar 0533 6432974
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3273&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050120114049/http://www.aksiyon.com.tr:80/detay.php?id=3273&yorum_id=1)

@@ -1,0 +1,76 @@
+# Bilişim & Gelişim
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Asya ve Balkanların en büyük Bilişim fuarını da geride bıraktık. 47 bin metrekarelik kapalı alanda, 9 salonda, 1000’den fazla firmanın katılımı ile icra edilen 5 günlük bir organizasyonun ardından Bilişim’in getirdiklerini ve bize gösterdiklerini sizlerle paylaşmak istiyorum.
+   <br/>
+   <br/>
+   Cep bilgisayarlarını, mini kameraları, harika yazılım çözümlerini, kurumsal hizmet ağlarındaki gelişmeleri sayarsak Bilişim’in getirdiği çok sayıda güzellik var. Bunları gören firmaların ve şahısların kendilerini motive ederek bulundukları ortamda profesyonelleşmeye gitmelerini güdülemesi de cabası. Yani toplumun fikri bazda gelişmesine faydası olması açısında da olumlu bir organizasyon.
+   <br>
+    <br>
+     Dünya çapındaki büyük teknoloji firmalarının katılımı ile Almanya—Hannover’de yapılan ‘CeBIT’ fuarıyla işbirliğine gidilerek ‘A CeBIT Event’ takısı da alındı.  Güzel bir gelişme. Zira, gelecek yıllardaki fuarlarımıza fazla sayıda uluslararası firmanın ve fuar ziyaretçisinin kapısını açması muhakkak. Bunun yanısıra, bölgedeki ülkeler arasında Türkiye’nin gücünün, etkinliğinin ve itibarının artması da dış dengeler açısından bir artı.
+     <br>
+      <br>
+       Bir de bu gelişimle yüzyüze olan ülkemize ve toplumumuza şöyle bir bakarsak: Hakkari’de trafik ışıkları yeni takılmış ve tören yapılıyor... Bir yanda çocuklar kağıt mendil satışı ile karnını doyurmaya çalışıyor... Bir yanda eline siyasi iradeyi geçirmiş şahsiyetler başarı kazanmış okulların kayıt döneminde okullar aleyhine haberler yaptırarak, gelişmeye talip insanların önünü kesiyor... Diğer yandan fuar alanına, fuar yoluna bakıyoruz.. Şehre uzak sayılabilecek Beylikdüzü Tüyap fuar merkezinin yolu 5—6 km önceden kilitlenmiş durumda. Otoparklar hınca hınç dolu. Büyükçekmece Belediyesi de ‘fırsat bu fırsat’ deyip otopark simsarlarını salmış boş arazilere.. Rant peşinde... İçeriye giriyorsunuz. Harika katılım... Ancak, katılımcı profesyonellikten çoook uzak. Her standdan katalog toplayan, promosyon peşinde hızla oradan oraya koşan ‘amaçsız’ bir kalabalık.. Üzüldüm..
+       <br>
+        <br>
+         “Katılımcı sayısı yüksek olacak, 150 bin ziyaretçi gelecek” gibi çabaları bu anlamda tamamen lüzumsuz gördüğümü belirteyim. Davetiyelerin biraz daha ilgilisine dağıtılmasıyla (ziyaretçiyi azaltır mutlaka) hem profeyonelleşme yönünde adım atılmış olur hem de dağıtılan katalog ve promosyonlarda tasarruf sağlanabilir.
+         <br/>
+         <br/>
+         Diğer yandan şurası da var mutlaka. ‘Amaçsız’ diye nitelediğimiz insanların bireysel olarak bir eksikliği sözkonusu değil. Bu bizim toplumumuzda olan bir zaaf ne yazık ki. Beleş peşinde olmak...
+         <br/>
+         <br/>
+         Herşeye rağmen Bilişim, gelecek adına ümidimizi yeşertti. Nice ‘Bilişim’lere...                                                       YK
+         <br/>
+         <br/>
+         Bilişim bitti sıra CeBIT’te...
+         <br/>
+         <br/>
+         Sözü bilişimden ve de CeBIT’ten açmışken CeBIT’in sayfasına uğramamak olmazdı. www.cebit.de adresinden ziyaret edebileceğiniz CeBIT fuarı sitesi Almanca ve İngilizce olarak yayınlanıyor. Önümüzdeki fuar olan CeBIT 2001’in davetiyle bizi karşılayan sitede önceki fuarlarla ilgili katılımcı firma ve ziyaretçi istatistikleri, katılımcı firmaların kategorize edilmiş listeleri ve dünya çapında yapılan ‘A CeBIT Event’lerle ilgili bilgiler bulunuyor.
+         <br/>
+         <br/>
+         CeBIT’i organize eden firmanın yaptığı diğer ticari fuarlar, 2005 yılına kadar yapılacak olan CeBIT fuarları ile ilgili ön bilgiler ve detaylar da sitede bulunuyor.
+         <br/>
+         <br/>
+         Teknoloji firmalarının kalbinin attığı CeBIT fuarlarının sitesine göz atmanızda fayda var...
+         <br/>
+         <br/>
+         Yimpaşnet’in yeni portalı: netteyim.com’
+         <br/>
+         <br/>
+         Anadolu insanının alınteri ile kurulan Yimpaş Holding’in iştiraki olan Yimpaşnet “ailenizin interneti” sloganı ile hızlı adımlar atmaya başladı. İlk kez Bilişim fuarında piyasada kendini gösteren Yimpaşnet, reklamlarıyla da kulaklarda yer etmeye başladı.
+         <br/>
+         <br/>
+         Yimpaşnet’in internet meraklılarının hizmetine sunduğu bir hizmeti de biz müjdelemiş olalım. www.netteyim.com, internet kurtlarını çekecek bir organizasyon. Ücretsiz email, web alanı, sanal hard disk, not defteri, ajanda, telefon rehberi, hesap makinası, radyo ve sms hizmetleri veriliyor. Bu kadar çok ücretsiz hizmeti hem de Türkçe olarak biraraya toplaması açısından oldukça cazip bir çalışma.
+         <br/>
+         <br/>
+         Bunlara ek olarak chat, forum, oyun, alışveriş servisleri de bulunuyor.
+         <br/>
+         <br/>
+         Güncel haberler ve hava durumu bilgilerini saymaya herhalde gerek yok.
+         <br/>
+         <br/>
+         Bilgisayar, internet, eğitim, kültürsanat, sağlık ve spor konularında da web rehberiniz olmak için kolları sıvamış olan Netteyim.com’a üye olmamak elde değil.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 9 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13949), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043933/http://www.aksiyon.com.tr:80/yazdir.php?id=13949)

@@ -1,0 +1,99 @@
+# Azeriler burjuvasını arıyor
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041116051437im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041116051437im_/http://www.aksiyon.com.tr/resim/463/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  BAKÜ - Haydar Aliyev döneminde ‘devletleşme’ sürecini tamamlayan Azerbaycan, yeni dönemde demokratikleşme sürecini hayata geçirebilir. Azerbaycan’ın demokrasi kültürünü yerleştirebilmesi için ekonomik ve siyasi alanda söz sahibi orta sınıflara ihtiyacı olduğu görülüyor.
+ </font>
+ <p>
+  <font class="content">
+   Azerbaycan’da tarihi öneme sahip seçimler geçen hafta yapıldı. Yeni Azerbaycan Partisi adına seçimlere katılan İlham Aliyev, babası Haydar Aliyev’in 1998 yılında aldığı oy oranını da geçerek ilk turda cumhurbaşkanı olmaya hak kazandı. Seçimlerde, şeffaf seçim sandıklarının kullanımından oy sayım işlemlerinin merkezi seçim komitesi tarafından anında duyurulmasına kadar pekçok ilk yaşandı. Ancak, seçimlerin üzerine çarşamba gecesi ve perşembe günü yaşanan talihsiz olayların gölgesi düştü yine de. Hem de binlerce gözlemcinin, yüzlerce gazetecinin gözü önünde.
+   <br/>
+   <br/>
+   İlk gerginlik, oy verme işleminin tamamlanmasından sonra İsa Kamber liderliğindeki Müsavat Partisi’nin Bakü’deki merkez binası önünde toplanan partililerle güvenlik güçleri arasında patlak veren arbedeydi. Parti binası önünde toplanan kalabalığın gecenin ilerleyen saatlerinde dağılmaması üzerine polisin müdahalesi gerçekleşti ve çıkan çatışmada onlarca güvenlik görevlisi ile Müsavat Partisi yandaşı yaralandı.
+   <br/>
+   <br/>
+   Gece başlayan bu gerginlik, ertesi güne taşındı. Müsavat Partisi lideri İsa Kamber’in, ‘yüzde 60 civarında oy aldığı, ancak bu oyların gasp edildiği’ yönündeki beyanatı, geceden kalma tansiyonun yükselmesine yol açtı. Azerbaycan Milli İstiklal Partisi ile Halk Cephesi Partisi, seçim sonuçlarını tanımadıklarını duyurdular. En sert açıklama ise Avrupa Güvenlik ve İşbirliği Teşkilatı’ndan (AGİT) geldi. AGİT gözlemcilerine göre, seçimlere hile karıştırılmıştı.
+   <br/>
+   <br/>
+   Ön kabuller kanaate dönüştü
+   <br/>
+   <br/>
+   AGİT’in açıklaması önemliydi, çünkü seçim süreci boyunca ‘devlet başkanlığı seçkileri’nin demokratik ve şeffaf olmayacağı yönündeki ön kabuller, uluslararası bir kurumdan gelen beyanla tam bir kanaat oluşturdu. Günlerdir Bakü sokaklarında ‘fısıltı’ halinde dolaşan ‘bir şeyler olacak’ şeklindeki konuşmalar eyleme dönüştü. Alttan alta biriken gerginlik, Azadlık Meydanı’nda öfke olup patladı. 3 bin civarındaki Müsavat Partisi yandaşı ile güvenlik güçleri arasında taşlı, sopalı, coplu büyük bir çatışma çıktı. Biri çocuk iki kişi hayatını kaybetti, aralarında basın mensuplarının da bulunduğu yüzlerce kişi yaralandı.
+   <br/>
+   <br/>
+   Azerbaycan’da yaşananlar demokratik değerler çerçevesinde ele alındığında elbette ortaya pek de kolay kabul edilebilir bir görüntü çıkmıyor. Ancak, 12 yıldır ‘hür ve müstakil’ Azerbaycan’ın bu kadar kısa zamanda Batı standartlarına sahip demokratik bir kültür seviyesine ulaşması —şartlar dikkate alındığında— pek de kolay görünmüyor. 1920—1991 yılları arasında baskıcı bir rejimin ve kolektif ekonomik yapının hüküm sürdüğü bir yer olan Azerbaycan’ın, bağımsızlıktan sonraki iki yıl boyunca içeride iktidar kavgalarına, dışarıda da bir savaşa şahit olduğunu hatırdan çıkarmamak lâzım.
+   <br/>
+   <br/>
+   Devletleşme ve demokratikleşme süreci
+   <br/>
+   <br/>
+   Nitekim, Azerbaycan’da yaşanan son olaylar gösterdi ki, siyasi, ekonomik ve sosyal alanda Batı standartlarına ulaşabilmek için alınması gereken epey bir mesafe bulunuyor. Bu noktada Azerbaycan’ın zorluğu ise demokratikleşme süreci ile devletleşme sürecini paralel yürütmek zorunda kalması. Azerbaycan’ın, Haydar Aliyev liderliğinde geçen son 10 yılda devletleşme sürecinde önemli mesefaler kaydettiği görülüyor. Ancak, bu sürecin kâmil manada tamamlanamaması, demokratik açılımların ertelenmesine yol açıyor. Ancak, Azerbaycan’da faaliyet gösteren siyasi partilerin duruşları ile rekabete dayalı politik yapının da demokratik düzenlemelerin gecikmesinde rolü olduğu görülüyor.
+   <br/>
+   <br/>
+   15 Ekim seçimlerine atfedilen önem tam da sözü edilen bu sürece yüklenen anlamla birebir örtüşüyor. Azerbaycan devlet geleneğinin bilinçaltında, yirminci yüzyılın başlarında akim kalan hür ve müstakil devlet kurma teşebbüsünün izleri bulunuyor. 1917 yılında Rus İmparatorluğu’nun yıkılmasının ardından, 1918 yılında bağımsız bir cumhuriyet ilan edildi Azerbaycan topraklarında. Ancak, bu cumhuriyetin varlığı 23 ay gibi kısa bir sürede sona erdi, Kızıl Ordu’nun 1920 yılında topraklarını işgal etmesiyle ortadan kalktı. Bu tarihten itibaren Azerbaycan, Sovyet Sosyalist Cumhuriyetler Birliği’nin (SSCB) bir parçası haline geldi.
+   <br/>
+   <br/>
+   Psikolojik eşiği aşma gayreti
+   <br/>
+   <br/>
+   SSCB’den bağımsızlığını elde ettikten sonra Azerbaycan’ın devlet kuramama geleneğini kırması ve 23 ay süresi üzerine bina edilen psikolojik eşiği aşması gerekiyordu. Bu önemliydi, zira bu topraklarda yaşayanların daha uzun yıllar kendi olamama gibi bir riskle karşılaşmaları kuvvetle muhtemeldi. Azerbaycan 1991 yılında bağımsızlığını elde ettiğinde devletin zirvesinde Komünist Partisi Birinci Sekreteri Ayaz Muttalibov vardı. Ülkenin ilk cumhurbaşkanı olarak görev yapan Muttalibov, 1992 yılının mart ayında Yukarı Karabağ bölgesinde yaşanan karışıklıklar sonrası istifa etmek zorunda kaldı. Ancak, devlet dışarıda Ermenilerle, içeride ise iktidar mücadelesi ile karşı karşıya idi.
+   <br/>
+   <br/>
+   Muttalibov, istifanın akabinde “eski muhafızlar” tarafından mayıs ayında tekrar göreve getirildi. İktidarını pekiştirmek isteyen Ayaz Muttalibov, planlanmış başkanlık seçimlerini askıya aldı ve tüm siyasi hareketleri yasakladı. Bunun üzerine Azerbaycan Halk Cephesi harekete geçti ve muhalif bir hareketi organize ederek iktidarı ele geçirdi. Bu dönemde Azerbaycan Halk Cephesi, 50 kişiden oluşan Milli Meclisi oluşturarak Haziran 1992’de seçime girdi. 1992 yılında yapılan seçimlerde, Ebulfeyz Elçibey, Azerbaycan’ın ikinci cumhurbaşkanı olarak seçildi.
+   <br/>
+   <br/>
+   Fakat, Ermenistan’ın Azerbaycan topraklarını işgali ile yaşanan savaşta başarı gösterilememesi Elçibey’i zor durumda bıraktı. Haziran 1993’te Azerbaycan’ın ikinci büyük şehri olan Gence’de başlayan ayaklanma sebebiyle Elçibey, Nahçivan’a sığındı. Elçibey’in yerine, o dönemde Nahçivan Meclis Başkanlığı görevini yürüten Haydar Aliyev, Bakü’deki Milli Meclis tarafından görevlendirildi. Aynı yılın Ağustos ayında yapılan seçim sonrasında da Haydar Aliyev 5 yıllık bir süre için cumhurbaşkanlığına seçildi.
+   <br/>
+   <br/>
+   Yurtta ve dünyada sulh çizgisi
+   <br/>
+   <br/>
+   Bu tarihi süreç de gösteriyor ki Haydar Aliyev’in göreve geldiği tarihe kadar geçen süre ile yüzyılın başında bağımsız olan devletin hayatta kaldığı süre aşağı yukarı aynı. Dolayısıyla, Haydar Aliyev’in göreve gelir gelmez ‘yurtta ve dünyada sulh’ çizgisini tercih etmesi, 1994 yılında Karabağ Savaşı konusunda Ermenistan’la ateşkes yapması, devlet organizmasına kurumsal bir kimlik kazandırmaya çalışması aslında siyasi tarih tecrübesinin reel politike dönüşmesinden başka bir şey değildi. Dışarıdaki sorunları dondurup, içeride siyasi, ekonomik, sosyal ve kültürel alanlarda istikrarı yakalamayı hedefleyen bu politika ile Haydar Aliyev, devletleşme sürecini başlatarak Azerbaycan’ın bütün kurum ve kuruluşlarıyla dünyada tanınmasını ve varlığının tescil edilmesini sağladı.
+   <br/>
+   <br/>
+   İktidarda kaldığı on yıl boyunca Sovyetler Birliği döneminden kalma yapısal ve sosyal problemleri aşmaya çalışan Aliyev, ekonomide tercihini serbest piyasadan siyasette de çok partili demokratik sistemden yana kullandı. Böylece, eski Sovyet sisteminin merkezi planlamaya dayalı yapısı tamamen terk edilmiş oldu.
+   <br/>
+   <br/>
+   Devlette devamlılık ilkesi
+   <br/>
+   <br/>
+   Bölge ülkeleri arasında denge politikası takip eden Azerbaycan, 1993—2003 yılları arasında iç ve dış siyasetinde bir istikrar sağladı. Bu sayede ekonomik bir canlanma yaşandı ve yüksek kalkınma hızına ulaşıldı. Devlet sistematiğine ‘devamlılık’ ilkesi yerleştirildi.
+   <br/>
+   <br/>
+   Bu konuda aynı vurguyu yapanlardan biri de Türkiye’nin önde gelen siyaset bilimcilerinden Doç. Dr. Yavuz Gökalp Yıldız. Azerbaycan seçimlerini yerinde izlemek üzere geldiği Bakü’de görüştüğümüz Yıldız’a göre, Azerbaycan’ın devletleşme süreci henüz tamamlanmış değil. Dolayısıyla, hem bu süreci devam ettirecek, hem de uluslararası sistemde meydana gelen kaymaları analiz edebilecek, bölgedeki gelişmelere uygun stratejiler üretebilecek liderlere ihtiyacı var Azerbaycan’ın...
+   <br/>
+   <br/>
+   ‘Azerbaycan’da muhalefet tutarlı değil’
+   <br/>
+   <br/>
+   ‘Azerbaycan’a zarar vermeyecek, aksine daha yukarılara çıkmalarını sağlayacak siyasi kadrolar’ın öneminden bahseden Yavuz Gökalp Yıldız, Haydar Aliyev’in bu konuda oynadığı role dikkat çekiyor. Seçim çalışmalarını takip etmek amacıyla çıktığı ‘reyon’lardaki izlenimlerini de aktaran Yıldız, Azeri halkının “Biz çocuklarımızı Atatürk ilkeleri ve Haydar babamızın kuralları ile yetiştirmek istiyoruz” şeklindeki sözlerini aktarıyor.
+   <br/>
+   <br/>
+   Azerbaycan’daki muhalefetin kendi içerisinde tutarlı olmadığını savunan Yavuz Gökalp Yıldız, ‘Üretken bir politikaları yok, sadece eleştiriyorlar ve bunu zaman zaman saldırganlık boyutuna çıkarıyorlar’ diye konuşuyor. Müsavat Partisi lideri İsa Kamber’in seçimleri ölüm—kalım savaşı haline getirmesinin yanlış bir politika olduğunu dile getiren Yıldız, Azerbaycan’daki muhalefetin artık demokratikleşme olgusunu özümsemesi gerektiğini söylüyor.
+   <br/>
+   <br/>
+   Gözler İlham Aliyev’in üzerinde
+   <br/>
+   <br/>
+   Sonuç olarak Azerbaycan, seçimlerle birlikte yeni bir döneme girdi. Gözler şimdi her defasında babasının politikalarını devam ettireceğini söyleyen İlham Aliyev’in üzerine çevrilmiş durumda. En çok merak edilen konuların başında ise siyaset yapma enstrümanları oldukça farklı olan ve bürokrasiyi yönlendirme konusunda mahir bir tecrübeye sahip Haydar Aliyev’in uyguladığı politikaların nasıl sürdürüleceği geliyor. Bu konuda değerlendirme yapanlar, Azerbaycan’ın jeopolitik zorunluluktan kaynaklanan ve Haydar Aliyev döneminde bir ‘denge politikası’ haline dönüştürülen stratejik pozisyonun çok da değişmeyeceğini söylüyorlar. 15 Ekim sonrası süreçte, serbest piyasa ekonomisinde de bir değişiklik beklenmiyor.
+   <br/>
+   <br/>
+   Seçimler sonrası süreçte devletleşme sürecinin yanında demokratik açılımların yapılabileceği ifade ediliyor. Sosyal ve siyasal alanda gerçekleştirilecek reformların istikrara yapacağı katkıdan dolayı ülkeye daha fazla yabancı yatırımın gelebileceği ifade ediliyor. Kolay olması beklenmeyen bu süreçte ekonomik kalkınmanın ana gövdesini oluşturan orta sınıf tüccarların sayısının artırılması ve tüketimi körükleyen alım gücü yüksek bir ‘orta direk’in ortaya çıkarılması da umuluyor.
+   <br/>
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=3092&yorum=440), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041116051437/http://aksiyon.com.tr:80/detay.php?id=3092&yorum=440)

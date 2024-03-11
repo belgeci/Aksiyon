@@ -1,0 +1,49 @@
+# Çalıntı arabalar Irak'ta çıkıyor
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türkiye'den çalınan arabalar Irak'ta pazarlanıyor. Kaçakçılar tarafından Irak'a sokulan lüks arabalar fahiş fiyata alıcı bulurken, direnişçiler, peşmergeler, hatta PKK'lılar bu arabaların en büyük talibi.  Daha çok  Jeep, BMW, Mercedes marka otomobiller tercih ediliyor.
+   <br/>
+   <br/>
+   Savaş ve şiddetin hüküm sürdüğü Irak'ta kimin ne yaptığı tam olarak kestirilemiyor. Yönetim boşluğu sonucu oluşan kaçakçılık bütün hızıyla sürüyor. Tarihi eser kaçakçılığı, silah kaçakçılığı, mazot kaçakçılığı derken buna araba kaçakçılığı da eklendi. Yalnız bu sefer Irak'a kaçak yollardan araba sokuluyor. Lüks marka Jeep, BMW, Toyota, Honda marka arabalar Türkiye üzerinden Irak'a giriyor.  Arabaların en büyük özelliği tamamının çalıntı olması. Herhangi bir şehirden çalınan arabalar sınırdaki köylerden Irak'a geçiriliyor.
+   <br>
+    <br>
+     Saddam'ın devrilmesinden sonra ortada kalan lüks araba ve Jeeplerine Barzani ve Talabani'ye bağlı Peşmergelerin el koyup Kuzey Irak'a taşıdıkları biliniyor. Irak'ta gayri resmi verilere göre bir milyondan fazla kaçak arabanın dolaştığı belirtiliyor. Bu arabaların büyük kısmı Türkiye üzerinden Irak'a sokuluyor. Emniyet kayıtlarına göre son dönemlerde Türkiye'de araba hırsızlığı artmış durumda. Sadece İstanbul'da son iki ayda 2 bin otomobilin Kadıköy, Üsküdar, Moda, Taksim, Bakırköy, Levent, Şişli, Etiler gibi bölgelerden çalındığı kaydediliyor.
+     <br>
+      <br>
+       Bu arabaların akıbeti hakkında Ferhat M. bir ipucu veriyor; “Hedef, lüks semtlerdeki iyi arabalar. Kötü ve modeli düşük arabayla kimse uğraşmaz. Bize İstanbul'dan da araba geliyor. Ara yollardan geçirilerek Güneydoğu'ya getiriliyor ve sonra Irak'a geçiş gerçekleştiriliyor. Bütün bunlar en çok iki günde tamamlanıyor.”
+       <br>
+        <br>
+         Bir arabanın Irak'a ulaşması üç aşamadan geçiyor. Hırsızdan arabayı yarı fiyatına alan kaçakçı, sınırdaki köylerden, daha önce mayını temizlenmiş patika yolu kullanıp gece vakti karşı tarafa geçirip oradaki alıcıya satıyor. Iraklı alıcı ise normal fiyattan aldığı arabayı iki misli fiyata zenginlere pazarlıyor. Yani 30 milyarlık bir arabayı kaçakçı hırsızdan 15 milyar liraya alıyor, kendisi ise sınırın öteki tarafındaki alıcıya arabanın asıl fiyatı olan 30 milyar liradan veriyor. Son kaçakçı ise 30 milyara aldığı arabayı 60 milyar lira karşılığında müşterisine satıyor. Arabalar daha çok Silopi, Çukurca ve  Nusaybin üzerinden sağlanıyor. Emniyet güçleri araba kaçakçılığı konusunda ciddi bir çalışmayı başlatmış durumda. Ancak gece yarısı mayınlardan temizlenerek hazırlanmış özel yolları tespit etmede zorlanıyorlar.
+         <br/>
+         <br/>
+         Direnişçiler alıyor
+         <br/>
+         <br/>
+         Türkiye'den sokulan kaçak arabalar Irak'ta doğrudan direnişçilere teslim ediliyor. Araba kaçakçısı Ferhat M. bazen arabaları El Kaide militanlarının gelip aldığını söylüyor;  “Irak'taki direnişçiler adına çalışanlar oluyor. Gelip arabaları alıyorlar, bazen de El Kaide'deniz diyenler alıyor. Arabaları daha sonra ya satıyor ya da kendileri kullanıyorlar. Ama daha çok satıp ihtiyaçlarını giderdiklerini biliyorum. Başka arkadaşlarım da Peşmerge ve PKK ile alış-veriş yapıyor. Üç ay önce bir arkadaş PKK'lılara bir Jeep satmış. Arabalar teslim edildikten hemen sonra plakası takılıp yola çıkılıyor."
+         <br/>
+         <br/>
+         Kaçakçılık zinciri Türkiye'den giden arabalarla sınırlı değil. Üç dört koldan Irak'a giren lüks otomobiller direnişçiler tarafından Suriye ve İran'a sokularak da pazarlanıyor. Suriye ve İran'da arabalar fahiş fiyatlarda alıcı buluyor. Irak'a sokulan arabalar arasında en çok Mercedes, BMW ve Toyota markalar tercih ediliyor. Arabanın klima başta olmak üzere ful aksesuarlı olması aranan temel şartlardan biri. Metalik gri, siyah, bej renkler tercih edilirken, sarı, mavi, yeşil gibi göze batan arabalara düşük fiyat biçiliyor. Zaten kaçakçılar bu durumu bildikleri için tercih edilen renkteki arabalarla ilgileniyor. Kaçakçı Ferhat M. son bir yılda 15 arabayı Irak'a soktuğunu anlatırken, kendisinden çok daha fazla satan kaçakçı arkadaşlarının olduğunu belirtiyor. Ferhat M. başka bir işinin olmadığını bu yüzden böyle bir işe giriştiğini belirtiyor; "Yaptığım iş doğru değil; ama ben üç aileye bakıyorum. İki ağabeyim kaçakçılık yaparken mayına basıp öldü. Onların hanımlarına ve çocuklarına şimdi ben bakıyorum. Zorunlu olarak bu işi yapıyorum. Yetim çocukların hepsini okutacağım; bizim gibi böyle kötü işlerle uğraşmasınlar. Türkiye'nin zenginleri vergi kaçırır ben de araba kaçırıyorum."
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1588 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14806), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050218203756/http://www.aksiyon.com.tr:80/yazdir.php?id=14806)

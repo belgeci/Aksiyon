@@ -1,0 +1,73 @@
+# Ezeli rekabet, ebedi taklit
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031151im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031151im_/http://www.aksiyon.com.tr/resim/365/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yaklaşık bir asır önce başlayan Fenerbahçe ile Galatasaray arasındaki ezeli rekabete, özenme ve taklit etme de eklendi. Saha içinde yaşanan rekabet son yıllarda saha dışına taştı ve iki kulüp güzel icraatlarda birbirini örnek alıp, taklit etmeye başladı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Aşağı yukarı her ülkenin yıllardır kıyasıya rekabet halinde olan iki kulübü mutlaka var. İspanya’da Real Madrid- Barcelona, İtalya’da Lazio-Roma, Milan-İnter, İskoçya’da Celtic-Glasgow Rangers, Yunanistan’da Olimpiakos-Panathinaikos, Rusya’da CSKA Moskova-Spartak Moskova, İran’da Piruzi-İstiklal ve Türkiye’de de Fenerbahçe-Galatasaray... Bu takımların kendi aralarındaki rekabetleri, diğer takımlarla olan rekabetlerine hiç benzemiyor. Mesela, Beşiktaş-Galatasaray veya Beşiktaş-Fenerbahçe maçlarının, ilgi açısından Galatasaray-Fenerbahçe karşılaşmalarından geri kaldığı bir gerçek. En kötü olduğu dönemde Fenerbahçe’nin Galatasaray’ı, Galatasaray’ın da Fenerbahçe’yi yenebilmesi, ezeli rekabetten başka bir şeyle açıklanamaz herhalde.
+   <br>
+    <br>
+     Yaklaşık bir asırdır futbol sahalarında kıyasıya bir mücadele halinde olan Fenerbahçe ile Galatasaray arasındaki rekabet, sadece saha içiyle sınırlı değil. Futbolda 14 lig şampiyonluğu bulunan ve üçüncü yıldızı ezeli rakibinden önce göğsüne takmak isteyen iki kulüp de birbirlerini her alanda geride bırakmaya çalışıyorlar. Bu yoğun mücadele, özenmeyi ve taklit etmeyi de beraberinde getiriyor. Son yıllardaki icraatlara baktığımızda kimi zaman Fenerbahçe’nin Galatasaray’ı, kimi zaman da Galatasaray’ın Fenerbahçe’yi taklit ettiğini görüyoruz. Tribün anarşizmi dışındaki bu özenme ve taklitlerin Türk sporunun gelişmesine çok büyük katkılarda bulunduğu da bir gerçek. İki güzide kulüp arasında futbolla başlayıp tüm alanlara yayılan rekabeti; tesisleşmede, mal varlığında, branş çeşitliliğinde, altyapıda, taraftarların örgütlenmesinde, hedeflerde ve transferlerde net bir şekilde görmek mümkün.
+     <br>
+      <br>
+       Fener'inde gözü Avrupa'da
+       <br/>
+       <br/>
+       İcraatlarıyla Türkiye Cumhuriyeti’ne çok benzediği için Fenerbahçe Cumhuriyeti olarak nitelenen Sarı-Lacivertli kulübün özellikle son yıllarda Galatasaray’a daha çok özendiği bir gerçek. İstanbul’un Anadolu yakasında yer alan Fenerbahçe, Türkiye’nin Batı’ya özendiği gibi, Avrupa yakasında yer alan Galatasaray’ı birçok alanda örnek alıyor. Fenerbahçe’nin Galatasaray’a özendiği konuların başında da pek tabii ki Avrupa şampiyonluğu geliyor. Sarı-Kırmızılı takımın 2000 yılında hem UEFA Kupası’nı, hem de Süper Kupa’yı müzesine götürmesi, iki ezeli rakip arasındaki rekabet çıtasını aniden yükseltti. Çıtanın yükselmesinden sonra Türkiye Süper Ligi ‘Anaların ligi’ olarak nitelenir oldu ve yurt içinde alınacak bir şampiyonluk ikinci derecede önem arz etmeye başladı. Galatasaray’ın geçen sezon Şampiyonlar Ligi’nde çeyrek final oynaması, bu sezon da yoluna başarılı bir şekilde devam ediyor olması, aynı ligde puan alamayıp elenen son şampiyon Fenerbahçe’yi daha da kamçıladı. Geçen sezonun sonunda sağlık problemlerini bahane ederek görevi bırakmak isteyen, ancak daha sonra devam kararı alan Fenerbahçe Başkanı Aziz Yıldırım, geçtiğimiz günlerde Mart 2002’deki kongrede yeniden aday olacağını söyledi ve ekledi: ‘Önümüzdeki iki sezon içerisinde mutlaka Avrupa şampiyonu olmak istiyoruz.’ Bunun için de çalışmalara şimdiden başlandı. Mesela, Galatasaray’ın eski oyuncusu Real Mallorca’lı Fatih Akyel, geçen hafta içinde sürpriz bir şekilde transfer edildi. Transfer listesinde başka isimler de var; ancak bu oyuncular şimdilik gizli tutuluyor.
+       <br/>
+       <br/>
+       F.Bahçe stadını yaptı, G.Saray bekliyor
+       <br/>
+       <br/>
+       Fenerbahçe’nin Galatasaray’ı örnek aldığı konulardan biri de modern stad projesi. Hatırlanacağı gibi, kendi stadyumunu yıkıp yerine modern bir stad yapma fikrini ilk önce Galatasaray ortaya atmıştı. Sarı-Kırmızılı kulüp, içinde sinema ve tiyatro salonları, restaurantlar, alış-veriş, eğlence ve kültür merkezleri gibi birçok unsur bulunan Ali Sami Yen projesi için milyon dolarlar harcamış, ama bir türlü kazmayı vuramamıştı. Galatasaray’dan sonra Şükrü Saraçoğlu projesini geliştiren Aziz Yıldırım başkanlığındaki Fenerbahçe ise hemen çalışmalara başladı. Önce kuzey tarafındaki kale arkası tribününü, sonra güney tarafındaki kale arkası tribününü tamamlayan Fenerbahçe, önümüzdeki mart ayında da doğu tribününü bitirmiş olacak. Doğu tribünü, güney tarafındaki kale arkası tribünü gibi Galatasaray maçıyla birlikte hizmete girecek. Yani, geçen sezon 42 bin kişinin izlediği Fenerbahçe-Galatasaray maçını, bu sezon yaklaşık 55 bin kişi seyredecek. Şükrü Saraçoğlu Stadı, gelecek yıl batı tribününün, iki yıl içinde de çatıların tamamlanmasıyla 65 bin kişilik modern bir stad olacak. Öyle görünüyor ki projeyi hayata geçirme konusunda, Galatasaray Fenerbahçe’yi örnek alacak.
+       <br/>
+       <br/>
+       Tesisleşme ve altyapıda G.Saray etkisi
+       <br/>
+       <br/>
+       Fenerbahçe, stad projesi dışında Samandıra Tesisleri’nin tamamlanması, Dereağzı Tesisleri’nin modern hale getirilmesi ve altyapıya önem verilmesi konusunda da Galatasaray’ı örnek aldı. Fatih Terim döneminde Metin Oktay Tesisleri’nin ve altyapının modern hale getirilmesi, takımın genç oyuncularla takviye edilmesi Sarı-Lacivertli kulübü oldukça etkiledi. Bu etkilenme sonucunda ilk yapılan şey, yıllardır bir türlü tamamlanamayan Samandıra Tesisleri’nin tamamlanması oldu. A Takım’ın Samandıra’ya taşınmasıyla birlikte Dereağzı Tesisleri altyapıya verildi. Altyapının başına da Galatasaray’dan Tamer Güney transfer edildi. Tamer Güney’in gelmesiyle birlikte Fenerbahçe Genç Takımı Türkiye şampiyonu oldu. Sarı-Lacivertli kulüp, geçtiğimiz günlerde de altyapı oyuncuları için Dereağzı Tesisleri’ne bir okul yaptırdı. Bu okul, Galatasaray’ın dört yıl önce Metin Oktay Tesisleri’ne yaptırdığı okula çok benziyordu. Gelecek vaat eden altyapı oyuncuları, bu okulda hem futbolu, hem de İngilizce, matematik ve bilgisayar gibi ilimleri öğrenecekler.
+       <br/>
+       <br/>
+       Teknik kadroda Cim Bom modeli
+       <br/>
+       <br/>
+       Fenerbahçe’nin örnek aldığı diğer bir konu da teknik kadronun oluşturulması. Sarı-Lacivertli kulüp, ezeli rakibinin, eski oyuncusu Fatih Terim ile birçok başarıya imza attığını görünce, önce Rıdvan Dilmen’i tam yetkiyle göreve getirdi. Ancak Rıdvan Dilmen’in yeterince tecrübeli olmayışı ve Fenerbahçeli spor yazarları tarafından aşırı derecede eleştirilişi, Aziz Yıldırım’ı başka arayışlara yöneltti. Bu arayış neticesinde Mustafa Denizli transfer edildi. Denizli’nin yardımcılığına da geleceğin teknik direktörü olarak düşünülen Oğuz Çetin getirildi. Fenerbahçe camiasından birçok kişi Galatasaraylı bir antrenörün kurtarıcı olarak getirilmesini içine sindiremese de kısa süre sonra tribünler ‘Mustafa Denizli, şampiyon yap bizi’ diye tempo tutmaya başladı. Yönetimin, alınan her kötü sonuçtan sonra eleştirilere kulak tıkayıp Denizli’nin arkasında olduğunu açıklaması da Sarı-Lacivertli kulüpteki Galatasaray etkisinin bir başka göstergesi oldu.
+       <br/>
+       <br/>
+       Basketbol ve yüzmede müthiş rekabet
+       <br/>
+       <br/>
+       İki ezeli rakip arasındaki mücadelelerin ne kadar önemli olduğunu gözler önüne sermek için basketbol ve yüzme takımlarını da özel olarak mercek altına almak gerekiyor. Fenerbahçe, 1992-98 yılları arasında şampiyonluğa ve tüm kupalara ambargo koyan Galatasaray Bayan Basketbol Takımı’nın bu başarılarına son vermek için kolları sıvadı ve Sarı-Kırmızılı takımdan Clarissa Davis’i transfer etti. Böylece, Fenerbahçe Bayan Basketbol Takımı, 1998-99 sezonunda tüm kupaları, 1999-2000 ve 2000-01 sezonlarında da Cumhurbaşkanlığı ve Türkiye Kupası’nı kazandı. Yine Sarı-Lacivertli kulüp, 1996 yılına kadar yüzmede şampiyonluğa ambargo koyan Galatasaray’ı durdurmak için Sarı-Kırmızılı takımın yüzücülerini transfer etti. 1997-2000 yılları arasında dört kez üst üste Türkiye şampiyonu olan Fenerbahçe Yüzme Takımı, bu sezon birincilik kürsüsünü yeniden Galatasaray’a kaptırdı. Sarı-Kırmızılı takımın yüzmede başarılı olmasının nedenlerinden biri de Boğaz’daki Galatasaray Adası. Yüzme havuzunun ve sosyal tesislerin bulunduğu bu ada, Galatasaray’ın önemli mal varlıklarından biri. Cim Bom’un adası olur da Sarı Kanarya adasız durur mu? Fenerbahçe’nin şu anda Moda açıklarında bir ada projesi var. Gerekli izin alınır ve para da bulunursa proje gerçekleştirilecek.
+       <br/>
+       <br/>
+       Cim Bom da Fener’e özeniyor
+       <br/>
+       <br/>
+       İlklerin takımı olarak bilinen Galatasaray ise ezeli rakibi Fenerbahçe’ye daha yeni yeni özenmeye başladı. Sarı-Kırmızılı takım, ünlü gazeteci Uğur Dündar’ı yönetime alan Fenerbahçe’ye özenerek geçen mart ayında Fatih Altaylı’yı yönetimde etkin bir konuma getirdi. Sarı-Kırmızılılar, Sarı- Lacivertli renklere gönül veren işadamlarının bir araya geldikleri 1907 Fenerbahçeliler Derneği’ni örnek alarak 1905 Galatasaraylı Yönetici ve İşadamları Derneği’ni kurdular. Galatasaray, ezeli rakibini son olarak internet alanında takip etmeye başladı. Fenerbahçeli taraftarların örgütlendikleri www.antu.com adresini örnek alan Galatasaraylılar, www.ultraslan.com'da bir araya gelip haberleşiyorlar ve tribün stratejilerini belirliyorlar. Hatırlanacağı gibi, geçen sezon internette örgütlenen ve stratejilerini belirleyen Fenerbahçeli taraftarlar, takımlarına sonuna kadar destek olmuşlar ve 12. oyuncu olarak şampiyonlukta büyük rol oynamışlardı.
+       <br/>
+       <br/>
+       E-mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12341), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031151/http://www.aksiyon.com.tr:80/detay.php?id=12341)

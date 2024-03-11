@@ -1,0 +1,55 @@
+# Efendim siz kimlerdensiniz?
+
+*Mehmet Kamış Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040629025319im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040629025319im_/http://www.aksiyon.com.tr/resim/493/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  ‘Bak’ diyor, Amerikalı diplomat gözlerini bana dikerek; “Özal, gerçekten çok iyi bir takiyyeci.” Takiyye... Şaşırmış gibi; “Sahiden bilmiyor musun?”
+ </font>
+ <p>
+  <font class="content">
+   “Bilmiyorum.” Biraz hayretle eğiliyor, sesinde alaycı bir titreşim var. “Şu Allah’ın işine bak” diyor; “Bir Amerikan Yahudisi, bir Müslüman Türk’e takiyyenin ne olduğunu anlatacak.” Ucu sipsivri bir kurşunkalem alıyor masasından. Elimden çektiği not defterimin temiz bir sayfasına okunaklı el yazısıyla Türkçe olarak yazıyor: ‘Takiyye’.
+   <br>
+    <br/>
+    Türk kamuoyu takiyye konusunu Hasan Cemal’in Eylül 1989 yılında yayınladığı Özal Hikayesi kitabıyla daha çok tartışmaya başlamıştı. Eski bir kelime tozlu raflardan alınmış ve yeniden gündeme taşınmıştı. O tarihten sonra dindarlar için çokça ama çokça kullanıldı. Çağı anlamak isteyen her dindar, bu kelimeyle itham edildi. Soner Yalçın’ın Efendi kitabıyla takiyye kelimesi aslında bir kez daha gündeme geldi. Ya da bu kitapla gündeme gelmesi gereken şeyin Sabetaistlerden çok takiyye kelimesi olduğunu düşünüyorum. Yıllarca takiyyeci diye dindarların maruz kaldığı ithamları kimlerin yaptığının daha iyi anlaşılması için önemli bir kitap. Kitap Sabetaycılarla birlikte İttihat Terakki’yi ve Osmanlı’nın yıkılışının hikayesini de veriyor. Bence kitaptaki asıl önemli olan da Osmanlı Devleti’nin yıkılış hikayesi.
+    <br/>
+    <br/>
+    Aslına bakılırsa Müslümanların neredeyse tamamı dönmedir. İslam dini nesebik bir din olmadığı yani Yahudilik gibi nesepten intikal etmediği için dinin tebliğ edilmesinden sonra hemen herkes eski dininden ya da yaşam biçiminden dönmüştür. Tarih boyunca, Yahudiler arasında da Müslüman olan birçok kimse var; Hıristiyanlardan da, putperestlerden de, şamanlardan da. Yani İslam dinine göre Müslüman olmak, eski dininden dönmek, ayıplanan, şüpheyle bakılan bir hadise değildir.
+    <br/>
+    <br/>
+    Bilindiği gibi Osmanlıda gayrimüslim unsurlar orduda doktorluk ve eczacılık haricinde görev yapamıyor, subay ya da üst düzey asker olamıyordu. Sabetaycılar haricinde Rum, Macar hatta Ermenilerden Müslüman olduğunu beyan edip orduda yükselen isimler olmuştu. Sadece isimlerini değiştiren ancak yaşantılarında hiç bir değişiklik olmayan bu insanlar Amerikalı Yahudi diplomatın dediği gibi ‘takiyye’ yapıyorlardı. Osmanlı’nın son dönemlerinde İslami yaşantıdan uzaklaşılması nedeniyle bu tür isimler dinin hiç bir vecibesini yerine getirmek zorunda kalmadan, eski yaşantısından hiç bir şeyi değiştirmeden sadece isimlerini değiştirerek Osmanlı’nın yönetim kadrosunda Müslüman isimleriyle yükselebiliyorlardı.
+    <br/>
+    <br/>
+    Burada sorun olan, dininden dönüp Müslüman olanlar değil, takiyye yapanlar. Osmanlı yönetimi Sabetaycı aileleri biliyordu. Ama zararsız oldukları, kendi dünyalarında yaşadıkları için devletin diğer unsurları gibi varlıklarını sürdürebiliyorlardı. Zararlı hale geldiklerinde ise, iyice güçsüzleşen Osmanlı’nın yapabileceği hiçbir şey yoktu.
+    <br/>
+    <br/>
+    Sabetaycılık Türkiye’de de bir realite. Ancak abartıldığı kadar güçlü ve organize olduklarını hiç sanmıyorum. Pek çoğu Türkiye içerisinde asimile oldu. Bu kadar gündeme getirilmelerinin altında bu asimileyi önleme çalışmaları yattığını da zaman zaman düşünüyorum. Ayrıca her taşın altında bir Sabetaist aramanın toplumsal bir paranoyaya sebep olduğunu söylemeye gerek var mı? Sabetaycılığı ya da Dönmeliği kamuoyu önünde tartışmayı, çok sağlıksız şeyler doğuracağından hiç doğru bulmuyorum. Bu konular çok netameli olduğu için temkinli yaklaşmak gerektiğini düşünüyorum. Mesela Evliyazadelerin Sabetaycı bir aile olduğunu yazarın nereden çıkarttığını anlayamadım. Somut verileri yok. Sadece varsayımlar. Dayandığı konu İzmir’e beş yüzyıl önce geldiğini söylüyor olmaları. Geldiğini söylediği yerlerde aileden izler bulunamamış. Türkiye’de hangi aile bırakın 500 seneyi, 200 sene önce yaşadığı yeri biliyor. Ya da kayıtları var. Dayandığı diğer bir tez de ailenin o dönemde hali vakti yerinde olması. Ve buna benzer tezler öne sürüyor. Ama hiç biri somut delil diye kabul edilmeyebilir. Burada konu Evliyazade ailesinin Sabetaycı olup olmaması değil, bir kimseye bu kadar kolay isim takılmasının doğru olmadığı.
+    <br/>
+    <br/>
+    Yazar, Yalçın Küçük’ün gündeme getirdiği isimden yola çıkarak nesep bulma garipliğini de önemsiyor. Her zorda kaldığında bu mantıktan yardım istiyor. Ona bakılırsa Soner ismi de zanlılar arasına girer.
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Faruk, 16-Haziran-2004
+> Takiyyecıler: 
+> Dinime ta'n eden bari müslüman olsa diye bir söz vardır. Türkiye'de adı soyadı müslüman olan bazı insanların nasıl olup da böylesine İslâm düşmanlığı yaptığını anlayabilmek için bu muammanın çözülmesi lâzımdır. Bu konu fuzûli bir listeleme işi değildir, yakın tarihimizin saklanan gerçeklerini gün ışığına kavuşturulmasının gayretleridir. Y. Küçük, Soner Yalçın gibi zevat bunu niye yaparlar bilemem ama, müslümanlar kendi öz vatanlarında neden parya muamelesine tabi tutulduklarının ana sebeplerini araştırıp bilmek zorundalar. Fisebilillah bu meseleye hizmet için hazırlanmış -eksiği ve hatasıyla- şu siteye bir göz atabilirler: www.sabatay-sevi.de www.takiyye.de.gs Saygılarımla.
+
+### Hasan Karataş, 16-Haziran-2004
+> ne gerek var: 
+> Efendi edlı kitap uzun zamandır gündemi meşgul ediyor ama kimse de ne gerek vardı demiyor.Demokratik bir yaşamın temel esası ayrımcılıkların olmamasıdır.Osmanlı milliyetçilik nifakları ekilinceye kadar bunu çok güzel sağlamış ve insanlar demokratik bir ortamda kardeşçe yaşamışlardır.Şimdi ne gerek vardı birilerini şu cu bu cu diye ayırmaya.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11481&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040629025319/http://www.aksiyon.com.tr:80/detay.php?id=11481&yorum_id=1)

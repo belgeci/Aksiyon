@@ -1,0 +1,127 @@
+# Mahallede çete war
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095134im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095134im_/http://www.aksiyon.com.tr/resim/387/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Arabanızın önü kesilip gırtlağınıza bıçak dayanmadıysa, onlarla henüz tanışmadınız. Gece araba patlatıyor, matize çıkıyorlar. Köşelerde zengin adam bekliyor, cüzdanını vermedi mi acımadan apandisitini alıyorlar. Balileri koklayıp, esrar çekip gaspa çıkıyorlar. Onları kenar sokaklar yetiştiriyor, mafya devralıyor. Sokak çetelerinin kilidini kırıp içine girdik
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hava kararır kararmaz Kocasinan Mahallesi’nde toplanan yaklaşık 100 kadar genç; satır, döner bıçağı ve sopalarla Yayla Mahallesi’ne doğru harekete geçti.  Öfkeli kalabalık 15 dakika içinde hedefine ulaştı; fakat aradıkları kişileri bulamadı. Geri dönmeye hiç niyeti olmayan kalabalığın öfkesi Gülhatmi Sokağı’nda patladı. Park halindeki 55 otomobili ve 6 işyerini tahrip ettiler. Terör baskınına uğradıklarını zanneden mahallelinin ihbarı üzerine harekete geçen polis, gruba müdahale etti. Bölgeye çok sayıda çevik kuvvet ekibi ile akrep ve panzer gibi zırhlı araçlar sevkedildi. Aralarında olayları başlatanların da bulunduğu 59 kişi gözaltına alındı. Geç saatlere kadar korkunç gecenin şokunu üzerlerinden atamayan mahalle sakinleri olayın “kız meselesi” yüzünden çıktığını, bir terör eylemi olmadığını öğrenince biraz olsun rahatladılar.
+   <br>
+    <br>
+     Olaylar gazete ve tv’lere yansıdığı kadarıyla kalmadı. Olacakları bir satranç oyunu gibi çözen Bahçelievler polisi, bir sonraki hamleyi önceden kestirip beklemeye başladı. Birkaç gün sonra beklenen oldu ve Üçevler Mahallesi’nde toplanan 250 kişi aynı bölgeye doğru harekete geçti. Grup bu sefer daha tertibatlıydı. Ellerinde molotof kokteylleri vardı. Ancak pusudaki polisin tertibatı daha güzeldi. Grup daha hedefine ulaşmadan enselendi. Ardından gözaltılar ve baskınlar başladı. Her gün 200-250 kişi gözaltına alındı. Her iki mahallede terör örgütü operasyonlarını andıran çalışmalar yürüten polis, toplumsal bir olayı ateşleyebilecek bu kişilere nefes bile aldırmadı. Ardından grupların “takıldığı” bilardo salonu, cafe gibi mekanlara baskınlar düzenlendi. 170 işyeri ruhsatlarıyla ilgili çeşitli eksiklikler bahane edilerek ortalık sakinleşene kadar kapatıldı.
+     <br>
+      <br>
+       Mahalleli  şaşkındı. Çünkü ellerinde büyüyen mahallenin gençlerini hiç böyle görmemişlerdi. Böylesine tehlikeli, organize ve öfkeli...
+       <br/>
+       <br/>
+       Asi değil, serseri gençlik
+       <br/>
+       <br/>
+       20 Ocak akşamı yaşanan bu olay aslında sokaklarda yükselen yeni bir trendin, yeni bir gençlik akımının  habercisiydi. Bağdat Caddesi’nden en kenar mahallelere kadar farklı fraksiyonlarda yayılan, benimsenen bir akım. Asilik, serserilik, bohemlik felsefesi üzerinde yükselen bu akım muhitine göre kollara ayrılıyor. Eğitim ve milli gelir seviyesi yüksek olan mahallelerde asilik ve güç gösterisi amacıyla oluşan gruplar, kenar mahallelerde çeteye dönüşüyor. Bu çeteler için İstanbul’un sokaklarında hayat, kendi çizdikleri sınırlar içinde sürüyor. Kurallar, yasalar bu sınırların içine giremiyor. Burada yaşamın kuralı, adeta çetenin kurallarına bağlı. Görüştüğümüz polis yetkilileri, organize bir hareketi asla kabul etmiyor. Sözkonusu gençlik gruplarının icraatlarının ‘mahalle milliyetçiliği’nden öteye geçmediğini savunuyor. Birbirine çok yakın bölgelerin polis şeflerinden farklı bilgiler geliyor. Bir komiser, “Bunlar İstanbul genelindeki azınlık psikopat topluluğudur” derken, bir başka bölgede görev yapan üst düzey yetkili, “Kontrolden çıktılar; bundan sonra yapılacak birşey yok, ıslah olmazlar” diyor. Çete olmadığını savunan bir polis müdürü ise, gençlerin birden bire patlayan, organize olan öfkelerini dikkate aldıklarını belirterek endişelerini anlatmadan geçemiyor. Aynı yetkili, sorunun temelinde sosyo-ekonomik yapıda meydana gelen ağır tahribatın yattığını belirtiyor. Aslında sokağın nabzını çok iyi tutan polis yetkilileri, kendi bölgeleriyle ilgili kötü bir haber çıkmasından endişe ederek konuşmaktan vazgeçince çareyi sokağa inmekte buluyoruz. İstanbul’un huzur veren ışıklı sokaklarından ayrıldıktan sonra, vatandaşlardan ve esnaftan gelen ihbarlar doğrultusunda verilen adreslere gidiyoruz. Gidilen her mahalle, görüşülen her yeni isim bizi daha karanlık sokaklara götürüyor. Karşımıza çıkan manzara hiç de yetkililerin anlattığına benzemiyor. Polis, bu gelişmelere sadece asayiş  sorunu olarak bakarken, çocuklar ve gençler, yankesicilik ve organize soygunlara, hatta cinayetlere uzanan bir suç zinciri kurmuş. Suça ve gruba katılan halkalar her geçen gün çoğalıyor.
+       <br/>
+       <br/>
+       Eğitimli çeteler
+       <br/>
+       <br/>
+       Kendilerini açıkça “çete” olarak tanımlayan gruplar, muhitleri ve suça bulaşma oranları bakımından ikiye ayrılıyor. İsİanbul’un gelişmiş ve yaşam standardı  yüksek ilçelerindeki çetelerin çekirdek kadrosunu kesinlikle suça bulaşmamış kişiler oluşturuyor. Örneğin Bakırköy ve benzeri ilçelerde faaliyet gösteren bu çetelerin tüm üyelerinin sabıkası yok. Ancak çeteyle birlikte her türlü eyleme katılıyorlar. Sözde amaçları mahalleyi diğer mahallenin çetesinden korumak. Her çetenin sınırlarını çizdiği bölgesi var. Bu bölgeye başka çete üyesi giremez, bu bölgede icraat yapamaz. Mesela Zeytinburnu’nda çalışan çete, gelip Bakırköy’de haraç alamaz. Bu tür sınır ihlallerinde çatışma çıkıyor. Çete üyeleri her türlü kesici, delici aletle birlikte tabanca taşıyorlar. En gözde silahları ise satır ve döner bıçağı.
+       <br/>
+       <br/>
+       Çete üyeleri okula gidiyor ya da çalışıyor. Hepsinin kalacak bir evi ve ailesi var. Ailelerinin maddi durumu da genelde iyi. Hele ailede sorunlar varsa veya anne baba ayrı ise, hayatı tümüyle anlamsız olan genç, soluğu bu çetelerin içinde alıyor. Sırf bir yere ait olabilmek için bu çetelere üye oluyor. Parasal sorunu pek olmayan bu tür çetelerin liderleri üyelerini, kahramanlıklar göstererek ya da ailelerinden para koparamayanlara içki, sigara, esrar parası vererek etkisi altında tutuyor. Çalıştıkları ve okudukları için işe genellikle pazar günleri çıkıyorlar. Çekirdek kadrodakiler ise satırı kapıp her gece icraata çıkıyor. Basılan bir okul, talan edilen bir manav çetenin gücünü ve ününü artırıyor. Bazı işadamları, esnaflar küçük pis işleri için bu tür çetelerle işbirliği yapıyor.Hepsi okumuş aynı zamanda faça atmış ve façayı çizdirmiş çocuklar. Bu gruba ait olmakla da gurur duyuyorlar. Okumuş çocuklar olduğuna bakmayın, bir o kadar da psikolojik sorunları vardır. Kavgalarda satırla boynu gırtlağına kadar kesilenler, yüzü ortadan ikiye yarılanlar oluyor. Örneğin Bakırköy’de faaliyet gösteren bir çete, enseledikleri kurbanlarını çaldıkları bir minibüsün içinde sorguluyor. İşkence yapıyorlar. Çete sözkonusu minibüsü Nevruz’da ateşe verdi. Bu tür zengin semtlerde faaliyet gösteren çetelerin çok sayıda da sempatizan kitlesi var. Bu tür çetelerin eleman ve faaliyet alanı bazında okullardan beslenen çetelerle organik bağları bulunuyor. Öğrencilerden haraç toplamak için kurulan çeteleri çoğunlukla okul dışından bu grup yönetiyor. Bunlara öğrencilerden de katılanlar oluyor. Bu oluşum özellikle varoşlardaki liseleri tehdit ediyor. Bahçelievler, Kocasinan, Küçükçekmece, Pendik ve Kartal ilçeleri bunların başında geliyor. Haraççılar Etiler, Kadıköy, Bakırköy ve Maltepe’de isim yapmış büyük liselerde icraat yapıyor. En büyük tehdidi uyuşturucu satan çeteler oluşturuyor. Özel okullar ve önemli devlet okullarında etkinlik gösteriyorlar. Diğerleri gibi dışarıdan destek alıyorlar. Kız meselesi yüzünden çıktığı söylenen birçok olay aslında uyuşturucu kavgası. Okul müdürleri polisle istenilen oranda işbirliği yapmadıkları için çetenin etkinliği yeterince azaltılamıyor.
+       <br/>
+       <br/>
+       Polisten korkmuyorlar
+       <br/>
+       <br/>
+       En tehlikeli çete türü ise kenar mahallelerde doğuyor, diğerleri gibi sınır tanımadan İstanbul genelinde faaliyet gösteriyor. Burada kurulan çeteler bir anlamda ‘merkez’e karşı bir duruşu ifade ediyor. Bu tür mekanlarda tehlike, para, suç, ceza sokaktadır. Çete üyelerinin birçoğu da evine uğramaz. Uğrayacak evi de yoktur zaten.
+       <br/>
+       <br/>
+       Çeteye girme yaşı kişinin marifetine göre değişiyor. Çetelerin en küçük üyesi ilkokul dördüncü sınıfa gidiyor. Gündüz ayakkabı parlatıp, gece araba patlatıyor, matize çıkıyorlar. Köşelerde zengin adam bekliyor, cüzdanını vermedi mi acımadan apandisitini alıyorlar. Balileri koklayıp cüzdanları kaldırıyor, esrar çekip gaspa çıkıyorlar. Satırları çekip büfeci doğruyorlar. Kentin karanlık bir köşesinde toplanılarak o günün hasılatı paylaşılıyor. Bıçak darbesi alan, kurşun yiyen, hapse düşenler kahramanlık gösterdikleri için ön plana çıkıyor ve çete lideri oluyor. Bu aşamadan sonra herşeyi lider yönlendiriyor. Gruplar 15-20 kişiyi geçmiyor. Daha kalabalık olduğu zaman grup mutlaka bölünüyor. Bir ekipler amiri, “Başlarında psikopatlar var. Onları yakalayıp, hapse attırıyoruz. Karizmalarını çizince etrafındaki herkes dağılıyor” diyor. İstanbul Büyükşehir Belediyesi Kontrol Daire Başkanlığı yapan ve bu yüzden çeteleri çok yakından tanıyan Av. Selami Uzun, bunun aksini söylüyor. Polisin sokak çetelerinin hakkından gelemediğini öne süren Avukat. Uzun ilginç tespitlerde bulunuyor: “Bir kere semt polisinden ya da ilçe polisinden korkmuyorlar. Çünkü hepsini tek tek tanıyorlar. Polis de onlardan korkuyor. Polis de orada oturuyor. Polisin evini, ailesini, çoluğunu çocuğunu biliyorlar. Polis de ; “Bana bulaşmayın da ne yaparsanız yapın” diyor. Ancak İstanbul’un geneline bakan Asayiş Ekipleri’nden, Araştırma’dan korkuyorlar. Ama mahalle polisinin bu işin hakından gelmesi mümkün değil. İşin üstüne de düşmüyorlar.” Aynı zamanda kaymakamlık da yapan Av. Uzun, pirim getirmediği için zaten bu işin üstesinden gelmek isteyen kimsenin de olmadığını söylüyor.
+       <br/>
+       <br/>
+       Bağcılar’da görüştüğümüz eski bir çete üyesinin söyledikleri ise hayli ilginç ve düşündürücü. Bu işleri bıraktığını söyleyen T.S’ye göre, şu an en çok kapkaça çıkılıyormuş. Bazı ‘memur abiler’ de bunlara yol veriyormuş. T.S, bir vukuat olduğunda aynasızların gelip kendilerini aldıklarını, öbür tarafta icraatı sabit, yeri  yurdu belli adamı almadıklarını söylüyor. Polisin gerekçesine de çok kızıyor: “Adamın çocuğu, kızı varmış. Tamam güzel, aferin polise; ama evdekiler yine bu adamın bu yoldan  kazandığı parayla geçinecek. Suç işlemeye devam edecek” diyor. H.K ise, “Memur abilerin herşeyi güvence altına alınsa, çoluğunu çocuğunu devlet iyi korusa; polisler 10 numara iş yaparlar” diyor.
+       <br/>
+       <br/>
+       Sokaklar mafyaya eleman yetiştiriyor
+       <br/>
+       <br/>
+       Sokaktaki çeteler arasında organik bağ bulunmuyor. Birbirlerine yardım etmezler. Yaşları ilerledikçe ve marifetleri arttıkça mafyanın ilgi alanına giriyorlar. Mahalleden kurtulup bir mafyanın emrine giriyor ve beynelmilel çalışmaya başlıyorlar. Çeteleri besleyen sokaklar aynı zamanda mafyaya eleman yetiştiriyor. ‘Maşa’, ‘tetikçi’ demek daha doğru olur. Çünkü mafya onlara değersiz gözüyle bakıyor. Sokakta dolaşırken mafyanın ‘tahsilatçı arabaları’nın içine şöyle bir göz ucuyla bakarsanız eğer, çetelerden transfer edilen 15-20 yaşındaki tetikçileri görebilirsiniz. Mafyanın koltuğuna girecek kişiye önce ciddi bir suç işletilir, sonra gerisi gelir. Bu çocuk bir daha o sistemden çıkamaz. Dün kapkaç yapan sokak çocuğu, mafyanın talimatıyla esnaf basmaya başlıyor. Risk aynı risk ama baba tarafından beslenme garantisi bir nevi sosyal güvence niteliğinde. Sokağa düşen, ekmeğini karanlık gecelerde arayan herkes bu organize suç örgütlerini besliyor. Mafyanın altyapı tesisleri gibidir sokaklar. Sokakların dilinden iyi anlayan Av. Uzun’a göre, bugün sokakta cam silen 8 yaşındaki çocuğun hiç kimseye zararı yok. Bir sekiz sene sonra, 10 sene sonra 18 yaşına gelecekler. İşte o zaman cam silen çocuklar, insanların canına ve malına kastedecek. İşte esas tehlike o zaman başlıyor. Bundan 5 yıl önce, kırmızı ışıkta camınızı silen 10 yaşındaki çocuk bugün 15 yaşında. Fakat camınızı silmeye gelmiyor. Kimbilir nerede? Hiç düşündünüz mü? Islah olduğunu zannetmeyin. 3-5 yıl sonra kırmızı ışıkta gırtlağınıza bıçak dayayacak. Çünkü 18 yaşına gelen hiç kimse cam silmez. Bir belediye yetkilisi, “Islah edilen bir tek çocuk gösteremezsiniz” diyor. Kısacası sokağa düşen her insana bir finansör gerekiyor. Bu ya mafya oluyor ya da gasptan uyuşturucu satıcılığına kadar her türlü suçu işleyip kendi finansmanını kendisi sağlıyor.
+       <br/>
+       <br/>
+       Geceleri yasa yok, çete var
+       <br/>
+       <br/>
+       İstanbul’da öyle yerler var ki, belli bir saatten sonra yasalar yerini çetelere bırakıyor. Dışardan birinin bu bölgelere yapacağı seyahat, oldukça riskli olabiliyor. Araçlarının her an durdurulup, çete üyeleri tarafından soyulma, gaspedilme ihtimali oldukça yüksek. Popçu Demet Sağıroğlu’nun başına gelenler bunun son örneği. Bir süre önce Taksim’den gece saat 01.00’de otomobiliyle Kanlıca’daki evine doğru yola çıkan Sağıroğlu, TEM Otoyolu’na çıkmak isterken yolunu kaybedip Kasımpaşa’ya girdi. Sanatçı, durarak cep telefonuyla konuşmak isterken aracın ön camına ve Sağıroğlu’nun başına darbeyi indirdiler. Hastaneye kaldırılan sanatçı olayı ucuz atlattı. Zeytinburnu’nda faaliyet gösteren bir çete lideri, gece saat 12’den sonra bölgelerine yolunu şaşırıp giren lüks bir arabanın geçip gitmesine kesinlikle izin verilemeyeceğini ve her ne pahasına olursa olsun durdurulacağını söylüyor. Amerikan filmlerinde bir aracın gece kırmızı ışıkta durmasından yararlanan çete üyelerinin bıçağı sürücünün gırtlağına dayayıp para istediğini hatırlatıp bu tür manzaraların İstanbul’da olup olmadığını sorduğumuz Bağcılar’daki çete üyeleri bakın neler anlatıyor: “Siz Fikirtepe, Çinçin Mahallesi gibi mekanlara hiç gitmediniz galiba. Bunlar zaten oluyor. Soğanlı’da gün ortasında kapkaç yapıyor adam. Burada gece 12’den sonra parklarda parası için bıçakla, silahla her gün birisi indiriliyor.”
+       <br/>
+       <br/>
+       Kurtarılmış bölgeler
+       <br/>
+       <br/>
+       Sokak yasalarının hüküm sürdüğü bu âlemin büyüklüğü, gücü ne kadar acaba? Bu soruya çok farklı cevaplar bulduk. Bir bölgenin ekipler amiri, “İstanbul genelinde 150 kişiler” derken, çetelerle görevi gereği uzun yıllar yakından ilgilenen Av. Selami Uzun, 150 kişinin bir semtten toplanabileceğini söylüyor. Av. Uzun’a göre, İstanbul’da bu şekilde 1000 mahalle var. Mahalle başına 10 kişi koysan, 10 bin kişi ediyor. Yakın gelecekte çete kavgalarının artacağını, kurtarılmış mahalleler, sokaklar, bölgeler, hatta ilçeler ilan edileceğini söyleyen Uzun, “Kağıthane, Bağcılar, Esenler, Güngören’in arka semtleri, Küçükçekmece, Pendik’in yukarıları, Kartal’ın yukarıları, Ümraniye’nin varoşları, Beykoz’un kuzeyi bu noktaya doğru gidiyor” diyerek uyarıyor. Zeytinburnu’ndaki çete lideri ise, mahalle başına 10 kişiyi az buluyor, “Bizim orada sokak başına 10’ar kişi düşüyor. Bu rakamı sokak başına 10 kişi olarak hesaplayın” diyor. Ayrıca görüştüğümüz hukukçular ve polislerin gözlemlerine göre, sokakta yaklaşık 1 milyon çocuk kimliksiz dolaşıyor. Hiçbir yerde kayıtlı değiller. Nüfus kütüğünde yok ama gerçekte varlar. Her suç işleyişlerinde farklı bir anne baba ismi söylüyorlar. Sokaktaki bu kontrolsüz kitle, her amaç için kullanıma hazır. Eğer böyle giderse, İstanbul’da insanlar sokakta yürümeye bile cesaret edemeyecek. Hava karardıktan sonra zorunlu olmadıkça insanların evlerinden çıkmadığı, polisin bile akşam saatlerinde devriye gezmeye çekindiği mahallelerin artmasını kimse istemez sanırız. “İyi ki burada yaşamıyorum” diyerek içinizi de rahatlatamazsınız. Varoşlardan Etilere, Fikirtepe’den Bağdat Caddesi’ne ulaşmak o kadar da zor değil. Sokaktaki tehlikenin, 750 bin liralık bir otobüs biletiyle kapınızın önüne kadar taşınabileceğini unutmayın. Sokak çeteleri, kentin karanlık sokaklarında değil, huzur veren ışıklı caddelerinde icraat yapıyor artık. Yetkililerin, bu kentin başına bela olan çete sorununu, ekonomik ve sosyal krizin sokağa yansıması olarak kabul edip acil çözümler bulması gerekiyor. Yoksa kent merkezi yakın gelecekte hırsızlık, gasp, tecavüz, cinayet gibi eylemlere sahne olacak.
+       <br/>
+       <br/>
+       HER SOKAK BAŞI BİR ÇETE VAR
+       <br/>
+       <br/>
+       Adnan Erdoğan (21 yaşında):
+       <br/>
+       <br/>
+       Zeytinburnu’nda her köşe başında bir grup vardır. İstanbul genelinde sayıları belli değil. Kaç sokak varsa o kadar da çete vardır. Kafayı bulmak için tiner, bali, esrar çekerler. Yoldan biri geçerken çevirirler, herşeyini gaspederler. Zorbalık yaparsa vururlar bıçağı. Trenlerde kapkaça çıkarlar. Arpa yaparlar (yankesicilik). İşe çıkmadan önce Roche içerler. Bunlar kafa hapı, cesaret hapıdır. Ayık kafayla cesaret edemezler. Bu hapı aldıktan sonra gece babası çıksa karşısına vururlar. Oto teybine çıkılır, keski varsa anahtarlar patlatılıp dükkanlara girilir. Sarhoş ayıklanır. Elde edilen paralarla bir şekil yapılır, herkes yararlanır. En büyük iş takip işidir. Bankalara gidip bakılır. Yüklü miktarda para çekenler takibe alınır. Sote bir yerde adamı indirip paralar alınır. Çete 7 kişiden az olur. Çünkü 7’den fazlası çeteye giriyor!
+       <br/>
+       <br/>
+       Gece yarısından sonra yolunu kaybedip mekanımıza giren pahalı marka araba, öyle geçip gidemez. İmkanı yok. İki dakikada neyi var neyi yok ayıklanır. Canlı (para) vardır ümidiyle vatandaş onu bırakmaz.
+       <br/>
+       <br/>
+       17 YAŞIMDA İKİ ADAM VURDUM
+       <br/>
+       <br/>
+       H.K (26 yaşında. Ortaokul terk):
+       <br/>
+       <br/>
+       17 yaşında iken yolun ortasında iki adam vurdum. Bir mevzumuz vardı. Bana küfredenin direkt kafasına çaktım, öldü. Öbürünün ayaklarından vurdum. Sekiz sene cezaevinde yattım. Tahliye oldum. Uyuşturucuya başladım. AMATEM’de yattım. Kaçtım... 1,5 senedir Allah’ıma şükürler olsun almıyorum. ...Cezaevinde hep Deliyürek izlerdik aslanlar gibi. Cezaevinden çıkınca bir abinin yanına gittim ama sen bu işlere bulaşma diyerek bana para verip gönderdi. Bir insan abilik yapacaksa kardeş dediği kişinin herşeyini üstlenecek. Kardeş de abi ne derse onu yapacak. Adam vur derse, vuracak! En çok hukuk okumak istedim, siyasi bilimler okumak istedim. Olmadı işte. Çete kurduk. Bizim çete bir başkaydı. Kimseden gözümüz korkmazdı. Bağdat Caddesi’ne iner, alayını kaldırırdık ayağa. Bizi gördüklerinde herkes yön değiştirirdi. Sağa sola kaçarlardı. Paralarımızı lidere verirdik; o da esrarıydı, hapıydı, cigarasıydı, içkisiydi alıp eşit bir şekilde dağıtırdı. Fenerbahçe maçlarında 10-20 tane bilet alırdık. Verirdik karaborsacıya, “Bunları sat, parasını bize getir” derdik. Biletler yöneticilerden geliyor. Bütün kulüpler böyle yapar. Yoksa kim tezahürat yapacak? Kim tribünleri dolduracak? Kim olay çıkartacak? Para bulmak ülkenin şu halinde çok kolay. Yemin ederim ben şu anda kurarım 10 tane çete, aslanlar gibi gayrimeşrumu kovalarım, çek senet işine de girerim, koparırım. Gençlere iş yok. İş olmazsa adam da vurulur, gasp da yapar. Şimdi elimizi ayağımızı çektik. Namaza başladık.
+       <br/>
+       <br/>
+       DEVLETTEN HİÇBİR HALT BEKLEMİYORUM
+       <br/>
+       <br/>
+       T.S (25 yaşında. Lise mezunu):
+       <br/>
+       <br/>
+       Ben 14 yaşında başladım. Bizim büyüklerimiz küçükken gözümüzün önünde adam bıçakladılar. “Vay anasını!” filan yaptık. Başlangıçta korktuk tabii. Fakat o korku insana zevk veriyor, heyecan veriyor. O hazzı tatmak istiyor insan. Önce Amerikan filmlerindeki çetelere özendik. Mahalledeki arkadaşlarla bir araya gelip çete kurduk. Bursa bıçakları, kelebekler, döner bıçakları derken işi büyüttük. Bizim yaşam tarzımız çete psikolojisi. Ne kadar çoksan o kadar kuvvetlisin. Ne kadar çok eleman o kadar çok varlığının ispatı. Biz çetemizi ismimizi duyurmak, ‘insanları şekil yapmak’ için kullanıyorduk.
+       <br/>
+       <br/>
+       Sonra çete dağılmaya başlıyor. Biri cezaevinde, bir tanesi mezara gitmiş, bir tanesi sakat kalmış. Bir arkadaşımızı kafasından vurup dereye attılar. Bir de kafasına taşla vurmuşlar. Üç gün farelerle dolu derede kaldı cesedi. Kimisi eroin işlerinde koşturuyor. İçimizden biri Muğla İktisat’ta okuyor. Aramızdaki en deli adam oydu. Bize sahip çıkacak kimse de yok. “Kalın abiler” var, onlar da yanlış işlere yönlendiriyor.
+       <br/>
+       <br/>
+       Devletten hiçbir halt beklemiyoruz. Gençliğin kafasını kızdırıyorlar. Gençler bir gün kafasını başaşağı çevirecek onların. Bizi o kadar boşladılar, o kadar azdık, sinirlendik ki anlatamam. Aile yaşantımız yok, iş yok, bilgi yok, kültür yok. Kendi başlarına musallat olacak. Şu anda 25 yaşındayım. 11 yılın sadece iki yılını yaşamış sayıyorum. Vebali, kul hakkını öğrendik. Bıçağı vurduğumuz zaman öbür tarafta yakamızdan tutacağını öğrendik! Bizimki bir nefis kavgasıydı.
+       <br/>
+       <br/>
+       PROF. DOĞU ERGİL:  USTURA SIRTINDA TEHLİKELİ OYUN
+       <br/>
+       <br/>
+       Bunlar, kendilerine ekonomik açıdan daha iyi bir yaşam sunamayacak ailelerin çocuklarıdır. İşe yarar bir formel veya mesleki eğitimden  yoksun oldukları için de üretici olarak yetişmemişlerdir. Niteliksiz olduklarından, iş bulsalar bile çok sömürülmektedirler. Bu olumsuz koşullarda çalışmanın  kendilerine bir şey getirmeyeceğini düşündüklerinden,  kolay yoldan yani suç işleyerek bir geçim yolu bulmuşlar. Özetle, gençler çetesi mensupları,  eğitim, spor ve sanatsal faaliyetler türünde hayatlarını renklendirecek, meşgul edecek olanakları bulamayan sosyal kesimin çocuklarıdır. Bunları, daha iyi bir yaşam düzeyine ve sosyal ortama  taşıyacak bir sosyal çevre yoktur. Sokak, söz konusu gençlerin oyun, yaşam ve çalışma alanıdır. Yasal ve alın teriyle çalışmanın yerini küçük suçlarla elde edilen gelirle ikame etmişlerdir. Bu, onlar için bir tür oyun da olmuştur. Suç işlediklerinde, masum bir çocuk olarak oynayamadıkları oyunu oynuyorlar, aslında. Bütün bu gasp, hırsızlık, tehditle para alma falan bir tür oyun onlar için. Spor, bu suç eylemleriyle yer değiştirmiş… Aynı zamanda da geçimlerini sağlıyorlar. Yani bunlar büyümüş de küçülmüş insanlar.
+       <br/>
+       <br/>
+       Yolsuzluğu yol yapmışlar. Tehdit, gasp, hırsızlık, yaralama, bıçaklama, darp; bütün bunlar onlar için olağan ekonomik faaliyet veya var olma mücadelesinin sapmış yöntemleri. Hem geçiniyorlar, hem de ustura sırtında eğleniyorlar. Ama o usturanın bir ağzı onları kesiyor, bir ağzı da toplumu. Eylemleri yolsuzluk alanını genişletiyor. En büyük yardımcıları da ekonomik kriz ve işsizlik.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11844), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095134/http://www.aksiyon.com.tr:80/detay.php?id=11844)

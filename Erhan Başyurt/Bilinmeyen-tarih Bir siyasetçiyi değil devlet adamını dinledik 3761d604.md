@@ -1,0 +1,105 @@
+# "Bir siyasetçiyi değil devlet adamını dinledik"
+
+*Erhan Başyurt Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050125233900im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050125233900im_/http://www.aksiyon.com.tr/resim/479/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Beyaz Saray karla kaplansa da AK Parti"ye karşı o kadar "ak niyetli" değil. Bu ortak çıkar çatışmasından kimin kârlı çıkacağını zaman gösterecek. Büyük gün geldi. Herkeste belli belirsiz bir heyecan. Yeni elbiseler giyip bayramı bekleyen çocuklar gibi. Türk basını da cicilerini giymiş, Beyaz Saray kapısında bekliyor. İlginç gelebilir ama, Oval Ofis"te görüntü alacak kameraman bile lacilerini giymişti. Görüşmeden iki saat önce, Türk basınından 53 kişi Beyaz Saray kapısında güvenlik duvarını aşmaya çalışıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Karlar altındaki Beyaz Saray, gerçekten de "beyaz" görünüyor. Tek tek, içeri giriliyor. Ama, basın odasına yürümeniz mümkün değil. 50 metrelik açık bahçe yolunu, eskort eşliğinde geçmek zorundasınız. Aksi teşebbüslerde uyarı geliyor.
+   <br>
+    <br>
+     Nihayet, "süper gücün" idare merkezindeyiz. Beyaz Saray"ın basın odasına giriyoruz. Ama, beklentimin altında, oldukça dar bir alan. Yine de, Osmanlı"nın zirve döneminde atının üzengisinin öpülmesi bile "onur" sayılan sultanlar aklıma geliyor. Doğru ya da değil, Beyaz Saray"ın baskın etkisi hissediliyor. Ya da ilk Beyaz Saray ziyaretimin, sadece benim üzerimde bıraktığı "kompleksler" bunlar.
+     <br>
+      <br>
+       Aynı gazetenin bayan yazarı, neden erkek yazarın Oval Ofis"e alınıp da kendisinin tercih edilmediğini sorguluyor. Diğer taraftan bir televizyonun genel yayın yönetmeni, neden sadece diğer televizyonun alındığını eleştiriyor. Bir diğeri, "Biz Türkiye"nin en büyük yayın kuruluşuyuz. Nasıl bizden kameraman ve foto-muhabiri alınmaz. Tutturmuşlar, sadece ajanslar girebilir. Bunun hesabını sormalıyız..." Bütün bunların sebebi, Beyaz Saray"a girmeyi başaran gazeteciler arasından seçilen 13 kişilik Oval Ofis heyetinde yer alamamak.
+       <br/>
+       <br/>
+       Ve nihayet Oval Ofis"e giren gazeteciler çıkıyor. Topu topu 10 dakika da olsa, Oval Ofis"te Başkan George W. Bush ve Başbakan Recep Tayyip Erdoğan"ın baş başa görüşmesine şahit olanlar, onlar. Diğer 40 gazeteciden bir yıldızlarının fazla olmasının hazzını yaşıyorlar. Şöminenin başında sıcak geçen yarım saatlik Oval Ofis görüşmesinin son şahidi onlar...
+       <br/>
+       <br/>
+       Türk basınını günler öncesinde etkisi altına alan ve değil başbakan, first leydileri ile de manşetlere çıkan gezinin şahika noktası bu yaşananlar. Bir haftalık fırtına. ABD basını derseniz, Türkiye"deki ilginin belki 10"da birini bile göstermiyor. Sanki Moldova Devlet Başkanı, Ankara"yı ziyaret ediyor...
+       <br/>
+       <br/>
+       Zaten Erdoğan"dan bir gün önce, Polonya Devlet Başkanı oradaymış. 73 yaşında bir bayan, kulakları üşümesin diye bağlanmış bir eşarp, üzerinde fötr şapka ve kenarına iliştirilmiş koca kırmızı gül, elinde sopası ile, Amerikan filmlerinde parklarda kuşlara yem atan "homeless" yani evsizleri hatırlatan bir kadın görevli... Sürekli, "Polish Press (Polonya basını)" diye bağırıyor, Türk gazetecilere. Beyaz Saray"ın ne kadar kendine güvendiğinin ve pervasızlığının ifadesi olarak, halen görev yapıyor. Yaşlı bayan, 6 başkan değiştirmiş Beyaz Saray görevi boyunca.
+       <br/>
+       <br/>
+       Soğuk kış günü, Beyaz Saray"ın dışındaki hava böyle. Ama, Oval Ofis"te sıcaklık hakim. Şöminenin ateşine, siyasi sıcaklık karışmış. Beyaz Saray"da Erdoğan"a ilgi teamülleri aşan tarzda. Bush ile başbaşa görüşme. Oval Ofis"te ortak açıklama. Ardından çalışma yemeği. Dahası, ABD Başkan Yardımcısı Dick Cheney ile görüşme. ABD yönetiminin iş yoğunluğu sebebi ile, Başkan Bush ve Yardımcısı Cheney aynı liderle çok nadir görüşüyor. Ama, Erdoğan"a iltimas gösteriliyor.
+       <br/>
+       <br/>
+       Beyaz Saray"ın Erdoğan ve ekibine gösterdiği ilgi bununla da sınırlı kalmıyor. First leydiler de bu sıcak karşılamaya dahil ediliyor. Çankaya"da resepsiyona alınmayan, başörtülü oldukları için tek tek tespit edilerek kendilerine davetiye gönderilmeyen eşler, Beyaz Saray"da ağırlanıyor. Üstelik, bu bir resmi ziyaret olmadığı için, teamüllere göre Laura Bush"un Beyaz Saray"da ağırlaması gerekmediği halde. Sırf, AK Parti"ye inançlarıyla ilgili dirençle karşılaştıkları bir konuda, Beyaz Saray açık siyasi destek veriyor. Üstelik, Başkan Bush görüşmenin ortasında Emine Erdoğan ve diğer bakan eşlerini bizzat yanlarına gelerek selamlıyor. Türban, Beyaz Saray"ı "kamusal alan", ABD"yi de laik olmaktan çıkaramıyor, bir sembol olarak!
+       <br/>
+       <br/>
+       Beyaz Saray mı Washington kulislerini, yoksa güçlü lobiler mi Beyaz Saray"ı bu kadar etkiledi bilinmez, ama Erdoğan"a resmi olmayan mecralarda gösterilen ilgi de şaşırtacak kadar yoğun. Bir üst düzey yetkili, "Başbakan"ın gelmesi kesinleşince, o kadar çok Musevi kuruluşundan talep geldi ki, hangisine cevap verebileceğimizi şaşırdık" diyor. Başbakan Erdoğan, CFR olarak bilinen dünyanın en prestijli düşünce kuruluşlarından biri olan Dış İlişkiler Konseyi"nde bir konuşma yaptı. New York"taki konuşmanın ev sahibi, CFR başkanı Richard H. Haass.
+       <br/>
+       <br/>
+       Musevi bilim adamı Richard N. Haass yakın zamana kadar ABD Dışişleri Bakanlığı Politika Planlama Bölümü Direktörü olarak görev yapıyordu. Haass, bu görevinde iken yazdığı bir raporda, İslam dünyasının ABD karşıtlığı ve radikalleşmeden kurtarılması için demokratikleştirilmesini öneriyordu. Haass, İslam ülkelerinde demokrasiye yönelip, serbest seçimler yapmanın kısa vadede "İslamcı partilerin" iktidara gelmesi ile sonuçlanabileceği endişesine de değinerek, şöyle diyordu: "Hıristiyan, Musevi veya Hindu partilere demokratik sistemlerde yer verildiği gibi, Müslüman partilere de yer verilmeli. Kısa sürede, Müslüman partiler iktidara gelebilir. Bu normal karşılanmalı. Zira, en örgütlü muhalif hareketler, bu ülkelerde Müslümanlar arasında mevcut."
+       <br/>
+       <br/>
+       Başbakan Erdoğan"a, New York"ta Amerikan Yahudi Kongresi tarafından aynı gün içerisinde, "Cesaret İnsanı" ödülü verildi. AJC olarak bilinen Kongre, siyonizmin siyasi örgütlenmesinin lideri olarak bilinen Teoder Herzl tarafından kurulmuş. AJC, bugüne kadar ilk kez bir Müslüman lidere bu ödülü verdi. Sebep, Erdoğan"ın sinagog saldırılarının failleri üzerine gitmekte gösterdiği cesaret. Zaten, AJC ödülü bir öğlen yemeği esnasında verildi. Yemek için seçilen mekan, İstanbul"da bombalanan HSBC Bankası"nın merkez binası oldu. Mekan, failleri kısa sürede ele geçirmeyi başaran Erdoğan"a verilen ödülün sebebini tek başına açıklıyor zaten.
+       <br/>
+       <br/>
+       Erdoğan, başkent Washington"da bu kez Musevi cemaatinin önde gelenlerini kabul etti. B"nai Brith, AIPAC gibi, önde gelen Musevi kuruluşlarından 9 tanesi bu görüşmelere 22 temsilci ile katıldı. "Hava bu kadar kötü iken, firesiz katılım, Erdoğan"a verilen önemin göstergesi" diyordu, B"nai Brith Başkanı Daniel Mariashine. Mariashine, ertesi gün Başbakan"ın konuşma yaptığı Türk-Amerikan Dernekleri Toplantısı"nın kahvaltısına da katılarak, Erdoğan"a verdikleri önemi gözler önüne serdi. Erdoğan ile görüşme, 1 saati aşkın sürdü. Erdoğan, içeride samimi mesajlar vermiş. Bir Musevi temsilci, Kuzey Irak"ta İsrail faaliyetleri için, Başbakan"ın "söylenti bunlar" dediğini aktardı.
+       <br/>
+       <br/>
+       Erdoğan, bu görüşmenin hemen ardından Müslüman temsilcileri kabul etti. İnanılması güç ama, topu topu 3 kişi idiler. Zaten görüşme de kısa sürdü. Aslında, Müslüman nüfusun Musevi nüfusu aştığı iddiası güçlü olarak ileri sürülüyor ABD"li Müslümanlarca. Ancak, görüşmelerden de anlaşılıyor ki, lobilicik ve sivil faaliyetler açısından Müslümanlar çok çok geride. Yine de, Başbakan"ın bir denge arayışı içerisinde attığı önemli bir adım, tüm dinlerin temsilcileri ile görüşmeler yapmak. Nitekim, New York"ta da Ortodoks Kilisesi Patriği ile görüşmüştü Başbakan, çok- kültürlülüğe açıklığının ve saygısının bir göstergesi olarak.
+       <br/>
+       <br/>
+       Başbakan"ın, Washington"da ilgi çeken görüşmelerinden bir diğeri, AEI olarak bilinen Amerikan Girişimciler Enstitüsü"nde yaptığı konuşmaydı. AEI, Bush yönetiminin şahinleri olarak bilinen Neo-Cons yani "yeni muhafazakarlık" yanlısı isimlerin düşünce platformu. Başkan Yardımcısı Dick Cheney"in eşi de burada etkili bir isim. AEI"de etkin, Türkiye"nin yakından tanıdığı bir diğer isim ise, "karanlıklar prensi" Richard Perle. Erdoğan"ın, sunuşunu Perle yaptı. JİNSA olarak bilinen sağcı Musevi örgütünün de etkin yönetim kurulu üyesi olan Perle, konuşmanın sonunda, "Özal"dan sonra, ilk defa bu kadar başarılı bir başbakanı ağırladık. Bir siyasetçiyi değil, bir devlet adamını dinledik" diyerek takdirlerini dile getirdi.
+       <br/>
+       <br/>
+       Başbakanın tüm ABD gezisi boyunca üzerinde durduğu konular, bütün bu kuruluşlarda yaptığı konuşmaların da ağırlık merkezini oluşturdu. Irak, Kıbrıs, terörle mücadele ve Ortadoğu"da demokratikleşme... Ancak, Başbakan Erdoğan"ın, bu kuruluşlarda yaptığı konuşmalarda bir başka özelliği daha öne çıktı. Erdoğan, birçoğu Musevi çevrelerin etkisinde olan bu kuruluşlarda, kendi kimliğini reddetmeden konuşmayı tercih etti. Muhafazakâr demokrat veya Müslüman demokrat bir duruş sergiledi.
+       <br/>
+       <br/>
+       O kadar ki, AJC"nin "Cesaret İnsanı" ödülü verdiği toplantının konuşmasında bile, terörü lanetlerken, "Terörün, dini, milleti ve dili olmaz" uyarısında bulundu. Erdoğan, "Dini terör yoktur. Ne İslam ne de başka bir din, terörü tecviz etmez. İslam, bir insanın canına kıyılmasını, Allah"ın Evi"ni yıkmakla eş tutar" diyerek, "dinci terörün" ayrılmasını önerdi. "İnsanı severiz, yaradandan ötürü. Bizde Yunus ve Mevlânâ kültürü var" diyen Başbakan, "İslamcı terör" ifadesinin inananları rencide edeceğini söyledi. Erdoğan, bu tavrını, CFR ve AEI"de yaptığı konuşmalarda da sürdürdü.
+       <br/>
+       <br/>
+       Türkiye"nin ABD"den beklentileri malum. Erdoğan"ın temasları ve konuşmalarının ağırlık noktalarını da bunlar oluşturdu. Peki, ABD Türkiye"den ne bekliyor? Başkan Bush ve Museviler başta olmak üzere etkin çevreler neden Başbakan Erdoğan"a yoğun ilgi veya iltimas gösterdi?
+       <br/>
+       <br/>
+       Bu soruya net cevaplar vermek, tabii ki kolay değil. Her şeyden önce, kamuoyuna yansımayan gündemlerin ne ölçüde var olup-olmadığını bilmiyoruz. Ama, yansıdığı kadarı ile ilginin kaynaklarından birinin "Büyük Ortadoğu" olduğunu rahatlıkla söyleyebiliriz. Bush yönetimi, Keşmir"den Batı Sahra"ya, Abhazya"dan Somali"ye uzanan geniş coğrafyayı "Büyük Ortadoğu" olarak adlandırıyor ve bu bölgelerde serbest piyasa ekonomisinin yaygınlaşması, demokratik rejimlerin oluşmasını, insan haklarında ilerleme kaydedilmesini hedefliyor. Bu projenin gizli hedefi, bu bölgedeki zengin yeraltı kaynaklarının kontrol ve denetiminin sağlanması ve ABD"nin askeri üsleri ile bölgede etkin olarak bulunması olarak özetlenebilir.
+       <br/>
+       <br/>
+       Büyük Ortadoğu projesi, ister istemez işbirliği yapılacak bölge ülkelerine ihtiyaç duyuyor. Türkiye, söz konusu bölgenin jeo-politik ve jeo-stratejik olarak en önemli aktörlerinden biri ve önemli oranda, konulan hedefi gerçekleştirmiş durumda. Aslında, İslam ülkelerine yönelik tek "model ülke". Dahası, Türkiye"ye bölge ülkeleri halkları tarafından duyulan derin bir saygı var. Türkiye"nin desteği bu sebeple çok önemli.
+       <br/>
+       <br/>
+       Irak Savaşı"nda bu durum açık olarak görülmüştü. Türkiye"nin tezkereyi reddi, ABD"yi yalnızlaştırmış; Türkiye"nin ikinci tezkereyi kabulü BM"nin dahi karar almasını kolaylaştırmıştı. Sonuçta, söz konusu coğrafyada ağırlıklı olarak Müslümanlar yaşıyor. Hilafetin son sahibi, İslam"ın bin yıllık sancaktarı Türkiye, ABD ile aynı safta yer alınca psikolojik olarak önemli bir duvar yıkılıyor. Afganistan ve daha önce Somali"de olduğu gibi, ABD de "Haçlı Ordusu" algılamasından kurtuluyor.
+       <br/>
+       <br/>
+       Başbakan Erdoğan"ın, Büyük Ortadoğu konusunda açık desteği, kendisine karşı önemli bir ilgi oluşmasını sağlıyor, tabii olarak. Erdoğan bir yönü ile medeniyetler çatışmasının önünü kesiyor, bir yönüyle de İslam demokrasi ile bağdaşmaz diyenleri yalancı çıkarıyor. Bu özellikleri ile, Erdoğan"ın Türkiye"si ABD için önemli ve kazanılması gereken bir müttefik.
+       <br/>
+       <br/>
+       Terörle mücadelede hükümetin gösterdiği başarı, ilginin bir diğer kaynağı. Erdoğan"ın, özellikle Musevi cemaatine sahip çıkması, ilk kez bir başbakanın hahambaşılığa ziyaret düzenlemesi, ABD Musevi cemaatini de memnun etmiş. Müslüman demokrat bir hükümetin başı  olarak, anti-Amerikancı olmadığı gibi anti- İsrailci de olmaması, Erdoğan"a gösterilen ilgiyi besleyen diğer nedenler.
+       <br/>
+       <br/>
+       Sonuçta, Beyaz Saray"ın sıcaklığı Türkiye"nin kendisine ve Erdoğan"ın temsil ettiği değerlere yönelik. ABD, karşılıklı çıkarların kesiştiği bir alanda, "derin muhalefete" karşı, Erdoğan"a açık destek veriyor.
+       <br/>
+       <br/>
+       Başka bir deyişle, Beyaz Saray karla kaplansa da AK Parti"ye karşı o kadar "ak niyetli" değil. Bu ortak çıkar çatışmasından, asıl kimin kârlı çıkacağını ise zaman gösterecek. İzleyelim, görelim.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### VEDAT DOGAN, 13-Şubat-2004
+> TEBRIK: 
+> BASBASKANIMIZIN ABD ZIYARETI SIRASINDA WASHINGTON'DA BULUNMAMA RAGMEN GEZIYI SIZLER KADAR IYI TAKIB EDEMEDIGIMI BU YAZIDAN SONRA DAHA IYI ANLADIM.   ABD BASNININ BASBAKANIMIZIN ZIYARETINI FAZLA ONEMSEMEDIGI BIR GERCEK, AMA YAZIDA BELIRTILDIGI GIBI ABD DEKI "DERIN VE SIG GUCLER" IN ILGISI MALUM. BU GELISMELER SONUCUNDA ABD BASINININ ICINE DUSMUS OLDUGU DURUMU ISE DAG ILE KARINCA ARASINDAKI ILISKI BIZLERE OZETLEMEKTE. FAZLA SOZE NE HACET.  BAKALIM BUSH TR YI ZIYARET ETTIGINDE NELER OLACAK.  BASBAKANIMIZA DA BEYAZ SARAYDA KONAKLAYIP ABD MINNETI ALTINA GIRMEDIGI ICIN TESEKKUR EDIYORUM.  TESEKKURLER.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11144&yorum_id=754), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050125233900/http://www.aksiyon.com.tr:80/detay.php?id=11144&yorum_id=754)

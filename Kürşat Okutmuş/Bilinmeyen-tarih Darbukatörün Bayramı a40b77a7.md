@@ -1,0 +1,70 @@
+# Darbukatörün “Bayram”ı
+
+*Kürşat Okutmuş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093540im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093540im_/http://www.aksiyon.com.tr/resim/357/10.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Darbukatör Bayram’ın dramını hepimiz biliriz. O ve arkadaşları aslında müzik adına en önemli unsur olmalarına rağmen, genelde aksesuar muamelesi görmüşlerdir. Özellikle Türkiye’de; en ünlü sanatçının arkasında çalıyor olsanız dahi, adınızın yine ön planda anılmasına imkan yoktur.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sanatçıların kaprisleri, iş aksaklıkları, emeğin karşılığında alınamayan paralar ve bu olumsuzlukların yanısıra bir de icra edilen sanatın hak ettiği övgüyü alamaması. İşte bunların hepsini yıllardır yaşıyor ritimciler. Oysa dünyaca ünlü, sanatlarını ön plana çıkartabilmiş o kadar perkinsoncu var ki: Mesela Mısırlı Hüssam Remzi, Hindu Zakir Hüseyin, Amerikalı Gelen Verez, Mısırlı Sait Artist...
+   <br>
+    <br>
+     İşte bu rüzgarın farkına varan Türk ritimciler de atağa kalktı. Yılların oluşturduğu ezginliği kısa sürede atmak kolay değil ama şu aralar müzik piyasasındaki pazarları gözönüne alınırsa ritimciler, bu furyadan oldukça kârlı çıkacak gibi gözüküyorlar. Yeni çıkanlar bir tarafa bu işin duayenleri olan isimler var; Okay Temiz, Burhan Öcal, Mısırlı Ahmet, Balık Ayhan ve diğerleri... Furyanın bugün gelinen bölümünde ise; ‘ritmin zaferi’ni haykıran ve bu vizyonun gerçek başarısını sağlayan gruplar var: Rakkas, Harem, Yarkın...
+     <br>
+      <br>
+       “Çağdaş yaşam ritimden uzaklaştırıyor”
+       <br/>
+       <br/>
+       Yeni kurulan gruplarla ve dedikodularla pek ilgilenmeyen yılların ritimcisi Okay Temiz bizlere sadece ritimle ilgili bilgiler veriyor; “Ritim içimizde bir yerlerde var. Herkesin bir ritim duygusu var. Ne yazık ki çağdaş yaşam dediğimiz şey bu duyguyu bizden uzaklaştırıyor. Onu tekrar bulmak ve yaşam boyu içimizde tutmak için hemen biraraya gelip çalmamız, çalmamız, yine çalmamız gerekiyor!” Afrika toplumlarında yaşayanların son derece kompleks, zor, şaşırtıcı, çekici ve renkli ritimleri kusursuz şekilde kolayca çaldıklarına dikkat çeken Temiz, bu durumu doğayla bütünleşmelerine ve kendilerini ifade etmelerinin en kolay yolu olarak görmelerine bağlıyor. Çünkü “ritim onların içinde ve günlük hayatın bir parçası…”
+       <br/>
+       <br/>
+       “En sıcağı Harem!..”
+       <br/>
+       <br/>
+       Yapımcısı Osman İşmen olan Rakkas pek tutmadı. Yarkın grubu bu işin mutfağına uzandı. Revaçta olan ise Harem; Mısırlı Ahmet ve Harem grubunun yapımcısı olan Mega Müzik sahibi Ethem Zeytinkaya’ya göre yıllardır bir Okay Temiz var ama halka inememiş ve bu sanatı geniş bir kitleye sunmayı başaramamış. Böyle bir eksikliğin varlığından haberdar olduğunu ve Harem grubunun oluşturulmasının, şahsi isteğinin sonucunda gerçekleştiğini söylüyor Zeytinkaya. Harem’in çok tutmasının ardından Mısırlı Ahmet’i piyasaya sürüyor. Mısırlı Ahmet’in iki albümü var ve şu an üçüncüsü için stüdyoda.
+       <br/>
+       <br/>
+       Harem ise ‘Harem II’yi çıkardı geçtiğimiz günlerde. Ethem Zeytinkaya’ya göre Harem grubu ikinci albümde daha uluslararası bir çalışma yapmış. Zümre ve Asena gibi çalışmaları bu grupların kötü taklidi olarak gördüğünü, Fahrettin Yarkın ve grubunun ise Harem’den daha akademik olduğunu itiraf ediyor Mega Müzik’in sahibi ve ekliyor; ‘Harem çok sıcak geldi insanlara’...
+       <br/>
+       <br/>
+       Bizim ritimcilerle Japon davulları aynı sahnede...
+       <br/>
+       <br/>
+       Harem grubunun menajeri Sinan Ergiz, gruba program bulmakta artık zorlanmadığını, aksine tekliflere cevap vermekte sıkıntı yaşadığını vurguluyor. ‘Pazarı ateşleyen kişi ise Ethem Zeytinkaya’ diyor. Harem’in bir eğlence grubu olarak kalması değil, bir konseptin oluşması ve kalitesinin konuşulmasını istiyor. İlk albümün ticari olduğu ve artık böyle bir şeyin söz konusu olamayacağı söyleniyor ama ona göre bunun önemi yok, çünkü ticari bir albüm yapmakla sanatlarından hiç bir şey kaybetmemişler. Onların istedikleri grubun dünya vatandaşı olması; mesela Sting’le bir konser vermek gibi bir hayalleri var. En son Japonlardan bir teklif gelmiş, Harem’le Japon davullarını aynı sahnede buluşturmak istiyorlarmış. Geçen ay Yeni Türkü, Ajda Pekkan ve Harem buluşmuş Yunanistan’da. Bugünkü grupta dört kişi ön planda; Bünyamin Olguncan, Suat Berkay, Ercümen İpin, Serkan Balta. İşin doğrusunu söylemek gerekirse Harem markası bu isimlerin hepsinin üstünde. Bundan rahatsızlık duyan yok tabii ki. Ancak ayrılanlar var. İlk albümdeki iki kişi yok artık, yerlerine iki yeni isim gelmiş. Harem’in ilk grubundan ayrılan iki kişinin yeni bir grup kurduklarını ve yakında yeni bir albüm ve imajla piyasaya çıkacaklarını öğreniyoruz. Unkapanı dedikoduları arasından yakayalabildiğimiz fısıltılara bakılırsa grubun adı da; ‘Harem Selam’ ya da ‘Dabruka Kings’ olacakmış.
+       <br/>
+       <br/>
+       Şimdiden bölünmeler var!
+       <br/>
+       <br/>
+       Gruplar genelde hep problemli olmuştur müzik alanında; ritimcilerin şimdilik en büyük derdi de bu zaten. Bu grubun lideri kim, asıl toparlayıcı hangimiz gibi! Yüksek seste tartışmalar duyulmasa da, uzun yıllardan sonra gelmiş şansı kaybetmemenin suskunluğu şu anki her şeyi kabul edişlerinin nedeni. Bu furyanın riskleri de yok değil tabii ki. Unkapanı’nı dolaşırken ticari amaçlı bir çok yeni albümle karşılaştık. Bunlar arasında diğerlerine göre daha kaliteli bir ürün izlenimi veren “Sultan’s Of Secrets”e yani ‘Ritmin Sultanları’na rastladık. Seyhan ve Genç Müzik’in ortaklaşa çıkardığı bu albümle ilgili, Seyhan Müzik’in sahibi ve bu albümün yapımcısı olan Fuat Seyhan’la konuştuk: “Revaçta olduğu için böyle bir şeyi biz de yapmayı düşündük” diyen Fuat Seyhan, bu çalışmanın devamı olacağını ve ilkinden de daha iyi bir performans göstereceklerini iddia ediyor. ‘Ritmin Sultanları’nı, Harem’in ilk albümünün devamı olarak lanse eden yapımcıya göre, Harem II değişmiş ve daha çok pop olmuş. Harem ve benzeri gruplarda yine sanatı icra edenin ön plana koyulmadığını, bunu ise kendilerinin düşündüğünü iletiyor bize. Ve ilkinde de keşke yapsaydık diyor, ‘İşte o zaman tam ticari bir albüm olacaktı.’ 20 bin kadar satan ‘Ritmin Sultanları’ndan memnun olan Fuat Seyhan, Harem grubunun elemanı olan Bünyamin Olguncan’dan sözü açıyor; “İkinci albümde ‘Ritmin Sultanları’ değil Bünyamin Olguncan olacak kapakta.” Çünkü aynı zamanda Harem’de olan Bünyamin Olguncan, ‘Ritmin Sultanlar’nı da çalan kişi! Az önce dediğimiz gibi gruplar en başta iyi bir çıkış olacak ama, zamanı geldiğinde herhalde herkes kendi yolunu tutacak!..
+       <br/>
+       <br/>
+       ‘Bu da darbukatörün dramı’ yok artık!
+       <br/>
+       <br/>
+       “13—14 yıldır darbuka çalıyorum, büyük bir fırsat doğdu ve geldiğimiz konuma bazen inanamıyorum. En azından benim bir sanatım var ve bunu icra edebiliyorum diyebileceğim artık. Darbukatör olarak yıllarca ezgini oynadık, şimdi ise artık kendimize çalıyoruz. Daha kontrollü olduk ve emeğimizin karşılığını alıyoruz. Bu kadar ilgiyi beklemiyorduk ama müthiş bir şey...” Bu sözler Harem grubunun üyesi ve aynı zamanda da ‘Ritmin Sultanları’nı oluşturan makus talihini yenen darbukatör Bünyamin Olguncan’a ait. Bizce de bu sözler her şeyi anlatıyor. Yani artık ajite edebileceğimiz ve ‘bu da darbukatörün dramı’ diyebileceğimiz bir senaryo da ortadan kalkmış oluyor.
+       <br/>
+       <br/>
+       okutmus@yahoo.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12793), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093540/http://www.aksiyon.com.tr:80/detay.php?id=12793)

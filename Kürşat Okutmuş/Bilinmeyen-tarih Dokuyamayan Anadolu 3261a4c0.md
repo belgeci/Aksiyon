@@ -1,0 +1,58 @@
+# Dokuyamayan Anadolu
+
+*Kürşat Okutmuş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092950im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092950im_/http://www.aksiyon.com.tr/resim/345/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Ahşap bir evde yaşardı Binnaz nene; geniş kanatında (bahçe) yaz ayları geldi mi, yaşlı söğüt ağacını tente gibi kullanır geçerdi çıkrığının başına!
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hiç usanmadan ‘gırç gırç çıkrığım’ diye diye; her yaz bitimine kimi koca bir ehramlık, kimi de atlas desenli kilimler için iplikler tamamlardı: Binnaz nenenin gönlünden kopan bu desenler bazen torunlarının, bazen de ahbaplarının yolunu tutardı... İşte bu yol tutuşlar zamanla aşınadursun; üçüncü kuşak çıkrıkla, ancak topları Binnaz nenenin geniş kanatına kaçınca tanışmışlardı!.. ‘Veletler, bırakın da işimi göreyim aa’ diye her defasında hayıflansa da, sevgiyle başlarını okşar, hararetlerini gidersinler diye köpüklü ayranından tattırmak için serin selamlığa (hol) doğru adımlar atardı. Binnaz nenenin yokluğunu fırsat bilen veletler bir çırpıda çıkrığı ters çevirir, havada durması gereken tekerleğini yerde döndürerek dolaştırırlardı. Az sonra bahçede kıyamet kopardı; veletlerin hepsi kaçıştığından elinde köpüklü ayranla Binnaz nene, hiddetle sevgi arası, başka kimsenin pek beceremeyeceği bir yüz ifadesiyle ardlarısıra bakakalırdı!..”
+   <br>
+    <br>
+     Sonunu yaşadığımız çıkrığın ninelerle olan sıkı dostluklarını işte böyle başlayarak anlatır öyküler, çıkrıkla üçüncü kuşağın tanışmasını ise biraz da içinde vurgu barındırarak “velet”lik tesadüfüyle anlatır. Edebiyat tarihçileri Sadri Ertem’in “Çıkrıklar Durunca” adlı romanını, gereksiz entrikalarla doldurulmuş varsayarak pek başarılı bulmazlar. Oysa romanda estetik değerden çok, “çıkrık”ların yok olmasının nedenleri anlatılıyor. Biz de zaten bu kitabı değil, çıkrığı ve de bir zamanlar dokuyan Anadolu’yu ele alacağız: Halı, yaygı, kilim, carpet, tapis ya da kali; dünya dillerindeki diğer adları her neyse, bu dekorasyon ürünü, Anadolumuzun vazgeçilmez parçalarından biri. Öyle ki Anadolu, 19. yüzyıl sonlarına kadar pamuk, keten, yün ve ipek federasyonundan oluşmuş bir yöreymiş: Yün doğuda, pamuk güneyde, keten kuzeyde, ipek de batıda hüküm yürütürmüş; üçü halis muhlis yerli olan bu ürünlerden başka ipek Çin’den gizlice kaçırılarak Bizans döneminde Anadolu topraklarına yerleştirilmiş. Az önce bahsettiğimiz federasyon tabiri bir benzetme değil aslında oturmuş bir düzen olarak kabul edilirmiş, ki bu federasyonların başkentleri bile varmış (!): Mesela Bursa ipekten bir şehir, Adana pamuğun has yurdu, habire yün eğiren de Doğu Anadolu.
+     <br>
+      <br>
+       “Marks, Doğu toplumlarını incelerken, Manchester yün eğirme makinelerinin çıkrığı Hindistan’dan silip süpürmesini çözülmenin en çarpıcı örneklerinden biri olarak niteliyor. “Azgelişmişlik Sürecinde Türkiye” adlı kitabında bu tesbite atıfta bulunan Stefanos Yerasimos, Türkiye’deki gelişmenin farklı olmadığını anımsatıyor. Anadolu bir zamanlar giymek ve yaymak için örer ve dokurmuş. Günümüzde ülke ekonomisinin tekstil ağırlıklı olmasında bu geleneğin payı çok olsa gerek. Öte yandan artık fabrikasyon ürünlerin baskın olmasına ve pek çok dokuma türünün ortadan kalkmasına rağmen, tezgahların günümüzde de işliyor olması, mirasın zenginliğini gösteriyor. ”
+       <br/>
+       <br/>
+       Veli’nin kerameti...
+       <br/>
+       <br/>
+       Mehmet Ali Kılıçbay’ın “Şehirler ve Kentler” adlı kitabında “Sof Şehri Ankara” başlıklı bir yazı var, işte nakledeceğimiz küçük hikaye de bu yazıdan: Evliya Çelebi’ye göre, Engürü (Ankara) keçilerini Frengistan’a götürüp sof üretmeyi denerler ama keçiler uyum sağlamaz, sadece ipliği götürüp denerler yine olmaz! Evliya Çelebi gözlemlerini aktarırken Ankara halkının bu durumu Hacı Bayram Veli’nin kerametine bağladıklarını söyler ama kendisi bunun yörenin suyunun ve havasının güzelliğinden ileri geldiği kanısındadır. İşte bu kısa hikayeden yola çıkarak Ankara’nın sofları sayesinde bir çok Avrupalı taciri kendisine çektiğini söyleyebiliriz. Bugün bile hâlâ Denizli, Buldan, Şile, Nazilli, Hereke, Uşak, Isparta, Gördes, Kula, Kayseri, Sivas ve Konya gibi yörelerimiz dokuma halı ve kilimleriyle anılıyorlar. Mesela İpek, Bursa ve Bilecik’in yanı sıra Edirne’den Kayseri’ye, Harput’a, Diyarbakır’a uzanan bir hat üstünde yaygın biçimde üretilmiş. Pamuk, uygun iklimi buldukça Çukurova dışında da pıtrak verir olmuş. Yünü Güneydoğudaki aşiretler kadar, Batı’daki Afşar, Yörük ve Türkmenler de üretmiş. İşte Anadolu bu dört temel hammaddeden üretilen ipliklerin çözgü ve atkı olarak kullanıldığı koca bir tezgah olarak sayısız bez, kumaş ve yaygı çeşidi üretmiş: Atlas, kadife, bürümcük, şile bezi, manusa, gezi, kutnu, çinko, çitari, makaslı keşan, yazma, çuha, aba, ihram, şayak, şal, kuşak, halı, kilim, cicim, sili, sumak, çarpana, çul, telis, keçe ve daha yüzlercesi...
+       <br/>
+       <br/>
+       Her biri ayrı ayrı sanat olan bu ürünlerin bir de sanatçı tanımlamasını hak eden ustaları vardı ki, bu ustalar da yoğunlukla kadınlardı ve de bu ürünlerde yoğun bir kadın emeği (ve estetiği) olduğunu da vurgulamak gerek.
+       <br/>
+       <br/>
+       Oryantalist ilgi!..
+       <br/>
+       <br/>
+       Türkiye’nin neden geri kaldığını anlatan ya da araştıran kitaplara baktığımızda en çarpıcı tesbit olarak Avrupa’nın fabrikasyon ürünü ipliklerinin, kumaşlarının ve eğirme makinelerinin ülkemize girişiyle birlikte tezgahların ve de çıkrıkların susması olgusuna dikkat çekildiğini görürüz. İstatistik sonuçlarıyla da bu görüşü desteklemek istersek, mesela; 1850’li yıllardan önce bin tezgahta yirmi beş bin okka ipek işleyerek büyük bir üretim gerçekleştiren Bursa’da, bugün tezgahların sayısının yetmiş beşe, ipek miktarının da dört bin okkaya düşüşünü bu sonuçlara bağlayabiliriz. Gelinen bu konumdan sonra “Dokuyan Anadolu”muza da kala kala “oryantalist” bir ilgi kaldı. Anadolu’yu baştan başa dolaşan uyanık insanlar eşliğinde kamyonlar dolusu halı ve kilim Avrupa’nın yolunu tutar oldu. Hatta bu amaçla kurulan şirketler ucuza kapattıkları bu ürünlerle uzun yıllar büyük çapta işler yaptı.
+       <br/>
+       <br/>
+       Sabahattin Eyyuboğlu’na ait bir yazıda halı, divan şiiri ve müziğiyle aynı safta gösterilerek, halk şiiri ve türkülere paralel bağlamda “kilim” öne çıkarılmıştı. Bu yazının yazılmasında Cumhuriyet sonrası ilerici—halkçı aydınların, başka alanlardaki ilgilerine paralel biçimde, kilime sempati göstermelerinin muhakkak büyük payı vardı. Her kim yok olan bu sanatı nasıl ve nerelerde gösterirse göstersin, ortada tek bir gerçek vardı: “Dokuyan Anadolu” diye bir tabir artık kalmamıştı, çünkü son meraklıları ninelerimizden yadigar çıkrıklar ya tavan aralarında unutulmuş ya da odun niyetine bir kaç balta darbesiyle kırılmış, yakılmışlardı!..
+       <br/>
+       <br/>
+       e—mail: okutmus@yahoo.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12661), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092950/http://www.aksiyon.com.tr:80/detay.php?id=12661)

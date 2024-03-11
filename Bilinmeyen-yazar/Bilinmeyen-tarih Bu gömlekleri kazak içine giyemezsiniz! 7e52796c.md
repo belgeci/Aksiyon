@@ -1,0 +1,43 @@
+# Bu gömlekleri kazak içine giyemezsiniz!
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Avrupa’da her yıl yaklaşık 13 milyon yetişkin erkek, Türk gömlekleriyle “prestijli” görünmek istiyor. Avrupa’nın fason tekstil üreticisi konumundaki Türkiye’nin Avrupalı işadamlarına pahalı gömlek satması tekstil sektörü için son dönemin en olumlu sonuçlarından biri.
+   <br/>
+   <br/>
+   Türkiye’deki gömlek firmalarının ihracat başarıları, sadece Avrupa pazarlarında değil, başta ABD olmak üzere diğer gelir düzeyi yüksek ülkelerde hızla yayılıyor. Genellikle ucuz tekstil ürünleri satan Türkiye, böylece kaliteli gömleklerle dünya piyasalarında giyim sanayiindeki imajını düzeltiyor.
+   <br>
+    <br>
+     Gömlek sektörüne yeni girmesine rağmen bu sektöre kazandırdığı yeniliklerle dikkati çeken Kenpool Gömlekleri’nin işletmecisi Fatih Polat, yakın gelecekte “Türk gömleği” diye bir kavramın oluşabileceğini iddia ediyor: “Tekstil Türkiye’nin gözbebeği; ancak bu sektörde istenilen oranda markalaşma olamadı. Biz tekstilin içinde lokal sektörlerle markalaşmaya geçebiliriz. Ben bu konuda en avantajlı sektörün gömlek olduğunu düşünüyorum; çünkü gömlek markalarının imajı diğer ürünlere göre oldukça avantajlı. Gömlekçiler fasoncu olmanın süresini kısa tutmayı başarabildi. Yine gömlekçiler, yurt içine ya da dışına kaban veya takım elbise fiyatına satış yaparak kalitelerini tüketiciye onaylatabiliyor.” diyor.
+     <br>
+      <br>
+       Türk erkeği için gömlek yakın zamana kadar sadece bir ihtiyaçtı. Ceketin içinde kıravatı taşıyan bir aksesuar olarak görülen gömlek, bugün başlı başına bir giyim şekli oldu. Kenpool’un bu konuda özel çalışmalar yürüttüğünü belirten Fatih Polat, “Sadece kaliteli gömlek dikmekle iş bitmiyor. Maalesef bu kaliteli gömleğin nasıl giyileceğini de öğretmek zorunda kalıyoruz. Gömlek eğitimi için önce bayi eğitimi yapıyoruz, sonra tüketicilere ulaşmaya çalışıyoruz.” diyor. Polat, müşterilerinden kesinlikle kazağın altına kendi gömleklerini giymemesini istediklerini aktarıyor. Yaka, kol düğmesi, kravat kullanımı ve ceket—gömlek uyumu üzerine firmanın satış temsilcileri müşterilere bilgi veriyor. Şirket, yakında küçük kitapçıklarla Kenpool gömlek kültürünü tanıtmayı hedefliyor.
+       <br>
+        <br>
+         Son dönemde gömleğe ilginin sebepleri, Fatih Polat’a göre şöyle: “Yakın zamana kadar gömlek bedenleri standarttı ve hemen herkes gömleğin üstüne oturmadığını söylerdi. Bugünse bizim başlattığımız uygulamayla gömlek kalıplarına bir yenilik geldi ve artık gömlekler kişiye özel dikilmiş gibi üretiliyor.”
+         <br/>
+         <br/>
+         Türk gömleklerinin dünya piyasalarındaki rakiplerini birkaç yıl içinde geçebileceğini de belirten Fatih Polat, “Biz çok genç bir firmayız; ama sanki 40 yıllık bir marka gibi tüketicinin giyim ruhunu keşfettik. Yine teknolojide hiçbir eksiğimiz yok. Bizim gibi birçok gömlek firması var. Türk tekstilcisinin uyum özelliği batılılarda yok. Biz en geç 5 yıl içinde hayal bile edilemeyen bir noktaya ulaşabiliriz.” görüşünü savunuyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 518 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19404), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050219072616/http://www.aksiyon.com.tr:80/yazdir.php?id=19404)

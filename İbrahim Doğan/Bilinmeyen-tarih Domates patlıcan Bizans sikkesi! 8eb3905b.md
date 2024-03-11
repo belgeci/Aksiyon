@@ -1,0 +1,81 @@
+# Domates, patlıcan, Bizans sikkesi!
+
+*İbrahim Doğan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050118065015im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050118065015im_/http://www.aksiyon.com.tr/resim/464/36.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çok para kazandıran önemli eserler yurt dışına kaçırılırken, riskli ya da yeterince para kazandırmayacağına inanılan tarihi eserler semt pazarlarına düşüyor. Topkapı"daki eskiciler pazarı, Kadıköy ve Çukurcuma pazarları domates ile patlıcanların yanında Bizans sikkelerine de ev sahipliği yapıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hava ağarmak üzereydi. Gece ile gündüzün kesiştiği dakikalarda elinde siyah çantasıyla kirli sakallı, kısık gözleriyle etrafını süzen orta boylu bir adam belirdi. Ağır adımlarla Topkapı minibüs duraklarının yan tarafındaki caddeye kurulmuş eskici tezgahlarından birini arıyordu. Bir süre sonra gözüne H. M. ilişti. Adımlarını hızlandırdı. Yanına vardığında H.M. usulca "Merhaba, Y." dedi, "Neler var bugün çantada?"
+   <br>
+    <br>
+     Y., etrafını yavaşça süzdü, daha sonra çantasını tezgahın önünde açtı. Elinde 18. yy"a ait bir fincan takımı tutuyordu. "Bunlar geçen haftaki işten" dedi. "Güzel parçalar ama fincanın sapı kırılmış. Kaç para istiyorsun bunlara?" diye sordu H. M.
+     <br>
+      <br>
+       "Gece bir ses duyar gibi olduk. O ara elimden düşmüş. Hemen alıp kutunun içine koydum. Sonra da yapıştırdım. Çok önemli kırıklar değil. Ama fincan takımı ve vazo dahil 8 parça için 250 milyon" dedi Y.
+       <br/>
+       <br/>
+       H. M. ve Y. 200 milyona anlaştı. H. M. çantadaki antikaları alıp tezgahta serili bir bezin altına sakladı.
+       <br/>
+       <br/>
+       Bu diyalog herhangi bir filmden alınmadı. Biz Topkapı"daki eskiciler pazarında rastladık ama muhtemelen birçok bitpazarında benzeri diyaloglar yaşanıyor. Tarihi camilerden, sanat merkezlerinden, müzelerden çalınan "küçük eserlerin" uğrak yeri olmuş burası. Ancak, hırsızlar buraya getirdikleri malları kolay yollardan ele geçirmiyor. Maşa olarak kullanılan hırsız, kimi zaman para, kimi zaman da çaldığı eserden alacağı pay karşılığı çalışıyor. Önce çalacağı eseri yerinde inceliyor, güvenlik sistemlerini kontrol ediyor, ardından detaylı bir plan hazırlayıp geceyi bekliyor. Gecenin karanlığında da soygun gerçekleştiriliyor.
+       <br/>
+       <br/>
+       Hırsız, maddi değeri yüksek tarihi eseri patronlarına teslim ederken, ücretin yanı sıra "küçük eserler" almayı da ihmal etmiyor. Eline geçen para bitmeye başladığında da, çaldığını en kolay yoldan elden çıkarmanın planını yapıyor. Yapıtın değerini bilmeyen hırsız, elindeki "küçük mallar" için genelde Topkapı eskiciler pazarına geliyor. Elindeki birkaç yüz milyon karşılığında seyyar eskiciye veriyor, o da ya bir antikacıya ya da sıradan vatandaşa satıyor. Hırsız da, alıcı da tarihi eserden anlamadığı için alım-satım çok düşük rakamlar karşılığında gerçekleşiyor. Emniyet yetkilileri bitpazarına düşen eserlerin çok değerli olmasının mümkün olmadığını, büyük eserlerin el altından yurt dışına çıkarıldığını belirtiyor.
+       <br/>
+       <br/>
+       Çalıntı tarihi eserlerin geçiş noktası olan pazar yaklaşık 30 yıldır kuruluyor. Gecenin üçünde tezgahlarını açmaya başlıyor bitpazarı sakinleri. Sabahın ışıklarıyla birlikte hareketlilik başlıyor. Yerlere açılan tezgahlarda aklınıza eski namına gelebilecek her şey var: Radyolar, bilgisayar parçaları, kıyafetin her çeşidi ve antika eşyalar... Antika eşyaların sergilendiği tezgahlarda son dönemde çalıntı ve kaçak malların çıkması satış çarkının nasıl döndüğünü de ortaya koyuyor.
+       <br/>
+       <br/>
+       Sanat Merkezi"nden Topkapı Pazarı"na
+       <br/>
+       <br/>
+       Levent"teki Tolga&amp;Sons Dünya Sanat Merkezi"nden çalınan 70 milyar değerindeki yapıtların bir kısmının Topkapı"dan geçtiğinin belirlenmesi bu çarkın gerçekliğini tescil ediyordu. Yaklaşık 4 ay önce bir gece soygunu ile sanat merkezinden yağlı boya tablolar ve fincan takımları çalınmıştı. Dünya Sanat Merkezi"nde görevli Bilal Bark bir dedektif gibi çalışarak kahve fincanlarının da arasında bulunduğu 6 parçaya Aksaray Horhor"daki bir antikacıda ulaştı. Olayı biraz daha derinlemesine araştıran Bark, fincan takımlarının Topkapı bitpazarı-Şehremini-Aksaray Horhor hattını izlediğini öğrendi. Çalınan 28 parçadan bulunan 6 parça küçük eserin 5 bin dolar civarında olduğu tahmin ediliyor. Ancak bunlar sadece 160 milyona satılmış. Maddi değeri oldukça yüksek 18. yy"a ait bu fincan takımlarının cüzi fiyatlara satılması hırsızların tarihi eserlere yabancı olduğunu gösteriyor.
+       <br/>
+       <br/>
+       Fincan takımlarını eskiciye satan, zaman zaman Topkapı"da seyyar tezgah açan bir şahıstı. Eserleri alan isim ise Turgay Kulluk"tu. Şehremini"de eskici dükkanı olan Kulluk kendine gelen eserlerin çalıntı olduğunu bilmesinin mümkün olmadığını söylüyor. "Ben antikacı değil eskiciyim. Milyarlar ile ifade edilen eserlerin fiyatını bilmem mümkün değil. Onların çalıntı olduğu da üzerinde yazmıyor" diyor.
+       <br/>
+       <br/>
+       Bilal Bark çalınan eserlerin Topkapı"ya uğramasının hırsızların kullanıldığının kanıtı olduğunu düşünüyor. Bu geçis noktasında yaşanan bir diğer olay ise Sivas"ın Divriği ilçesindeki UNESCO tarafından Dünya Kültür Mirası Listesine alınan Ulucami"den çalınan eserlere rastlanması. Camiden, 2002 yılında, 1248 tarihli minber kapısı ile kapının üzerinde bulunan ayet yazılı 2 adet levha çalınmıştı. Yapılan çalışmalar sonucu levhalar Sarıyer"de, kapı kanatları Topkapı"da ele geçirilmişti.
+       <br/>
+       <br/>
+       Bir başka olay ise polisin Üsküdar"da yaptığı bir operasyonda ele geçirilen 6 adet sikkenin Topkapı"dan geçtiğinin tespit edilmesi olmuş. Polis, çalıntı eserlerin bu gibi yerlerden sürekli geçtiğini ancak uzman eleman yetersizliğinden kontrolün mümkün olmadığını dile getiriyor.
+       <br/>
+       <br/>
+       Birkaç yıl önce binlerce tezgahın kurulduğu açık hava müzesinde bugün polis izin vermediğinden elle sayılabilecek kadar az sayıda eskici tezgahı var. Eski cazibesini yitirmesinin nedeni olarak ise kaçak ve çalıntı eserlerin burada ortaya çıkması gösteriliyor. Yaşanan olaylar sonrası ünlü simalardan antikacılara kadar birçok kişiyi korku sarmış. Bunun üzerine Topkapı"ya gelenler azalmaya başlamış. Bunda polis kontrolünün de artması önemli bir etken. Emniyet yetkilileri, bu gibi yerlerde çalıntı eserlerin çıkması üzerine, antika ticaretini yapan kişi sayısının da azaldığını ifade ediyor. Birkaç elbise tezgahı ile elektronik eşya satıcısının kaldığı bitpazarında antikacılar çözümü ayrılmakta bulmuş. Dolapdere, Eminönü ve Kadıköy"e taşınan eskiciler burada da eski canlılığın olmadığını söylüyor. Dolapdere"deki pazara sadece civardaki esnaf katılırken, eski yoğunluktan ize rastlanmayan Eminönü ve Kadıköy"deki pazarlarda polis zaman zaman tezgah açanlar ile karşı karşıya geliyor.
+       <br/>
+       <br/>
+       Antika eşya konusunda bir başka merkez olan Beyoğlu Çukurcuma"da da bu tür olaylar yaşanıyor. Geçtiğimiz yıllarda Bebek"te yanan bir konağın çalınan kapısı Beyoğlu"ndaki bir barda ortaya çıkmıştı. Kapının Çukurcuma"daki bir antikacıdan satın alındığı öğrenildi. Çukurcuma antika pazarı, Topkapı ve Dolapdere"nin yerini almış gibi görünüyor. Çukurcuma"da kaliteli eserler satılmasının yanı sıra alışverişin dükkanlarda yapılması popülariteyi de artırmış. Antika işinin dükkanlarda yapıldığı başka bir yer ise Üsküdar ve Mecidiyeköy. Emniyet yetkilileri de Topkapı ve Dolapdere"nin kaybettiği cazibeyi antikacı dükkanlarının aldığına işaret ediyor. Çukurcuma esnafı zaman zaman yetkililere de uzmanlıkları olan antikacılık konusunda yardımcı oluyor.
+       <br/>
+       <br/>
+       Bu tür yerlerde tarihi eser satmaya çalışanları yakalamaya çalışan polis, zaman zaman dolandırıcılarla da karşılaşıyor. Sahte bir eserin gerçekmiş gibi satılmaya çalışıldığına defalarca şahit olmuşlar. Yetkililer ele geçirdikleri eserleri müzelerdeki uzman kişilere inceleterek tarihi değeri olup olmadığını öğreniyor. Eser kaçak ise müzelere teslim ediliyor. Ancak Emniyet Genel Müdürlüğünün tespit ettiği olaylara ilişkin veriler incelendiğinde 2003 yılında bir düşüşün olduğu görülüyor. Emniyet yetkilileri, eser kaçakçılığı ile ilgili olayların azalmasının nedenini koleksiyonerlere ve polisin tedbirlerini artırmasına bağlıyor. Türkiye"de koleksiyoner sayısı bilinçlenerek ve uzmanlaşarak arttı. Koleksiyonerler bir yerde satılması yasak bir eseri gördüğünde almak yerine polise ihbar ederek ele geçirilmesine yardımcı oluyor. Eser de müzelere gönderiliyor." Çalıntı eserin bir değer taşıyıp taşımadığının bilinmesi uzmanlaşma dışında mümkün görünmüyor. Koleksiyoner Haluk Perk de bu noktada kaçakçılığın azalması için uzmanlaşmanın önemine dikkat çekiyor. Türkiye"de tarihi eserlerin ciddi bir envantere sahip olmadığını belirten Perk, bundan dolayı denetimin zorlaştığını anlatıyor. Haluk Perk, çok fazla tanımadığı antikacılardan eser almıyor. Çünkü çalıntı çıkması durumunda esere el konuluyor.
+       <br/>
+       <br/>
+       Yurt içindeki çalıntı eserlerin yakalanma ihtimali varken yurt dışına kaçırılan eser tespit edilse de geri getirilemiyor. Türkiye"nin sahip olduğu zengin mirasın önemli bir kısmı yurt dışına kaçırıldı. Bu eserlerden kimilerinin fiyatları trilyonlarla ifade edilirken kimilerine ise paha biçilemiyor. Bugün İngiltere"de British Museum, Fransa"da Louevre ve Almanya"daki Berlin Müzesi"nde Anadolu"dan çalınan birçok yapıtın olduğu tespit edilmiş durumda. Tarihi öneme sahip eserlerin yurt dışına çıkarılması, eser kaçırmanın çok mu kolay olduğu sorusunu akla getiriyor. Gümrük eski Başmüfettişi Necati Can, Türkiye"den yurt dışına tarihi eser kaçırmanın kolay olduğunu söylüyor. Bunu da özellikle uluslararası nakliyeciliğin gelişmesine ve gümrüklerdeki kontrollerin yetersizliğine bağlıyor. "Vatandaş özel nakliye şirketleri ile eşyalarını yurt dışına çıkarırken, sadece beyanatta bulunuyor. Arada da tarihi eserler kaçırılıyor. Zaten gümrüklerdeki kontroller de yeterli düzeyde değil." Gümrüklere gönderilen genelgelerin de kaçakçılığı önlemede etkili olmadığını aktaran Can, tarihi eserleri kaçırmanın bir diğer yolu olarak da yat turizmine dikkat çekiyor: "Yat turizmi son zamanlarda Türkiye"de oldukça aşama kaydetti. Yatlar Türkiye"ye geldiğinde ıssız yerlere yanaşıyor. Büyük organizasyon yapan kaçakçılar memura rüşvet vererek tehlikeye girmek yerine, yat turizmi yoluyla rahatça istediği uyuşturucuyu, tarihi eseri yurt dışına çıkarıyor."
+       <br/>
+       <br/>
+       PERK: DEPOLARDAKİ TARİHİ ESERLER KORUNMALI
+       <br/>
+       <br/>
+       Ele geçirilen eserler müzelerin depolarına sevkediliyor. Tarihi eserler bir bakıma buralarda kaderine terk edilmiş durumda. Yeterli uzman olmaması ve maddi yetersizlikler eserlerin depolardan çıkartılmasını engelliyor. Çalıntı eser olaylarının azalmasına yardımcı olan koleksiyonerler depolardaki eserlerin de müzelerde sergilenmesini istiyor. Karahanlılar koleksiyoneri olan Haluk Perk depolarda eser birikmesinin normal olduğunu ancak bunların korunması gerektiğini söylüyor. Bunu kendilerinin yapamayacağını anlatan Perk, eserlerin envanter çalışmasının yapılması gerektiğini söylüyor.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3115&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050118065015/http://www.aksiyon.com.tr:80/detay.php?id=3115&yorum_id=1)

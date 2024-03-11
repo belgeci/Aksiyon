@@ -1,0 +1,79 @@
+# Lideri yolsuzluk dosyaları belirleyecek
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119204947im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119204947im_/http://www.aksiyon.com.tr/resim/498/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Seçimlerde yüzde 1 almış DSP"nin genel başkanlığı için amansız bir mücadele yaşanıyor. Bu durum parti kasasındaki 40 trilyona bağlanıyor. Partililer başkanlık yarışında birbirinin önünü kesmenin yolunu da bulmuş: Yolsuzluk dosyaları.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk sol siyasetinin unutulmaz isimlerinden Bülent Ecevit, koltuğunu bırakacağını açıklarken DSP"nin başına Zeki Sezer"i aday gösterdi. Herkesin buna boyun eğmesi beklenirken partide kıran kırana bir mücadele başladı. Türkiye siyasetinde yüzde 5"in altına düşmüş partiler genel başkan adayları bulamazken ya da ortak bir isim davet edilerek sahipsiz bırakılmamaya çalışılırken yüzde 1"lik DSP"deki tersi durumun nedeni belli oldu: DSP"nin kasası ağzına kadar dolu ve sadece devlet yardımlarından gelen 40 trilyon lira var. Bu da yeni bir lider arayışındaki sol kesimlerin iştahını kabartıyor.
+   <br>
+    <br>
+     Yolsuzluk ihbarları
+     <br>
+      <br>
+       DSP"de genel başkan adaylarının en büyük korkusu parti içinden sızan yolsuzluk ihbarları. Türk solunun yeni rotasını belirleyecek seçim süreci, yolsuzluk dosyalarının aydınlanmasını sağlayacak. Yolsuzluk ihbarları ilk meyvelerini ekşi de olsa verdi ve herkesin "kesin lider" gözüyle baktığı isimler aday bile olmadı.
+       <br/>
+       <br/>
+       Seçime birkaç hafta kala Zeki Sezer, Erdoğan Toprak, Şükrü Sina Gürel, Atilla Mutman ve Zekeriya Temizel adaylıklarını açıkladı. Necdet Tekin ve Aydın Tümen "adaylığımızı her an açıklayabiliriz" derken DSP çevrelerinde genel başkan adaylığı için 12 isim zikrediliyor. Tam 5 yıldır genel başkanlık için hazırlanan Şükrü Sina Gürel son iki yılını taşra teşkilatını gezerek geçirdi. Yine Temizel, Toprak ve Mutman gibi isimler son bir yılda teşkilatları defalarca ziyaret ederek destek istedi.
+       <br/>
+       <br/>
+       DSP İstanbul İl Örgütü"nün yakından tanıdığı ve başkanlık için en avantajlı adaylardan Erdoğan Toprak, yüce divana sevk edilen Hüsamettin Özkan"ın en yakınındaki isimlerden birisiydi. Toprak, Hüsamettin Özkan"ı yüce divana gönderen Halkbank"ın hesaplarını inceleyen KİT Komisyonu"nun üyesiydi.
+       <br/>
+       <br/>
+       Kısa bir süre bakanlık  yapan Masum Türker ise kendisine yöneltilen eleştiriler üzerine uzun süredir hazırlık yaptığı genel başkanlık için sessiz kalmayı tercih etti. Zekeriya Temizel ismi ise BDDK davalarıyla sıkça anılıyor. Haksız yere bankalara el koymak ve Almanya"ya kaçmak suçlamasıyla hakkında propaganda yapılan Temizel"in Almanya bağlantıları delegelere uzun uzun anlatılıyor.
+       <br/>
+       <br/>
+       DSP"deki başkan adaylarının en güçlülerinden olan Şükrü Sina Gürel"in yumuşak karnı ise yaptığı evlilik. Zeliha Gürel"le birinci evliliği sırasında yaşadıkları ilişkinin duyulmasını kullanan muhalefet, Gürel"in bakanlık icraatlerini de mercek altına almış durumda.
+       <br/>
+       <br/>
+       DSP"deki yolsuzluk dosyalarının ilk durağı delegeler oluyor; ikinci durak meclisteki yolsuzluk komisyonları; üçüncüsü de basın. Basına dosya hazırlayan DSP"liler için önümüzdeki hafta çok kritik; çünkü başkan adaylığında ısrar edenlerle, devam edenler belli olacak.
+       <br/>
+       <br/>
+       Bülent Ecevit"in veliahtı Zeki Sezer ise bugüne kadar yolsuzluk dosyalarıyla anılmayan bir isim. Yolsuzluğa karşı duyarlı DSP delegesi için bu ayırt edici bir özellik. Ancak geçmişte "demokrasilerde veliaht olmaz" diyen Ecevit"in bu sözünü hatırlatan muhalifler, Zeki Sezer"e yolsuzluk yerine icazetten dolayı yükleniyor. Bu söylem parti içindeki dengelerin değişmesine yol açabilir.
+       <br/>
+       <br/>
+       Sezer şaşırttı
+       <br/>
+       <br/>
+       Zeki Sezer"in Ecevit tarafından aday gösterilmesi diğerlerini şoke etti. Çünkü kongrede icazetli adaydan fazla oy alabilmek hayli zor görünüyor. Ecevit, koltuğunu bırakacağını iki yıl önce açıklamasına rağmen, bugüne kadar aday çıkmamasını sağlayan bütün taktikleri denedi. DSP delegesinin yoğun olarak üye olduğu 3 büyük şehirdeki il başkanlığı seçimlerinde sürpriz adayları elemek için erteleme taktikleri yaptı ve kendi adaylarını seçtirmeyi başardı.
+       <br/>
+       <br/>
+       DSP kasası iştah kabartıyor
+       <br/>
+       <br/>
+       DSP"nin kasasında yer alan 40 trilyon liranın üstündeki paranın partiyi yeniden güçlü olduğu yıllara döndüreceğine inanılıyor. Bu paranın bugün iktidar partisinde bile bulunmadığı, yeni seçilecek başkanın hazine yardımı almamasına rağmen seçimlere hızlı bir giriş yapabileceği düşünülüyor.
+       <br/>
+       <br/>
+       DSP"nin geleceğinden umutlu olanların bir diğer tezi de CHP"nin çöküşe geçtiği. Anamuhalefet partisinin kısa sürede ikiye ayrılacağına inanan DSP"liler, CHP"den gelecek oylarla kısa sürede Meclise döneceklerine inanıyor. CHP"nin parti içi muhalefet yüzünden olağanüstü kurultay kararı alması bu inançlarını kuvvetlendiriyor.
+       <br/>
+       <br/>
+       Lider partisi kitle partisi olur mu?
+       <br/>
+       <br/>
+       DSP seçimleri Türk solunun geleceğini de yakından ilgilendiriyor. Kimin kazanacağını kestirmek hayli zor; ancak delege faktöründen dolayı Zeki Sezer"in avantajlı olduğu söylenebilir. Seçimlerin güçlü adaylarından Şükrü Sina Gürel"e Ecevitlerin niçin kendisini tercih etmediğini sorduğumuzda şu cevabı aldık: "Bu soruyu en iyi Bülent Ecevit"in kendisi cevaplayabilir. Bir hafta önce Ecevit ile görüştüm ve adaylığımdan bahsettim. Bana sadece "takdir sizin" yanıtı verdi. Ben de takdirimi kullanıyorum." Gürel, Zeki Sezer"in tercih edilmesini Rahşan Ecevit faktörüne bağlıyor; "Rahşan Hanım"ın partideki etkisi hâlâ devam ediyor. Zeki Sezer, Rahşan Hanımla yakın çalışabilecek bir isim. Bu yüzden seçildi." Gürel"in bir dönem Rahşan Ecevit"in en yakınındaki kişi olduğu düşünülürse DSP"deki dengelerin hayli değiştiği gözleniyor.
+       <br/>
+       <br/>
+       DSP"li eski bakanlardan Aydın Tümen de adaylık için nabız yoklayanlardan. Tümen"e DSP"nin geleceğini sorduğumuzda ilginç bir cevap aldık: "İcazetli yapı DSP tabanını rahatsız eder. Bugün delegeye baskı yapılıyor. Bu durum demokratik değildir. DSP"de radikal bir değişiklik olmazsa DSP aynı parti olarak kalır. Benim diğer adaylardan en büyük farkım DSP"nin topyekün değişmesini istemem."
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11621&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119204947/http://www.aksiyon.com.tr:80/detay.php?id=11621&yorum_id=1)

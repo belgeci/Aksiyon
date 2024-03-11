@@ -1,0 +1,46 @@
+# Enerjıde sonsuz kaynak
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214237im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214237im_/http://www.aksiyon.com.tr/resim/350/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Hep iç karartıcı haberler verecek değiliz. Bu kez de güzel ve moral verici bir haberrimiz var. Haberin konusu aslında Türkiye kamuoyunun pek yabancı olmadığı bir konu;
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   “Filan yerde yaşayan Türk bilimadamından büyük buluş ” girişiyle başlayan, ülkesinde kabul görmeyip yurtdışında çalışmalarına devam eden Türk bilimadamlarının çığır açan buluşlarını konu alan bir başarı öyküsü aslında. Başarı haberi bu kez Danimarka’dan geldi. İzmirli Azer Deniz Germen yıllarını verdiği füzyon araştırmalarında bilim dünyasında çığır açacak sonuçlar elde etti. Değişik üniversiteler ve teknoloji enstitülerinden onay alan proje çok yakında görücüye çıkacak. Germen projeyi son derece gizli tutmasına rağmen şimdiden dünya teknoloji devleri projenin peşine düşüp, astronomik rakamlar teklif etmişler bile.
+   <br>
+    <br>
+     Germen’in hikayesi İtalya’da, Milano Üniversitesi Mühendislik Fakültesi’nde fizik okuması ve nükleer fizik masteri yapıp Danimarka’nın yolunu tutmasıyla başlıyor. A Deniz Germen, Kopenhag Üniversitesi’nde nükleer fizik doktorasını yapar ve Danimarka Kraliyet Bilimleri Akademisi’nde çalışmaya başlar. Germen’in amacı yıllardır fizik dünyasında tartışılan Sıcak ve Soğuk Füzyon konusunda çalışmaktır. Çünkü ucuz, temiz ve sonsuz bir enerji kaynağı bulmak bilim dünyasının temel amaçlarından birisidir. Bu konuda bilim dünyasını yakından ilgilendiren bir haber geçtiğimiz günlerde Amerika’dan geldi. General Motors (GM) şirketi, otomotiv sanayiindeki şirketlerin atmosferi kirletmeyen motorlu araçlar için geliştirdiği yakıt hücresi teknolojisini, konutlar, işyerleri ve üretim tesislerine enerji temininde kullanmak yönünde çalışmalar yürütüyor. GM, bu çalışmaların elektrik kesintilerine de çare olmasını düşünüyor. Şirketin araştırma ve geliştirme planlamasından sorumlu Başkan Yardımcısı Larry Burns’ün, Michigan Eyaleti'nin Traverse City’de yaptığı açıklamaya göre GM, New York yakınlarındaki Rochester’daki araştırma tesisinde sabit yakıt hücresi jeneratörünü aylardır test ediyor. GM’nin denemesini yaptığı yakıt hücreli jeneratör doğalgaz, metan ya da benzinden hidrojeni ayrıştırıp, bu hidrojeni daha sonra havadan alınan oksijenle karıştırıyor ve yakıt hücresi bunu elektriğe çeviriyor. General Motors’un geliştirdiği yakıt hücreli jeneratörle konutlar ve işyerleri ısıtılıp elektrik enerjisi ihtiyacı karşılanacağı gibi, bu aynı jeneratör elektrikli araçların pilleri ve akülerinin yeniden doldurulmasında da kullanılabilecek.
+     <br>
+      <br>
+       Çare füzyonda mı?
+       <br/>
+       <br/>
+       Füzyon bilimadamlarından politikacılara kadar herkesin hedefi. Ama bu hedefe ulaşmak biraz güç ve çok pahalı. Nedeni ise şu; istendiği gibi enerji elde etmek için, hidrojen çekirdeklerinin birleşmesi sürecinin devamlı olması gerekiyor. Oysa günümüzde varolan deney reaktörlerinde füzyon çok kısa süreli sağlanabiliyor. Dünya çapında bilimadamlarının yıllardır üzerinde çalıştıkları konuların başında geliyor füzyon meselesi. 1989 yılında Stanly Pons ve Martin Fleichmann isimli iki bilimadamı çalışmalarını bitirdiklerinde tüm bilim dünyası soğuk füzyonun gerçekleştiğinin şaşkınlığını yaşamıştı. Ancak 1990’ların sonlarına kadar çok büyük yatırımlar yapılmasına ve büyük emek harcanmasına rağmen istenilen sonuç alınamadı. Yapılan tahminler 2030 yılına kadar istenilen sonuçlara ulaşılamayacağı yönündeydi. Dünyanın dört bir yanındaki meslektaşları ile paralel olarak füzyon üzerine çalışan nükleer fizik doktoru A. Deniz Germen bilim dünyasının yıllardır ‘ucuz, temiz ve sonsuz enerji kaynağı’ meselesi üzerinde durduğunu söylüyor. Çekirdeklerin birleşmesinin gerekli hıza kavuşmaları ile mümkün olabileceğini, ister soğuk ister sıcak füzyonda olsun temel amacın atom çekirdeklerinin birleştirilmesinin sağlanması olduğunu anlatan Germen; “1989 yılında başladığım çalışmama aslında füzyonu gerçekleştirmek için başlamamıştım. Başlangıç amacım, önemli bir yakıt olan hidrojen gazını küçük tesislerde üretebilmeye ve üretim maliyetini aşağıya çekmeye yönelikti. Uzunca bir dönem sonunda bugün test çalışmalarında kullandığım, elektrodun protipini ve buna bağlı olarak da Water Fire hücresini geliştirdim” diyor. Germen’in Water Fire Cell isimli çalışması saygın laboratuvar ve enstitüler tarafından test edilip onaylandı. Germen, buluşunun teknik ayrıntıları konusunda detaylı bilgi vermekten kaçınarak; “Mühendislikle alâkalı biraz işi kaldı” diyor.
+       <br/>
+       <br/>
+       Peki bu buluşun pratik hayata faydası ne olacak? Germen’in cevabı net; “Atomik füzyon projesi insanlığın başına bela olan enerji sorununa son veriyor. Yani bir anlamda sonsuz enerji makinesi. Bu buluş bilim dünyasında bir dönüm noktası olacak.” Germen’in çalışması şu ana kadar Danimarka Teknoloji Enstitüsü—Enerji Lab, Danimarka Teknik Üniversitesi—İnternational Centre for Environment and Energy, Aolborg Üniversitesi İnstitut for Energiteknik Lab, Howden Variax— Aerodynamic Lab, The ABB Group— Energy Lab tarafından test edilip onaylandı.
+       <br/>
+       <br/>
+       Azer Deniz Germen’in başarıya ulaşmış bu projesi hemen dünya devlerini harekete geçirmiş tabii. General Elektric gibi dünya çapında firmaların yanında NASA da talip olmuş projeye. Azer Deniz Germen’e yapılan en büyük teklif ise Amerikan Enerji Bakanlığı’ndan gelmiş. Amerikan Enerji Bakanlığı, Azer Deniz Germen’e tam 15 milyar dolar para önermiş. Germen, proje ile kimlerin ilgilendiğini ve kaç para önerdiklerini sormamıza anlam veremediğini söylüyor; “Burada önemli olan benim projemin parasal değeri ya da NASA’nın ilgilenmesi değil. Bilim dünyasında bir dönüm noktası bu. Yıllardır bilim dünyasının bulmak, geliştirmek için çabaladığı füzyon projesi bugün kanıtlanmış gerçektir. Asıl bu açıdan önemli” diyor. Germen’in çalışması Türkiye’den de bir çok bilim adamının dikkatini çekmiş. İstanbul Teknik Üniversitesi’nden Prof. Dr. Nejat Tuncay çalışmanın detayı hakkında bilgi olmadığı için üzerinde pek yorum yapılamayacağını ancak bilim dünyasının uzun süredir bu konu üzerine çalıştığını ve gerçekten başarılmışsa çok önemli bir zafer olacağını söylüyor. Azer Deniz Germen uluslararası firmaların ilgilerinin sürdüğünü, kendi çalışmalarının da devam ettiğini anlatıyor. Peki ama Türkiye’den hiç kimse ilgilenmemiş mi proje ile? Cevap aslında bizi yanıltmayacak cinsten; “Hayır. Zaten öyle bir beklentim de yoktu” diyor Germen. Germen şimdi çalışmalarına son şeklini vermeye çalışıyor. Bu proje hayata geçince enerji gereksiniminin olduğu her alanda köklü çözümler sunulabilecek. Germen’in verdiği örneğe göre sadece Danimarka’nın ısınmasında sağlayacağı kazanç 18 milyar dolar. Bir başka ifade ile IMF’den alabilmek için yoğun çaba sarf ettiğimiz 1 milyar doların 18 katı.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12931), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214237/http://www.aksiyon.com.tr:80/detay.php?id=12931)

@@ -1,0 +1,85 @@
+# Eğitim bir oyun, okullar da sahne olacak!
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050306164742im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050306164742im_/http://www.aksiyon.com.tr/resim/517/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ebeveynle çocukları arasında yaşandığı sanılan kuşak çatışması şimdilerde öğretmenler arasında yaşanıyor. Yeni nesil öğretmenler bilgiyi yaşanılır hale getirmeyi, bir başka ifadeyle ‘çocuklara balık ikram etmeyi değil, balık tutmayı’ öğretmeyi hedefliyor. Tecrübeli meslektaşları ise eğitim ve öğretimde klasik yöntemleri kullanmakta hayli ısrarcı...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Yeni kıyafetleri, rengarenk çantası ve dizginleyemediği heyecanı ile sınıftan içeriye adım attığında nasıl bir dünya ile karşılaşacağını bilmiyordu. Öğretmeni anne şefkatini gösterebilecek miydi? Arkadaşları, kardeşleri gibi mi olacaktı? Kafasındaki onlarca soruyla boğuşurken genç öğretmen hepsini tek tek sıralarından kaldırarak daire biçiminde yarım metre aralıklarla yan yana getirdi. Aslında ders yapmayı bekliyordu; ama öğretmeni balonlarla bir çeşit oyun tarif ediyordu. Her çocuk balonu arkadaşına fırlatırken yüksek sesle adını söyleyecek, alan da adını tekrar edecekti. Bir anda gergin yüzlerin yerini gülücükler aldı. Kırk beş dakikalık ders süresince balonla oyunlar oynandı. İsimler bağıra çağıra seslendirildi.
+   <br>
+    <br>
+     Bilgiyi yaşantı haline getirmek
+     <br>
+      <br>
+       Balonla bir tur atıldıktan sonra öğretmenleri sorular sormaya başladı; “Çocuklar arkadaşınız size seslenince ne hissettiniz? Arkadaşınıza ‘hişşt, hey, baksana’ şeklinde seslenmek iyi midir? En çok kim isminizle seslendiğinde mutlu oluyorsunuz?” Soruların hepsini bir bir kalkan eller ve gülümseyen yüzler cevaplamaya çalıştı ve zil çaldı. Öğretmen ilk dersi keyifli bir şekilde bitirmiş olmanın memnuniyetiyle öğretmenler odasının yolunu tutarken, okulun yeni sakinleri şaşkındı; “Biz oyun mu oynadık, ders mi yaptık?”
+       <br/>
+       <br/>
+       Öğrencilerin yaptıkları aslında dersti ve aynı anda binlerce okulda benzeri örnekleri yapılmaya başlanmıştı. “Eğitici drama” olarak adlandırılan yeni sistemde amaç, “Bilgiyi yaşantı haline getirmek”. Eğitici drama sadece bir öğretim şekli olmaktan da öte. Bu yöntem, öğrenmeyi sağlamanın yanı  sıra çocuğun duygularını ifade edebilmesini, aktif olmasını ve bilgileri ancak sorguladıktan sonra kabullenmesini hedefliyor. Eğitici dramada hayata dayalı öğrenme, hareket yoluyla öğrenme, aktif öğrenme, tartışarak öğrenme başta olmak üzere on çeşit öğrenme türü kullanılıyor. Marmara Üniversitesi Okulöncesi Öğretmenliği Anabilim Dalı Öğretim Görevlisi ve  “Yaşayarak Öğrenme İçin Eğitici Drama” kitabının yazarı Doç. Dr. Alev Önder’e göre, bu yöntem çocukların doğasında olan rol yapma, taklif etme eğiliminden besleniyor.
+       <br/>
+       <br/>
+       Gebze Cumhuriyet İlköğretim okulu öğretmenlerinden Dilek Yenice 6 yıllık öğretmen. Mezun olduğu üniversitede drama hakkında hiçbir ders görmemiş. Fakat, müfredata göre aktarması gereken tüm bilgileri dramayı kullanarak veriyor. Bunun için ülke çapındaki seminerlere, kurslara katılmış. Dilek Yenice, “Drama herkes için farklı yorumlanabilecek bir kavram” diyor ve ekliyor: “Hayatın kendisini sınıfa uyarlamak diye de tanımlayabiliriz. Çocuklara anlatabileceğim en zor kavramları ve olayları dramayla kolayca anlatabiliyorum.”
+       <br/>
+       <br/>
+       Eğitici drama neden gerekli?
+       <br/>
+       <br/>
+       Gelişmiş ülkelerde drama yöntemi uzun yıllardır eğitimin her döneminde kullanılıyor. Ülkemizde ise 1992 yılında Marmara Üniversitesi’nde okul öncesi öğretmenliğinde ders olarak okutulmaya başladı. Son üç yılda ilköğretim seviyesinde de görülüyor. Yöntem, gelişmiş ülkelerde artık sıradanlaşmış durumda. Yapılan araştırmalarla bu alan her geçen gün daha da genişletiliyor ve değişik yöntemler bulunuyor.
+       <br/>
+       <br/>
+       Alev Önder, bu yöntemle yetişen çocukların her ortam ve durumda kendini ifade edebilen, soru soran, içinde bulunduğu çevrede kontrol kurmaya çalışan gelişmeye açık bireyler olduğunu söylüyor. Barış İlköğretim Okulu’nda iki aydır öğretmenlik yapan  Meryem Pamuk’a göre öğrencilerin en büyük sorunu kendini ifade edebilmek. Drama ise en iyi araç. Üsküdar Hattat İsmail Hakkı İlköğretim Okulu’ndan Derya Engin de çocukların benliklerinin bu yöntem sayesinde ortaya çıktığını savunarak, “Dramasız bir eğitim düşünülemez. Çünkü dramanın ilk amacı çocuklara birey olduklarını hissettirmektir” diyor.
+       <br/>
+       <br/>
+       Genç—tecrübeli öğretmen çekişmesi
+       <br/>
+       <br/>
+       Eğitici drama yöntemini sadece yeni mezun öğretmenler kullanıyor. Meryem Pamuk’a göre, yeni kuşak ile eski kuşak arasında sessiz bir çekişme söz konusu. Tüm dersleri anlatırken drama yöntemini kullanan Pamuk, deneyimli öğretmenlerin bu yöntemi eleştirmesinden şikayetçi; “Biz genç nesli başına buyruk görüyorlar. Eğitim sistemi değişti. Fakat, değişime ayak uydurmaları zor oluyor. Yeni nesil öğretmenlerin çocukları oyunla avutarak dersin dışına çıkardığını iddia ediyorlar. Fakat, öğrenimin kalıcılık oranının yüzde 90 olduğunun kimse farkında değil. Bu dersle çocuğa balık ikram etmek yerine, balık tutmayı öğretiyoruz. Eğitici dramada amaç bu.”
+       <br/>
+       <br/>
+       Meryem Pamuk’un babası Ali Pamuk, İnönü İlköğretim Okulu’nda 29 yıllık öğretmen. Ona göre yaşanan kuşak çatışması değil tarz değişikliği. Gençlerden fazlasıyla yararlanılması gerektiği kanaatinde. Fakat, eğitimi tamamen drama yöntemiyle götürmek de doğru değil. Bütün yöntemleri kullanmak gerekiyor. Yeni nesil öğrencilere “susun, oturun” diyerek başarı elde etmek mümkün değil.
+       <br/>
+       <br/>
+       16 yıllık ilkokul öğretmeni Hüseyin Cevdet Dönmez de dramanın eğitimde kullanılması gerektiğine inanıyor. Bu konuda eğitim almamış; Milli Eğitim Bakanlığı’nın düzenlediği kurslara katılma şansı da hiç olmamış. Elinden geldiği kadar bu yöntemden faydalanıyor; çünkü ona göre çocuğun beş duyu organını aynı anda faaliyete geçiren başka bir yöntem yok. Dönmez, öğretmenlerin kendilerini sürekli yenilemek zorunda olduklarını, aksi hâlde yeni nesli yakalayamayacaklarını öne sürüyor. Genç öğretmen Derya Engin “Geleneksel öğretmenler kesin çizgilerle dramayı kullanmıyor, sadece eleştiriyorlar” demenin yanlış olduğunu düşünüyor. Drama eğitimi almadıkları halde bu yöntemi öğrenmeye çalışan öğretmenlerin varlığına dikkat çekerek, “Öğretmenler kendilerini yormak istemiyor. Çünkü bu yöntemini kullanıyorsanız sürekli yenilikler üretmeniz ve bedeninizi, ruhunuzu canlı tutmanız gerekiyor” diyor.
+       <br/>
+       <br/>
+       Ne draması, oturacak sınıf yok ki
+       <br/>
+       <br/>
+       Dramanın mükemmel bir sistem olduğuna inanan Dilek Yenice, geleneksel öğretmenlerin gelişmeye açık olmadığını, bunun verdikleri eğitime de yansıdığını düşünüyor. Meryem Pamuk ise, geleneksel öğretmenlerin dramatizasyona ilgi göstermemelerinin nedenini ihtiyaç duymamalarına ve mesleki yorgunluklarına bağlıyor. 16 yıllık müzik öğretmeni Aysun Apaydın, tüm ders ve sınıflarda kullanılması tavsiye edilen drama yönteminin her alanda kullanılamayacağı görüşünde. Sebebini ise kendisi açısından şöyle izah ediyor: “Müziği oyunlaştırmayla ilgili bir eğitim almadım. Bilmediğim bir alan. İlçede düzenlenen kurslar vardı; ama fırsatım olmadı, katılmadım. Müzik dersinde çok kullanabileceğimi de düşünmedim.”
+       <br/>
+       <br/>
+       Drama yöntemini kullanmayan öğretmenler, drama için uygun şartların sağlanmadığı; gerekli imkan sağlandığı takdirde modern eğitim sistemlerinin kullanılabileceği konusunda hemfikir. İnönü İlköğretim Okulu öğretmenlerinden Hüseyin Cevdet Dönmez, sınıfların çok kalabalık olmasının drama eğitimini zorlaştırdığını, öğretmen ne yaparsa yapsın dikkati toplayamadığını söylüyor: “Yeni bir sistem var. Bu da kubaşık öğrenme. Ama sistem en fazla 20 kişilik sınıflar için yapılmış. Biz ise 50—55 kişilik sınıflarda ders yapıyoruz. İmkanlar sınırlı. Tahtanın önünde çocuğun rahat hareket edebileceği bir alan bile yok. Drama için de bir boş alan olmalı. Eski öğretmenler dramayı bilmiyor gibi bir şey yok. Herkes biliyor; ama imkan yok. Öğretmenleri suçlamamak gerekiyor.”
+       <br/>
+       <br/>
+       Alev Önder bu görüşe katılmıyor. Ona göre, drama eğitiminin uygulanması için çok da elverişli ortamlar aranması yersiz. Eğer sınıf çok kalabalık ve dar ise gruplara ayrılarak uygulanabilir.
+       <br/>
+       <br/>
+       İki eğitim yöntemi arasındaki farklar
+       <br/>
+       <br/>
+       Geliştirilen iki eğitim yöntemi de birbirinden farklı. İki eğitim sistemini yine öğretmenler tartışıyor. İlkokul birinci sınıf öğretmeni Derya Engin’e göre, drama çocuklara kendilerini tanımlamayı öğretiyor. Klasik eğitimle bugünlere gelen kişilerin yüzde 90’ı kendi duygularını tanımlamaktan, anlamaktan mahrum. Bu yöntem tek tip insan modelini besliyor. Amaç, bilsin ama sorgulamasın. Oysa her bir dramanın amacı farklı. Kimi işitsel, kimi görsel ya da duygusal. Beynin etkinlik kısmını geliştiriyor. Engin, klasik eğitimin sorgulama yaptırmadığını, kendi kararlarını verebilen bireyler yetiştiremediğini ve ‘zafiyet içindeki insan’ olmayı öğrettiğini söylüyor. Zaman zaman dramatizasyon yöntemine de başvuran 16 yıllık ilkokul öğretmeni Hüseyin Cevdet Dönmez ise klasik yöntemle bir şey anlatıldığında çocuğun dikkatini çekemediğini ya da ilgi toplasa bile bununkısa sürdüğünü çünkü çocukların yaratılış olarak o yaşlarda teorilere ve kavramlara ilgi duymadığını, oyunlaştırıldığında ise ilginin artıp öğrenmenin gerçekleştiğini söylüyor.
+       <br/>
+       <br/>
+       Her iki yöntemi de uyguladığını söyleyip ve sadece dramayla eğitimin mümkün olmadığına inanan Ali Pamuk, kendi öğrencilerini şöyle tanımlıyor: “Bizim ilköğretim dördüncü sınıfa kadar öğrenciler hiç tepki vermez. Dinliyorlar sadece. Zaman zaman biz soruyoruz”. Şu anda ikinci sınıf öğretmeni Dilek Yenice ise bir çocuğun dördüncü sınıfa kadar soru bile soramıyor olmasını yadırgıyor ve bunun klasik öğretimin bir sonucu olduğunu savunuyor. Çocuğun dramaya çok açık olarak geldiğine; çekingen, problemli çocukların çok kısa bir sürede bu yöntemle açıldığına dikkat çekiyor. Meryem Pamuk, bu eğitim sistemi uygulandığı takdirde, olaylar arasındaki sebep—sonuç ilişkisiyle daha çok ilgilenen, kendine daha çok açıklama yapılmasını bekleyen, çevresine eleştirel gözle bakan, her zaman mantığının peşinde giden, kapıdan çok kapının arkasındakilerin peşine düşen bireylerin geleceğini düşünüyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17612&yorum=2264), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050306164742/http://www.aksiyon.com.tr:80/detay.php?id=17612&yorum=2264)

@@ -1,0 +1,215 @@
+# 'Terör kültürel bir fenomen'
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040109143816im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040109143816im_/http://www.aksiyon.com.tr/resim/468/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İstanbul’daki saldırıları Aksiyon’a değerlendiren terör uzmanı Dr. Michael Radu, eylemlerle Türkiye’nin dikkat ve çabalarının başka yöne çevrilmek istendiğini söyledi. Michael Radu’ya göre Ankara, terör örgütü PKK konusunda ise kartlarını iyi oynayamadı.
+ </font>
+ <p>
+  <font class="content">
+   Türkiye bir kez daha terörün çirkin yüzü ile karşılaştı. Uzun yıllar terörle mücadele eden bir ülke, bu kez küresel terörün özelliklerini gösteren iki büyük saldırıya maruz kaldı. İstanbul’da beş gün arayla gerçekleştirilen iki ‘ikiz saldırı’ Türkiye’de şaşkınlık ve endişe ile karşılandı. Eylemlerin mahiyeti, ne anlam ifade ettiği ve sonuçları üzerine yorumlar yapıldı, gelecek adına projeksiyonlar çizildi. Aksiyon dergisi olarak biz de dünyanın önde gelen terör uzmanlarından biri ile görüştük. İstanbul’daki sinagog saldırıları sonrası görüşlerine başvurduğumuz Dr. Michael Radu, Amerikan Dış Politika Araştırma Enstitüsü’nde (Foreign Policy Research Institute) üst düzey uzman olarak çalışıyor. Enstitünün ‘Terörizm Araştırma, Önleme ve Anavatan Güvenliği’ merkezinde ortak başkan olarak çalışan Dr. Radu, aynı zamanda Orbis dergisinin daimi yazarları arasında yer alıyor.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     İstanbul Valisi Muammer Güler, geçen hafta cumartesi günü iki sinagoga yapılan saldırı ile El Kaide’nin daha önce gerçekleştirdiği eylemler arasında benzerlikler olduğunu söyledi. Katılıyor musunuz?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Kesinlikle. Cerbe ve Kazablanka’da kullanılan yöntemlere benziyor. Hedef yine Yahudiler, hayatını kaybeden kurbanların büyük bir bölümü de Müslümanlar. İntihar eylemlerini gerçekleştirenler yine yabancı ülkelerde eğitim almış yerli, beceriksiz kişiler. Bazıları son anda teslim oluyor veya yakalanıyor, bazıları da pasaportlarını yanında taşıyor. Yerli olmakla birlikte failler yurtdışındayken örgüte katılıyor (Fransa, Bosna, Çeçenistan, Afganistan...) ve doktrin eğitimlerini yurtdışında alıyor. Teknik destek ve çoğu zaman finansal yardım da dışarıdan geliyor.
+   <br/>
+   <br/>
+   Yakın zamanda El Kaide ağından üst düzey bir kişinin hedefleri belirlemek ve son dakika ayrıntılarıyla ilgilenmek üzere Türkiye’yi “ziyaret” etmiş olduğunun ortaya çıkacağına inanıyorum. Zira Kazablanka, Bali ve Filipin olaylarında El Kaide’nin böyle son dakika ziyaretleri yaptığı tespit edilmiştir.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Bu saldırıların İstanbul’da gerçekleşmiş olmasından ne gibi mesajlar çıkarabiliriz?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   İlk olarak, El Kaide nebulasının uzanabileceği etki alanının ne kadar genişlediğini görmeliyiz. ‘Nebula’ kavramını kullanıyorum, çünkü El Kaide’nin hiyerarşik bir yapısı ya da disiplinli bir organizasyonu yok. Örgüt, çok çeşitli yerli gruplardan oluşuyor ve bunlar firari Üsame bin Ladin’le gevşek bir bağlantıya sahip. Bağlantı genelde ideolojik, kısıtlı oranda da parasal fon ve teknik destek düzeyinde kalıyor.
+   <br/>
+   <br/>
+   Saldırılar ikinci olarak El Kaide’nin daha önce laik Türkiye’ye yönelik tehditlerinin ciddi olduğunu gösteriyor. Üçüncü olarak, saldırılar, Türk hükümetine ABD’ye destek vermenin ve İsrail’le dostane ilişkiler kurmanın risklerini göstermeyi amaçlıyor. Böylelikle de Türkiye’nin dikkat ve çabalarını başka yöne çevirmesi amaçlanıyor.
+   <br/>
+   <br/>
+   Dördüncüsü, daha küçük, parçalanmış ve etkisiz İBDA—C ve Hizbullah gibi Türk İslamcı unsurlar yeniden eyleme teşvik ediliyor. Son olarak da bölgedeki diğer hükümetlere (Ürdün gibi) ABD ile yakın ilişki içinde olmanın tehlikeli olduğu yönünde bir uyarı mesajı geçilmiş oluyor.
+   <br/>
+   <br/>
+   Perşembe günü gerçekleşen saldırıların özelde İngiltere ile bağlantılı hedeflere yönelmiş olmasının da farklı bir mesajı yok. El—Kaide nebulası için ABD Büyük Şeytansa, İngiltere de küçüğüdür ve her ikisi de dünyanın her yerinde doğal hedeflerdir. Türk hükümeti, ülkesindeki El—Kaide hedeflerinin üzerine gittiğinde El—Kaide de tamamıyla Türk askeri, polis, jandarma veya sivil hükümet hedeflerine ve personeline yönelecektir.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Türk yetkililer, saldırıların yabancı örgütlerle koordinasyon içerisinde gerçekleştirildiğine inanıyor. Bu örgütler hangileri olabilir?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Ebu Hafs el Mısrî Tugayı, El Kaide’nin ortaya çıkardığı bir Arap grubu. Şimdi Irak’ta da faaliyet gösteriyor. Ensar El İslam da benzer bir geçmişe sahip. İstanbul’daki saldırılar muhtemelen bu iki örgütün ortak çabasıyla gerçekleştirildi. İsimleri açıklanan faillerin Bingöl bölgesi ile açık irtibatları bazı Kürt bağlantıların (yani Ensar El—İslam ile) olabileceğini akla getiriyor. Ayrıca, İran rejiminin bazı unsurları da (bu illa da Hatemi hükümetinin kontrolü altında olmuş demek değil) bu işe karışmış olabilir; en azından lojistik destek seviyesinde...
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Bu durumda uluslararası terörizm artık bir fenomen haline geldi denebilir mi?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   İstanbul’da gerçekleştirilen saldırılar uluslararası terörizmin geldiği noktayı gösteriyor. Elbette, kaçınılmaz olarak İslami örgütlerin gerçekleştirdiği terörizmin bir fenomen halini aldığını da... İstanbul’da terör saldırıları gerçekleştiği günlerde Hizbullah adına kaynak toplayan bir adam Brezilya’da tutuklanıp Paraguay’a iade (!) ediliyorsa, evrensel bir fenomenden söz ediyoruz demektir.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Sinagoglara yönelik saldırılarda Türk vatandaşı Yahudiler hedef alındı. Gerçekte asıl hedef neydi?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Uluslararası stratejik ve sembolik etki açısından bakılırsa ana hedef Yahudilerdi. Hem İstanbul’da hem de dünyanın dört bir yanında yaşayan Yahudiler. Bölgesel ya da taktik etki açısından ise Türklerdi.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Peki hedeften öte bir mesajı var mıydı bu eylemlerin?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Verilen mesaj şunlardı: Yahudiler her yerde takip edilebilir ve bundan sonra da nerede olurlarsa olsunlar izleneceklerdir. Türkiye, böyle bir cezaya müstehaktı. Cezasını da aldı. Ne kendi vatandaşlarını ne de burada yaşayan Yahudileri koruyabilir. El Kaide her yerdedir ve canı istediği vakit saldırabilir. Aynı mesajı perşembe günü gerçekleşen saldırılar için de yorumlayabiliriz. İngilizler de Yahudiler kadar hedef tahtasındadır ve dünyanın neresinde olurlarsa olsunlar El—Kaide’nin saldırılarına açıktırlar.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     O halde Türkiye’de benzer saldırılar yeniden gerçekleşebilir mi?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Evet, olabilir. Doğrusu bu röportajı ilk yaptığımızda perşembe gününün saldırıları gerçekleşmemişti. O zaman belki de çok yakın bir vakitte yeni saldırılar olabilir demiştim. Şimdi bunu yineliyorum.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Bombalı saldırılar Türkiye’nin iç ve dış politikasını nasıl etkileyebilir?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   İç politikada, saldırılar eylemi gerçekleştirenler için bumerang etkisi yapabilir. Bunlar Türk hükümetini ve kamuoyunu tarafsız kalmalarının imkansız olduğunu kavramaya zorlayabilir ve Irak’taki savaşın başından beri benimsenen tarafsızlık politikasının bir hata olduğunu anlayarak harekete geçmelerini sağlayabilir. Ayrıca, hükümeti siyasal İslam’la kendisi arasında daha ileri seviyede bir mesafe koymaya zorlayabilir.
+   <br/>
+   <br/>
+   Uluslararası boyutta ise bu saldırılar Washington’la ilişkilerin savaş öncesindeki mükemmel seviyeye yeniden dönmesine yardımcı olacaktır. Bir de Avrupa Birliği’nin ‘insan hakları’ taleplerine uyum yönündeki aşırıya kaçan çabanın bazı tehlikelerinin görülmesini sağlayacaktır.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Saldırılar, Türkiye’nin Irak’ta izlediği politikaların bir sonucu mudur?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Eldeki mevcut verilere göre, Ankara’nın Irak’ta izlediği politikalarla bağlantılı görünüyor. Bununla birlikte, El Kaide ve bütün İslamcıların Türkiye ile temel problemleri çok daha derinlerde bulunuyor. Bu sebeple Türkiye’ye yönelik saldırılar kaçınılmazdı. Irak’ta ne olup bittiğine bakmaksızın bu tür saldırılar yakın veya uzak zamanda mutlaka gerçekleşecekti.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Saldırganlar, neden intihar saldırısı yapmayı tercih ediyor?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Teröristlerin bakış açısından meseleye yaklaşacak olursak, her şeyden önce intihar saldırısı mümkün olan en iyi silah durumunda. Gayet ucuz bir eylem. Mebzul miktarda bol eleman bulunabiliyor. Kusursuz sonuç alınıyor; önlenmesi ya da saldırıdan kaçınılması çok zor. Bir de yüksek oranda medyatik bir eylem.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     İntihar saldırılarının arkasında yatan sosyal, ekonomik ve siyasi dinamikler neler peki?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   İntihar saldırganları için tek bir profil çıkarmak çok zor. Yaşları 16 ile 40 arasında değişen, her iki cinsiyetten insanlar bunlar. Fakat, psikolojik olarak bu tip kişiler yalnızlığa itilmişlerden çıkıyor. Başkalarının kontrolüne girmeye meyyal fıtratlar bunlar. Aileleri ile bağları oldukça zayıf. Çoğu tek başına yaşıyor. Hepsi değil ama pek çoğu başka yerlerdeki cihad faaliyetlerine katılmış ve belli bir tecrübeye sahip. Burada hatırlatmak zorundayız, intihar eylemcilerinin tamamı Müslüman değil. Mesela Sri Lanka’da faaliyet gösteren Tamil Kaplanları. Bazıları da Müslüman fakat İslamcı değil. Türkiye’deki PKK ve Filistin’deki El Aksa Tugayı gibi.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     İntihar saldırılarının artmasında kişisel sebeplerin ya da kaybedilen aile fertlerinin rolü ne kadar?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Kişisel sebepler, ikinci derecedeki intihar eylemcilerini motive etmede bir rol oynuyor. Hem İsrail’de hem de Sri Lanka’da bunun örneklerini görüyoruz. İstanbul’daki eylemi gerçekleştirenleri de bu sınıftan sayabiliriz. Fakat, birinci seviyedeki intihar bombacıları yüksek derecede eğitimli, genellikle Batılı ülkelerde yaşayan, teknik becerilere sahip, orta ya da üst sınıfa mensup kişilerden oluşuyor. 11 Eylül saldırılarını gerçekleştiren teröristler, mesela Muhammed Atta, özel olarak ideoloji ile motive edilmişti ve uzun süre fikir aşılama (doktrinasyon) eğitimine tabi tutulmuştu.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Diğer terörist saldırılar ile intihar eylemlerini karşılaştırdığınızda hangisi daha tahripkâr?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   İkinci derecedeki intihar bombacılarının gerçekleştirdiği saldırılar stratejik bir derinlik içermediklerinden hesaba bile katılmayabilirler. Ancak, birinci derecede yer alanlar diğer terör metotlarına nazaran daha fazla zarar verebiliyorlar.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Küresel bir anlam kazanan terörizmi ve intihar bombacılarını durdurmak için bir çözüm var mı?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Tek bir çözüm yok. Genel anlamdaki terörizm gibi intihar saldırıları da yoksulluktan, ‘adaletsizlikten’ ya da demokrasi olmamasından neşet etmiyor. Bu tür kanaatleri aptalca buluyorum. Aslında bu bir kültürel fenomen. Dolayısıyla da ancak kendisini üreten kültürü değiştirerek kökünden sökülüp atılabilir, ya da daha gerçekçi bir yaklaşımla etki alanı sınırlanabilir. Bu yorumu yaparken herhangi bir kültürü hedef aldığım sanılmasın. Sri Lanka’nın Hindu Tamillerinden görüldüğü gibi İslam’a has da değildir bu metot.
+   <br/>
+   <br/>
+   Her durumda mücadelenin ilk hedefi bu iş için eleman toplayan kişiler ve ideologlar olabilir. Ki bunlar genellikle hakiki bombaları değilse de etkilenebilir beyinlere zihinsel bombaları yerleştiren kişilerdir. Elbette, saldırıların etkisini ve sayısını sınırlayabilecek polisiye, istihbari ve güvenlik metotları da var.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     ABD’nin 11 Eylül saldırıları sonrası başlattığı terörizmle savaş politikasının başarıya ulaşacağına inanıyor musunuz?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Evet, uzun vadede başarılı olacağını düşünüyorum. Kaybedilmiş savaşlar olacak. Bazıları ise daha şimdiden kazanılmıştır. İyimser olmak için en temel sebep şudur: El Kaide, düşmanlarına yenilerini katma konusunda, mevcut düşmanlarıyla başa çıkabilme gücüne kıyasla daha yetenekli. Üsame bin Ladin’in düşman listesine bir bakın: Bütün Müslüman hükümetler, Hindistan, Rusya, Çin, ABD, pek çok Avrupa ülkesi ve Türkiye. Ayrıca, pek çok hükümet (son zamanlara kadar Türkiye, Suudi Arabistan, Fas, Endonezya gibi birçok ülke dahil) bu çatışmanın dışında kalma iddiasında olmasına rağmen, hemen hepsi kafa yapılarını değiştirmeye mecbur bırakıldı. Tabii ki bazı Avrupalılar da bunu yapmaya zorlanacak. Hem de çok kısa zamanda. Bundan başka, teröre karşı küresel işbirliği politikacıların ifadelerinde göründüğünden daha değerlidir ve daha iyi sonuçlar verebilir.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     ABD’nin terörizmle savaşla birlikte uygulamaya koyduğu politikanın müspet ve menfi yönleri neler peki?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   ABD’nin terörizmle mücadele politikasında kusur ve ihmaller var. Birincisi, belki de bu konuya hâlâ daha uygun bir yasal yaklaşımları yok. Guantanamo konusundaki tartışmalara şahit oluyoruz mesela. Uluslararası hukuk, pozitif açıdan üretkenliği sağlayamadığı dikkate alındığında pratik açıdan faydalı değil ve modası geçmiş durumda. Ayrıca, hem kamuoyunda hem de karar mekanizmalarının başında olanlarda tehdidin doğası hakkında bir kafa karışıklığı hâlâ devam ediyor. Burada diğer pek çok problemden de bahsedilebilir. Fakat, süreç bazen yavaş bazen kamuoyundan habersiz bir şekilde devam etse de başlamış durumda.
+   <br/>
+   <b>
+    <i>
+     <br/>
+     Türkiye, terör örgütü PKK’nın Kuzey Irak’taki faaliyetlerini sona erdirmek amacıyla ABD’ye işbirliği yapmayı önerdi. Fakat bu henüz gerçekleşmedi. Son bombalama olaylarından sonra Ankara ile Washington arasında bu konuda bir işbirliği öngörüyor musunuz?
+     <br/>
+    </i>
+   </b>
+   <br/>
+   Bahsettiğiniz husus muhtemelen bir şekilde gerçekleşecek. Fakat, bu mesele Washington’da öncelikle Türkiye’nin, ikinci olarak Irak Kürtlerinin sorunu, son olarak da bir Amerikan problemi olarak algılanıyor. Şu ana kadar Ankara kartlarını iyi oynamadı. Diğer yandan, hangi isim altında faaliyet gösterirse göstersin PKK da sonunun geldiğini hissetmiş bulunuyor. Belki de kendini resmen olmasa da ‘de facto’ biçimde feshedebilir. Yine de bu meselenin çözümünün büyük oranda Irak meselesinin sonucuna ve çözümüne bağlı olduğu unutulmamalı.
+   <br/>
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3217&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040109143816/http://www.aksiyon.com.tr:80/detay.php?id=3217&yorum_id=1)

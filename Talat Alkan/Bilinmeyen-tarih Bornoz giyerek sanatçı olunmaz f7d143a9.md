@@ -1,0 +1,108 @@
+# "Bornoz giyerek sanatçı olunmaz"
+
+*Talat Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050313191825im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050313191825im_/http://www.aksiyon.com.tr/resim/494/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Aldığı "Fair Play" ödülünden sonra kimse onun kapısını tebrik için çalmamış olsa da, Emel Taşçıoğlu, "Ahlaki konularda taviz vermeden hem sanatçı, hem de anne olarak bir yerlere gelebilmenin en güzel karşılığı bu" diyor.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Emel Taşçıoğlu, Ankara gibi bir memur şehrinde, hem de memur statüsünde bir TRT Radyo sanatçısı. Milli Olimpiyat Komitesi ise, "Fair Play" yani "Dürüst Oyun" oynayan centilmen sporculara teşvik ödülleri veren, adı üstünde bir spor kurumu. Herhangi birimize bir Ankara Radyosu sanatçısına Olimpiyat Komitesi tarafından "Fair Play" ödülü verileceği söylense herhalde buna güleriz. Ama bu olay Türkiye"de ilk defa 2001 yılında yaşandı ve Türk Milli Olimpiyat Komitesi, Ankara Radyosu sanatçısı Emel Taşçıoğluna Fair Play ödülü verdi.
+   <br>
+    <br>
+     Olayın kısa hikayesi şöyle: Olimpiyat Komitesi tarafından sadece spor alanında dağıtılan bu ödülün o yıl "sosyal" alanda da "sarı kart" görmemiş, vatanına ve milletine faydalı işlerde bulunmuş kişilere verilmesi kararlaştırılır. Kurul oturup konuşarak bu ödülü sanat hayatındaki başarısı ve örnek sanatçı kişiliğinden dolayı Emel Taşçıoğlu"na vermeyi planlar. Emel Hanım, bu ödülü kendisine telefonla bildirdiklerinde çok şaşırmış, hatta önce birileri tarafından işletildiğini düşünmüş. Bu sebeple de ödülü gidip alana kadar kimselerle aldığı haberi paylaşmamış.
+     <br>
+      <br/>
+      Emel Taşçıoğlu"yla beraber bu ödüle layık görülen insanlardan birisi yıllardır kitabı olmayan köylere eşek sırtında kitap taşıyan bir dede, diğeri de cemaate cuma namazı kıldırdığı esnada gelen haber üzerine namazı bozdurarak cemaatle orman yangınını söndüren, daha sonra namazı tekrar kıldıran bir hoca. Ödülü aldıktan sonra yakın çevresi hariç kimseler Emel Hanım"ın kapısını tebrik etmek için çalmamış. Ama o, aldığı ödülün değerini çok iyi kavramış. "Benim için ahlaki konularda taviz vermeden sanatçı ve bir anne olarak bir yerlere gelebilmenin en güzel karşılığı bu" diyor.
+      <br/>
+      <br/>
+      5 yaşında sahne
+      <br/>
+      <br/>
+      Kendisi o yılları hayal meyal hatırlıyor olsa da, babasının beyanına göre Emel Güney, 5 yaşında sahneye çıktığında kalabalık "milli takım gol atmış gibi" coşkuyla onu selamlarmış. Aradan geçen 35 yıla rağmen Ankara sokaklarında onun çocukluk halini hatırlayanlar bile çıkıyor. Sanattaki ilk yıllarını dolu dolu yaşayan Emel Taşçıoğlu, Güney Kardeşler grubuyla beraber günde 15 düğüne gittiği zamanlardan bahsediyor. Sahnede kaldıkları dönemde Güney Kardeşler grubu, babalarının koyduğu prensipler doğrultusunda hiçbir zaman gazinolarda veya alkollü mekanlarda çalışmamış.
+      <br/>
+      <br/>
+      On yıllık yoğun sahne temposundan sonra Emel Güney, 15 yaşına geldiğinde babası "Artık yeter, kızımız genç kız olmaya başladı, buraya kadar" diyerek kendisini sahnelerden indiriyor. Artık Emel de diğer arkadaşları gibi eğitime devam edecek ve hedefi olan öğretmenlik mesleğine doğru adım adım ilerleyecektir.
+      <br/>
+      <br/>
+      Çocukluğu sahnelerde geçen Emel, eğitimine devam etmek üzere tüm dikkatini okuluna verir. Annesi ve babası, kızları o dönemde müziği bırakınca "Kızım, bak biz seni bu kadar yıl hanım hanımcık yetiştirdik, aman sen de TRT"nin sınavına gir, yoksa hakkımız helal etmeyiz" diye yeminler verir ama Emel kararını çoktan vermiştir. O yaşta sanatçılığın bu kadarı yeteceğine inanan Emel, gerçekten de hedeflediği gibi Gazi Üniversitesi Müzik Öğretmenliği bölümüne girer ve 1985 yılında bitirerek öğretmenliğe başlar. Aynı yıllarda evlenir, Taşçıoğlu soyadını alarak bir de çocuk sahibi olur. Emel Taşçıoğlu  TRT"nin ağırlığını, ciddiyetini ve asaletini bildiği için eşinin ısrarlarına dayanamayarak TRT Ankara Radyosunun açmış olduğu Yetişmiş Sanatçı sınavına girer. Sınava girdiğini de kimseye haber vermez ki kazanamadığı durumda "Ünlü Emel Güney TRT"nin sınavını kazanamamış" demesinler. Çocuk yaşlarında Yunus Karaca"dan aldığı nota derslerinin faydasını TRT sınavında da görecektir. Sonunda Emel Taşçıoğlu, TRT sınavında kendisine verilen eserleri iyi biçimde solfej ve icra ederek başarılı olur ve ses sanatçısı olarak Ankara Radyosunda çalışmaya başlar.
+      <br/>
+      <br/>
+      40 yaşında ilk albüm: "Sel Gider, Kum Kalır"
+      <br/>
+      <br/>
+      Şimdi biraz da "Sel Gider, Kum Kalır.." albümünden bahsedelim. Yılların birikimini ve emeğini yansıtan bir isim ve içerikle karşımıza çıkan Emel Taşçıoğlu"nun albümünde ilk dikkatimizi çeken şey 13 türküden oluşan albümün neredeyse yarısının hicaz veya halk müziğinde "garip ayağı" denen ses dizilerinden müteşekkil olması. Bu tercihin başlıca sebebi Sıla Müzik"in sahibi Mustafa Yaşar Urhan"ın hicaz makamına olan düşkünlüğüymüş. Hatta müzik camiasında "Hicaz Mustafa" olarak da bilinen Mustafa Bey"le Emel Taşçıoğlu"nun oluşturdukları ortak repertuarın sonunda elemeden geçen türkülerin çoğunun hicaz makamında olduğunu görmüş ve bu türkülere olduğu gibi albümde yer vermişler. Bunların dışında Orta Anadolu türkülerinin hakim olduğu albümde Bayramdan Bayrama ve Efendim isimli iki Kazım Birlik bestesi ve Mustafa Keser"den alınan Yüce Dağ Başında isimli bir şarkı yer alıyor.
+      <br/>
+      <br/>
+      Taşçıoğlu"nun repertuarındaki hassasiyeti saz ekibinde de görmek mümkün. Emel Taşçıoğlu"nun albümü için kendi alanında en iyi olan müzisyenler bir araya gelerek İsmail Derker yönetmenliğinde çalışmış. Taşçıoğlu"nun yanık sesinden bildiğimiz birçok türkü bambaşka bir havaya bürünmüş.
+      <br/>
+      <br/>
+      Türküleri yorumlamasında baba vatanı Mucur"da geçirdiği yaz tatillerinin de katkısı olduğunu söyleyen Taşçıoğlu, "Eğer ayağıma şalvar geçirip kasnak kesmeseydim ve oruçlu olarak tarlalarda mercimek yolmasaydım bu milletin türkülerini de anlayamazdım" diyor. Taşçıoğlu"na göre milletin neyi hangi şartlarda yaşadığını anladığınız zaman türkülerin de nasıl yakıldığı hakkında bir fikriniz oluyor ve bu da elbette icranıza yansıyor. Emekli olan ve oraya göçen baba ve annesini ziyaret için Mucur"a gitmeye devam ediyor.
+      <br/>
+      <br/>
+      Hem sanatçı, hem ev hanımı
+      <br/>
+      <br/>
+      Emel Taşçıoğlu aile konusunda da örnek bir sanatçı. Bu konuda anne babasından gördüğü aile hayatını minnetle anarak sürdürmeye çalıştığını vurgulayan Taşçıoğlu "ailenin kendisi için her şeyin önünde ve ilk planda" yer aldığını söylüyor. Ancak düzgün bir aile yaşantısı güzel bir iş hayatına destek olur, iş ancak ailenin saadeti için önemlidir diyen sanatçı yıllardır süren sanat hayatına rağmen çarşıdan alışverişini kendisi yapan, otobüs ve metro gibi toplu taşıma araçlarını kullanan ve ev işleri yapmaktan zevk alan bir ev hanımı aynı zamanda. Taşçıoğlu, günümüz "assolistleri" için de bornoz giyip tırnak uzatarak şarkıcı olmanın mümkün olmadığını, iyi bir sanatçı olabilmek için uzun yıllar çalışıp, olgunluk ve birikim sahibi olduktan sonra doğru işler yapılabileceğini vurguluyor.
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      Emel Taşçıoğlu, Ankara gibi bir memur şehrinde, hem de memur statüsünde bir TRT Radyo sanatçısı. Milli Olimpiyat Komitesi ise, "Fair Play" yani "Dürüst Oyun" oynayan centilmen sporculara teşvik ödülleri veren, adı üstünde bir spor kurumu. Herhangi birimize bir Ankara Radyosu sanatçısına Olimpiyat Komitesi tarafından "Fair Play" ödülü verileceği söylense herhalde buna güleriz. Ama bu olay Türkiye"de ilk defa 2001 yılında yaşandı ve Türk Milli Olimpiyat Komitesi, Ankara Radyosu sanatçısı Emel Taşçıoğluna Fair Play ödülü verdi.
+      <br/>
+      <br/>
+      Olayın kısa hikayesi şöyle: Olimpiyat Komitesi tarafından sadece spor alanında dağıtılan bu ödülün o yıl "sosyal" alanda da "sarı kart" görmemiş, vatanına ve milletine faydalı işlerde bulunmuş kişilere verilmesi kararlaştırılır. Kurul oturup konuşarak bu ödülü sanat hayatındaki başarısı ve örnek sanatçı kişiliğinden dolayı Emel Taşçıoğlu"na vermeyi planlar. Emel Hanım, bu ödülü kendisine telefonla bildirdiklerinde çok şaşırmış, hatta önce birileri tarafından işletildiğini düşünmüş. Bu sebeple de ödülü gidip alana kadar kimselerle aldığı haberi paylaşmamış.
+      <br/>
+      <br/>
+      Emel Taşçıoğlu"yla beraber bu ödüle layık görülen insanlardan birisi yıllardır kitabı olmayan köylere eşek sırtında kitap taşıyan bir dede, diğeri de cemaate cuma namazı kıldırdığı esnada gelen haber üzerine namazı bozdurarak cemaatle orman yangınını söndüren, daha sonra namazı tekrar kıldıran bir hoca. Ödülü aldıktan sonra yakın çevresi hariç kimseler Emel Hanım"ın kapısını tebrik etmek için çalmamış. Ama o, aldığı ödülün değerini çok iyi kavramış. "Benim için ahlaki konularda taviz vermeden sanatçı ve bir anne olarak bir yerlere gelebilmenin en güzel karşılığı bu" diyor.
+      <br/>
+      <br/>
+      5 yaşında sahne
+      <br/>
+      <br/>
+      Kendisi o yılları hayal meyal hatırlıyor olsa da, babasının beyanına göre Emel Güney, 5 yaşında sahneye çıktığında kalabalık "milli takım gol atmış gibi" coşkuyla onu selamlarmış. Aradan geçen 35 yıla rağmen Ankara sokaklarında onun çocukluk halini hatırlayanlar bile çıkıyor. Sanattaki ilk yıllarını dolu dolu yaşayan Emel Taşçıoğlu, Güney Kardeşler grubuyla beraber günde 15 düğüne gittiği zamanlardan bahsediyor. Sahnede kaldıkları dönemde Güney Kardeşler grubu, babalarının koyduğu prensipler doğrultusunda hiçbir zaman gazinolarda veya alkollü mekanlarda çalışmamış.
+      <br/>
+      <br/>
+      On yıllık yoğun sahne temposundan sonra Emel Güney, 15 yaşına geldiğinde babası "Artık yeter, kızımız genç kız olmaya başladı, buraya kadar" diyerek kendisini sahnelerden indiriyor. Artık Emel de diğer arkadaşları gibi eğitime devam edecek ve hedefi olan öğretmenlik mesleğine doğru adım adım ilerleyecektir.
+      <br/>
+      <br/>
+      Çocukluğu sahnelerde geçen Emel, eğitimine devam etmek üzere tüm dikkatini okuluna verir. Annesi ve babası, kızları o dönemde müziği bırakınca "Kızım, bak biz seni bu kadar yıl hanım hanımcık yetiştirdik, aman sen de TRT"nin sınavına gir, yoksa hakkımız helal etmeyiz" diye yeminler verir ama Emel kararını çoktan vermiştir. O yaşta sanatçılığın bu kadarı yeteceğine inanan Emel, gerçekten de hedeflediği gibi Gazi Üniversitesi Müzik Öğretmenliği bölümüne girer ve 1985 yılında bitirerek öğretmenliğe başlar. Aynı yıllarda evlenir, Taşçıoğlu soyadını alarak bir de çocuk sahibi olur. Emel Taşçıoğlu  TRT"nin ağırlığını, ciddiyetini ve asaletini bildiği için eşinin ısrarlarına dayanamayarak TRT Ankara Radyosunun açmış olduğu Yetişmiş Sanatçı sınavına girer. Sınava girdiğini de kimseye haber vermez ki kazanamadığı durumda "Ünlü Emel Güney TRT"nin sınavını kazanamamış" demesinler. Çocuk yaşlarında Yunus Karaca"dan aldığı nota derslerinin faydasını TRT sınavında da görecektir. Sonunda Emel Taşçıoğlu, TRT sınavında kendisine verilen eserleri iyi biçimde solfej ve icra ederek başarılı olur ve ses sanatçısı olarak Ankara Radyosunda çalışmaya başlar.
+      <br/>
+      <br/>
+      40 yaşında ilk albüm: "Sel Gider, Kum Kalır"
+      <br/>
+      <br/>
+      Şimdi biraz da "Sel Gider, Kum Kalır.." albümünden bahsedelim. Yılların birikimini ve emeğini yansıtan bir isim ve içerikle karşımıza çıkan Emel Taşçıoğlu"nun albümünde ilk dikkatimizi çeken şey 13 türküden oluşan albümün neredeyse yarısının hicaz veya halk müziğinde "garip ayağı" denen ses dizilerinden müteşekkil olması. Bu tercihin başlıca sebebi Sıla Müzik"in sahibi Mustafa Yaşar Urhan"ın hicaz makamına olan düşkünlüğüymüş. Hatta müzik camiasında "Hicaz Mustafa" olarak da bilinen Mustafa Bey"le Emel Taşçıoğlu"nun oluşturdukları ortak repertuarın sonunda elemeden geçen türkülerin çoğunun hicaz makamında olduğunu görmüş ve bu türkülere olduğu gibi albümde yer vermişler. Bunların dışında Orta Anadolu türkülerinin hakim olduğu albümde Bayramdan Bayrama ve Efendim isimli iki Kazım Birlik bestesi ve Mustafa Keser"den alınan Yüce Dağ Başında isimli bir şarkı yer alıyor.
+      <br/>
+      <br/>
+      Taşçıoğlu"nun repertuarındaki hassasiyeti saz ekibinde de görmek mümkün. Emel Taşçıoğlu"nun albümü için kendi alanında en iyi olan müzisyenler bir araya gelerek İsmail Derker yönetmenliğinde çalışmış. Taşçıoğlu"nun yanık sesinden bildiğimiz birçok türkü bambaşka bir havaya bürünmüş.
+      <br/>
+      <br/>
+      Türküleri yorumlamasında baba vatanı Mucur"da geçirdiği yaz tatillerinin de katkısı olduğunu söyleyen Taşçıoğlu, "Eğer ayağıma şalvar geçirip kasnak kesmeseydim ve oruçlu olarak tarlalarda mercimek yolmasaydım bu milletin türkülerini de anlayamazdım" diyor. Taşçıoğlu"na göre milletin neyi hangi şartlarda yaşadığını anladığınız zaman türkülerin de nasıl yakıldığı hakkında bir fikriniz oluyor ve bu da elbette icranıza yansıyor. Emekli olan ve oraya göçen baba ve annesini ziyaret için Mucur"a gitmeye devam ediyor.
+      <br/>
+      <br/>
+      Hem sanatçı, hem ev hanımı
+      <br/>
+      <br/>
+      Emel Taşçıoğlu aile konusunda da örnek bir sanatçı. Bu konuda anne babasından gördüğü aile hayatını minnetle anarak sürdürmeye çalıştığını vurgulayan Taşçıoğlu "ailenin kendisi için her şeyin önünde ve ilk planda" yer aldığını söylüyor. Ancak düzgün bir aile yaşantısı güzel bir iş hayatına destek olur, iş ancak ailenin saadeti için önemlidir diyen sanatçı yıllardır süren sanat hayatına rağmen çarşıdan alışverişini kendisi yapan, otobüs ve metro gibi toplu taşıma araçlarını kullanan ve ev işleri yapmaktan zevk alan bir ev hanımı aynı zamanda. Taşçıoğlu, günümüz "assolistleri" için de bornoz giyip tırnak uzatarak şarkıcı olmanın mümkün olmadığını, iyi bir sanatçı olabilmek için uzun yıllar çalışıp, olgunluk ve birikim sahibi olduktan sonra doğru işler yapılabileceğini vurguluyor.
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11510&yorum=2054), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050313191825/http://www.aksiyon.com.tr:80/detay.php?id=11510&yorum=2054)

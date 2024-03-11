@@ -1,0 +1,55 @@
+# Maskeli insanlar ülkesi
+
+*Saim Orhan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050121180729im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050121180729im_/http://www.aksiyon.com.tr/resim/489/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Adı şimdilerde değişmiş olsa da bildiğimiz ismiyle Burma"ya vardığınızda yüzü maskeli insanlar cennetine geldiğinizi hissedeceksiniz. Maskeli baloda olmadığınıza göre, nedir bu işin aslı-faslı dediğinizde karşınıza çıkacak olan şey "tanaka"dır.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ülkeye ayak bastığınızda duyacağınız ilk kelime "Mingilaba". Burma dilinde merhaba demek. Dünyanın ismini bile pek bilmediği bu ülke 1988 yılında adını değişti, Myanmar oldu. Burma 1948"e kadar İngiliz sömürgesiydi; Burmalıların yabancılara hâlâ mesafeli durdukları söylenebilir.
+   <br>
+    <br>
+     Yüzlerine sürülmüş sarımsı renkte kremle dolaşan kadınlar ve çocuklar ülkede karşılaşacağınız değişmez manzara. Bu durum şehirlisinden köylüsüne, cahilinden okumuşuna herkes için geçerli. Krem yüzün tamamını kapatıyor. 43 milyon nüfusa sahip Burma"da erkeklerden bazıları da gece uykuya dalmadan önce yüzlerine bu kremi sürüyormuş.
+     <br>
+      <br>
+       Tanaka kremi doğal ortamlarda üretiliyor. Tanaka ağacının dal kısımları kesilerek kurutuluyor. Kurutulan dallar satıcıların önünde odunlar halinde yığılmış durumda. İsteyen dallardan birini satın alıp kremleme faslını evinde gerçekleştiriyor; isteyen, satıcıdan aldığı tanaka maddesini yüzüne anında uygulattırıyor. İşlem çok basit. Gereken malzemeler tanaka dalından kesilmiş küçük bir parça, az miktarda su ve ağacın sürtüleceği sert bir taş... Biraz su konuyor taşın üzerine ve uzmanlaşmış olan tanakacı kadın, taşa odunu sürtmeye başlıyor. Kabuk kısmıyla birlikte sürtülen odun yavaş yavaş sarımsı renkteki kremi oluşturmaya başlıyor. Bir yüze yetecek kadar krem ortaya çıktıktan sonra tanakacı, kremi çocuğun ya da kadının yüzüne sürüyor. İlk işlem zemin çalışmasından ibaret. Krem güzelce yüzeye dağıtılıyor ve parmaklarla hafifçe ovularak cilde yediriliyor. Yine taşa sürtülen tanakadan alınan kremle ikinci makyaj başlıyor. Bu sefer istenilen şekiller oluşturuluyor yüzlerde. Şekiller gün boyu yüzde kalacağı ve diğer insanların dikkatini çekeceği için ikinci işleme daha çok özen gösteriliyor. Özellikle genç kızlar bu konuda hassas; birbirleriyle yarışıyorlar adeta.
+       <br/>
+       <br/>
+       Burma insanı çok iyi biliyor tanakayı nasıl kullanacağını. Hepsi mükemmel şekiller oluşturamasa da önemli olan kremin yüze uygulanması. Burmalıların inanışına göre bu krem onları hem güneşten koruyor hem de güzelleşmelerini sağlıyor. Nesilden nesile aktarılan tanaka geleneği 21. yüzyılda hâlâ canlılığını muhafaza ediyor. Kozmetik ürünlerine binlerce doların harcandığı dünyamızda Burma kadınları hem doğal hem de oldukça ucuz tanakayı kullanmaya devam ediyor. Çocuklarına da erkek-kız ayrımı yapmadan tanaka süren anneler pazara çıktıklarında günlük ihtiyaçlarının yanı sıra en iyi sonucu veren tanaka arayışına giriyorlar.
+       <br/>
+       <br/>
+       Bazı erkeklerin yüzünde tanakaya nadiren rastlansa da, bu durum hoş karşılanmıyor genelde. İklimi çok sıcak olan Burma'da cildi korumak için böyle bir çözüm bulunmuş.
+       <br/>
+       <br/>
+       Tanaka sadece kırsal kesimde kullanılan bir güzellik maddesi değil. Ülkenin en gelişmiş yerlerinde, cadde ve sokaklarda tanaka sayesinde hem güneşten korunan hem de güzelleşen binlerce kadın ve çocuğa rastlıyoruz. Meraklı turistler de tanaka sürdürüyor bu geleneği daha yakından hissedebilmek için.
+       <br/>
+       <br/>
+       Yeraltı ve yerüstü zenginlikleri ile ünlü Burma yıllarca İngiliz sömürgesinde kaldıktan sonra 1948 yılında bağımsızlığını kazanır. Artık bağımsızdır ama dünyaya bütün kapılarını kapatır. Belki de İngilizlerden dolayı bunalmışlardır yabancılardan yüzyıllardır.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Nur Dolay, 22-Nisan-2004
+> Burma değil, Birmanya!!: 
+> Ülkenin Türkçe adı Burma degil, Birmanya'dır. İngilizce'de Burma olarak anılan ülke zaten yazıda da belirtildiği gibi ismini artık Myanmar olarak değiştirdi.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11375&yorum_id=1137), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050121180729/http://www.aksiyon.com.tr:80/detay.php?id=11375&yorum_id=1137)

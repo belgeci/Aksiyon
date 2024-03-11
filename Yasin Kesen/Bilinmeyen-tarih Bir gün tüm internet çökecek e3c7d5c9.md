@@ -1,0 +1,52 @@
+# Bir gün tüm internet çökecek
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bundan birkaç ay önceydi. Dünya çapındaki tüm internet adreslerinin yönetildiği Internic’in 7 ana sunucusundan 6 tanesi bir saat süreyle, dünyanın çeşitli yerlerinden birlikte organize olan bir hacker grubu tarafından ele geçirilmişti. Kapasitesi yeterli olmayan hacker grubu, o saldırıda hedefi az bir farkla ıskalamıştı. Ele geçiremedikleri yedinci sunucu ise, o bir saatlik süre boyunca diğer tüm sunucuların görevini de üstlenerek internet sitelerine erişimi sağlamaya devam etti. O süre zarfında, sitelere erişimde belirgin bir yavaşlama sözkonusu olmuştu ancak kısa sürdüğü için derinden etki yapmamıştı.
+   <br/>
+   <br/>
+   İnternete gelen bir sonraki büyük saldırı geçtiğimiz Cumartesi gerçekleşti. 25 Ocak tarihinde faaliyete geçen Slammer (Sapphire) adlı solucan virüsü bu sefer farklı bir kapıdan giriş yaparak tüm dünyadaki internet omurgalarında çökmelere sebep oldu. Hacker’ların, Microsoft tabanlı web sunucularda tesbit ettiği bir güvenlik açığını değerlendirmek istemesi sonrasında yaydıkları Slammer (Sapphire) virüsü, 25 Ocak’ta faaliyete geçince, güvenlik güncellemesi ihmal edilen Microsoft tabanlı sunucular çöktü. Bunun neticesinde de, Microsoft tabanlı sistemlerle yönetilen internet omurgaları, internet servis sağlayıcılar ve internet siteleri saatler boyunca kapalı kaldı.
+   <br>
+    <br>
+     Cumartesi gününe denk getirilen bu saldırı aslında biraz anlamlı idi. Hafta içi bir günde gerçekleştirilmiş olsaydı, başta finansal işlemler olmak üzere tüm iş dünyasında ciddi bir kaos yaşanacaktı. Prova maksadı ile haftasonuna denk gelen bir günde faaliyete geçirilen Slammer (Sapphire) virüsü, hacker’ların bu konuda başarılı olabileceklerini bir kez daha kanıtlamış oldu. Bu başarı aynı zamanda bir sonraki saldırıda tüm interneti gerçekten çökertebilecek kapasitede olduklarının da delili.
+     <br>
+      <br>
+       Art arda gerçekleşen büyük çaplı internet saldırılarının öncesine baktığımızda, hacker’ların herhangi bir web sitesini çökertmesi “çok önemli bir olay” olarak görülürdü. Web sitesi çökertmek zamanla demode oldu. Çünkü, bunun, aslında ihmal edilen güvenlik tedbirleri nedeniyle gerçekleştiği anlaşıldı. Şifresi e—posta kutusunda muhafaze edilen web sitelerini çökertmekten zevk alamayan cin fikirli hacker’lar, işi daha da ileri götürerek önce web sunucuları ve internet servis sağlayıcılarını hedef aldılar. Bunlarda belirli bir başarı seviyesine ulaştıktan sonra, yine keyif vermediği için hedefi daha da yükselterek, internetin genel yapısını kontrol eden sistemlere yöneldiler.
+       <br>
+        <br>
+         Kim bu cin fikirli hacker’lar?
+         <br/>
+         <br/>
+         Web sitelerine ya da internet servis sağlayıcılara saldırı düzenleyen hacker’ların kimler olduğunu tesbit etmekten çok, hangi sebeple bu tür faaliyetlere giriştiklerini irdelemekte fayda var. Tesbit edilen birçok hacker’ın geçmişine bakıldığında, yazılım ya da bir internet şirketinde çalışmış olduğu görülüyor. Görev yaptığı dönemlerde sistemin tüm detaylarına vâkıf olan bu kişiler, tatsız gelişmeler neticesinde işlerinden uzaklaşınca kendi iç dünyalarında bir intikam projesi oluşturmaya başlıyor. Projenin tüm adımlarını planladıktan sonra da harekete geçerek, bilumum çökertme faaliyetlerine imza atıyorlar.
+         <br/>
+         <br/>
+         Cin fikirli hacker’ların, tatsız biçimde işlerinden uzaklaşmalarının sebebi ise genelde motivasyon eksikliği ve ücret tatminsizliği. Bir başka neden ise, ümitsizliğe kapılmak. Microsoft’un en büyük hissedarı Bill Gates’in her geçen gün daha da büyümesi ve dünyadaki tüm bilgisayar sistemleri üzerinde hakimiyet kurması karşısında, kendi çapında pek fazla ilerleme kaydedemeyen ve ileride de bir gelişme gösteremeyeceği fikrine saplanan bilgisayar cinleri, iç dünyalarındaki bunalımları da aşamayınca, sonucunda ne getireceğini bilmediği birçok yıkıma neden olabiliyor. Ya da, kendi ümitlerini söndüren internet ve bilişim dünyasından öcünü almak için kesin çözümün, interneti çökertmek olduğu yanılgısına kapılıyor...
+         <br/>
+         <br/>
+         İnternet’i değil, hacker’ları kurtarmalı...
+         <br/>
+         <br/>
+         İşin temelinde esasen psikolojik nedenler yatıyor. Kendi iç dünyasında bazı şeyleri aşamayan bilgisayar tutkunları, ellerine biraz imkan geçtiğinde bunu delicesine değerlendirmek derdine düşebiliyor. Yaptıkları işin neticesinde isimlerini duyurabilecek olmaları, onlar için en güçlü güdü haline gelebiliyor.  İnterneti kurtarmaktan daha önemli olanı, aslında bu insanların yeniden kazanılabilmesi. Ve yeni kayıpların önüne geçilmesi. Gerekli olan, bilişim şirketlerinde çalışanların psikolojik ve maddi açıdan tatmin edilmesi, motivasyonun ihmal edilmemesi ve moralin en üst düzeyde tutulması. İnternetin çökmesi durumunda yeniden hayata geçirilmesi çok zaman almıyor. Yenilenen sunucular ve uydu bağlantıları neticesinde herşey eski düzenine getirilebilir. Ancak, bu saldırıları gerçekleştiren insanlar ve sahip oldukları potansiyel, bir daha kazanılmamak üzere kaybedilmiş oluyor. Bu kaybı önlemek ise, bilişim dünyasını yönetenlerin vereceği iyi düşünülmüş kararlara kalıyor...
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 749 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2367), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043648/http://www.aksiyon.com.tr:80/yazdir.php?id=2367)

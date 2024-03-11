@@ -1,0 +1,36 @@
+# HP’den Hac Projesi
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Kısa bir süre önce Compaq ile birleşerek bilişim sektörünün en büyük firması haline gelen Hewlett–Packard, Ortadoğu’daki en büyük B2B ve e–devlet projesini Suudi Arabistan’ın Hac Bakanlığı için gerçekleştirdiğini açıkladı. Tamamı 40 milyon doları bulacak projenin 16.4 milyon dolarlık ilk etabını tamamlayan HP, bu proje ile Suudi Arabistan’a hac veya umre ziyareti için gidenlerin resmi işlemlerinin hızlı biçimde gerçekleşmesini sağlayacak.
+   <br/>
+   <br/>
+   Suudi Hükümeti’nin çeşitli birimleri, içişleri, dışişleri, sağlık, turizm, ulaştırma, güvenlik ve hac bakanlıkları ile konsoloslukları entegre eden yeni sistem sayesinde vize ve diğer işlemler kısa sürede tamamlanabilecek.
+   <br/>
+   <br/>
+   Çeşitli ülkelerde kurulacak distribütör merkezler vasıtasıyla acentalar da sisteme entegre edilecek. Böylece en uçtaki başvurular bile çok kısa bir süreç içerisinde değerlendirilip sonuca bağlanabilecek.
+   <br/>
+   <br/>
+   Proje yatırımı için gerekli finansmanın bir kısmını kendi kaynaklarından sağlayan HP, Suudi Arabistan Hac Bakanlığı ile yaptığı anlaşma çerçevesinde bu yatırımın bedelini yap–işlet–devret modeliyle geri kazanacak.
+   <br/>
+   <br/>
+   Hac projesinde aktif görev alan HP Ortadoğu Hizmet Satış Müdürü Mehmet Oğuz bürokraside Türkiye’den daha yavaş davranan Suudi Arabistan’da bile bu tip kapsamlı projeler uygulanabildiğini belirterek, Türkiye’de Diyanet İşleri Başkanlığı’nın ve Turizm Bakanlığı’nın bu tip entegre sistemlere kısa zamanda terfi etmesi gerektiğinin altını çiziyor.
+   <br/>
+   <br/>
+   Dubai’den Türkiye’ye yeni tayin olan Mehmet Oğuz, Dubai’deki bilişim şirketlerinin birçoğunda Türk üst düzey yöneticilerin görev yapmaya başladığını ve bu durumun memnuniyet verici olduğunu da sözlerine ekledi.
+   <br/>
+   <br/>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 212 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1496), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043441/http://www.aksiyon.com.tr:80/yazdir.php?id=1496)

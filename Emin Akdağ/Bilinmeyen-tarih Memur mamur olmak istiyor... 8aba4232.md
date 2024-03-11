@@ -1,0 +1,73 @@
+# Memur, mamur olmak istiyor...
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005843im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005843im_/http://www.aksiyon.com.tr/resim/384/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye’de sendika üyesi olabilecek 1 milyon 600 bin  memurun ancak üçte biri sendikalı. Tecrübeli sendikacı Resul Akay, memur sendikalarının geçen 10 yılda yeterli etkinliğe ulaşamamasını, başta memurların bu işe inanmamalarına ve tam destek vermemelerine bağlıyor. Çünkü memurlar önlerindeki örneklere baktıklarında sendikaların kendilerine
+  <br>
+   hizmet etme düşüncesinin çok uzağında olduklarını gördüler
+   <br>
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Her ne kadar tam neyi kastettiğini açıkça söylemese de, 8. Cumhurbaşkanı Turgut Özal onlar için ‘işini bilir’ demişti. Bürokrasinin soğuk yüzünün hayatın her aşamasında kendini hissettirmesinden hep onlar sorumlu tutuldu. ‘En büyük mülki ve idari amir olsalar da’, iktidardaki ya da güçlü bir siyasi partinin teşkilat başkanlarının talepleriyle ilden ile onlar sürüldü. Almak hiçbir bahaneye sığmaz ama sanki vermek meşru imiş gibi, işi halledilsin diye araya ‘ayni ve nakdi’ hediyeler sokuşturanların veballerini de onlar çekti. Aslında siz bu ‘onlar’ı çok iyi biliyorsunuz. Onlar; günahlarıyla ve sevaplarıyla ülkedeki hantal yapının altında ezilmelerine rağmen, bu hantallığın sebebi görülen memurlar. ‘Bugün git yarın gel’, ‘sıradaki’ , ‘evrak eksik kardeşim’den başka cümleler bilmez; ‘avanta ya da rüşvet almadan’ parmak oynatmaz; ‘başını sallayıp maaşını alır’ imajına sahip, üstelik ülke ekonomisinin en önemli kamburlarından biri olarak kabul edilen memurlar...
+   <br>
+    <br>
+     2 milyon 200 bin memur kadrosu var
+     <br/>
+     <br/>
+     İşin doğrusunu söylemek gerekirse, bunca karışık, karmaşık  ve öte taraftan kötü nitelemelere maruz kalan memurların, hak arama mücadelesini verebilmeleri için doğan sendika fırsatını iyi değerlendirdikleri hükmüne varmak oldukça zor. Şu anda 5 ayrı memur sendikaları konfederasyonu faal ama, memurlar hâlâ kendilerini anlatmada ve olumsuzlukları silmede etkin değiller. Türkiye’deki yaklaşık 2 milyon 200 bin memur kadrosunun 2 milyon kadarı dolu. Sendika üyesi olabileceklerin sayısı ise 1 milyon 600 bin. Ancak sendikalı memurların toplamı bunun üçte biri bile değil. Peki neden böyle? Bunun sebeplerini ve ülkedeki memur sendikacılığının geldiği durumu, başkanlığını yaptığı bir büyük konfederasyondan ayrılarak yeni bir oluşum içine giren Resul Akay ile konuştuk.
+     <br/>
+     <br/>
+     Memur sendikaya inanmıyor...
+     <br/>
+     <br/>
+     Resul Akay, memur sendikalarının geçen 10 yılda yeterli etkinliğe ulaşamamasını, başta memurların bu işe inanmamalarına ve tam destek vermemelerine bağlıyor. Çünkü memurlar önlerindeki örneklere baktıklarında sendikaların kendilerine hizmet etme düşüncesinin çok uzağında olduklarını gördüler. Yani sendikalar doğrudan ya bir partinin, ya bir idelojinin ya da bir inanışın sözcüsü gibi davranıyorlardı. Bu vesayet manzarası ister istemez memuru sendikalardan soğutmuştu. Akay’a göre sendikalar toplumun ortak paydasını almak, taleplerde orta yolu bulmak ve mirengi noktasını yakalamak zorundalar. Sendikacılık memurun ve Türkiye’nin doğruları dikkate alınarak yapılmalı. Tecrübeli sendikacı Akay’a, memurun ve Türkiye’nin gerçeklerinin neler olduğunu soruyoruz.  “Memur sendikaları kamu çalışanlarına hizmet etmeli. 10 yıllık tecrübe sonunda geçmişteki yanlışlar görüldü” diyen Akay, başlıyor anlatmaya: “Birinci gerçek, memurun siyasal iktidarın elinde posasının çıkması. Kişilik deformasyonuna uğraması. Kaymakamlar, il ve ilçe müdürleri; parti il ve ilçe başkanlarının baskısı altında. Bu makus talihin değişmesi, bu yapının süratle yıkılması gerekiyor. İkinci gerçek, memurun tek yanlı belirlenen ücretinin aile sorumluluğunu yerine getirmesine yetmemesi. Mecburen ikinci hatta üçüncü işte çalışılıyor. Öğretmenin düğün salonlarında davul ya da saz çalması, işportacılık yapması ne demek? Özellikle vatandaşla yoğun ilişkisi olan kamu çalışanlarının geçim kaygısıyla ufak ya da büyük rüşvet olaylarına karışmaları... Sonra bunun alışkanlık ve tiryakilik haline dönüşmesi. Üçüncü gerçek de, adamı olanların kayırılması. Siyasi gücü arkasına alan kamu çalışanının diğerini ezmesi. İnsan hakları en fazla kamu kurumlarında, amir—memur arasındaki ilişkilerde ihlal ediliyor. Kamu görevlisi yargıya gidemiyor. Korkuyor. Yargı da çözüm değil. 15—20 defa yargıda kazanmasına rağmen sürülen memurlar var.”
+     <br/>
+     <br/>
+     Kamu—Sen, MHP’nin vesayetinde...
+     <br/>
+     <br/>
+     Resul Akay, 1995 yılı sonlarında başkanı olduğu Türkiye Kamu Çalışanları Konfederasyonu (Türkiye Kamu—Sen)’ndan bir müddet önce ayrıldı. Akay’ı ayrılışa götüren süreç, Türk Haber—Sen seçimlerini kaybetmesiyle başladı. Akay, seçim sonrasında yaptığı açıklamalarda iktidar ortağı Milliyetçi Hareket Partisi (MHP)’nin, Türkiye Kamu—Sen üzerinde vesayeti olduğunu, kendisinin buna izin vermek istememesi yüzünden dışlandığını söylemişti. Ayrılış hikayesiyle ilgili herşeyi ifade ettiğini ve gerekli dosyaları ilgili makamlara ilettiğini kaydeden Akay, konfederasyonu dernek hüviyetinden çıkararak aktif bir sendika haline getirmek için uğraştığını, ayrılmaya götüren gelişmelere kadar da MHP’nin etkisini görmezlikten geldiğini, ancak hükümete yaptıkları ‘acımasız sendikal eleştirilerin’ iktidar ortağı olunca sözkonusu partiyi rahatsız ettiğini anlatıyor. Akay, özellikle Yalova—Ankara yürüyüşünün ilişkileri artık tamamen kopardığına inanıyor.
+     <br/>
+     <br/>
+     Memur sendikacığılı 10. yılında...
+     <br/>
+     <br/>
+     Türkiye’de memur sendikalarının büyük bir çoğunluğu 1991 ile 1992 yıllarında kuruldu. İlk sendikalar 1995’te oluşturulan Kamu Emekçileri Sendikaları Konfederasyonu (KESK) tandanslı. Türkiye Kamu—Sen ise neredeyse bağlı sendikalarla birlikte doğuyor. 1989 yılında kurulan Türkiye Kamu Çalışanları Vakfı’nın merkez ve taşra şubeleri 1992’de bir hafta gibi bir sürede Türkiye Kamu—Sen’e dönüşüyor. Memur—Sen de 1995 yılında konfederasyon haline geliyor. Bu üç köklü konfederasyonun haricinde Ulusal Sendikalar Konfederasyonu (USEK) ve Demokratik Kamu—Sen isimli iki memur konfederasyonu daha faal durumda. Türkiye Kamu—Sen’den ayrılan Resul Akay’ın kuruluş çalışmalarını sürdürdüğü konfederasyon ile sayı 6’ya çıkacak. Akay’ın öncülüğünü yaptığı konfederasyona bağlı sendikaların adı Bağımsız kelimesi ile başlayacak. İlk olarak Bağımsız Haber, Sağlık, Büro Çalışanları, Yapı İmar ve Enerji sendikaları kuruldu. Kısa sürede kamudaki 11 hizmet kolunda da sendikalaşılacak. Konfederasyonun ismi haber yayına hazırlandığı sırada kesinleşmemişti.
+     <br/>
+     <br/>
+     Sendikalara yüzde 5 üye barajı geliyor
+     <br/>
+     <br/>
+     4688 sayılı Kanun’a göre bir konfederasyon oluşabilmesi için en az beş hizmet kolunda sendikalaşmaya gidilmesi gerekiyor. Memur sendikaları için Temmuz 1992’den itibaren yüzde 5 barajı getiriliyor. Hizmet kolunda, diyelim ki eğitimdeki kamu çalışanı sayısının yüzde 5’ini üye yapamayan sendika faaliyetini sürdüremeyecek. Yöneticilerinin maaşları da Temmuz ayından sonra sendikalarca ödenecek. Sendikalar genellikle üyelerinin ücretlerinden binde 5 oranında kesinti yapıyorlar.
+     <br/>
+     <br/>
+     Avrupa’da memur sendikaları
+     <br/>
+     <br/>
+     Memur sendikacılığı geçmişi Türkiye’ye göre çok ilerilere dayanan Avrupa’daki durum biraz farklı. Mesala İngiltere, İtalya ve Yunanistan gibi grev hakkının olduğu ülkeler var. Çoğu Avrupa ülkesinde grev hakkı yok ama memur ücretleri işçi ücretlerinin üzerinde. Almanya buna iyi bir örnek. Bu ülkede kamudaki toplam çalışan sayısı yaklaşık 6 milyon. Bunun 1 milyon 800 bini memur. Grev hakkı olan işçilerden, böyle bir hakkı bulunmayan memurlar daha fazla ücret alıyor.  Yani grevle hak arayamıyor diye memurların ücretleri düşük tutulmuyor. Öğretmen işçiden daha iyi bir yaşam standardına sahip. Almanya örneğindeki başka bir ayrıntı da, polis ve askerlerin bile sendikalarının olması.
+     <br/>
+     <br/>
+     E—mail: e.akdag@aksiyon.com.tr
+     <br/>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12054), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005843/http://www.aksiyon.com.tr:80/detay.php?id=12054)

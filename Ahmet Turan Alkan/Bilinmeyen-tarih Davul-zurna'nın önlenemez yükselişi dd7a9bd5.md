@@ -1,0 +1,75 @@
+# Davul-zurna’nın önlenemez yükselişi
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Varlığıyla iftihar duyduğumuz milli kültürü yeniden üretmek yerine, onun en kötü ve kaba örneklerini döne döne dinlemek zorunda kalmak acı veriyor.
+   <br>
+    Yöreden yöreye değişmekle birlikte düğünlerin ve şenliklerin vazgeçilmez şenlendiricisi olarak herhalde davul-zurna kadar üzerinde ittifak edilecek bir saz takımı bulmak kolay değildir.
+    <br/>
+    <br/>
+    Üstelik davul—zurna halk oyunları ekiplerinin de çoğuna refakat etmesiyle tanınmıştır. “Kapıda davul—zurna çaldırmak” ise bir murad nişânesidir; hâsılı bu saz takımında milli hayata dair özellikler vardır ama bu ikilinin âhenginde daha ziyade köy hayatını çağrıştıran renkler saklıdır.
+    <br>
+     <br>
+      Ne var ki davul ve zurna, enstrüman tekniği itibariyle iptidai, yani gelişmemiş sazlar sınıfına girer. Her iki saz da, imâlâtında uyulması gereken kurallar, icrasında dikkat edilmesi gereken incelikler, boyutları ve çeşitlilikleri konusunda “metod”dan mahrum âletlerdir. Metodsuzluk, sadece davul zurnaya mahsus bir eksiklik değil ne yazık ki; klasik sazlarımızın mühimce bir kısmı da imâlinde ve icrasında standart değerlerden mahrum bulunuyor. Metod konusu üzerinde durmamın sebebi şu: Batı sazları da vaktiyle davul gibi zurna gibi iptidai ve teknik itibarla fazlaca gelişmemiş sazlar olmalarına rağmen zamanla ilmî ve teknik bir dikkate konu edilerek geliştirildi, çeşitlendi, ses imkânları genişledi ve yaygınlaşabildi. Bizde müzik aletlerinin imâli ve nasıl çalınması gerektiği konusunda hâlâ tam bir mutabakat yoktur; birbirinin aynısı iki zurnayı veya aynı tınıda ses veren iki davulu bir araya getirmek tesadüfe kalmıştır. Bu durumda iki şeyin olması beklenirdi; ya gelişme ya nisyan. Halbuki tam tersine şahit olduk; davul—zurna, yüzlerce yıl önce kazandığı formu ve fonksiyonu aynen koruyarak varlığını devam ettiriyor. Onun uzun ömürlü olmasını sadece çok sevilen bir saz grubu olmasına bağlayabilir miyiz?
+      <br>
+       <br>
+        Ne yazık ki hayır; davul—zurna köyden şehre göçeden nüfusun şehirlere taşıdığı bir gelenek olmak bakımından anlam taşıyor ve galiba köy nostaljisini sesinde yaşatıyor. Oysa ki şehirler her mânâda insan bilgi ve birikiminin inceldiği, iş bölümünün arttığı, sanat ve zenaatlerin sofistike hale geldiği yerlerdir. Kültürün maddi unsurlarıyla birlikte, mânevi unsurlarında da mühim miktarda değişme olması kaçınılmazdır ama Türkiye’de garip çelişkiler yaşanıyor ve köye dair kültürel unsurlar, yerini şehirli değerlerle değiştirmesi gerekirken varlığını güçlenerek muhafaza ediyor.
+        <br>
+         <br/>
+         Eğri oturup doğru konuşmak lâzım; artık bir yerde davul—zurnayı aşmamız, hatta gerilerde bırakmamız lâzım. “Bu bizim geleneğimiz, milli sazımız, biz onun sesini duyunca bir hoş oluruz” kabilinden itirazları anlayışla karşılasak bile yeni şehir değerleri üretmemiz lâzım gelen bir merhalede köy değerlerine yapışıp kalmak zaman kaybettirmekten başka işe yaramıyor. Hayır, davul—zurna hiç de yüksek bir kültür ürünü sayılmaz; sesi kaba olduğu gibi bu âletlerle daha sanatlı ve ses taksimatı bakımından daha gelişkin eserler icra etmek de mümkün değildir. Misâl vermek gerekirse, kültürümüzde “ince saz” diye bilinen “kanun, klarnet, keman, ud, tambur vb.” sazlarla çalınan bir eser, zurna ile icra edildiğinde nüanslarından kayıp vermek zorundadır. “Ne çıkar, birkaç ses de olmayıversin?” diyebilir miyiz; medeni birikim denilen şey biraz da o birkaç sesin, iki sekizli aralığındaki yerini tesbit ve tayin ederek onunla makamlar, o makamlarla eserler bestelemektir. Kısaca Selimiye’nin kubbesi, Süleymaniye’nin minaresi, Yunus Emre’nin divanı, Evliya Çelebi’nin Seyahatnamesi neyse, ecdâdın bir sekizliyi yirmidört parçaya ayırarak kurduğu ses taksimatı da odur.
+         <br/>
+         <br/>
+         Tatil günlerinde sokaktan pencereye doğru hücum eden her davul—zurna sesinde, kaba zevkin, asırların üst üste koyduğu incelmiş hassasiyetlerin yerini almasından ötürü üzülüyorum; varlığıyla iftihar duyduğumuz milli kültürü yeniden üretmek yerine, onun en kötü ve kaba örneklerini döne döne dinlemek zorunda kalmak acı veriyor. Pencereyi örtebilir, sessizliği seçebilirim ama o acı ve akortsuz seslerin temsil ettiği “sosyal zaman kaybı”nı görmezden gelmek mümkün olmuyor. Şehir iklimine direndikçe zaman kaybediyoruz; oysa ki, —eskiyi tekrar da mârifet değil— şehir değerlerini ve kültürünü yeniden yoğurmamız, yeniden üretmemiz gerekli. Komşuluğu yeniden üretmek, birlikte yaşama edebini yeniden öğrenmek, nezaketi yeniden keşfetmek, kültürün bir ayrıntı derinliği olduğunu öğrenmek gibi âcil işlerimiz var ve onun yerine eskiye ve köye dair âdetlere sarılmak hepimize zaman kaybettiriyor. Türkler, 21. asırda şehirli bir toplum olmaya mecburiyetten de öte mahkûmlar; en geç yirmi—otuz sene içinde nüfusumuzun yüzde 90’ı şehirlerde yaşayacak; bu oran şu günlerde yüzde 75 civarındadır; yüz sene önce ise nüfusun yüzde 90’ı köylerde barınıyordu.
+         <br/>
+         <br/>
+         Kısacası davul—zurnayı yok edip onu aşağılamak yerine bu iki milli saza bir kalite derinliği kazandırabilmeliydik; bunu yapamadığımız için zaman kaybediyoruz; çünkü davul—zurna’nın olmadığı yerde aynı havaları elektronik org ile, elektronik ritm cihazları ile çaldırınca, hiç farkında bile olmadan sırtımız iki kere yere geliyor; eşyâya biçim ve isim vermekte beceriksiz kalıyoruz.
+         <br/>
+         <br/>
+         ...
+         <br/>
+         <br/>
+         Davul—zurna! İki küçük ayrıntı; bazılarımız için varlığı ile yokluğu birbirine denk iki unsur ama etrafımızdaki her şey gibi onların da temsil ettiği mânâlar var. Elli sene önce ince saz takımı ile icra edilmesi gelenek haline gelmiş bir halayın, ne derece müzisyen oldukları bile şüpheli iki kişi tarafından ağzı—gözü yarıla bozula icrâ edilmesi “yeni âdet” edinilirse bunun anlamı geriye gitmektir; bir kültür unsurunda geriye gitmek!
+         <br/>
+         <br/>
+         <br/>
+         AKLINIZDA BULUNSUN:
+         <br/>
+         SADECE EĞİTİM DEĞİL DENETİM DE ŞART...
+         <br/>
+         <br/>
+         Eskiden meskûn mahallerde klakson yasağı diye bir kural vardı; herhalde yine vardır ama benim şahit olduğum şey, sürücülerin, varlıklarını isbat etmek istercesine gece-gündüz demeden bu yasağı ihlâlden zevk aldıklarıdır.
+         <br/>
+         <br/>
+         Şehirleri mülki amirler yönetiyor ama öyle bir deme gelmişiz ki, şehirde yaşamanın usul ve erkânını hep birlikte yeniden öğrenmemiz gerekiyor. Bir kuralı mülki amirler ve onun emrinde çalışan kamu görevlileri tatbikte titizlik göstermezse ne yapabilirsiniz?
+         <br/>
+         <br/>
+         Düğünlerden sonra gelin konvoyu tertiplemek, kalabalık şehirlerde trafiği felç ediyor; buna göz yumulduğu gibi konvoydaki bütün araçların klakson çalmalarına da ses çıkarılmıyor.
+         <br/>
+         <br/>
+         Şehirlerin yeniden “kır” haline gelmesi değil midir bu? “Eğitim şart” diye bir efsâne uydurmuşuz ama kuralları bile bile ihlâl edenlerin hepsi de eğitimli. Hayır, “eğitim şart” efsânesine gereğinden fazla abanmayalım; eğitim kadar kurallara saygı göstermeyenlerin caydırılması için inançlı şekilde çalışmak da şart.
+         <br/>
+         <br/>
+         Mülki âmirlerin, şehirleşme konusunda ödevleri çok; hatta öğretmenlerden daha fazla bence.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 2059 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12631), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050128022938/http://www.aksiyon.com.tr:80/yazdir.php?id=12631)

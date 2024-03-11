@@ -1,0 +1,111 @@
+# ''AB'yi destekleme misyonumuz yok''
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   "Bizim MÜSİAD olarak yaklaşımımız şu: AB"yi tek başına bir alternatif olarak görmüyoruz. Türkiye ile 45 yıllık macerasını ve ekonomik getirilerini dikkate aldığımızda AB"yi yadsınamaz bir gerçek olarak kabul ediyoruz."
+   <br>
+    Müstakil Sanayici ve İşadamları Derneği (MÜSİAD) 14 yıllık mazisinde üçüncü başkanını seçti.
+    <br/>
+    <br/>
+    Albayraklar Şirketler Grubu"nun Genel Koordinatörü Ömer Bolat, senelerdir içinde görev yaptığı kurumun yeni başkanı. Geçmişteki iki başkan Erol Yarar ve Ali Bayramoğlu, patron kimliği dolayısı ile dobra bir yönetim biçimi sergilediler. MÜSİAD, Ömer Bolat ile başka kurumlarda görüldüğü gibi profesyonel yönetici kavramı ile tanışmış oluyor. İki aydır derneğe olan ilginin sebebini sadece konjonktürle izah etmek cılız bir açıklama olsa gerek.
+    <br>
+     <br>
+      -MÜSİAD"ın 1990"lı yıllarda AB ve Gümrük Birliği"ne karşı sert bir duruşu vardı. Sermaye gruplarına bir bakışı vardı. Bugün Başbakan Erdoğan "Go home dönemi bitti" diyerek özeleştiride bulundu. MÜSİAD da değişti mi?
+      <br>
+       <br>
+        MÜSİAD"ın temel prensiplerinde ve misyonunda herhangi bir değişme olmaz. Ancak 14 yıldır gerek dünyanın gerekse ülkemizin değişen ekonomik, siyasi ve sosyo-kültürel faktörlerini dikkate aldığımızda mutlaka bir değişme yaşandı. Biz Gümrük Birliği"nin mahzurlarını ortaya koyduğumuzda yalnız kalmıştık ve destek bulamamıştık. Zaman içinde diğer kuruluşlar MÜSİAD"ın o zamanki görüşlerini seslendirmeye başladı. Eğer AB tarih vermezse yeniden revize edilmesi ihtiyacından bahsediyorlar.
+        <br>
+         <br/>
+         -AB"ye girmeyi tehlike görüyordunuz...
+         <br/>
+         <br/>
+         Çok haklı bir tespitle ifade ettiniz. AB"ye giriş konusunda lehte ve aleyhte duranlar arasında çok ciddi çapraz değişimler oldu. Bizim MÜSİAD olarak yaklaşımımız şu: AB"yi tek başına bir alternatif olarak görmüyoruz. Türkiye ile 45 yıllık macerasını ve ekonomik getirilerini AB"yi yadsınamaz bir gerçek olarak kabul ediyoruz. Kopenhag Kriterleri bağlamında tam üyelik müzakerelerine başlamak için yapılması gerekenlerin yapıldığını, Türkiye"nin artık tarih almayı hak ettiğini ve bu konudaki ihtimalin güçlendiğini görüyoruz. Ancak AB bize tarih vermezse bu dünyanın sonu değil. Türkiye"de "Ne olursa olsun AB"ye girelim. Ne istiyorlarsa yapalım" diyen bir zihniyet de var. Biz bu zihniyete karşıyız. Bize göre AB, Türkiye"ye demokratikleşme, ekonomik ve sosyal standartlarını yükseltme anlamında çok önemli ve güzel bir hedef vermektedir. Bu hedeflerini yakalama konusunda mevcut sürecin devam etmesi uygundur. Türkiye"nin çok yönlü politika takip etmesi gerektiğine inanıyoruz. Türkiye büyük potansiyeli olan, medeniyet birikimi güçlü, dinamik nüfusa sahip, ekonomik, ve stratejik önemi olan bir ülke. Hükümet oldukça mesafe aldı. Türkiye"nin dünya ülkeleri nezdinde öneminin artması bu dinamiklerinin farkına vararak ona uygun hareket etmesinden kaynaklanıyor.
+         <br/>
+         <br/>
+         -Yani geçmişten farklı olarak Türkiye"nin AB"ye girmesini desteklediğinizi anlayabilir miyiz?
+         <br/>
+         <br/>
+         "AB"ye tam üyeliği destekliyoruz" gibi kategorik bir cevap vermiyoruz. Türkiye"nin bu sürecinin devam etmesi normaldir ve bir itirazımız yok. Ama Türkiye bütün enerjisini AB"ye üye olmak uğruna tüketmemeli. Bunu yaparsa 45 yıldır oyalandığı gibi, bir veto yemesi durumunda büyük bir hayal kırıklığı yaşanacaktır. AB"nin kesin olarak evet diyeceğini beklemek yanlış olur. Belki tarih verecek ama en az 10-12 sene Türkiye"ye şerh koyacak. O zaman dünya ne hale gelmiş bir bakacağız. AB bir nesil tüketti, bu gidişle bir nesil daha tüketebilir.
+         <br/>
+         <br/>
+         -AB"nin artıları daha fazla olan bir kurum olduğunu düşünüyorsanız TÜSİAD gibi Brüksel"de büro açıp lobi çalışmasında bulunmanız gerekmez miydi?
+         <br/>
+         <br/>
+         Bu çalışmaları zaten bir çok kuruluş yapıyor. Biz Türkiye"nin dış politikasında diğer bölgelerle, İslam coğrafyası ile ve komşu ülkelerle ticaretin ve diğer ilişkilerin geliştirilmesi noktasında çalışmalarda bulunuyoruz. AB konusunda bizden görüş istendiğinde üzerimize düşeni yapıyoruz. Ama AB"yi gözü kapalı destekleyen kuruluşlar bunu bir misyon gereği yapıyor. Bizim böyle bir misyonumuz yok. Sürekli olarak bizi AB"ye alın diye yalvarırcasına talepte bulunmayı Türkiye gibi medeniyeti ve tarihi birikimi olan bir ülkeye zül addediyoruz. AB çok önemli bir gerçek bizim açımızdan. Avrupa"da 4 milyon insanımız yaşıyor. Ekonomimiz, yatırımlarımız ve turizmimiz açısından karşı koyulamaz bir etkileşim var. Ekonomik olarak zaten bir birlikteliğimiz söz konusu. Eksik olan siyasi bütünleşme. AB"nin Türkiye"ye karşı son derece ikircikli, önyargılara ve hesaba kitaba dayanan tutumundan rahatsızız. Bu tutuma karşı daha vakur bir tavır sergilenmesi gerektiğine inanıyoruz.
+         <br/>
+         <br/>
+         -MÜSİAD bu vakur tavrı sergileyemez mi?
+         <br/>
+         <br/>
+         Sergiliyor zaten. IMF ve AB ile kurduğumuz ilişkilerin seviyesine son derece önem veriyoruz. Bunu yaparken anti-IMF ve anti-AB tavrı içinde değiliz. Biz hiçbir kuruluşu kendimize rakip görmüyoruz. Bizi iktidar muhalefet ilişkilerinde iktidarın yanına ya da muhalefetin yanına oturtmak isteyenlere de izin vermiyoruz. Diğer sivil toplum kuruluşları ile ilişkiler anlamında diyaloğa ve işbirliğine açığız.
+         <br/>
+         <br/>
+         -Son dönemde YÖK ile ilgili değişiklik konusunda farklı değerlendirmeleriniz olmasına rağmen Cumhurbaşkanı Sezer"in sizi kabulünü nasıl değerlendiriyorsunuz?
+         <br/>
+         <br/>
+         Bu kabul ilk değildi. Ahmet Necdet Sezer Bey, MÜSİAD"ı Temmuz 2000, Aralık 2002 ve Nisan 2003"te kabul etti. Bundan bir ay evvel meslek liseleri ve YÖK ile ilgili Yasa Tasarısı"nı Cumhurbaşkanı"nın veto etmemesi gerektiğini söyledik. Veto sonrasında da takdir hakkını yanlış kullandığını ifade ettik. Cumhurbaşkanımız bizim bu net tutumumuza rağmen görüşme talebimizi geri çevirmedi ve 15 dakika olarak tasarlanan görüşme 45 dakika sürdü. Son derece sıcak ve içten davrandı. Ekonomi hakkındaki düşüncelerimizi sordu. Ülkenin ekonomik sorunları konusunda görüş birliği içersinde olduğumuzu anladık. Meslek eğitimi konusunda hazırladığımız raporu ilgi ile dinledi.
+         <br/>
+         <br/>
+         -IMF sizi neden ziyaret etti?
+         <br/>
+         <br/>
+         Hükümet IMF"ye değişik kesimlerle görüşmelerini tavsiye ediyor. TOBB, ATO, işçi ve işveren sendikaları ve MÜSİAD tavsiye edilen kuruluşlar arasında. IMF"nin ilgisi yeni değil. IMF bir yıldır gelip gidiyor. 1997 ve 2000 senelerinde IMF ile bizim isteğimiz üzerine görüşmelerimiz olmuştu.
+         <br/>
+         <br/>
+         -IMF"yi etkilediğinize ya da etkileyebileceğinize inanıyor musunuz?
+         <br/>
+         <br/>
+         Tabii... Ben etkilendiğini düşünüyorum. Ama bu etkilenmeyi bütüncül anlamamak lazım. IMF yetkililerinin birçok konudan haberdar olmadığını gördük. Ekonomiye bakış açıları para politikası merkezli. IMF vergileri artırın diyor ama vergilerin artmasının ülke ekonomisine yükünü anlamıyorlar. IMF ile nezaket sınırlarını aşmadan kıran kırana bir görüşme yaptık. Yanlışlarını anlattık. Faiz dışı fazlasını yüzde 6,5"ten yüzde 5"e çekmeleri ve borçları ertelemeleri gerektiğini söyledik. Kendileri de 1 milyar dolarlık borç dilimini 2005"ten 2007"ye kaydırma opsiyonlarının olduğunu söylediler. Bu görüşmeler sonucunda IMF"den gelen talepler noktasında iş dünyasının hükümetin arkasında olduğunun görülmesi, hükümetin pazarlık masasında taleplerini kabul ettirme noktasında elini güçlendirmiş oluyor.
+         <br/>
+         <br/>
+         -Hükümet IMF ile 2005 yılında yollarını ayırmak istediğini söyleyince çok büyük tepki aldı. Siz IMF ile programın devam etmesini istiyor musunuz? IMF programının alternatifi var mı?
+         <br/>
+         <br/>
+         Ortada bir program var ve uygulanan program mali disiplin getirdi. Makro ekonomik göstergelerde çok olumlu gelişmeler oldu. Buna karşın IMF politikalarının Türkiye"yi istediği noktalara götüreceğini söylemek mümkün değil. Türkiye"nin layık olduğu noktaya atak yapabilmesi için bambaşka ekonomi politikalarına ihtiyaç var. Bunu söylerken IMF ile ilişkileri bıçak gibi kesip atmanın da mahzurlarını reddetmiyorum. Yumuşak bir geçişle ve her iki tarafın mutabakatı ile olmalı. Geçmişte yaşadığımız ekonomik krizin etkileri hâlâ devam ediyor. Her an yeni bir krizle karşılaşma riskimiz var. Yolların ayrılması bir kaosa veya girdaba dönmemeli. IMF programları borçların sürdürülebilirliği esasına dayanıyor. Vergileri ve gelirleri artırarak, başta yatırım olmak üzere maaşlar ve diğer zaruri giderlerden kısıntı yaparak mümkün olduğunca faiz dışı bütçe fazlasını yüksek tutmayı istiyorlar. Bu da borçların ve faizlerin düzenli olarak ödenmesini sağlıyor. Dış dengede döviz rezervlerinin artması için TL"de yüksek reel faiz, düşük kur politikası ile içeriden ve dışarıdan sıcak para girişini sağlıyorlar.
+         <br/>
+         <br/>
+         -Türkiye"yi mutluluğa götürebilir mi?
+         <br/>
+         <br/>
+         Çok şüpheli. Programın iki kırılgan ayağı kamu borç stokunun yüksekliği ve dış ticaret açığı. İthalattaki patlama ile beraber sıkıntılar ortada. Hükümet IMF ile ilişkilerini kesmeyecek, zaten kimsenin böyle bir isteği yok şu anda. Hükümetin IMF ile stand-by anlaşmasının devam etmesini istemek var, bir de bizim gibi program sonrası izleme anlaşması imzalayıp, IMF ile istişareleri rutin bir seviyeye indirip bir müddet sonra bu kısır döngüden çıkmayı istemek var. Türkiye 5 yıl önce stand-by imzaladı. Aralık 1999"da geldiler. 2002 Şubat ayında ise 18. stand-by anlaşması imzalandı. Aralık 99"da stand-by imzalansın diyenler çıkışı gösterebildiler mi? Hayır. Aralık 99"da borç stokumuz 45 milyar dolar, iç borç stokumuz 21 katrilyon liraydı. Bugün iç borç stokumuz 206 katrilyon lira. Kamu borç stokumuz 205,5 milyar dolar. Bunun 143,5 milyar doları iç borç. 62 milyar dolar kamunun dış borcu. IMF ile anlaşma bizim borç yükümüzü hafifletmediği gibi ekonomideki kırılganlığı azaltmadı hatta artırdı. Aslında Sayın Babacan"ın gözden geçirmenin ardından yaptığı açıklama oldukça makuldü: Üç alternatif olacak. Üçünü IMF ile birlikte inceleyip üçünden biri üzerinde anlaşacaklar. Bize göre ideal olanı program sonrası izleme anlaşması.
+         <br/>
+         <br/>
+         -IMF"ye sadece biz değil kendi içinden de birçok eleştiri yöneltenler var. Çünkü İsrail dışında başarılı olduğu bir ülke yok.
+         <br/>
+         <br/>
+         1980 yılından bu yana IMF"nin müşterileri hep aynı. Brezilya, Arjantin, Meksika, Endonezya, Türkiye ve Rusya. Biz IMF"ye şunu söyledik: "Bakınız siz Türkiye"yi bir başarı öyküsü olarak görüyorsunuz. Nispeten bir istikrar ortamı var ve krizsiz bir iki yıl geçirdik. Bunun devamı için program sonrası izleme anlaşması ile Türkiye"nin önünü açmalısınız ki işte o zaman diğer ülkelere anlatacağınız tam bir başarı öyküsü olur."
+         <br/>
+         <br/>
+         -İç ve dış politika açısından hükümetin performansını nasıl buluyorsunuz?
+         <br/>
+         <br/>
+         Dış politikalar açısından başarı çok daha kesin ve etkili. Demokratikleşme ve diğer reformlar konusunda da başarılı ancak önemli bir eksik var; inanç hürriyetine dönük kısıtlamaların kaldırılması konusunda çözüm ortaya koyulamadı.
+         <br/>
+         <br/>
+         -Ekonomik göstergeler olumlu, ihracat rekor kırıyor ama bazı kesimlerde çok ciddi rahatsızlık var.
+         <br/>
+         <br/>
+         Ekonomik göstergelerde olumlu gelişmeler olurken vatandaşın satın alma gücünde gerileme var. Sektörlerin bazılarında büyük sıçramalar olurken bazılarında gerileme söz konusu. Düşük kurdan dolayı tekstil ve mobilya sektöründe eleştiriler var. Mevcut programda ekonomideki durgunluğu açmaya dönük bir reçete bulamıyoruz. İhracat yapan kesimlerin üretim ihracatları çok iyi ama döviz kurundaki düşmeden dolayı kâr paylarında gerileme var. Yüksek enflasyon döneminde işletme içi verimsizlikler, reel kârsızlıklar absorbe ediliyordu. Şimdi enflasyon düşük olunca yüzde 5"lik kârlar iyi olmaya başladı. Rekabet kesifleşti, tröstleşme artıyor. Küçük ölçekli firmalar büyüklerin üretim gücü karşısında sıkıntı yaşıyor. Bu bir süreç.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1196 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11641), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050223015255/http://www.aksiyon.com.tr:80/yazdir.php?id=11641)

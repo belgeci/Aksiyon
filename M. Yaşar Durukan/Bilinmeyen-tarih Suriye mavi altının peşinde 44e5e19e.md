@@ -1,0 +1,76 @@
+# Suriye mavi altının peşinde
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005159im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005159im_/http://www.aksiyon.com.tr/resim/381/18.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Suriye, Türkiye’nin yukarıdan vermediği suyu alttan çekiyor. Suriyeli hidrojeoloji uzmanları, güney sınırımız boyunca açtığı kuyulardan Türkiye’nin yeraltı sularını çekmeye başladı. Türkiye bilimsel bir misilleme yapmazsa Suriye, Şanlıurfa– Suruç–Harran–Ceylanpınar ovalarının altındaki 1.7 milyar metreküp suyu ‘hüp’letecek.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkler Orta Asya’dan kuraklık nedeniyle göç etti. İlkokuldan bu yana tarih kitaplarında atalarımızın anayurtlarını terk etmelerinin nedeni böyle öğretiliyor. Bu trajik sonla birlikte Anadolu’ya yerleşen Türkler, özellikle 20. Yüzyılda Ortadoğu’nun ‘su kralı’ oldu. Türkiye bugün, bölgeyi kontrol etmek amacıyla, dış politikasında suyu sürekli bir koz olarak kullanıyor. Özellikle güney komşumuz Suriye’nin, komşuluk ilişkilerine yakışmayan davranışları nedeniyle su zaman zaman bu ülkeye karşı bir silah olarak kullanılıyor. 1989 yılında dönemin cumhurbaşkanı Turgut Özal, Suriye’yi, teröre verdiği destekten dolayı Fırat sularını tamamen kesmekle tehdit etmişti. Suriye kullanılan tatlı su miktarının yüzde 80’ini, elektrik enerjisinin yüzde 60’dan fazlasını elde ettiğinden, Fırat vazgeçilmez bir öneme sahip. Zaten GAP’ın başladığı günlerde Suriye’de elektrik kesintilerinin zorunlu olarak günde 15 saatin üstüne çıkması iki ülke arasında büyük sorunlara neden olmuştu. Türkiye bu kozu en sonunda Abdullah Öcalan’ın Suriye’den çıkarılması operasyonunda kullandı.
+   <br>
+    <br>
+     6 milyon hektarlık tarım alanının 1.3 milyonunda sulu tarım yapan Suriye, bunun 672 bin hektarlık kısmını sulayan Fırat’ın sularına muhtaç. GAP tamamlandığında projeden önce 30 milyon metreküp olarak Suriye’ye inen suların 16 milyar metreküpe düşecek olması, komşuyu kara kara düşündürüyor. 1921 yılından bu yana Türkiye ile su konusunda diplomatik alanda uzlaşamayan Suriye, bugünlerde saman altından su yürütüyor.
+     <br>
+      <br>
+       Harran’ın suyunu çekiyorlar!
+       <br/>
+       <br/>
+       Suriye, Türkiye’nin yukarıdan vermediği suyu alttan çekiyor. Sınır hattı boyunca derin kuyular açan Suriyeli hidrojeoloji uzmanları, Güneydoğu’nun altındaki suların tamamını çalmayı hedefliyor. Bu bilimsel istihbaratın kaynağı Ortadoğu’nun hidrojeoloji konusunda aranan adamı dünyaca ünlü Türk bilimadamı Prof. Dr. Zekai Şen. Su Vakfı başkanlığı görevini de yürüten Prof. Dr. Şen, Suriye’nin bu akıllıca planlanmış su operasyonunun bilimsel izahını şöyle anlatıyor: “Türkiye’nin yeraltı suları mutlaka onlara gidebilir veya onların yeraltı suları mutlaka bize gelebilir. Açılan derin kuyulardan biz çok çekersek bu tarafa gelir, onlar çok çekerse bizim suyumuz o tarafa gider. Şu anda bizim bütün suyumuz oraya gidiyor.”
+       <br/>
+       <br/>
+       Suriye sondaj için Şanlıurfa—Suruç—Harran—Ceylanpınar hattını tercih etmiş. Bu da sınıra çok yakın noktadaki kuyuların rastgele açılmadığını gösteriyor. Çünkü bu bölgenin altında 1.7 milyar metreküp/yıl yeraltı suyu rezervi var. Bölge jeolojik açıdan Suriye ile bağlantılı. Yani Suriye, kendi kuyularından yeraltı suyu çektiğinde, Türkiye tarafındaki sular karşı tarafa yönelecek. Çünkü yeraltı suyu ile dolu bu tabakanın herhangi bir noktasından su çekildiğinde, bütün su kütlesine tesir edilmiş oluyor. Suriye, bu kuyulardan kendi topraklarına uzanan jeolojik yapıdaki suyu çektiğinde Harran’ın altındaki su tel örgünün öbür tarafına akacak. DSİ yetkilileri, Suriye topraklarının büyük bir bölümünde nispeten geçirimsiz, az geçirimli bölümler bulunduğunu, dolayısıyla kuyulardan elde edilen suyun Türkiye’deki yeraltı suyunu tehlikeli boyutta etkilemeyebileceğini düşünüyor. DSİ yetkilileri, “Suriye’nin bir kesiminde Türkiye ile aynı jeolojik birimlerden bir miktar yeraltı suyu çekilmektedir” diyor fakat miktarı konusunda bilgi vermiyor. Bu nedenle Suriye’nin kuyuları ne zaman açtığı ve ne kadar su çektiği, dolayısıyla Türkiye topraklarındaki su kütlesine etki edip etmediği tam olarak anlaşılmıyor. Çünkü açıklanmıyor. Prof. Dr. Şen ise, bu durum karşısında şaşkınlığını “Adamlar suyumuzu çekiyor, Türkiye hiçbir şey yapmıyor” sözleriyle dile getiriyor.
+       <br/>
+       <br/>
+       Yeni bir savaş nedeni!
+       <br/>
+       <br/>
+       Aslında Suriye, birkaç profesörle gerçekleştirdiği bu operasyonla bir taşla iki kuş vuruyor. GAP’la birlikte Fırat’tan aldığı pay yarı yarıya azalan Suriye, bu sayede topraklarına akan su miktarını artırıyor. Suriye, bugün 1 milyon hektar olan sulanmakta olan arazi miktarını, 2015 yılına kadar 1.5 milyon hektara çıkarmayı planlıyor. Bunda Türkiye’den hortumladığı suların payı büyük olacak. Harran daha geçen yaz suya hasretken komşu ülkenin topraklarından bereket fışkırıyor.
+       <br/>
+       <br/>
+       Dünyadaki su sorununa farklı bir boyut kazandıran bu yöntem, uluslararası hukukta da yer almıyor. Sınıraşan sular gibi çözümü olmayan tartışmalara, sonu savaşa kadar gidebilecek gerginliklere —şimdilik— sebep olmuyor. Ancak Amerika—Meksika, Latin Amerika, Orta Amerika ülkeleri ve Ortadoğu’da gerginlikler başladı bile. Fazla uzağa gitmeye gerek yok. Yemen—Arabistan—Ürdün arasında bu kuyular nedeniyle sorun yaşanıyor. Ürdün’ün geliştirdiği bir proje Arap ülkelerini tedirgin ediyor. İstanbul Teknik Üniversitesi’nden Prof. Dr. Zekai Şen, bu konu için Suudi Arabistan’a davet edildi. Prof. Şen, yeni bir savaş sebebi olabilecek soruna adil çözümler üretmek üzere nisan ayında bölgeye gidecek.
+       <br/>
+       <br/>
+       Türk Dışişleri ise, dünyanın oldukça önemsediği bu sorunu pek gündemine almamış görünüyor. Konuyla ilgili görüşlerini sorduğumuz yetkililer, DSİ ile görüştüklerini, Türkiye’nin bütün sularının Arap ülkelerine doğru aktığını ve jeolojik bir şanssızlıkla başbaşa olduğumuzu söylüyorlar. Hatta Arabistan’daki akıferleri (yeraltı su haznesi) Türkiye’nin yağışlarının beslediği sanılıyor. Ayrıca sınır çizgisinin öbür tarafına herhangi bir müdahalede bulunamayacaklarını ekliyorlar. Prof. Dr. Şen ise, Türkiye tarafında da kuyular açılarak karşı tarafın suyunun bu tarafa çekilebileceğini söylüyor. Yani bilimsel bir misilleme yapmaktan başka bir yol görünmüyor. Prof. Şen, aynı yöntemle İran, Irak, Ermenistan, Yunanistan, Bulgaristan ve jeolojik yapısı uygunsa Kıbrıs Rum Kesimi’nin bile sularının çekilebileceğini anlatıyor.
+       <br/>
+       <br/>
+       Yetkililerin bu kadar ilgisiz kaldığı 1.7 milyar metreküplük suyun ekonomik ve siyasi değerine bir göz atmakta fayda var. Susuzluktan çatlayan Harran’ın altındaki bu su kütlesi, İsrail’in yıllık su ihtiyacının neredeyse tamamına eşit. Israil 2.5 milyar metreküplük ihtiyacının 1.7 milyar metreküpünü isgal ettiği topraklardan, kalan 800 milyon metreküpünü de dışarıdan sağlıyor. Ayrıca bu bölgede su başlı başına savaş nedeni. 1967 su savaşında bu havzadaki payı yüzde 3 olan İsrail, Batı Şeria’yı işgal ederek payını yüzde 10,5’e çıkardı. Bilindiği gibi bu savaşta işgal edilen Golan Tepeleri de İsrail’in en önemli su rezervlerini oluşturuyor. Golan Tepeleri de Israil’in 2.1 milyar metreküplük su tüketiminin 1/3’ünü karşılıyor. Dünya Bankası verilerine göre Golan ve Batı Şeria’daki kaynakların yüzde 90’ı Israilliler, yüzde 10’u da Filistinlilerce kullanılıyor.
+       <br/>
+       <br/>
+       İsrail—Suriye barış görüşmelerindeki en önemli blokaj konusu yine su meselesi. Suriye Golan’ı kendisinin sayıp su kullanımına kendisinin karar vermesi gerektiğini söylerken, İsrail Golan Tepeleri’nin Suriye’ye iadesi halinde suyun kendilerine akmasını şart koşuyor. Bizim yeterince önemsemediğimiz miktardaki suya karşılık İsrail Ortadoğu’da kan ve toprak veriyor. Siyasal bilimci Frank Fischer’ın bu konudaki tesbiti ise daha çarpıcı: “100 milyon metreküplük su Israil ile komşularının savaşlarının konusudur. Oysa ki, 1 günlük savaşın bedeli 100 milyon dolar, bu da 100 milyon metreküp arıtılmış (denizden) su demektir. Ya da 1 savaş tankı 10 bin kişilik bir şehrin su ihtiyacını karşılayacak deniz suyu arıtma tesisi fiyatına eşittir.” Suriye’nin Türkiye’ye su konusunda baskı yapmak için PKK’nın 1984 Atılımı’na tam destek verdiği hatırlanırsa,  30 bin insanımızın kanının aslında su için akıtıldığı daha iyi anlaşılır.
+       <br/>
+       <br/>
+       Suya karşılık doğalgaz alalım
+       <br/>
+       <br/>
+       Aslında Suriye’nin su çalma operasyonunu Türkiye kendi lehine çevirebilir. Merhum Turgut Özal, “Barış Boru Hatları” adı altında bir proje geliştirmiş, bölgedeki suları Yakındoğu ve Körfez ülkelerine boru hatları ile taşımayı düşünmüştü. Bugün bu projenin mini bir modeli Güneydoğu’da gerçekleştirilebilir. Yeraltı sularını metreküpünü 1 dolardan Suriye’nin sınırımıza yakın bölgelerine boru hatlarıyla pompalama teklifine Suriye’nin sıcak bakacağı belirtiliyor. İki yıl önce Hollanda’nın Lahey kentinde toplanan 2. Dünya Su Forumu’nun en önemli gündem maddesi suyun bir doğal kaynak olarak pazarda alınıp satılan uluslararası bir mal haline nasıl getirilebileceğiydi. Uzmanlar, para yerine Türkiye’den Suriye’ye her yıl yer altından ve yerüstünden akan 2.3 milyar dolarlık su karşılığı petrol ve doğalgaz ile takas yoluna gidilmesini veya daha uygun alternatifler aramasını da öneriyor.
+       <br/>
+       <br/>
+       Güneydoğu başta olmak üzere içme suyu bile olmayan yerleşim birimleri dururken suyun başka ülkelere kaptırılmasının hiçbir anlamı yok. Daha geçen yaz yaşadığımız kuraklık korkusunu unutmayalım. Barajlar dolmamış, santraller durmuş, yağmur dualarına çıkılmıştı. Ayrıca tehlike geçmiş de değil. Türkiye’yi 2030 yılında çöl ikliminin etkisine sokacak sürece girildi bile. Dünyada kabul edilen 31 doğal afetin en başında gelen kuraklığı Türkiye 1970—1974 arasında yaşadı. 1989’da da yaşanmıştı ama onu da birçok kimse hatırlamaz. “Harran suya hasret” diye başlayıp, “Son yılların en kurak ve yağışsız günlerini yaşayan Sanlıurfa ve Harran Ovası’nda kuraklık tehdidi her geçen gün giderek büyüyor” diye devam eden haberleri sık sık duymaya başladığımızda belki hatırlarız.
+       <br/>
+       <br/>
+       Mısır ordusu, parlamentodan izinsiz, Nil’in akışında bir engelleme söz konusu olduğunda askeri müdahale yapabilme hakkını saklı tutuyor. Bu da suya verdikleri önemi gösteriyor. Belki bizim yetkililer de Güneydoğu’nun altındaki ‘mavi altın’ suyunu çekmeden önlem alır.
+       <br/>
+       <br/>
+       Türkler’in Orta Asya’dan susuzluk nedeniyle göç ettiğini unutmamak lazım.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11910), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005159/http://www.aksiyon.com.tr:80/detay.php?id=11910)

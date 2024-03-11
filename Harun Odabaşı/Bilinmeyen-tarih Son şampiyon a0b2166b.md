@@ -1,0 +1,78 @@
+# Son şampiyon
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119040551im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119040551im_/http://www.aksiyon.com.tr/resim/493/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  2003-2004 futbol sezonu geçmiş yıllarla kıyaslandığında nev"i şahsına münhasır olayların, tartışmaların ve istifaların yaşandığı bir yıl oldu. Ligin üstü ve altı ile ilgili şike ve teşvik primi gibi iddialar futbol severlerin seyir zevkini önemli ölçüde yitirmesine, "lig bir an önce bitse" isyanına sebep oldu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fenerbahçe kendisini 3. yıldıza taşıyan şampiyonluk ipini nihayet göğüsledi. Filmin finali mutlu bitince yıl boyunca yaşanan olumsuzluklar, takımın futbol kalitesinin düşük olması gibi sevimsiz konular bütün anlamını yitirdi. Başlıklar Fenerbahçe Destanı, Efsane Kadro, Tarih Yazdılar, Mucize Gerçekleştirdiler gibi taraftarın hoşuna gidecek olağanüstülüğe gönderme yapan kelimelerden seçilmeye başlandı. Yazının üslubu ise bir kahramanlık destanı yazan "altın kramponlar"a uygun düşmelidir. Futbolun bir netice oyunu olduğu gerçeği değişmediğine göre yadırganacak bir durum değil bu. Fenerbahçe"nin yıl boyunca inişli çıkışlı bir grafik sergilemesine ve puan cetvelinde hayli gerilere düşmesine rağmen şampiyon olmayı başarması hak ettiği alkışı daha anlamlı kılıyor.
+   <br>
+    <br>
+     2003-2004 futbol sezonu geçmiş yıllarla kıyaslandığında nev"i şahsına münhasır olayların, tartışmaların ve istifaların yaşandığı bir yıl oldu. Ligin üstü ve altı ile ilgili şike ve teşvik pirimi gibi iddialar futbol severlerin seyir zevkini önemli ölçüde yitirmesine, "lig bir an önce bitse" isyanına sebep oldu.
+     <br>
+      <br>
+       Futbolda zaman çok hızlı işliyor. Birkaç gün yaşayan kelebekler gibi futbol da bir sezon içinde hitama eriyor. Dolayısı ile, yapılan tahliller birkaç haftada yüz seksen derece değişebiliyor. Dün göklere sığdırılamayanlar bugün onursuzca kovulma noktasına gelebiliyor, ya da mazide çok büyük zaferler kazandırmış bir "imparator" bile olsan giyotine giderken madalyalar kurtarıcı olamıyor. Dün Mircea Lucescu"nun felsefesinden, entelektüel kişiliğinden, maçtan sonra üşüyen futbolcusunun üzerine paltosunu koymasıyla Rumen çalıştırıcının derin erdeminden bahsedenler bugün "gitsin" diyor. Kısa bir süre önce "gönüllerdeki teknik direktörü getireceğim" sözü ile kastedilen, Galatasaray"a 4 sezon üst üste lig şampiyonluğu ve UEFA kupası kazandıran Fatih Terim bile aldığı başarısız sonuçlar yüzünden istifa noktasına gelebiliyordu. Ancak kokain kullandığı tespit edilen ve bu yüzden ceza alan Christoph Daum başarılı olduğu için el üstünde tutuluyor. "Top yuvarlak" ve "Futbolun adaleti yok" sözlerinden kastedilen şey de biraz bu olsa gerek.
+       <br/>
+       <br/>
+       Lucescu Fenerbahçe"yi şampiyon yaptı
+       <br/>
+       <br/>
+       Aslında lig maratonunun yarısına gelindiğinde şampiyonluk için bütün işaretler Beşiktaş"ı gösteriyordu. Beşiktaş"ın Mircea Lucescu gibi iyi bir teknik direktörü, yıl başında eksik yerlere monte edilen futbolcularla çok iyi oynayan bir takımı ve en yakın takipçisi Fenerbahçe"den 11 puan fazlası vardı. Dahası yakaladığı galibiyet serisi ile rakiplerini sindiren görkemli bir duruşa sahipti. Medya sözbirliği etmişçesine birincinin belli olduğunu, esas tartışmanın lig ikincisinin hangi takım olacağı yönüne kayması gerektiğini söylüyordu. Birinci olamadığı zaman konsantrasyonunu kaybeden bütün büyük takımlar gibi Fenerbahçe"nin lige havlu atması beklendiği bu ara dönemde Fenerbahçe yönetiminin transfer atağına kalkması ve Mehmet Yozgatlı ile dünya klasmanında pek tanınmayan Brezilyalı futbolcu Marcio Nobre"nin sarı lacivert renklere dahil edilmesi uzaktan bakıldığında pek anlamlı durmuyordu. Fakat lige verilen aranın bitmesinin ardından geçen 4 hafta içinde Fenerbahçe şampiyonluk potasına girmişti bile. Birkaç sene önce Fenerbahçe"nin başına gelen bu sefer Beşiktaş"ı buluyor ve takım tüm konsantrasyonunu kaybederek lig bitimine birkaç hafta kala Trabzonspor"un da arkasına düşerek şampiyonlar ligine katılma hakkını matematiksel olarak kaybediyordu.
+       <br/>
+       <br/>
+       Fenerbahçe yönetimi sene başında aslında oldukça riskli kararlara imza attı. Adı kokainle birlikte anılan ve başarısızlığı dolayısı ile Beşiktaş"tan gönderilen Alman teknik adam Christoph Daum"u takımın teknik patronu yaptı. Arkasından takımı gençleştirme iddiasını tekzip edercesine iyi olmasına rağmen yaşı ilerlemiş Hollandalı golcü Pierre Van Hooijdonk"u transfer etti. Hırvat Tomas, Barcelona"ya giden Rüştü Rençber"in yerine Alman Enke ve Brezilyalı Luciano ise Daum"un tercihleriydi. Diğer kadronun ise genç oyunculardan kurulu olması Fenerbahçe"nin bu senenin değil de gelecek yılların takımını kurmayı hesapladığı yönünde yorumların yapılmasına sebep oluyordu.
+       <br/>
+       <br/>
+       Daha ilk maçta İstanbulspor"dan üç gol yiyen Enke"nin gönderilmesi diğer transferler konusunda da soru işaretlerini artırmıştı. Ancak korkulan olmadı. Özellikle Van Hooijdonk beklentilerin ötesinde muhteşem bir performans gösteriyordu. Alerji yapmayan lider kişiliği, takımın kötü oynadığı maçlarda bile attığı frikik golleri ile kazandırdığı puanlar, bir defans oyuncusu gibi kale çizgisinden çıkardığı toplar Hollandalı oyuncunun artı hanesindeki özelliklerinden hemen akla gelenler.
+       <br/>
+       <br/>
+       Sezonun en trajik hadiselerinden biri, Galatasaray"ın efsanevi teknik direktörü Fatih Terim"in takımının başından ayrılması oldu. Galatasaray"a kuruluşundan bugüne en ihtişamlı dönemini yaşatan Terim, aldığı başarısız sonuçlar ve takımını bir türlü istediği kıvama getirememesi nedeni ile gelişinin ikinci senesinde pes etti. İki sene önce Galatasaray"ı şampiyon yapan Lucescu ise Beşiktaş"ı geldiği sene şampiyon yaparak şampiyon bir teknik direktörü gönderen Galatasaray yönetimine de en güzel cevabı veriyordu. Fatih Terim ile mücadelede bir adım öne geçen ve finali kazanan Lucescu"yu kötü bir sürpriz bekliyordu. Takım çok iyi giderken üst üste alınan birkaç başarısız sonucun ardından yaptığı zehir zemberek konuşma Rumen Hoca"yı "hedefteki adam" ilan ediverdi. Lucescu Futbol Federasyonu"nu açıktan eleştirerek alınan mağlubiyetlerin faturasını başka mercilere çıkarttı. Gelinen noktadan itibaren Lucescu bir türlü eski formuna geri dönemedi, sürekli yıprandı. Dahi lakaplı Daum da Beşiktaş"ın çok önemli bir avantaj yakalamasına rağmen meslektaşı Lucescu"nun stratejik hatasının ilk farkına varanlardan. Daum, olumsuz beyanların Beşiktaş"ın önüne aşmaları gereken psikolojik bir direnç koyduğu görüşünde. "Lucescu saldırgan bir tavır takındığında ortada bir sorun olduğunu anladım ve bu da beni umutlandırdı!.." diyor.
+       <br/>
+       <br/>
+       Kader anı: Beşiktaş-Fenerbahçe maçı
+       <br/>
+       <br/>
+       Sonuçları itibarı ile sezonun en ilginç maçı, İnönü Stadı"ndaki lig şampiyonunu belirleme özelliğine sahip Beşiktaş-Fenerbahçe maçı oldu. Beşiktaş"ın kazanması halinde lig şampiyonluğu ve şampiyonlar ligine katılma şansı devam edecekti. Fenerbahçe"nin kaybetmesi ise Trabzonspor"u bir puan ile ligin liderliğine taşıyacaktı. Fenerbahçe bu maçı çok rahat bir futbol ve 3-1 gibi net bir skorla kazanınca gayriresmi lig birincisi ilan edildi. Beşiktaş seyircisinin küfre varan ağır tezahüratı sonucu BJK Başkanı Serdar Bilgili lig tarihinde bir ilke imza attı ve küfür gerekçesi ile görevinden istifa etti.
+       <br/>
+       <br/>
+       Aziz Yıldırım takdir topladı
+       <br/>
+       <br/>
+       Fenerbahçe"de 7. senesinde ikinci şampiyonluğunu yaşayan Başkan Aziz Yıldırım ise 2003-2004 sezonunda diğer senelere göre farklı bir çizgi takip etti. Ekranlara çıkmayan, basına röportaj vermeyen, Fenerbahçe aleyhine açık yanlışlara rağmen hakemleri eleştirmeyen Aziz Yıldırım, Süleyman Seba"yı hatırlatan bir yönetim stratejisi uygulayarak rakip takım taraftarlarının da takdirini kazandı. Geçmiş dönemde Samandıra Tesisleri"ni ve 55 bin kişilik Şükrü Saraçoğlu Stadı"nı Fenerbahçe camiasına kazandıran Aziz Yıldırım geleceğin spor kulübünü meydana getirmenin hesapları içinde oldu. Fenerbahçe Sportif A.Ş., Beşiktaş ve Galatasaray gibi İMKB"de halka açık bir şirket haline onun döneminde geldi. Şimdi üç yıldızlı formalardan çok büyük gelir bekleyen kulüp Şampiyonlar Ligi"nde başarı elde etmesi halinde yine milyonlarca dolarlık bir geliri kasasına aktarmış olacak.
+       <br/>
+       <br/>
+       Üç sene öncesine kadar ezeli rakibi Galatasaray"a en fazla şampiyon olan takım unvanını da kaptırarak üstünlük yarışında en büyük yarayı alan Fenerbahçe bu sene en azından yurt sınırları içinde skoru eşitledi. Fenerbahçe, Beşiktaş"ın düştüğü hataya düşmeden genç kadrosuna isabetli takviyeler yapması halinde gelecek sezon hem ligde hem de Şampiyonlar Ligi"nde üst sıralarda yer alma potansiyeline sahip. Bir şartımız var: Fenerbahçe medyası bir maçlık efsanelerden vazgeçerek Aziz Yıldırım gibi maraton koşusuna hazırlık yaparsa. Bir günlük kahramanlar ve kurbanlar peşinde koşmazsa.
+       <br/>
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Sacit AKDAĞ, 24-Mayıs-2004
+> Yorumsuz bir yorum: 
+> Dünyanın eğlence kültürü içerisinde belki de en etkileyici ve para kazandırıcı  yeri işgal eden futbolda sonuçların bir yuvarlak topun dönüşüne bağlanmış olduğunu kabul etmek imkansızdır. Bütün liglerde,eğlence,merak,heyacana yönelik kontrol mekanizmaları mevcuttur. Ancak bizim lifimizde,1996 dan bu yana,futbolun yönetimi tarafından, bir takımın taraftarlığına yönelik kontrol mekanizması geliştirilip uygulanır hale getirilmiştir. Şampiyonluklarına, efsane kadro oluşturulmasına yapılan "katkıları" iyi bilen Terim, aynı yöntemlerle açık seçik harcandığı halde,sesini çıkaramadan gitmiştir.Nasıl şampiyon olduğunu bilen Lucescu, bunları ifşa etme tehdidiyle,yıllarca aynı bal tutan parmağı yalama hevesine kapılmış,sayesinde devlet artık ağrı yapan nasırına bıçak vurma gereğini duymuştur.Hemşehri kyağıyla meleket parasını yıllardır haksız yere mal edinen Güneş, aynı hemşehrinin,devletten gelen bıçak darbeleriyle kapıldığı telaş anında keleğine uğramıştır.      Nasır kesilmelidir!
+
+### Mustafa Baki, 18-Mayıs-2004
+> Gazetecilik: 
+> Simdiye kadar bu konuda o kadar yazi yazdim ki, artik bazi seylerin degisemeyecegi kanaati basladi. O da objektif gazete veya basin elemanin olamayacagi kanisi. Ilginc bir yazi kaleme almissiniz. Ama niye bu kadar hiddetleniyorsunuz ki? Takiminiz evinde Rize`den 5 yedigi icin mi? Yoksa tarihinin en kotu sezonunu yasadigi icin mi? Yazinizi soyle bir irdeliyelim; Mesela ben lig biran once bitsin demedim. Ama bir galatasarayli demis olabilir. Alt sira takimlari arasinda ve trabzonda bazi kirli islerin dondugu dogru. Bir teknik direktor macin devre arasinda takimindan istifa ediyor ve herseyi acikca ifade ettikten sonra bize laf soylemeye gerek kalmaz.  10 kere disiplin kuruluna verilen ama sahasi kapatilmayan bir trabzonspor varsa, ama bu federasyon Fenerbahce`nin sahasini, cerez atildigi icin kapatiyorsa, yine soylecegimiz bir sey olmaz. Hersey o kadar ayan beyan ki, ne soylense bos. Sokaktaki cocuk bile herseyin kaynaginin kokusmus Federasyon dan kaynaklandiginin farkinda ama siz fa
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11493&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119040551/http://www.aksiyon.com.tr:80/detay.php?id=11493&yorum_id=1)

@@ -1,0 +1,32 @@
+# Geçmişi kaydettiler, geleceği izliyorlar
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030630115217im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20030630115217im_/http://www.aksiyon.com.tr/resim/443/13.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Geçmişi kaydettik, geleceği izliyoruz” sloganıyla habercilikteki yeni konseptini belirleyen Cihan Haber Ajansı, logosunu da yeniledi. Pazar gününden itibaren ekranlarda beliren Cihan’ın yeni logosu, iletişimi ve hızı çağrıştırıyor.
+ </font>
+ <p>
+  <font class="content">
+   Uydu üzerinden tüm dünyaya 24 saat aralıksız yazılı, fotoğraflı ve görüntülü haber servisi yapan Cihan Haber Ajansı, dünya markası olma yolundaki çalışmalarını logosunu değiştirerek bir adım ileriye götürdü. “Geçmişi kaydettik, geleceği izliyoruz” sloganıyla habercilikte iddialı bir konsept belirleyen Cihan’ın yeni logosu, habercilik anlayışındaki değişimi ve hızı yansıtıyor. Cihan Haber Ajansı Genel Müdürü Reşit Haylamaz, yeni logonun en önemli özelliklerinden birinin, “Cihan’ın habercilikteki güvenilirliği ve yenilikçiliği” yansıtması olduğunu söylüyor. Altı aylık bir çalışmanın ürünü olan logonun dizaynı Fevzi Yazıcı’ya ait. Logonun diğer bir özelliği transparan olması. Bu uygulama televizyonlardaki ekran kirliliğinin azaltılmasına da katkıda bulunacak. En son Bağdat’tan yaptığı canlı yayınlardan hatırladığımız Cihan Haber Ajansı, İngilizce ve Arapça yayınlarıyla Türkiye’nin ilk çok dilde yayın yapan uluslararası haber ajansı haline geldi. Türkiye’de yayın yapan ulusal gazete ve televizyonların yüzde 73’üne haber servis eden Cihan’ın, çok sayıda yerel gazete ve televizyon abonesi, internet haber siteleri ve radyo aboneleri bulunuyor. Cihan sadece medya kuruluşlarına değil, yabancı elçilikler, ekonomi örgütleri, üniversiteler, kamu kurum ve kuruluşları ile özel şirketlere de haber akışı sağlıyor.
+   <br/>
+   <br/>
+   Türkiye’nin 81 il ve 284 büyük ilçesinde toplam 520 elemanı ile hizmet veren Cihan, Orta Asya, Ortadoğu, Balkan ülkeleri, Avrupa, Güney Amerika, Afrika ve Uzak Doğu’da da muhabir bulunduruyor. Ayrıca, 25 ülkede bürosu, 55 ülkede muhabiri, Gazze ve Bağdat gibi sıcak çatışma bölgelerinde sabit büroları bulunan Cihan, buralardan ulusal ve uluslararası medya kuruluşlarına canlı yayın ve bant geçiş imkanları da sunuyor.
+   <br/>
+   <br/>
+   3 Kasım 2003 Genel Seçim Sonuçları’nı en hızlı duyurarak tarihi bir rekora imza atan Cihan, Kore ve Japonya 2002 Dünya Kupası’nda yayın hizmeti sunan tek Türk ajansıydı. 2003 yılında Mekke ve Medine’den Hac boyunca yayın yapan ilk ajans olan Cihan, tüm dünyaya Mina’da yaşanan ve 14 kişinin vefatı ile sonuçlanan izdihamı da canlı vererek bir ilke daha imza attı. Irak Savaşı boyunca bombalara rağmen ölümüne habercilik yapan Cihan, yerli ve yabancı medya kuruluşlarının Türkiye’deki ilk başvurdukları haber kaynağı oldu. Cihan, bugüne kadar dünyanın önde gelen ajanslarına fotoğraflı ve görüntülü haber desteği sağlamanın yanısıra, 100’ü aşkın yabancı televizyon kanalına da haber ve teknik imkanlar sundu. CNN International, BBC World, NBC, MTV, CBS, ABC, el—Cezire, Abu Duhabi Tv, ARD, RTL, ZDF, SAT 1, TF1, Canal +, France, RAI, Tve, Antena 3, TV2 Denmark, Nos Tv, RTL 4, YL1, MMC, MJTV, NTV Japan, KBS, NTV Rusya, TV6, IRIB, MEGA Channel, Bloomberg, MSMBC, ANS, Lider Tv... Cihan ile çalışan kanallardan bazıları.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2626&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030630115217/http://www.aksiyon.com.tr:80/detay.php?id=2626&yorum_id=1)

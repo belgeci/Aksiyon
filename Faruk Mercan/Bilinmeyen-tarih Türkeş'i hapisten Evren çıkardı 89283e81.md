@@ -1,0 +1,101 @@
+# Türkeş'i hapisten Evren çıkardı
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041213073836im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041213073836im_/http://www.aksiyon.com.tr/resim/515/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ali Baransel, Çankaya Köşkü’nde yalnızca Kenan Evren’li yıllara tanıklık yapmadı. 16 yıl boyunca Ankara’daki ‘iktidar oyunu’nun göbeğindeydi.
+ </font>
+ <p>
+  <font class="content">
+   Kendi deyimiyle bir dönemin “karakutusu” olan Baransel’in açıklamaları, Başbakan Tayyip Erdoğan’dan “Star Medya grubunun başına geç” teklifi almasına kadar uzanıyor.
+   <br/>
+   <br/>
+   TRT’nin parlamento muhabiri Ali Baransel, 1974’te Cumhurbaşkanı Fahri Korutürk’ün basın danışmanı olarak Çankaya Köşkü’ne çıktığında 32 yaşındaydı. 16 yıl sonra Kenan Evren’le birlikte Çankaya’dan ayrıldığında, hastalıklarla “vücudunun yarısını” orada bırakacak kadar hızlı bir tempoda, devletin zirvesinde yaşanan olayların aktörlerinden biri olmuştu.
+   <br/>
+   <br/>
+   ABD’deki “Beyaz Saray sözcülüğü” anlayışını Çankaya Köşkü’ne taşıyan, Köşk’ü medyaya ve sanatçılara açan kişi olan Baransel, Evren’in o kadar askerî danışmanı içinde Çankaya’nın sivil yüzüydü. Çankaya’dan ayrılmasından sonra dört yıl Koç Holding’in Ankara temsilcisi olan Baransel, 28 Şubat sürecinde bu sefer Enver Ören’e ait TGRT televizyonunu “dönüştüren” ve reytinglere sokan kişi olarak isminden söz ettirdi.
+   <br/>
+   <br/>
+   Günde 150-200 telefon almasına rağmen, Çankaya’dan ayrıldığı günün gecesinde evindeki üç telefonun hiç çalmamasıyla; Ankara’da sahnelenen ‘iktidar oyunu’ndan çıkan oyuncuların birdenbire nasıl bir yalnızlığa sürüklendiklerinin acısını da yaşamış olan Baransel’le önce 11 Eylül 1980’e uzandık: “İhsan Sabri Çağlayangil cumhurbaşkanı vekili idi. 12 Eylül’den bir gün önce Genelkurmay Başkanı Kenan Evren, haftalık olağan görüşmesi için Köşk’e geldi. Başbakan Süleyman Demirel, ‘Komutanın havasını bir yokla bakalım, askerin durumu nedir? Bir istekleri var mı, terörün önüne geçmek için yapmamız gereken bir şey var mı?’ diyor. Çaylar, kahveler içildikten sonra Çağlayangil Evren’e, ‘Siz ve sıkıyönetim komutanları büyük hizmet veriyorsunuz. Hükümet olarak ne yapılabilir, bize bir görev düşer mi, bunu söylerseniz memnun olurum’ diyor. Evren, ‘Hiçbir talebimiz yok. Gayet iyi gidiyor. Hükümet ile asker arasındaki birlik ve beraberlik sürüyor. Herhangi bir sorunumuz yok.’ diyor. Gece saat bire doğru telefon çaldı. Nöbetçi Yaver Binbaşı Utku Güney aradı. Aliciğim kapının önünden tanklar geçecek. Silahlı Kuvvetler bir askerî harekât gerçekleştirdi. Saat üçe doğru televizyonu aç, Evren Paşa’nın açıklamasını dinleyeceksin dedi.”
+   <br/>
+   <br/>
+   Bıyıklarını nasıl kurtardı?
+   <br/>
+   <br/>
+   İhtilalden sonra, Genelkurmay Başkanı Kenan Evren’in “Devlet Başkanı” unvanı almasıyla Köşk’ün yapısı birdenbire değişmiş. Ağaçların kökleri beyaza boyanmış, giriş çıkışlar bir askerî karargâhı andırmaya başlamış. Hatta o günlerde Cumhurbaşkanlığı Genel Sekreteri Halûk Bayülken’i ziyarete gelen Milli Savunma eski bakanlarından Hasan Esat Işık, “Köşk 15 gün içinde garnizon oldu. Burası çok değişmiş” diyor. İşte o günlerde yaşanan ilginç olaylardan biri de Evren’in, Köşk personeline “bıyıklarınızı kesin” emrini vermesiydi: “Köşk personeli bıyıklarını kessin diye bir genelge yayımlandı. Benim bıyıkla özdeşleşmiş bir kişiliğim var. Eve geldim. Hanıma, çok ısrar ederlerse buradan gideriz, dedim. Ertesi gün Evren’in damadı Erkan Gürvit’le karşılaştım. Baktım, onun da bıyıkları duruyor. İki gün sonra Evren Paşa bir konu sebebiyle beni huzura çağırdı. Sen bıyıklarını kesmemişsin dedi. Sayın cumhurbaşkanım, bıyıkları kesmem önemli değil ama, bir eziklik duygusuna kapılacağım. Zaten Erkan Gürvit de kesmemiş dedim. Öyle mi, hadi o zaman, ikiniz görünmeyin dedi. Böylece bıyık kesmekten kurtulduk.”
+   <br/>
+   <br/>
+   Evren’in damadı Erkan Gürvit, Belçika’da Milli İstihbarat Teşkilatı’nın Brüksel temsilcisi olarak görevli iken, Evren’in Köşk’e çıkmasıyla Köşk’teki MİT irtibat görevlisi olmuştu. Eşi Şenay Gürvit de MİT görevlisiydi. Gürvit’ten önce de var olan Köşk’teki bu görev, MİT’le ilgili çalışma ve raporları Cumhurbaşkanı’na sunmak, gerektiğinde MİT Müsteşarı’nı Köşk’e çağırmak içindi. Erkan Gürvit’ten önce bu görevi, aynı zamanda eski bir milli binici olan Albay Kemal Özçelik yapıyordu. O dönemin tarihî olaylarından biri, Erkan Gürvit, MİT’in dış operasyonlar biriminde yönetici olarak çalışan eşi Şenay Gürvit ve Hiram Abas’ın yönettiği, Ermeni Terör Örgütü ASALA’ya yönelik yurtdışındaki örtülü operasyonlardı. Baransel’in bu noktada karakutuluğu ağır basıyor ve bu olaylar hakkında bilgisinin olmadığını söylüyor.
+   <br/>
+   <br/>
+   Türkeş’i hapisten Evren Paşa çıkardı
+   <br/>
+   <br/>
+   12 Eylül’den sonraki en dikkat çekici gelişmelerden biri, Kenan Evren ile Harp Okulu’ndan sınıf arkadaşı Milliyetçi Hareket Partisi lideri Alparslan Türkeş’in karşı karşıya gelmiş olmasıydı. Askerlik hayatlarında, 27 Mayıs 1960 darbesinde “Kudretli Albay” Türkeş çok ön plana çıkarken; Kurmay Albay Kenan Evren, istikbalini parlak görmüyor ve ordudan ayrılmanın planlarını yapıyordu. Ama sadece 20 yıl sonra, Evren ihtilalin lideriydi, Türkeş ise “sanık” pozisyonundaydı. Türkeş, 12 Eylül’de diğer liderler gibi hemen teslim olmamış, birkaç gün beklemişti. Ardından da önünde uzun bir cezaevi hayatı bulmuştu. Bu gelişme üzerine ülkücü kesimde Türkeş’i cezaevinden kaçırmak, hatta Evren’e “suikast düzenlemek” seçenekleri bile tartışılmıştı. Ali Baransel, Evren-Türkeş ilişkisine yepyeni bir boyut getiriyor ve Türkeş’in cezaevinden çıkarılması talimatını Evren’in verdiğini açıklıyor:
+   <br/>
+   <br/>
+   “12 Eylül’den sonra yargılanan siyasi parti genel başkanları birer birer beraat edip çıktı. Sadece Alparslan Türkeş içeride kalmıştı. Her sabah Evren Paşa’ya basında çıkan haberlerden bir brifing verirdim. O gün, gazeteler içeride sadece Türkeş’in kaldığını yazıyor dedim. Öyle mi dedi. Cumhurbaşkanlığı Hukuk Dairesi Başkanı Tümgeneral Muzaffer Başkaynak’a talimat verdi. Türkeş için, sağlık sorunu öne sürülerek sıhhî heyet raporuyla cezaevinden çıkarma mekanizmasının işletilmesini istedi. Türkeş, onun direktifiyle bırakıldı. Eğer Evren devreye girmeseydi, Türkeş daha fazla içeride kalabilirdi... Evren Paşa ile Türkeş arasında öyle pek sıcak bir ilişki görmedim. Süleyman Bey’e, Erbakan’a karşı da bir sıcaklığını hissetmedim. Evren’in, sadece Ecevit’e sevgisi vardı. Yasakların kalkmasından sonra, galiba bir 29 Ekim resepsiyonuydu. Ecevit, Demirel, Türkeş siyasi yasaklı halleri bittikten sonra ilk defa Köşk’e geliyorlardı. Daha önceki dönemlerde geldiklerinde etraflarında yüzlerce kişi halka olurdu. İnanır mısınız kapıda kimse karşılamadı. Salona geldiler, herkes vebalı gibi onlardan kaçtı. Ama Evren Paşa’nın en yakınındaki bir adam olarak onları ben karşıladım, salona götürdüm. Onlarla beşer, onar dakika durdum. Havayı ısıttım. Manevralarla, onları Evren Paşa ile yan yana getirdim, tokalaşmalarını sağladım.”
+   <br/>
+   <br/>
+   İnönü’nün mahkemedeki zor dakikaları
+   <br/>
+   <br/>
+   Liderlerin 12 Eylül maceraları içinde Erdal İnönü’nün de yeri var. İhtilalden sonra kurulan Sosyal Demokrat Halkçı Parti SODEP’in başkanı olan İnönü, bir toplantıda konsey üyelerini hedef alan sözleri sebebiyle soruşturmaya uğruyor. Erdal İnönü’nün sanık olarak duruşmada ifade vermesi olayını ve Evren’in tepkisini Baransel şöyle anlatıyor: “İlk duruşmasında hakim karşısında İnönü’nün eli ayağı zangır zangır titremiş. Ağzı kurumuş, ifadesini suratı sararmış bir şekilde tamamlayabilmiş. Bitkin düşmüş. O gün biz askerî uçakla bir geziden dönüyorduk. Bunu Evren Paşa’ ya ilettiler. Evren Paşa, Konsey üyelerine dönüp, ‘Ben size söylemiştim. Erdal İnönü, beyefendi bir insan, iyi bir ilim adamı, ama lider olacak özellikler yok. Çok vesveseli ve ürkek. Çünkü el bebek, gül bebek yetiştirilmiş. Göreceksiniz politikadan çok çabuk ayrılacak’ dedi. Hakikaten aradan az bir zaman geçti, İnönü politikayı kendiliğinden bıraktı.”
+   <br/>
+   <br/>
+   Fahri Korutürk, 1974’te Baransel’i Köşk’e aldığında, “Burada devletin bir çok sırrına vâkıf olacaksın artık gazeteciliğin bitti” demişti. Baransel, “Ben bir karakutuyum. Anılarım bir aysberg gibi. Derinliklerdeki çok önemli olayların tanığıyım. Cumhurbaşkanı Evren’in yanındaki iki üç kişiden biriydim” diyor, ama hemen peşinden bu karakutunun hiçbir zaman açılmayacağını vurguluyor. Çünkü üzerinde çalıştığı anılarını, “karakutu” dışındaki olaylardan seçmiş durumda. Baransel, Ankara’da ayrı bir toprak parçası, insan ilişkilerinin çok farklı olduğu bir dünya olarak nitelendirdiği Çankaya Köşkü’nün bir saray gibi olduğunu, doğal olarak bu sarayda zaman zaman çeşitli entrikaların yaşandığını belirtiyor. Baransel bu olaylar sebebiyle iki defa Evren’le yollarının ayrıldığını, ancak Evren’in isteği üzerine tekrar geri döndüğünü vurguluyor:
+   <br/>
+   <br/>
+   “Cumhurbaşkanının yanına herkes giremez, iki veya üç kişi direkt girer. Randevusuz, telefon edersin, ben geliyorum dersin, seni alırlar. Birisi  o dönemde bendim. Bir tanesi genel sekreter, bir tanesi de özel kalem müdürü. Özel kalem müdürü de dışişlerinden kripto gelir, önemli bir şey gelir, girer. Bir de Erkan Gürvit girebilirdi. Şimdi cumhurbaşkanı da insan. Gidiyorsun, bir şey söylüyorsun, etkiliyorsun. Onun dışarıya yansıması, politikaya yansıması oluyor. Bu yüzden Çankaya Köşkü’nde cumhurbaşkanının çok yakınında görev alan her kişi bıçak sırtında gider. Ben bunu tam on altı yıl yaptım. Bu kadar yakın ilişkinden rahatsız olanlar, seni devre dışı bırakmak için çeşitli senaryolar üretirler. Mesela bir bakarsın, Evren Paşa seninle her şeyi konuşurken hiçbir şey konuşmaz, soğuk davranır. O zaman ayrılmayı düşünmeye başlarsın. Bunları yaşadım. Dışlandığını anlarsın. Bir bakıştan, ilginin azalmasından, görev verilmemesinden, yurtiçi ve yurtdışı resmi ziyaretlerde isminin olmamasından bunu anlarsın. Böyle şeyler yaşadım. O zaman Köşk’ten ayrılmaya karar verdim. Bazı şeyler bana ters geliyor, ayrılacağım dedim. Evren ‘olur’ dedi. Evde bavulları topladık, bekliyoruz. 20 gün sonra beni çağırdı. Aradım taradım, senin yerine adam bulamadım, sen dürüst bir adamsın, burada kal dedi.”
+   <br/>
+   <br/>
+   Tahsin Şahinkaya, Evren’e neden küstü?
+   <br/>
+   <br/>
+   Peki ihtilalin lideri Kenan Evren ile dört Konsey üyesinin ilişkileri sonraki yıllarda nasıl bir seyir izledi? Konsey üyelerinden dönemin Jandarma Genel Komutanı Sedat Celasun dışındaki üç komutan şu anda hayatta. Dönemin Hava Kuvvetleri Komutanı Tahsin Şahinkaya ile Deniz Kuvvetleri Komutanı Nejat Tümer İstanbul’da yaşıyor. Eşini kaybeden dönemin Kara Kuvvetleri Komutanı Nurettin Ersin Ankara’da mütevazı bir hayat sürerken, Evren Marmaris ile Bodrum arasında gidip geliyor. Araya giren yıllar, “dört ihtilalci” komutanın eskisi kadar beraber olmalarını engelliyor. Daha çok bayramlarda, önemli günlerde birbirlerini arayıp hatır soruyorlar.
+   <br/>
+   <br/>
+   Fakat Evren ile Şahinkaya’nın uzun yıllardır görüşmedikleri, yani küs oldukları ortaya çıktı. Peki Evren ile Şahinkaya birbirlerine neden küstü? Olayın perde arkası şöyle: Cumhurbaşkanı Evren’in görevinin son yıllarında Şahinkaya ile ilgili yolsuzluk iddiaları giderek yoğunlaşınca, Şahinkaya hazırladığı bir metni cumhurbaşkanına sunar ve bunun cumhurbaşkanlığı basın sözcülüğü tarafından açıklanmasını ister. Evren, Ali Baransel’i çağırarak metni gereğinin yapılması için verir. Baransel metni okuduktan sonra, “Sayın Cumhurbaşkanım bu kişisel bir konu. Cumhurbaşkanlığı sözcülüğü sadece makamla ilgili açıklamaları yapmakla yükümlüdür. İzin verirseniz, bunu açıklamayalım” der. Evren de bu görüşe katılır. Bunun üzerine, hakkında ortaya atılan yolsuzluk iddialarına karşı, Evren’in kendisine sahip çıkmadığı duygusuna kapılan Şahinkaya, o tarihten itibaren Evren’le ilişkisini dondurur.
+   <br/>
+   <br/>
+   Evren, 12 Eylül ihtilali ile ilgili çok ilginç bir bilgiyi de yıllar sonra Baransel’e anlatır. İhtilal tarihi belirlendikten sonra, ihtilalin ardından televizyonda okunacak bildiri önüne geldiğinde bir cümle özellikle dikkatini çeker. Bu cümlede, “İhtilalin emir komuta zinciri içinde gerçekleştirildiği” belirtilmektedir. Evren’in bu cümle hakkındaki yorumu şöyledir: “Önüme getirilen metindeki bu ifade, harekatın bir numaralı sorumlusu olarak beni tanımlıyordu. İstesem bu cümle üzerinde düzeltme yapabilirdim. Oldum olası esnek davranmayı sevmem, o yüzden gerek görmedim, metni onayladım.” Evren’in yorumu manidârdı. Çünkü yönetime el konulmasında bütün sorumluluğun kendisine yıkılmış olması dikkatini çekmişti.
+   <br/>
+   <br/>
+   Konsey’in kurmay albayları
+   <br/>
+   <br/>
+   Baransel’in anılar demetinde, Silahlı Kuvvetler’de şu anda üst komuta kademesini oluşturan komutanların neredeyse tamamı yer alıyor. Çünkü bu komutanların çoğu, konsey döneminde kurmay albay rütbesiyle çeşitli önemli görevlerde bulunuyorlardı. Örneğin, Genelkurmay Başkanı Orgeneral Hilmi Özkök, kurmay albay rütbesiyle Milli Güvenlik Konseyi Genel Sekreteri Orgeneral Haydar Saltık’ın özel kalem müdürüydü. Baransel, “Haydar Paşa çok titiz bir adamdı. Özkök Paşa’nın onun özel kalem müdürü olması başlıbaşına bir hadiseydi. Onun yanında çalışmak çok zordu, çok donanımlı olmak gerekiyordu. Demek ki hepsini Hilmi Paşa’da görmüş.”
+   <br/>
+   <br/>
+   Kara Kuvvetleri Komutanı Orgeneral Yaşar Büyükanıt o zaman Evren’in muhafız alayı komutanıydı. Sonradan Deniz Kuvvetleri Komutanı olan Salim Dervişoğlu Konsey’in Basın ve Halkla İlişkiler Daire Başkanıydı. Kurmay Albay Tuncer Kılınç da onun yanındaydı. Çevik Bir, Evren’in hem başyaveri hem de özel kalem müdürüydü. Baransel, “Çevik Paşa, son derece sportmen, boylu poslu ve gösterişli bir subaydı. İngilizcesi çok iyiydi. O Muhafız alayı komutanı olunca Evren’in özel kalem müdürlüğünü Büyükelçi Üstün Dinçmen, ondan sonra Büyükelçi Baki İlkin, sonra da Büyükelçi Ali Tuygan yaptı” diyor.
+   <br/>
+   <br/>
+   Enver Ören’in özel hediyesi
+   <br/>
+   <br/>
+   Baransel, 28 Şubat sürecinde Genelkurmay 2. Başkanı olarak adından çokça söz ettiren Çevik Bir’i, 1999’da İstanbul’da 1. Ordu Komutanı iken ziyaret ettiğinde aralarında geçen konuşmayı şöyle aktarıyor: “Aliciğim, evet biz Atatürkçüyü, laikiz ama, dini inançlarımız var, dine karşı saygılıyız dedi. Sonra cebinden küçük bir Kur’an çıkardı ve sen bilir misin ki, ben evden çıkarken bunu yanıma alırım ve hep üstümde taşırım dedi.”
+   <br/>
+   <br/>
+   Peki Baransel, 1997’de TGRT televizyonunun başına nasıl geçti? İddialara göre, Baransel’in bu görevi üstlenmesi Orgeneral Bir’in isteği ile olmuştu ve Baransel Kenan Evren’den de izin alarak İstanbul’a gelmişti. Ancak Baransel, TGRT’de görev almasını, çok sayıda teklif arasında yaptığı bir seçim olarak nitelendiriyor. “Mesela Uzanların mal varlığına el konulmasından sonra Başbakan Recep Tayyip Erdoğan, Star medya grubunun başına geçmemi bizzat rica etti, bu teklif için teşekkür ettim. Çok yorulmuştum, bir süre sessiz ve sakin yaşamayı kafama koymuştum” diyen Baransel şöyle devam ediyor: “1989 yılında Evren’in görev süresi bitince Köşk’ten ayrıldım. İlk teklif Aydın Doğan’dan geldi. Milliyet’in Ankara temsilcisi olmamı istedi. Prensip anlaşmasına varılmışken Vehbi Bey devreye girdi. Koç grubunun beraber çalışma isteği üzerine bunu Aydın Doğan’a ilettim. ‘Vehbi Bey bizim büyüğümüzdür. Eğer sende ısrarlıysa orayı tercih edersen sevinirim’ dedi. O arada, Türkiye’de özel televizyonlar hayata geçmeye başladı. Milli Güvenlik Kurulu kontenjanından Radyo Televizyon Yüksek Kurulu (RTYK) üyesi seçildim, ardından başkan oldum. Bu görevi Koç grubundaki işimle birlikte sürdürdüm. RTYK, Radyo Televizyon Üst Kurulu (RTÜK) olunca buraya üye seçildim ve iki yıl başkanlık yaptım. Televizyonlardan ilk teklifi Erol Aksoy’dan aldım. Show TV’nin kurulmasını ve genel müdürü olarak bu görevin başında olmamı benden rica etti. Fakat ben Ankara’dan ayrılmak istemediğimi söyledim ve ona Nuri Çolakoğlu’nu önerdim. Nuri Çolakoğlu başarılı bir şekilde Show TV’yi kurdu. Sonra NTV’nin kurulması için Cavit Çağlar’dan bir teklif geldi. O teklifi de kabul etmedim. Sonra 28 Şubat sürecinde bir teklif de Enver Ören’den geldi. Sayın Ören bir değişim projesi uygulayacaklarını, Amerika’da çok ünlü bir televizyon şirketiyle anlaştıklarını, Türkiye’de ilk üç televizyon arasına girme konusunda iddialı olduklarını, evimi İstanbul’a taşımadan da görevi kabul edebileceğimi ve tam yetkili olacağımı söyledi. Daha önce de kendisini tanıyordum. Beni ikna etti. Görevi kabul ettiğimde kendisiyle sözleşme bile imzalamadım. TGRT’nin bu büyük tırmanışından çok duygulanan Sayın Ören bana TGRT’den yüzde iki gibi bir hisse verdi. 2000 yılında ayrılırken kendisine bu hisseyi devrettim, karşılığında bana bir ev verdi. Bir de makam aracı olarak kullandığım arabayı hediye etti.”
+   <br/>
+   <br/>
+   İstanbul’da medya dünyasında üst düzey görevlerde bulunmuş bazı kişilerin ismi, 15-20 milyon dolarlık servetlerle anılıyor. Baransel, bu konuda şunları anlatıyor: “Eğer isteseydim, benim de çok ciddi bir varlığım olurdu. En büyük zenginliğin iç huzuru ve itibar olduğu telkinleriyle yetiştik. Bu düşünce her görevimde daima rehberim oldu. Hayatım boyunca hiçbir göreve talip olmadım. Hep bana görev teklif edildi. Bunları vicdanımın ve aklımın kantarında tarttım. Yapabileceklerimi kabul ettim. Her işte de, tepede bulunduğum sırada görevden ayrıldım. Dolayısıyla hiç kimseye benim işime son verme zevkini tattırmadım. Hep kendim ayrıldım. Hangi görevde olursanız olunuz, insanın zirveye çıktığı bir an vardır. Yıldızın parladığı anlar sürekli olmaz, bir dönem olur. Ama medyada bazı kişilerin yaşına başına, fiziğine, yüzünün eskimişliğine bakmadan ısrarla bir yer tutmak için çaba gösterdiklerini görüyorum. Akıl almaz bir hırs. Bu tabloyu şöyle formüle ettim: Medyadaki yerini koruma, hep gündemde kalma tutkusu, eziklik temeline dayalı bastırılmış kişilikleri zaman içinde unutturarak çok bilmişlik ve kendini beğenmişlik bayrağını bilinçaltının gönderine çekiyor. Bu çok psikolojik bir tanımlamadır.”
+   <br/>
+   <br/>
+   Son olarak, yıllarca askerlerle çok yakın çalışmış ve onların güvenini kazanmış Baransel’e askerin Avrupa Birliği sürecine bakışını soruyoruz. Baransel, “Türk Silahlı Kuvvetleri’ni diğer ülkelerin ordularıyla bir tutmak büyük yanılgı olur.  AB raporunda yer alan kimi düzenlemeleri içlerine sindirebileceklerini sanmıyorum. Bu hassasiyetin mutlaka dikkate alınmasında büyük yararlar olacaktır” diyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16916&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041213073836/http://www.aksiyon.com.tr:80/detay.php?id=16916&yorum_id=1)

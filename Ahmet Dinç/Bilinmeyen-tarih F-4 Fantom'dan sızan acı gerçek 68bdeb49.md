@@ -1,0 +1,82 @@
+# F-4 Fantom'dan “sızan” acı gerçek
+
+*Ahmet Dinç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161756im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161756im_/http://www.aksiyon.com.tr/resim/336/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dünyanın en büyük/güçlü ve doğal olarak ihtiyaçları da büyük ve çeşitli ordularından birine sahibiz. Silahlı Kuvvetlerimizin gözbebeklerinden biri, belki birincisi şüphesiz ki savaş uçaklarımız. Ordunun temel silahlarını dışarıdan alıyoruz. Tabii uçakları da.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk Silahlı Kuvvetleri’nin envanterinde bulunan uçaklardan F-4’lerle ilgili, geçtiğimiz günlerde ilginç bir haber çıktı gazetelerde. F-4 savaş uçaklarından 54 tanesinin modernizasyonu İsrail’in IAI firmasına 617 milyon dolar (aslında gerçek rakam 1 milyar doları buluyor) karşılığında verilmişti. Firma, yenilediği uçaklarımızın 17 tanesini teslim etmiş, fakat bunların 15’inde yakıt sızıntısı olduğu farkedilmişti. Gerekli girişimler yapılıp, “Modernize ettiğiniz uçaklar yakıt sızdırıyor, bu nasıl oluyor” diye sorduğumuzda, aldığımız cevabın Türkçesi şu olmuş: “Biz yeniledik ve teslim ettik. Teslim alırken daha dikkatli baksaydınız.”
+   <br>
+    <br>
+     Gerçi firma, arızalı çıkan uçakları yeniden elden geçirmeyi kabul etmiş ama bu olay dünyanın en stratejik bölgelerinden birinde bulunan, en büyük ordulardan birine sahip Türkiye’nin savunma sanayiinin durumu hakkında önce üzüntüye sebep oldu, ardından soruları getirdi. Türkiye, uçaklarının modernizasyon işini niçin yabancı bir firmaya, IAI’ye verdi? Kendi teknolojik seviyemiz ve imkanlarımızla kendi uçağımızı yenileyemez miydik? Veya niçin yenileyemiyoruz? Dünyanın en önemli, en güçlü, en büyük ordularından birine sahip Türkiye, savunma sanayiinde hep dışarıya mı bağımlı kalacak? Kendi göbeğimizi kendimiz ne zaman keseceğiz veya niçin kesemiyoruz?
+     <br>
+      <br>
+       200’den fazla F-4’ümüz var
+       <br/>
+       <br/>
+       Körfez Savaşı’ndaki desteğimiz karşılığında ABD bize 40 civarında F-4 savaş uçağını hibe olarak verdi. Amerika artık, ordusunun envanterinden F-4’leri çıkarmış durumda. Bunun ardından Almanya’dan da F-4’ün keşif uçuşu yapabilecek özellikteki versiyonlarını aldık ve böylece ordumuzun envanterinde 200’ün üzerinde F-4 uçağı birikmiş oldu.
+       <br/>
+       <br/>
+       Fakat Körfez Savaşı’nı izleyen yıllarda, F-4’lerin önemli bir bölümünün görev ömrünü tamamlamak üzere olduğu gerçeğiyle karşı karşıya kaldık. Bu noktada Silahlı Kuvvetlerimizi yöneten komuta kademesi, uçakları devredışı bırakmak yerine, isabetli ve o şartlarda en rantabl bir görüşle, F-4’lerin ömrünü uzatma amaçlı bir proje geliştirdi. Çünkü elimizdeki F-4’lerin 2020 yılına kadar “uçabilmesi” planlanmış, bunun üzerine stratejiler geliştirilmişti. Projeye göre 54 adet F-4 savaş uçağının gövde ömrü uzatılacak, havadan yere bombardıman yeteneği geliştirilecek ve modern hava elektronikleriyle donatılacaktı. Proje akılcıydı fakat bunu gerçekleştirecek kendimize ait teknolojimiz ve altyapımız yoktu. Savunma sanayii konusunda yerli yatırımlarımızın istenilen seviyede ve büyüklükte olmaması Türkiye’de hemen her kesimde üzüntü ve rahatsızlık kaynağı. Dışarıdan sürekli silah almak zorunda kalmamız ve projelerimizi başkalarına ihale etmemiz başta TSK üst komuta kademesi olmak üzere, Türkiye’nin güçlü ve ileri teknolojiyi kullanan bir orduya sahip olmasının, dünya üzerindeki ve bölgedeki ulusal çıkarlarına birebir etki ettiğinin bilincinde olan bütün Türkiye sevdalılarını üzüyor. Üstelik dışarıya bağımlı olmanın stratejik sakıncalarının yanında, moral ve prestij açısından da eksi yönleri var. Buna dair son örneklerden biri Hırvatistan’a uçak satmak istediğimizde yaşandı. Üreticisi ABD olan ve bizim de aldığımız F-5 uçaklarından birkaç tanesini Hırvatistan’a satmamız sözkonusu olduğunda, Amerika Türkiye’ye bozuk çaldı ve kısaca, “O uçakların üreticisi benim, size ne oluyor? Satılacaksa ben satarım” dedi.
+       <br/>
+       <br/>
+       İçeride modernize olanağımız olmayınca doğal olarak dışarıda F-4’lerimizi yenileyecek firma aramaya başladık. Bu uçakların üreticisi Amerikan Mc Donal Douglas firması, F-4 üretimini çoktan durdurmuş, doğal modernizasyon işini de bırakmıştı. Dünyada F-4 modernizasyonu işini ciddi anlamda yapan iki firmadan (diğeri Alman Eurospace) biri olan İsrail’in IAI firması bulundu. Veya o bizi buldu da denebilir. Sözkonusu firma, F-4’lerden önce Cobra helikopterlerimizi modernize edip gece görüş sistemi takmış ve sistem başarılı bulunmuştu.
+       <br/>
+       <br/>
+       İsrail kredi verdi
+       <br/>
+       <br/>
+       Ne ilginçtir ki, bu proje her zaman olduğu gibi bizde para meselesine gelip takılınca, İsrail (Yahudi) finans çevreleri projenin gerçekleşmesi amacıyla Türkiye’ye kredi açtılar. Üstelik kredi koşulları Türkiye için oldukça avantajlıydı. Proje maliyetinin yüzde 90’ına yakın bölümü sözkonusu krediyle karşılandı. Tersinden bakarsak, İsrail verdiği parayı geri almış oluyor böylece.
+       <br/>
+       <br/>
+       Modernizasyon kapsamına alınan 54 uçağın 28 tanesi Eskişehir 1. Ana Jet Üs Komutanlığı’nda, kalan 26 tanesi de İsrail’de yenileniyor. Modernize edilen uçakların teslimatı 1999 sonlarında başladı. Yüklenici firma IAI, gövde ömrü bitme noktasındaki uçakların gövdesini tamamen değiştiriyor. Bunun yanısıra uçakların birtakım yazılım-donanım sistemleri ile radarları yenileniyor. IAI’nin bir alt kuruluşu olan Elbit’in ürettiği radarın üstün özellikleri var: Aynı anda 100 civarında hedefi izleyip, kontrol ve ayırdedebiliyor. Uçak bu 100 hedefe “aşağı bak-aşağı vur” stilinde isabetli atışlar yapabiliyor. Bu yönleriyle F-4’lerimiz, F-16’ların yaptığını yapabilecek noktaya erişmiş oluyor.
+       <br/>
+       <br/>
+       “Sızıntı”nın anlatmak istediği
+       <br/>
+       <br/>
+       Türkiye’de öteden beri, Silahlı Kuvvetler’e ayrılan bütçe payının gereğinden fazla olduğu şeklinde yaygın bir kanaat var. Fakat bu kanaat oluşturulurken TSK’nın dünyanın en büyük ordularından biri olduğu, çok kritik bir bölgedeki bir ülkenin ordusu olmak gerçeğiyle yüzyüze bulunduğu, bu büyüklükle doğru orantılı olarak çok çeşitli ihtiyaçlara ve silah sistemlerine sahip olması gerektiği gözardı edilir çoğunlukla. Kaldı ki son 10 yılda içten içe hep hissettiğimiz ekonomik kriz yüzünden, diğer alanlarda olduğu gibi ordunun yapması gereken yatırımlar da ya yapılamadı veya asgari düzeye indirildi.
+       <br/>
+       <br/>
+       Olayın Türkiye ekonomisini ve ihracatı ilgilendiren önemli bir başka boyutu var ki, bu, silah endüstrisine ciddi ve köklü yatırımlar yapabilsek, çok ciddi bir gelir elde edeceğimiz gerçeği. Etrafı (kendi açısından) düşmanla çevrili olan ve sürekli savaşmak, ordusunu güçlü ve etkin kılmak zorundaki İsrail, askeri mecburiyetlerden yola çıkıp, silaha yaptığı ciddi yatırımlarla kendi ihtiyacını karşıladığı gibi, bugün dünyanın en önemli silah ihracatçısı ülkelerden biri haline geldi. İsrail bugün ihracat gelirinin önemli bir bölümünü savunma sanayiine yönelik kalemlerden sağlıyor.
+       <br/>
+       <br/>
+       Türkiye ise İsrail’in tersi bir seyir takip etti maalesef. Cumhuriyet’in Atatürk’lü yıllarında dünyanın ikinci büyük hava kuvvetlerine sahip olan ülkemiz Danimarka, Mısır, Suriye, Ürdün gibi Avrupa ve Ortadoğu ülkelerine uçak satmış, ciddi bir ihracatçı olmuştu. Fakat daha sonra talihsiz bir döneme girilmiş, silah uzmanı Aydın Çetiner’in “kayıp yıllar” diye tarif ettiği 1940 ila 1970 arasında savunma alanında pek birşey yapılmadığı gibi, mevcut olan fabrikalar da, caiz olan tabirle tencere-tava fabrikalarına dönüştürülmüştü.
+       <br/>
+       <br/>
+       Yatırım şart
+       <br/>
+       <br/>
+       F-4’lerin yakıt deposundan motora doğru giden ince bir sızıntı üzücü gerçeği bir kez daha hatırlattı. Belki bu vesileyle Türkiye’nin savunma sanayiine yönelik yatırımlarının yetersizliğini, ordunun uçak, tank gibi ana konularda ihtiyacını karşılayacak yerli silah sanayimizin olmayışının muhtemel sonuçlarını ve risklerini gözden geçirme fırsatı açılmış oldu. İçinde bulunduğumuz ağır ekonomik kriz askerin de, sivilin de malumu. Artı, Çetiner’in dikkat çektiği bir başka husus da var: “Kurulan fabrikaların ve yeni birimlerin bir süre sonra işleri biter ve eğer bunların önüne yeni projeler konmazsa bir süre sonra bunlar atıl kalıp kapanır. Kaldı ki bu yatırımlar için çok büyük para gerekir”. F-16’ları üreten fabrikalar bu gerçekle karşıkarşıya. Fakat bu kriz ortamında bile, yerli sanayicilerimizin devreye sokulması, yabancılarla ortaklıklar oluşturulması gibi seçenekler gözden geçirilip, savunma sanayiine yönelik yatırım yolları aranabilir.
+       <br/>
+       <br/>
+       Bir hatırlatmada bulunmak şu noktada faydalı olacak: Bütün bu anlatılanlara bakarak, Türkiye’nin savunma sanayiinin sıfır noktasında durduğu zannedilmesin. Ülkemizin TAI, TEI, ASELSAN gibi önemli kuruluşları var. TAI, F-16’ların önemli bir bölümünün üretildiği/montajlandığı (burada ‘sıfır hata’ ve ‘mükemmel’ kategorisinde uçaklar üretildi) yer olmasının yanısıra, Amerikan silah endüstrisinin önemli tedarik kaynaklarından biri durumunda. TAI’nin ülkemiz açısından büyük önemi var, bölgenin en büyük fabrikalarından biri. İspanya’yla ortak üretim olan CASA CN-235 türü 52 uçağın gövde detay montajı TAI’de başarıyla yapıldı. Eğitim uçağı olarak kullanılan SF-260-D türü uçakların montajı da TAI’de gerçekleştiriliyor. TAI ayrıca “Yarasa” denen bir keşif ve gözlem uçağı üretti. Bu kuruluşumuz başarılı çalışmalarının ardından yeni siparişler almaya devam ediyor. Mesela en son, deniz karakol uçağı siparişi aldı. Bütün olumsuzluklara rağmen TAI yılda asgari 140 milyon dolar civarında ihracat gerçekleştiriyor.
+       <br/>
+       <br/>
+       TEI ise F-16’lara motor üreten bir kuruluşumuz. Burada hedeflenen yüzde 22 yerli katkı payı çoktan aşılmış durumda. ASELSAN ise savunma sanayiine yönelik elektronik üretim yapıyor ve önemli birikime sahip. Bu kuruluş, omuzdan havaya ateşlenen Stinger uçaksavar üretimini yapan dünya konsorsiyumunda önemli paya sahip. Dost-düşman tanıma cihazları üreten ASELSAN, ayrıca F-16’larımızın yazılım-donanım sistemlerini yaptı.  Soruları yine tekrar etmekte fayda var: Kendi silahımızı niçin kendimiz üretmiyoruz? Yerli savunma sanayimize niçin yatırım yapmıyoruz? Bunlar, Türkiye’yi seven herkesin yüreğini burkan sorular. Bu soruların orta veya uzun vadede bir daha sorulmaması için, iktidara hortumlamak için değil de hizmet için ve Türkiye’yi ileriye götürmek için gelen hükümetler, yani tutarlı ve samimi siyasi irade gerekiyor en önce. Savunma sanayiine/silaha yapılan büyük yatırımlar, kısa sürede büyük ihracat gelirleri olarak Türkiye’ye dönecektir. Dahası, ordumuzu tepeden tırnağa kendi bilgi birikimizle ve fabrikalarımızdan donatacağımız ve Amerika’nın, Avrupa’nın eskilerini kullanmak zorunda kalmayacağımız da cabası olacak. Bu, hiç de hayal değil ve hiç de uzak değil.
+       <br/>
+       <br/>
+       e-mail: a.dinc@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13035), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161756/http://www.aksiyon.com.tr:80/detay.php?id=13035)

@@ -1,0 +1,79 @@
+# Savaşın eşiğinden barışın kıyısına
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040419170430im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040419170430im_/http://www.aksiyon.com.tr/resim/475/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Devletler arası ilişkilerde düşmanlıkların baki olmadığı bir kere daha tescil edildi. 57 yıl sonra güney komşumuz Suriye ile yaşanan bahar havası buna güzel bir örnek mesela. Irak’ta Saddam Hüseyin rejiminin düşmesinden sonra hızlanan ilişkiler, bugün bir işbirliğine dönüşmüş durumda. Ankara’da üç gün boyunca üst düzey temaslar gerçekleştiren Suriye Devlet Başkanı Beşşar Esad’ın “Irak’ın bölünmesine seyirci kalmayacaklarına” dair mesajı geziye damgasını vurdu. Bu mesajın, özellikle Kuzey Irak’ta Kürt grupların Irak içinde ayrı bir federasyona gitme çabalarının yoğunlaştığı bir döneme rast gelmesi dikkat çekiciydi.
+  <br>
+   <br/>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   Ziyaret sırasında Türkiye ile Suriye, Ortadoğu’da barışı sağlamak için birbirlerini ‘müttefik’ olarak görme konusunda anlaştılar. Şam’ın uluslararası hukuk çerçevesinde Türkiye sınırlarını tanıması, Irak’ın toprak bütünlüğünün korunması hususunda Ankara ile mutabakat sağlaması ve teröre karşı mücadelede işbirliğini garanti etmesi Türkiye’yi memnun etti. Başarılı geçen ziyaret sırasında iki ülke arasında çifte vergilendirmenin önlenmesi, yatırımların karşılıklı teşviki ve korunması ile mevcut turizm anlaşması çerçevesinde altıncı turizm protokolü olmak üzere üç ayrı belge imzalandı. Suriye’nin anlaşma metninde Türkiye Cumhuriyeti’nin tanımına karşı çıkmaması anlamlı bulundu. Bu durum, ‘‘Suriye dolaylı yoldan da olsa, Türkiye’nin Hatay’ı da içine alan uluslararası sınırlarını tanımış oldu’’ şeklinde değerlendirildi.
+   <br/>
+   <br/>
+   Görüşmelerde öne çıkan konulardan biri Ankara’nın Suriye ile İsrail arasında bir arabuluculuk görevi üstlenip üstlenmeyeceği idi. Bu konuda Esad’a iki ülkeyi bir araya getirebilmek için Ankara’nın devreye girebileceği mesajı verildi. Gezinin siyasi olduğu kadar ekonomik gündemi de yoğundu. Suriyeli iş adamlarının geziye olan ilgisi, Suriye heyetinin iki uçakla Ankara’ya gelmesine vesile oldu.
+   <br/>
+   <br/>
+   1946 yılından bu yana çok kötü bir seyir izleyen ilişkiler iki ülkeyi 1999 yılında yaşanan Abdullah Öcalan kriziyle savaşın eşiğine getirmişti.
+   <br/>
+   <br/>
+   İran ile Mısır da barışıyor
+   <br/>
+   <br/>
+   İran ile Mısır, 25 yıl sonra yeniden diplomatik ilişki kurmaya hazırlanıyor. Bu yakınlaşma bir cadde isminin değiştirilmesinin ardından geldi. İran Cumhurbaşkanı Yardımcısı Muhammed Ali Abtahi, Mısır ile tam diplomatik ilişkilerin yeniden kurulmasına karşılıklı karar verildiğini açıkladı. İran ve Mısır arasındaki bağlar, Kahire’nin Muhammed Rıza Pehlevi’ye iltica hakkı tanıyıp İsrail’le barış antlaşması imzaladığı 1979 yılında kopmuştu. Diplomatik ilişkilerin yeniden kurulması için Mısır’ın ilk şartı, 6 Ekim 1981’de suikasta kurban giden eski devlet başkanı Enver Sedat’ın katili Halit İslamboli’nin adını taşıyan bulvarın adının değiştirilmesiydi. Tahran Belediye Meclisi, geçen hafta caddenin ismini ‘İntifada’ olarak değiştirdi. Böylece iki ülke arasındaki ilişkilerin yeniden tesis edilmesinin önü de açılmış oldu.
+   <br/>
+   <br/>
+   <br/>
+   Avrupa Birliği’nde antisemitizm krizi
+   <br/>
+   <br/>
+   <br/>
+   Avrupa’da antisemitizm tartışmaları yeniden alevlendi. Son olarak Avrupa Birliği (AB) Komisyonu Başkanı Romano Prodi, iki etkili Yahudi örgütün AB’yi antisemitist olmakla suçlaması üzerine şubat ayında yapılması planlanan ‘Yahudi düşmanlığı’ konulu toplantıyı askıya aldı. Prodi’nin kararı iki etkin Yahudi örgüt başkanının Financial Times’ta yayınlanan makalelerinde AB’yi antisemitist olarak nitelemelerinin ardından gelmesi dikkat çekti. Dünya Yahudi Kongresi Başkanı Edgar M. Bronfman ve Avrupa Yahudi Kongresi Başkanı Cobi Benatoff, söz konusu yazılarında, genelde Avrupalıları özelde de Avrupa Birliği Komsiyonu’nu ‘ahlaki ihanet’ ile suçlamış ve biri eylemden diğeri de eylemsizlikten kaynaklanan iki tür antisemitizm olduğunu belirtmişlerdi.
+   <br/>
+   <br/>
+   5 Ocak’ta iki Yahudi örgütüne mektup gönderen Prodi, ithamların ardından toplantının askıya alındığını iletti. Kızgınlığını mektubuna yansıtan Prodi, Dünya Yahudi Kongresi Başkanı Edgar M. Bronfman ve Avrupa Yahudi Kongresi Başkanı Cobi Benatoff’a “Bu makaleye imza attığınıza hâlâ inanamıyorum” diye yazdı.
+   <br/>
+   <br/>
+   İsrail ve Yahudi örgütleri ile AB arasındaki gerilim kasım ayında yayınlanan bir raporun ardından zirveye ulaştı. AB komisyonu tarafından düzenli olarak yaptırılan Eurobarometre anketinde vatandaşların İsrail’i dünya barışı için en büyük tehdit gördüğü ortaya çıktı. Dünya barışına tehditte İsrail’i ABD takip etti. İsrail ve Yahudi örgütleri anket sonuçlarına büyük tepki göstererek AB’yi Yahudi düşmanlığı yapmakla suçladı. İkinci gerilim ise AB’nin Avrupa Yabancı ve Irkçılık Takip Merkezi’nin araştırmasında Avrupa’da Yahudi düşmanlığının köklerinde Müslüman ve Filistin yanlısı grupların olduğunu ortaya koyan raporun yayınlanmasına izin vermemesi üzerine yaşandı.
+   <br/>
+   <br/>
+   <br/>
+   Putin, Müslüman içişleri bakanı atadı
+   <br/>
+   <br/>
+   Rusya Federasyonu’nun kurulduğu 1991 yılından bu yana beklenmedik olaylardan biri daha yaşandı ve ilk kez babası imam olan bir Tatar Müslüman, Rusya İçişleri Bakanlığı’na getirildi. Rusya Devlet Başkanı Vladımir Putin, bir kararname yayınlayarak, halen Rusya kriminoloji servisi başkanlığını yürüten Müslüman General Raşid Nur Gomaroviç’i 2004 Ocak’ının sonuna kadar geçici olarak İçişleri Bakanı olarak atadı. 1956 yılında Rusya’nın kuzeyindeki Karilla eyaletinde doğan Gomarovic, Tatar kökenli ve Müslüman bir aileden geliyor. Babası Nadfouisy kentinde imamlık yapmış olan Gomarovic, 1979 yılnda Petrozavodic Üniversitesi’ni bitirdi ve 1981 yılına kadar fizik öğretmeni olarak çalıştı. 1981 yılında Rusya polis teşkilatında görev alan Gomaroviç, burada federal kriminoloji dairesinin başkanlığına kadar yükseldi. 2001 yılından bu yana da içişleri bakan yardımcılığı görevinde bulunuyordu. General Raşid Nur Gomaroviç, Rusya Federasyonu’nun kurulduğu 1991 yılından bu yana İçişleri Bakanlığı koltuğuna oturan ilk Müslüman olmasıyla dikkat çekiyor. Rusya’nın Tataristan, Bash Korea, Dağıstan, Çeçenistan, Kabardino Balkarya, Ostenya ve Karashivo Shirkisia gibi bazı özerk bölgelerinde içişleri bakanlığı yapan birçok Müslüman bulunmasına rağmen Rusya Federasyonu içinde bu göreve ilk kez bir Müslüman atanıyor.
+   <br/>
+   <br/>
+   <br/>
+   Simitis parti
+   <br/>
+   <br/>
+   liderliğini bırakıyor
+   <br/>
+   <br/>
+   Yunanistan Başbakanı Kostas Simitis, PASOK’un genel başkanlığından ayrılacağını açıkladı. Simitis, 7 Mart’ta yapılacağını açıkladığı genel seçimlere başbakan olarak gideceğini, ancak PASOK’un yeni genel başkanının seçilmesi sürecinin şimdiden başladığını söyledi. Simitis’in veliahtının Dışişleri Bakanı Yorgo Papandreu olduğu belirtiliyor. Simitis’in bu ani taktik değişikliği son zamanlarda yapılan kamuoyu yoklamalarından alınan sonuçlardan kaynaklanıyor. Kamuoyu yoklamalarının hemen hepsi, ana muhalefet Yeni Demokrasi Partisi’nin PASOK’un önünde bulunduğunu gösteriyor. İktidar partisi PASOK’un bu seçimleri büyük bir ihtimalle kaybedeceğini varsayan Simitis, bu nedenle Yorgo Papandreu’nun  partinin başına geçmesine sıcak bakıyor.
+   <br/>
+   <br/>
+   <br/>
+   Kaçak işçilere seçimden önce af
+   <br/>
+   <br/>
+   <br/>
+   Başkan Bush, ABD’de kaçak olarak çalışan milyonlarca yabancı işçiye fırsat tanıyacak yeni bir af önermeye hazırlanıyor. New York Times’ın haberine göre, aftan hâlâ ABD’de kaçak olarak çalışmakta olan yabancıların yararlanacağı, bu kişilerin sayısının 8 ile 14 milyon arasında olduğunun tahmin edildiği belirtiliyor. Habere göre, kaçak işçiler, “geçici işçi statüsü” elde etmek için resmi makamlara, işverenleriyle birlikte başvuracaklar. Bu kişilere ilk aşamada 3 yıl, daha sonra da ikinci bir 3 yıl süreyle ABD’de “misafir işçi statüsünde’’ çalışma hakkı tanınacak. Bu süre içinde bu kişiler, asgari ücret dahil yasal işçilerin yararlandıkları tüm haklardan yararlanacaklar. Başvurusu kabul edilen işçiler 6 yıllık süre içinde ABD ile kendi ülkeleri arasında serbestçe gidip gelebilecekler.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11027&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040419170430/http://www.aksiyon.com.tr:80/detay.php?id=11027&yorum_id=1)

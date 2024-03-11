@@ -1,0 +1,83 @@
+# Sasu İbrahim, Guinness yolunda
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005654im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005654im_/http://www.aksiyon.com.tr/resim/383/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye top sektirme rekortmeni Sasu İbrahim, Guinness Rekorlar Kitabı’na girmek için oldukça iddialı. Kendisine sahip çıkılması halinde Kanadalı bir kişinin elinde bulunan 18 saatlik top sektirme rekorunu 20 saat ile kıracağını söylüyor. 8 saatte 50 bin kez sektirip bırakan Sasu İbrahim, ‘20 saatte hem yerim, hem içerim, hem de saydırırım’ diyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   ‘Şimdiki futbolcular kalenin önünden topu auta atıyorlar, ondan sonra da şanssızdık diyorlar. Bence futbolda şans yoktur, yetenek vardır. Şans kumarda olur ve futbol kumar değildir. Ayağını ve kafanı kullanamazsan hedefe gidemezsin. Topu iyi anlarsan istediğin yere gider. Şu görmüş olduğunuz top, bana şu ana kadar bir yanlış yapmadı. Ne dersem onu yaptı, nereye vurursam oraya gitti. Çünkü, top beni anlıyor, ben de onu anlıyorum. Futbolcularımız bıraksınlar şanssızdık, top bizi sevmedi, direkler izin vermedi muhabbetini.’ Bu sözler, Türkiye top sektirme rekortmeni Sasu İbrahim’e ait.
+   <br>
+    <br>
+     Geçimini 19 yıldır araba yıkayarak sağlıyor
+     <br>
+      <br>
+       Tek amacı, rekorlarını tescil ettirmek ve Guinness Rekorlar Kitabı’na girmek olan Sasu İbrahim’in hayatında top önemli bir yere sahip. 19 yıldır Eminönü Belediyesi’nde oto yıkamacı olarak çalışan İbrahim Dindiren, tam 33 yıldır, oturduğu Gaziosmanpaşa’nın Küçükköy semtinde Sasu İbrahim olarak tanınıyor. Semtte onu tanımayan yok. Sokakta, caddede, pazarda yüyürken herkes onunla muhabbet ediyor. Onu en çok sevenler ise çocuklar. Sasu İbrahim’i nerede görürlerse ondan top sektirmesini istiyorlar. Onları kolay kolay kıramayan Sasu, çocuklara top saydırmanın yanı sıra pas, markaj ve vuruş tekniklerini de öğretiyor. İbrahim Dindiren, Sasu lakabını niçin aldığını şöyle anlatıyor: ‘1968 yılında Romanya’dan Fenerbahçe’ye bir futbolcu gelmişti. Adı Sasu’ydu. Ben o zamanlar 9 yaşımdaydım. Rami’de, Yedikule’de oynayan abilerimle maç yaparken penaltıları bir o köşeye, bir bu köşeye atıyordum. Tekniğim çok iyiydi. Bana Sasu demeye başladılar. O zamandan bu yana lakabım Sasu. Şimdi arkadaşları oğlum Serhat’a da Sasu diyorlarmış.’
+       <br/>
+       <br/>
+       ‘Yeteneğimi iddia sonucu fark ettim’
+       <br/>
+       <br/>
+       Her yıl Avrasya Maratonu’nu baştan sona top sektirerek koşmasına rağmen basından yeterince ilgi görememekten yakınan Sasu İbrahim, 1989 yılında Türkiye top sektirme rekorunu notere tescil ettirmiş. ‘Selim Kütüklü diye biri vardı. 27 Eylül 1989 tarihinde, TRT’de yayınlanan Türkiye’nin İlkleri ve Rekorları adlı programa çıktık. Beşiktaş 1. Noteri yetkilisi Ahmet Tuncertan, programın yönetmeni Adem Kılıç ve şahitler Cem Pamiroğlu ile Selçuk Yula (Bu futbolcular o zaman Sarıyer’de oynuyorlardı) huzurunda top saydırmaya başladık. Selim Kütüklü 445’e geldiğinde topu düşürdü. Ben devam ettim; ancak 1316’ya geldiğimde noter durmamı istedi ve böylece yeteneğim tescil edilmiş oldu.’
+       <br/>
+       <br/>
+       Sasu’nun rekoru resmi olarak 1316, gayri resmi olarak ise 50 bin. Hiç durmadan ve düşürmeden 50 bin saydırması 8 saatini almış. Bunu da mahalledeki çocuklar saymış. Her yüz vuruştan sonra tebeşirle sahaya bir çizik atmışlar. Sasu, 50 binden sonra topu düşürmediğini, saydırmayı kendisinin bıraktığını da özellikle belirtiyor. Peki, Sasu İbrahim bu yeteneğini ne zaman keşfetmiş? ‘Ben 6 yaşımdan beri top sektiriyorum; ama bu yeteneğimi esas olarak 22 yaşımda keşfettim. Parkta üç kişi top sektiriyorlardı. Ben siz üçünüz olun, ben tek başıma olayım dedim. Onlar toplam bin saydırdılar, ben de üç bin saydırdım. Bu benim ilk rekorumdu. Ben bu kadar saydıracağımı hiç düşünmemiştim. Çocuklar dedi ki ‘Abi sen neymişsin be. Biraz uğraşsan Guinness Rekorlar Kitabı’na kesin girersin’.
+       <br/>
+       <br/>
+       Topu, oğlu Serhat ile yaşıt
+       <br/>
+       <br/>
+       Sasu İbrahim, futbol topunu çok seviyor. Bizimle buluşurken yanında getirdiği top, evindeki on beş topun en eskisi. 1989 yılında aldığı bu top, küçük oğlu Serhat ile yaşıtmış ve on üç yıldır aralarında hiç problem yaşanmamış. ‘Ben ne dersem, top hiç sesini çıkarmadan yerine getirir. Ben topla konuşuyorum. Bunu iddia ediyorum. Ben gerçekten topla konuşuyorum.’ İbrahim Dindiren, bu yeteneğini portakal sektirerek geliştirdiğini söyledikten sonra bir ayrıntıya dikkat çekiyor: ‘Bana bu yeteneğimden dolayı top cambazı diyorlar. Buna kesinlikle katılmıyorum ve üzülüyorum. Ben cambaz falan değilim. Bana Guinness’ten iki tane yazı geldi. Bana diyorlar ki top kontrolcüsü (ball controller).’
+       <br/>
+       <br/>
+       Sasu İbrahim’in üzüldüğü konu çok. Bunlardan biri de Televole programlarının birilerini çıkartıp top sektirme rekoru kırdı diye göstermeleri. ‘Geçenlerde gördüm, adamın biri ağacın başında tek ayağıyla bilmem kaç saydırıyormuş. Bu iş tek ayakla olacak iş değil. Ben ayağımla, dizimle, omzumla, kafamla, her tarafımla saydırıyorum. Benim için mekan ve şekil fark etmiyor. Yolda yürürken, merdiven inerken, çıkarken, yerken, içerken, otururken... Gelsinler görsünler.’ Sasu İbrahim, top sektirmenin sanıldığı kadar kolay bir iş olmadığının da altını çiziyor: ‘Binden sonra topu üç tane görmeye başlıyorsun. Bu iş, çok ciddi bir konsantrasyon gerektiriyor. Dışarıdan görüldüğü gibi kolay değil.’
+       <br/>
+       <br/>
+       Allah’ın izniyle 20 saat saydırırım
+       <br/>
+       <br/>
+       Her gün saat altıda kalkıp antrenmanını yapan ve sonra işe giden İbrahim Dindiren, Guinness Rekorlar Kitabı’na girmek için oldukça iddialı. Şu ana kadar saydırırken topu hiç düşürmediğini ve sektirmeye kendi isteğiyle son verdiğini söyleyen Sasu, eninde sonunda bu amacına ulaşacağını söylüyor: ‘Şu andaki Guinness rekoru Kanadalı Volkart Caro’ya ait. 18 saat saydırmış. Ondan önce de Kenyalı Abuto’ya aitti. O da 16 saat saydırmış. Ben Guinness ile iki kere yazıştım. Bana diyorlar ki önce ülkende bu rekoru kırmalısın ve tescil ettirmelisin. Ben saydırırken basın olacak, noter olacak, şahitler olacak. Ben diyorum ki birileri organize etsin, 20 saat saydırayım. 20 saat saydıramazsam beni assınlar. Ben bu kadar iddialı konuşuyorum. Benim rekorumun bir sonu yok. Ben topa gel diyorum geliyor, git diyorum gidiyor. En son 50 bin yaptım, bıraktım. 20 saat boyunca yeme, içme problemim de olmaz. Ben hem yerim, hem içerim, hem de saydırırım.’
+       <br/>
+       <br/>
+       Oğlu Serhat’ı da yetiştiriyor
+       <br/>
+       <br/>
+       Sasu İbrahim bu işe o kadar merak sarmış ki küçük oğlu Serhat’ı da kendisi gibi yetiştiriyor: ‘Büyük oğlum Serkan topa pek merak sarmadı. Serhat, Gaziosmanpaşaspor’un altyapısında oynuyor. Beş bin saydırıyor. Ben onun futbolcu olmasını istiyorum. Allah’ın izniyle olacak da. Serhat Avrupa’da olsaydı Barcelona çoktan transfer etmişti. Onu hem teorik, hem pratik olarak yetiştiriyorum. Türkiye beni değerlendiremedi, bari oğlumu değerlendirsin. Ben ondan çok umutluyum. Sonra Türkiye’de futbolcu yok demesinler. Türkiye’de dört dörtlük futbolcu olacak çocuk çok; ama bunları yetiştirecek hoca yok.’
+       <br/>
+       <br/>
+       Topa vuruşuyla diğer çocuklardan farklı olduğunu hemen gösteren Serhat da futbolcu olmak istiyor ve babasının emeklerini boşa çıkarmayacağını söylüyor: ‘Yeteneğimi babamdan aldım. Yeteneğimin babamla ilgisi tabii ki var. Küçüklüğümden beri o yetiştiriyor. Bütün tekniğimi ondan aldım. İlk top sektirme rekorum 250’ydi. Sonra 3 bine, iki ay önce de 5 bine çıkardım. Daha da geliştireceğim kendimi.’
+       <br/>
+       <br/>
+       Futbolcular ve spor yazarları cahil
+       <br/>
+       <br/>
+       Euro 2000 Avrupa Şampiyonası öncesinde milli futbolcularla birlikte Adidas toplarının tanıtımını da yapan Sasu İbrahim, neden futbolcu olmadığını da şöyle anlatıyor: ‘Ben topa âşığım. Annemin karnındayken bile top diyormuşum. Altı yaşında top oynamaya başladım. Benim çocukluğumda maddi imkansızlıklarımız vardı. Eskiden futbolculuk bu kadar önemsenmiyordu. Ben bunlara rağmen topa âşık oldum. Sonra gördüm ki Türkiye’de futbol bilinçsiz oynanıyor. Benim kafamda futbol oynayan insan yok. Türkiye’de herkes futbolun kurallarını tartışıyor. Peki, kısa pas nedir, uzun pas nedir, nasıl adam marke edilir, nasıl çalım atılır, nasıl çalım yenmez, pas nasıl atılır, topa nasıl vurulur, iç vuruş nedir, dış vuruş nedir, kaç türlü vuruş şekli vardır? Bunları biliyor mu insanlar? Maalesef bilmiyorlar. Futbolcularımız da bilmiyor, spor yazarlarımız da.’
+       <br/>
+       <br/>
+       Top sektirmenin yanı sıra düğünlerde org, kaval, flüt, bağlama gibi enstrumanlar çalan ve şarkı söyleyen Sasu İbrahim, dünyada kendi anlayışına göre futbol oynayanların sayısının da çok az olduğunu söylüyor: ‘Benim futbol anlayışıma göre dünyada futbol oynayan beş kişi var: Pele, Maradona, Hagi, Prekazi... Bir de ben. Futbolcularımız kusura bakmasın; ama ben kendimi bu futbolcularla aynı kategoride değerlendiriyorum.’
+       <br/>
+       <br/>
+       Peki, topu kafasının üstünde bir saat durdurabilen Sasu, antrenörlük yapmayı düşünmüyor mu hiç? ‘Teklifler çok; ama adam zenginim diye yönetime gelmiş. Benim bilgimi parayla satın almaya kalkıyor. Benim parayla, pulla işim yok Allah’a şükürler olsun. Futbolcu yetiştirmek istiyorum sadece. Bana verecekler altyapıyı, on sene sonra iki tane milli takım çıkaracağım. Ama hiç kimse on sene sabredemiyor ki. Hemen başarı istiyorlar.’
+       <br/>
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12019), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005654/http://www.aksiyon.com.tr:80/detay.php?id=12019)

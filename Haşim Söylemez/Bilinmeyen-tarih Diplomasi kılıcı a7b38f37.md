@@ -1,0 +1,75 @@
+# Diplomasi kılıcı
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050121013341im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050121013341im_/http://www.aksiyon.com.tr/resim/472/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Romanya hükümeti, Kral Stefan"ın kendileri için kutsal olan kılıcını yıllardır Türkiye"den istiyor. Sonunda çözümde anlaşıldı, her görüşmenin ana konusu olan kılıcın bir kopyası yaptırılıp 1 ay içinde Romanya"ya teslim edilecek. Aksi halde iki ülke arasındaki sıcak ilişkilerin sekteye uğrayacağı belirtiliyor. Planda değişiklik olmazsa, kılıcı, eski GS"li futbolcu Hagi"nin de aralarında bulunduğu bir heyet teslim alacak.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Süleyman Demirel, cumhurbaşkanlığı döneminde Bükreş"i üç defa ziyaret etti. Romanya Cumhurbaşkanı Ion Iliescu"yla aralarında ciddi bir samimiyet doğmuştu. 1994 yılındaki son gezinin son yemeğinde Iliescu, Demirel ile olan dostluğuna güvenerek enteresan bir istekte bulundu; "Kral Stefan"ın kılıcı sizde, onu bize verir misiniz? Bizde size ait önemli ne kadar tarihi eser varsa alabilirsiniz." Böyle bir eserin varlığını ilk kez duyan Demirel, olayın aslını öğrenmek için zaman isteyip "Konuyu inceleyeceğim" cevabını verdi. Gerçekten de Demirel, Türkiye"ye dönüşünde konuyu incelettirmiş ve kılıcın kendisinin değil bir kopyasının Romanya"ya verilebileceğini bildirmişti. Iliescu, Türkiye"nin bu jestine sevinmiş ve kopya kılıç teklifini sevinçle karşılamıştı.
+   <br>
+    <br>
+     Gelin görün ki, iki ülkenin en tepesindeki kişilerin konuşup anlaştığı kılıç konusu daha sonra 1995 yılının para sistemi içerisinde 50 milyon liraya takılıyordu. Kültür Bakanlığı; Hz. Muhammed (s.a.v) ve Hz. Ali"nin kılıçlarının kopyasını yapan uzman Hakkı Çavuşgil"e Stefan"ın kılıcının kopyasını da yaptırmak ister. Çavuşgil emeğinin karşılığı olarak 50 milyon lira talep eder. Bakanlık 50 milyon lira ödeneği bulamayınca kılıç tabir yerindeyse " kınına" sokulur.
+     <br>
+      <br>
+       Bu olaydan 7 yıl sonra Aralık 2001"de dönemin TBMM Başkanı Ömer İzgi"nin Romanya"ya yaptığı ziyarette de söz konusu kılıç tekrar gündeme geldi. Bu sefer kutsal kılıcı, Romanya Başbakanı Adrian Nastase istiyordu. Bu istek karşısında şaşıran İzgi"nin cevabı Demirel"in yıllar önce verdiğinden pek farklı olmadı; "Türkiye"ye döndüğümde konuyu incelettireceğim." Ne tevafuktur ki, Nestase"nin cevabı da Iliescu"nun aynısıydı; "Kılıca karşılık, istediğiniz tarihi eserinizin iadesini sağlarız." Stefan"ın kılıcının istenme hikayesi aslında Demirel"den de önceye dayanıyor. Kılıç ilk olarak 1992 tarihinde istenmişti. İki ülke arasındaki siyaset, ekonomi, savunma ve sanayi konularının görüşüldüğü toplantıların ilk maddesi haline gelen kılıç, aleni olarak ve yüksek merciler tarafından ilk kez Süleyman Demirel"in Bükreş ziyareti sırasında gündeme getirildi. Bu tarihten sonra da Romanya"da siyasiler, kılıcı politik bir malzeme olarak kullanmaya başladı. Kılıç, son olarak, başında Cumhurbaşkanı Ahmet Necdet Sezer"den istendi. Resmi ziyaret için Türkiye"ye gelen Romanya Cumhurbaşkanı Ion Iliescu, Sezer"i Çankaya Köşkü"nde ziyaret etti. Resmi törenle karşılanan konuk cumhurbaşkanının Sezer"den ilk istediği Stefan"ın kılıcı oldu.
+       <br/>
+       <br/>
+       Kılıçta sona doğru
+       <br/>
+       <br/>
+       İki ülke arasında yıllardır temaslara konu olan bu hikaye artık neticelenecek ve kılıcın kopyası Büyük Stefan"ın 500. ölüm yıldönümü törenlerinde sergilenmesi için Romanya"ya gönderilecek. Kopya kılıç 1 ay içinde hazırlanacak. Geçtiğimiz hafta Kültür Bakanlığı yetkililerinin anlaştığı uzman usta, yaklaşık 3 milyar lira karşılığında kopya kılıcı bir ay içinde teslim edecek. Tabii eğer bakanlık gereken ödeneği sağlayabilirse.
+       <br/>
+       <br/>
+       Son gelişmelerden sonra Romanya, kılıcı götürmek için iki yoldan birini tercih edecek. Birinci yol, tepki çekmemesi halinde bir heyetin gelip Türkiye"den emaneti alması. Romanya"nın ileri gelenlerinin yanı sıra Türkiye"de tanınan ve sevilen Galatasaraylı eski futbolcular George Hagi ve Popescu da heyette yer alacak. Romanya hükümetinin deneyeceği ikinci yol ise bir yetkilinin sessiz sedasız kılıcı alıp gitmesi olacak. Ancak Romanyalılar, hangi yoldan olursa olsun kılıcın kendilerine ulaşmasının yeterli olacağını düşünüyorlar.
+       <br/>
+       <br/>
+       Bütün bu gelişmelere rağmen kılıcın bir kopyasının Romanya"ya gönderilmemesi halinde iki ülke arasındaki sıcak ilişkilerin sekteye uğrayacağı diplomatik çevrelerce konuşuluyor. Fakat Türkiye"nin bu sefer kılıcın bir kopyasını ne olursa olsun Stefan"ın ölüm yıldönümüne yetiştireceği ve ikili ilişkilerin zedelenmesine imkan verilmeyeceği de belirtiliyor.
+       <br/>
+       <br/>
+       Kılıcın sık sık gündeme gelmesi Topkapı Sarayı"ndaki uzmanları da bıktırmış. Topkapı Sarayı Müzesi Müdür Yardımcısı ve Silah Seksiyonu Sorumlusu Hilmi Aydın kılıcın sürekli gündeme gelmesinden rahatsız olduklarını söylüyor. Aydın konuya şöyle açıklık getiriyor; "Çok konuşuluyor. Dikkatler sürekli buraya çekiliyor. Durmadan soruyorlar, görmek istiyorlar. Sanki müzede başka kılıç yokmuş gibi. Fatih"in kılıcını merak edip bilen yok. Stefan"ın kılıcının bir kopyası teslim edilirse biz de rahatlamış olacağız. Bu konuda araştırmalar ve çalışmalar sürüyor."
+       <br/>
+       <br/>
+       Kılıcın gelişi
+       <br/>
+       <br/>
+       Tarihçiler kılıcın Topkapı Sarayı"na iki yolla ulaşmış olabileceğini belirtiyor. Bunlardan birincisi, 1476"da Fatih Sultan Mehmed"in Akdere"de Boğdanlıları yenerek Boğdan Voyvodası Moldovyalı Stefan"ın (1457-1504) kılıcını da dönüşte saraya getirmesi. İkinci olasılık ise 1484 yılında Sultan 2. Bayezid"in düzenlediği Boğdan Seferi sırasında, Tuna üzerindeki Kili ve Karadeniz kıyısındaki Akkerman kalelerinin ele geçirilmesi ve Boğdan Birliği"nin bozulması sırasında ganimet olarak alınmış olabileceği yolunda.
+       <br/>
+       <br/>
+       Topkapı Sarayı"nda 1/2636 envanter numarasıyla kayıtlı olan kılıç, 125 santim uzunluğunda, kabzası gümüş tel sarmalı ve tepeliği yuvarlak. Üzerinde Latince yazılar bulunan kılıcın tabanı 4 kan oluklu.
+       <br/>
+       <br/>
+       Eski Cumhurbaşkanı Süleyman Demirel, Haziran 1994"te yaptığı Romanya gezisinden dönerken içten içe bir mutluluk duyuyordu. Öyle ki, Demirel kılıcın ısrarla istenmesinden mutlu olmuş ve tarihe geçecek şu cümleyi kullanmıştı; "Osmanlı bize öyle bir miras bırakmış ki, altından kalkamıyoruz..." Demirel"in altından kalkamıyoruz dediği maddi ve manevi değerler ne yazık ki yok ediliyor. Türkiye"ye ait binlerce tarihi eser yurt dışındaki değişik müzelerde sergileniyor. Üstelik bunların gidiş tarihi de en fazla 50 yılı buluyor. Türkiye"deki ilgili kurumların bırakın eserleri geri istemeyi, ne oldukları hakkında net bir bilgileri dahi yok. Romanya ise bir kılıç için kriz oluşturacak kadar konunun üzerine gidiyor. Ve bir soru, Topkapı Sarayı"ndaki silah seksiyonunda kayıtlı 11 bin silahtan acaba kaç kişinin haberi var?
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       BÜYÜK STEFAN (STEPHAN) KİMDİR?
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       Boğdan Voyvodası (1457-1504) Stefan 15. yüzyılın ikinci yarısında güçlü kişiliğiyle Romanya"ya hakim oldu. İlk yıllarda vergisini ödemekle birlikte, sonra Osmanlılar"a karşı harekete geçerek bağımsızlığını kazanmaya çalıştı. Osmanlı devletine bağlı kalan Eflak voyvodaları, Radu 3 Cel Frumes Basarab Tepelus"u (Küçük Kızıklı) ülkeden çıkardı. Fatih Sultan Mehmet, Stefan"ı ortadan kaldırmak için, 1475"te Rumeli Beylerbeyi Hadım Süleyman Paşa komutasında bir ordu gönderdiyse de, Stefan bu orduyu Vashi"de yenilgiye uğrattı. Bu yüzden Papa, kendisine "Athleta Chirsti" (İsa"nın Pehlivanı) unvanını verdi. Ancak Fatih Sultan Mehmet, 1476"da bizzat kendisinin kumanda ettiği seferde Akdere"de Boğdanlılar"ı yenerek, voyvodalığın merkezi olan Suçeava"yı tamamen ele geçirdi. Fakat Yeniçeriler arasında hastalık çıkması yüzünden, Osmanlı ordusu geri çekilmek zorunda kaldı. Öte yandan 2. Bayezid, 1484"te bir Boğdan seferi düzenleyerek, Boğdan"ın kapıları olan Tuna üzerindeki Kili ile Karadeniz kıyısındaki Akkerman"ı kuşattı. Bu kalelerin Stefan"dan alınmasıyla Boğdan Birliği bozuldu. Bu iki şehrin çevresindeki yerler, Türk hakimiyeti altına girdi. Stefan, buraları geri almak için birkaç sefer başlattıysa da başaramadı. 1485"te Lehistan Kralı Kazimierz"den yardım istedi, fakat karşılık alamadı. Yeni Lehistan Kralı Jan Albert durumdan yararlanarak Boğdan"ı ele geçirdi ve yıktı. Bunun üzerine Hıristiyan devletlerinden ümidini keserek Lehistan Kralı"nı ağır bir yenilgiye uğratan Stefan, Osmanlı gücüne boyun eğdi ve 4 bin altına çıkarılan vergiyi ödedi. Oğluna, Boğdan"ı diğer milletlerden daha hakim ve güçlü oldukları için Türklere teslim etmesini vasiyet etti. Stefan"ın bu siyasi vasiyetine bütün Boğdan voyvodaları uydu.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3310&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050121013341/http://www.aksiyon.com.tr:80/detay.php?id=3310&yorum_id=1)

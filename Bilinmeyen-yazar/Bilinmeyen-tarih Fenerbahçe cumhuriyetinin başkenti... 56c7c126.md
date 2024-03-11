@@ -1,0 +1,73 @@
+# Fenerbahçe cumhuriyetinin başkenti...
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040304195810im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040304195810im_/http://www.aksiyon.com.tr/resim/472/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yaklaşık 2 yıldır malum kriz sebebi ile İMKB’de halka arz olmazken Fenerbahçe Sportif A.Ş. bu kesatlığı kıran ilk şirket oldu. Sarı Kanarya, Deniz Yatırım’ın öncülüğünde 2004 yılı başında yüzde 15 oranındaki hissesini sabit fiyatla talep toplama yöntemi ile halka açmayı planlıyor. Deniz Yatırım ile Fenerbahçe Kulübü arasındaki mutabakatın imza töreninde kullanılan ‘Fenerbahçe Cumhuriyeti Halka Açılıyor’ sloganı evdeki hesap iyi işlerse tutacağa benzer. Galatasaray ve Beşiktaş spor kulüpleri ile Fenerbahçe’nin halka arz zamanlaması kıyaslandığında Fenerbahçe’nin daha doğru bir dönemi tespit ettiği fark ediliyor. Zira borsaya üç senedir görülmedik şekilde para girişi oluyor ve yine endeks üç senedir tırmanamadığı rakamlara ulaştı.
+ </font>
+ <p>
+  <font class="content">
+   Halka açılacak olan şirketin 50 milyar lira olan sermayesi bedelli artırımla 25 trilyona çıkarılacak ve sermaye artırımının ardından yüzde 15’i ortak satış yolu ile halka açılacak. Halka arzın yurtdışındaki roadshow’unu Exspres Yatırım yapacak. Fenerbahçe Sportif A.Ş.ye maç yayın gelirleri, stadyum gelirlerinin büyük bir kısmı, reklam gelirleri, sponsorluk gelirleri, lisans ve ticari ürünün isim hakkı gelirleri, stadın yanına yapılacak alışveriş ve otopark kompleksinden elde edilecek gelirleri aktarılacak.
+   <br/>
+   <br/>
+   Fenerbahçe Kulübü Başkanı Aziz Yıldırım, kulübün 2006’ya kadar bağlanmış borçlarının 65 milyon dolar olduğunu ancak yine aynı dönemde gelirlerin ve alacaklarının 130 milyon doları bulduğunu söylüyor. Yıldırım ayrıca ilk hedeflerinin 70 milyon dolar bütçesi olan bir Fenerbahçe’yi oluşturduktan sonra bu bütçeyi 2005 yılında 100 milyon dolara çıkarmayı hedeflediklerini kaydediyor. Bu arada Deniz Yatırım’ın Fenerbahçe’nin halka arzına aracılık edeceğini açıklaması borsada şirketin işlem gören hisselerinin iki gün tavan yapmasını sağladı.
+   <br/>
+   <br/>
+   Sonera’dan Turkcell’e Noel sitemi
+   <br/>
+   <br/>
+   Başbakan Recep Tayyip Erdoğan, İtalya’ya yaptığı gezinin ramazan ayına denk gelmesi sebebi ile seferi olduğu için oruç tutmamış ve İtalya Başbakan’ı Berlusconi ile öğle yemeği yemişti. Ancak herkes Erdoğan gibi olmuyor. Batı ülkelerinde en fazla önem verilen bayram herhalde yılbaşı öncesindeki Şükran Bayramı. O gün aile fertleri, bütün işlerini bırakarak bir araya gelmeye çalışır ve ertesi gün hayat durur.
+   <br/>
+   <br/>
+   Çukurova Grubu’nun patronu Karamehmet’in Turkcell genel kurulunu Noel arefesinde toplayacak olması bir siteme sebep oldu. Yabancı ortağı Harri Koponen, ‘Ben Müslüman kardeşlerimin dini bayramında toplantı yapmazdım’ deyiverdi. TeliaSonera yöneticileri ise çaresiz, bu önemli dini bayramlarını ailelerinden uzak, Türkiye’de geçirmek zorunda kalacaklar.
+   <br/>
+   <br/>
+   Başarısız–SA bitireceksin
+   <br/>
+   <br/>
+   Yabancı ortaklı şirketleri ile ün kazanan hatta tek başına bile girebileceği sektörlere yabancı ortak arayan Sabancı Grubu’na nazar değdi. İki yıl önce otomobil üretiminde Japon Toyota ile ortaklığına aniden ve nedeni pek anlaşılamayan bir sebeple son veren Sabancı Holding, bu sefer Fransız Danone Grubu ile yollarını ayırdı. Sabancı gıda sektöründe 6 yıl önce yüzde 50—50 ortak olduğu DanoneSA’daki hisselerini Fransız ortağına sattı. Sabancı, hisseleri 72 milyon dolara devrettiğini açıkladı. Sabancı Grubu’nun, tek başına da piyasada büyüyebileceğini ve daha kârlı hale gelebileceğini gördükten sonra Danone ismine ihtiyaç duymadığı konuşuluyor. Şu halde Sabancı Holding kendi ürünleri ile ya da yeni bir ürünle piyasaya girmeyi hesaplıyor. Yeni bir su markası oluşturmayı ve gıdada Piyale markasına daha ciddi olarak eğilmeyi amaçladığı belirtiliyor. Hayat, Flora gibi markalar da Danone’de kalacak. Danone özellikle Avrupalı turistlerin geldiği bölgelerde Avrupa’da bilinen ve güvenilen bir marka olduğu için yabancıların tercih sebebi idi. Anlaşılan kârın paylaşımı iki tarafı da memnun etmedi.
+   <br/>
+   <br/>
+   DanoneSA, 1 Mart 1997’de gıda ve içecek sektöründe faaliyet göstermek üzere kurulmuştu. Hayat Su Pozantı tesislerinde şişelenmiş su ile faaliyetlerine başlayan şirket, 1998’de Tikveşli’yi bünyesine kattı. 1999’da Akmina Maden Suyu fabrikasını açan şirket, Nisan 2000’de Flora Su’nun üretimine başladı. 850 çalışanı olan şirketin Türkiye’de toplam altı üretim tesisi bulunuyor.
+   <br/>
+   <br/>
+   BDDK’nın kararları Danıştay’dan dönüyor!
+   <br/>
+   <br/>
+   BDDK tarafından Kentbank’a el konulmasının haksız sebeplere dayandığı yönündeki Danıştay kararının ardından aynı paraleldeki şok karar Demirbank için de geldi. 2001 krizini tetikleyen en önemli sebeb olarak bilinen Demirbank’a el konulmasının muvazaalı hale gelmesi yeni soru işaretlerini de beraberinde getirdi. Danıştay İdari Dava Daireleri Genel Kurulu, 350 milyon dolara HSBC Bank’a satılan Demirbank’ın Fon’a devrine ilişkin Bankacılık Düzenleme ve Denetleme Kurulu (BDDK) kararının iptal isteminin reddine ilişkin 10. Daire kararını esastan bozdu. Dava, gerekçeli kararın ardından yeniden görüşülecek. Demirbank’ın eski patronu Halit Cıngıllıoğlu, bankanın devletin ekonomik programına güvenerek Hazine Bonosu aldığını ve bunun neticesinde gelişen olaylarla Fon’a devredildiğini öne sürmüştü. Cıngıllıoğlu, BDDK’ nın, bankaya el konmadan önce uyarı yapmadığını ve sermaye artırımı için süre tanınmadığını da dile getirmişti. Danıştay 10. Daire’de görülen davada Cıngıllıoğlu’nun avukatları da Merkez Bankası’ndan Demirbank’a kriz döneminde aktarılan krediye piyasa rayicinin çok üzerinde, yüzde 200 faiz uygulandığını dile getirmişti. Danıştay’ın Kentbank’la ilgili aldığı karar, bankanın eski sahibi Mustafa Süzer’i harekete geçirdi. Süzer’in yakın çevresine bankanın ve personelin hazır olduğunu ve yeniden sektöre geri dönmeyi planladığını söylediği ileri sürülüyor.
+   <br/>
+   <br/>
+   Çin’e kota Türk tekstilciye yarayacak
+   <br/>
+   <br/>
+   ABD’nin gelecekteki rakibi Çin’in tekstil ürünlerine kota koyacağını açıklamasının Türk tekstilcilerinin önünü açacağı belirtiliyor. Kota kararı Çin’in elini kolunu bağlıyor, ancak bir yıllığına. Kısa vadede Türkiye için ABD pazarında kaybettiği pazar payını yeniden kazanması konusunda fırsat oluşturuoyr. Fakat kota süresinin bir yıl olduğu, Türk işletmelerinin bu sürede kalıcı hale gelmeleri gerektiği üzerinde duruluyor.
+   <br/>
+   <br/>
+   Haftanın yorumu
+   <br/>
+   <br/>
+   İMKB 100 endeksi haftayı yeni bir zirveden, 18.206 noktasından kapattı. İşlem hacmindeki 1.67 katrilyon liralık artışın desteklediği bu yükseliş sayesinde endeks için piyasada bir süredir konuşulan 20.000 hedefinin yakalanması reel bir hedef olmaya başladı. Ancak kısa vadede iki gündür soluksuz yükselen piyasa için bir düzeltme hareketi beklemenin yanlış olmayacağını akılda tutmak gerekiyor. 18.210 seviyesinde gelen kâr satışlarının ise yeni alımlarla rahatlıkla karşılandığı ve yükseliş hareketinin başta İMKB 30 hisseleri olmak üzere genele yayıldığı görüldü.  Son gün İMKB 50 içinde en çok artan hisseler ve oranları ise şöyle: Şişecam yüzde 12.6, İhlas yüzde 10.17, Alcatel Teletaş  yüzde 8.73, Netaş yüzde 6.21 ve Tüpraş yüzde 5.45.
+   <br/>
+   <br/>
+   Piyasalar neyi satın alıyor?  Herşeyden önce, 2004 yılının en azından ilk yarısı için öngörülen olumlu makro ekonomik beklentileri, Kıbrıs’ta çözüm beklentilerini, 6. Gözden Geçirme’nin tamamlanmış olmasını ve muhtemel faiz indirimi beklentisini...  Görünen o ki piyasa, ekonomik programın başarıya ulaşıyor olmasıyla yakaladığı olumlu rüzgarı, yine bu alanda bir sorun yaşanmadığı müddetçe arkasına alıp yoluna devam etmeyi tercih ve umut ediyor...
+   <br/>
+   <br/>
+   Enflasyon gitti muhasebesi geldi
+   <br/>
+   <br/>
+   Türkiye’nin kronik enflasyonla tanıştığı günden beri talep edilen ancak hiçbir hükümetin geçmeye cesaret edemediği enflasyon muhasebesi nihayet yasalaştı. Geçmiş hükümetler, toplanan vergilerin azalmasından endişe ettiği için  söz konusu sisteme geçemiyordu. Enflasyonun düşmesi AKP Hükümeti’ne bu imkanı verdi. Fakat enflasyonun tek haneli rakamlara yaklaşacağı hesaplandığında muhasebesine geçilmesinin pek bir anlamının kalmadığı konuşuluyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3305&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040304195810/http://www.aksiyon.com.tr:80/detay.php?id=3305&yorum_id=1)

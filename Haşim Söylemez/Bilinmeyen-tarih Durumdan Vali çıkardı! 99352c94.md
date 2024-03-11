@@ -1,0 +1,73 @@
+# Durumdan Vali çıkardı!
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214005im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214005im_/http://www.aksiyon.com.tr/resim/341/11.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Darbe... Türkiye’de binlerce insanın hafızasında çok önemli bir yeri işgal ediyor. Darbe eşittir ihtilal. İşte böylesine hafızalarda yer edinen ve kelime olarak soğuk bir havayı çağrıştıran “darbe” Türkiye Cumhuriyeti tarihinde çok önemli dönüm noktalarını oluşturur.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   27 Mayıs, ardından 12 Eylül askeri darbeleriyle literatürümüze giren darbe sözcüğü o günlerden günümüze kadar hep tartışıldı, tartışılmaya devam ediliyor. Darbeler gerekliydi, ülkeyi geri götürdü, askeri güç sivil yönetimi alaşağı edemez bunun için gereksiz hatta acı bir vakadır şeklinde polemiklere konu oldu. Hep soğuk bir yüzle karşımıza çıkan darbelerin arka bahçesindeki komik sayılabilecek olayları gözardı etmek de mümkün değil. 27 Mayıs 1960 Askeri Darbesi’nde darbenin içinde bulunan ve Kurmay Albay rütbesiyle önemli bir konumda olan Emekli Kurmay Albay Haydar Gürsan’ın yaşadığı trajikomik olayı kendi ağzından dinledik. İşte size 27 Mayıs Darbesi’ndeki otorite boşluğundan doğan ilginç, bir o kadar da karmaşık Bursa olayı.
+   <br>
+    <br>
+     Hem izin hem görev
+     <br>
+      <br>
+       Emekli Kurmay Albay Haydar Gürsan’ın 27 Mayıs Darbesi’nde yaşamış olduğu olayı anlayabilmek için darbe öncesini ve sonrasını iyi anlamak gerekiyor. Bunun için Kurmay Albay Gürsan’ın anlattıklarını en ince ayrıntısına kadar ele almak lazım. Gürsan, 27 Mayıs öncesinde Balıkesir’de hava uçuşlarına katılmak ve ardından da Bursa’ya gidip hem kayınpederini ziyaret etmek, hem de bir hafta dinlenmek için darbeden iki gün önce Ankara’dan yola çıkar. Balıkesir’deki uçuşlara katılan Gürsan darbeden bir gün önce Balıkesir’den Bursa’ya gelir. Burada ziyaretlerde bulunarak bir haftalık tatili için programlar yapar. Ancak bu programlarının bir askeri darbe ile bozulacağını bilmemektedir. Eşi ile birlikte kayınpederinin evinde oldukça keyifli bir gün geçiren Gürsan, gece yarısı çalan bir telefonla hayatındaki Refah Vapuru’nun batışından sonraki ikinci ilginç olayı yaşamak üzeredir. Arayan kayınbiraderidir ve verdiği haber de ihtilalin gerçekleştiği haberidir. Gürsan buraya kadar olan gelişmeleri şöyle anlatıyor: “Darbe olacağını biz askerler az–çok tahmin ediyorduk. Ancak bu kadar erken olacağını bilmiyorduk. Bu yüzden izin isteğim bile üstlerim tarafından bana bir ödül olarak sunulmuştu. Onlar da o kadar erken olacağını bilmiyorlardı. Ben de zaten izine çıkmış gibi kendimi ayarlamıştım. Fakat iznimi daha ilk günde bitirmek zorunda kaldım. Refah Faciası’ndan sonra başıma gelecek ikinci ilginç olayın farkında değildim. Ancak mutlaka darbenin içinde görev almalıydım. Çünkü, ben bir üst rütbeliydim ve vazifemin başında olmalıydım.”
+       <br/>
+       <br/>
+       Aklıma geldi, göreve koştum
+       <br/>
+       <br/>
+       Kayınbiraderinin ihtilal gerçekleşti haberini vermesinden sonra Gürsan, giymesine çok kısa bir süre kaldığı için önceden hazırlatmış olduğu yarbay üniformasını giyer ve eline küçük bir radyo alarak, karanlıkta Bursa sokaklarına düşer. Kurmay albay olan ancak yarbay üniforması ile yola koyulan Gürsan ilk karşılaştığı bekçiye Bursa’daki askeri birliğin yerini sorar. Adres tarifini almasından yarım saat sonra kendisini birlikteki Albay’ın odasında bulur. Selam veren Gürsan, “Ben Ankara’dan geldim, görev almak istiyorum, bana yardımıcı olun” der. Ancak nizamiyedeki Albay bunun için yetki belgesini ister, Gürsan; “Ankara’dan geldim, görev istiyorum” sözünü sert bir şekilde takrarlayınca, oradaki görevli hemen kendisine selam vererek Gürsan’ın emrinde olacağını bildirir. Gürsan ilk iş olarak valilik makamına gitmek ister, bunun için araba ve bir kaç asker 5 dakika içerisinde hemen kapıda hazır olur. 15–20 dakika sonra Bursa Valisi İhsan Sabri Çağlayangil’in odasına giren Gürsan darbenin olduğunun bunun için görevi devralmak isteğini valiye iletir. Vali Çağlayangil hiçbir mukavemet göstermeden valilik makamını terk eder. Yarbay (Kurmay Albay) Haydar Gürsan’ın “Halk bizi istedi artık biz burada olacağız. Makam arabası sizi evinize kadar götürecek. Lütfen evinizden ayrılmayın. Zaman zaman sizden bilgi alacağım. Telefon konuşmalarınız dinlenecek. Kiminle konuşursanız bizim haberimiz olacak, ona göre hareket ediniz. Size dokunulmayacak, güç ve kuvvet kullanılmayacak, serbestsiniz ancak göz hapsinde olacaksınız. Ne yaptığınızdan artık biz sorumluyuz” sözlerine karşılık Vali Çağlayangil şu cevabı verir; “ Bu araba bu makama aittir, o ev de bu makamın sahibinindir. Ben ne evi ne de arabayı istiyorum. Ancak size gerektiğinde yardımcı olacağım. Bu görev sizin olmuştur” şeklinde cevap verir. Bu diyaloğun ardından vali, valilik binasını terk eder; artık Bursa’nın darbe valisi Haydar Gürsan’dır.
+       <br/>
+       <br/>
+       Bütün bu hareketleri bir refleks sonucu olarak yaptığını söyleyen Gürsan sözlerini şöyle sürdürüyor: “Ben bu günler için yetiştirilmiştim. Bunun için bu vazifeyi almak zorundaydım, en azından ben öyle hissediyordum. Bütün bunları yaparken bir emir almamıştım ancak sanki sürekli biri beni itiyordu. Ben de herşeye katlanıp bir refleks gereği Bursa’da valilik koltuğuna oturdum. Ben olmasaydım Bursa’daki arkadaşlarım Ankara’dan gelecek olan emri beklerlerdi. Bu emir de herhalde böylesine karışık bir ortamda ancak 1 ayda gelirdi. Bunu beklemenin anlamı da yoktu. Eğer darbe varsa bizler de görevimizin başında olmalıydık. Vali Çağlayangil’in zaten darbeden haberi vardı. Bu yüzden hemen makamına koşmuştu. Bana hiç zorluk çıkarmadı. Yürekli bir adamdı. Valiliğe ait arabaya bile binmek istemedi.”
+       <br/>
+       <br/>
+       3 gün dayanabildim
+       <br/>
+       <br/>
+       Darbenin ardından 3 gün geçer ancak kimse Kurmay Albay (Vali) Haydar Gürsan’ı arayıp sormaz. Daha doğrusu Gürsan’ın Bursa’da vali olduğundan kimsenin haberi yoktur. Gürsan yaşamış olduğu valilik günlerini bir ibret vesikası teşkil edecek şu sözleriyle anlatıyor: “Aradan üç gün geçti. Hiçbir sivil işten anlamam. Ne yapacağımı bile bilmiyordum. Nasıl valilik yapılır, ne edilir kestiremiyordum. 225 lira maaş alıyordum ve ayın sonu gelmişti zaten. Cebimde para bile kalmadı. Kimse arayıp sormuyor. Günlerce uyumadım, yıkanmadım. Artık çekilecek bir hal yoktu. Bütün bunlar yetmiyormuş gibi bir de darbeye karşı olanlarla mücadele ediyordum. Bir taraftan komünistler, bir taraftan da camilerde vaizler darbenin aleyhine konuşuyor, halkı kışkırtıyorlardı. Ben müftü ve vaizleri çağırıp, bir daha darbe aleyhine konuşmamalarını, sonra başlarına geleceklerden sorumlu olmayacağımı söyledim. Bir daha da camilerde darbe konuşulmadı. Vaizlere tembih ettiğim gibi artık camilerde dini konular konuşuluyordu.”
+       <br/>
+       <br/>
+       Darbe boşluğunda apar topar Bursa Valisi olan Haydar Gürsan sadece 3 gün dayanabildiği valilik makamını terk ederek eşi Berihan Gürsan ile birlikte, daha önce sadece kurmay albay olarak geldiği Bursa’dan Kurmay Albay Vali Haydar Gürsan olarak Ankara’nın yolunu tutar. Gürsan; “Bu işi yapamayacağımı anladım. Zaten boşlukta bu makamı ele geçirmiştim. Ortalık yatışmıştı. Görevi bırakma zamanım gelmişti. Ankara’ya gidip bunu üstlerime bildirecektim” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       İstediğin yere vali yapalım
+       <br/>
+       <br/>
+       Ankara’ya ulaşan Kurmay Albay Haydar Gürsan, darbenin ardından kendisinin Bursa’da valilik makamını ele geçirdiğini ve burada valilik yaptığını üstlerine anlatır. Gürsan’ın bu davranışını beğenen üstleri kendisini içişleri bakanı ile görüştürürler, bakan ve üstleri kendisinin dilemesi halinde Türkiye’de İstanbul, İzmir başta olmak üzere istediği ile vali olarak atayabileceklerini teklif ederler. Ancak Gürsan oldukça iyi sayılabilecek bu teklife karşılık orduda kalıp eski görevine devam etmek istediğini bildirir. Yapılan ısrarlar da sonuç vermeyince Gürsan’a eski görevi iade edilir.
+       <br/>
+       <br/>
+       Emekli Kurmay Albay Haydar Gürsan istemesi halinde İstanbul Valisi bile olabileceğini belirterek; “Önce içişleri bakanı, ardından üstlerim bana açık bir teklif verdiler. Türkiye’de nereyi istesem bana oranın valiliğini vereceklerdi. Ancak ben eski görevimde kalmak istedim. Çünkü, ben eski görevimi, yani ordudaki görevimi çok seviyordum. Zaten valilikten de hiç anlamazdım. O işin üstesinden gelemezdim” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       İlginç bir yaşam
+       <br/>
+       <br/>
+       Şu an 83 yaşında olan ve Ankara’da yaşayan Emekli Kurmay Albay Haydar Gürsan’ın oldukça ilginç bir yaşam öyküsü var. Gürsan karacı iken havacı olmak için II. Dünya Savaşı sırasında İngiltere’ye pilotluk eğitimi almak amacıyla yola çıkar ve 1941’de Fransızlar (!) tarafından batırılan Refah Vapuru’ndan denize düşer. Mücizevi bir şekilde denizde 45 saat kaldıktan sonra kurtulur. Gürsan 16 arkadaşını kaybettiği bu facianın ardından İngiltere’ye gidip pilotluk eğitimi alır. Türkiye’nin ilk askeri pilotlarından olan Gürsan, daha sonra çeşitli görevlerde bulunur. Yarbaylığına çok kısa bir süre kalmasına rağmen emekli olur ve Emekli Kurmay Albay olarak şu anda çocuklarıyla birlikte Ankara’da özel bir havacılık şirketini işletiyor.
+       <br/>
+       <br/>
+       e—mail: hsoylemez@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12726), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214005/http://www.aksiyon.com.tr:80/detay.php?id=12726)

@@ -1,0 +1,64 @@
+# Plakalı futbolcular
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093302im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093302im_/http://www.aksiyon.com.tr/resim/358/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türk futbolunun yetiştirdiği en büyük golcülerden Hakar Şükür, altı yıl evvel İtalya’nın Torino takımına transfer olduğunda memleket hasretiyle yanıp tutuşmaya başlamış, bir ay sonra da Galatasaray’a geri dönmüştü.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Üç yıl önce de Trabzonsporlu Hami Mandıralı Schalke 04’ün yolunu tutmuş, gurbetçilerin desteğine rağmen Almanya’nın havasına suyuna alışamayınca tekrar Bordo—Mavili formayı giymeye başlamıştı. Türk futbolcusu, ne kadar profesyonel olursa olsun, ne kadar para kazanırsa kazansın, yine de memleket özlemini bastırmakta zorluk çekiyor. Bunu, Süper Lig’de top koşturan futbolcuların forma numaralarına baktığımız zaman da çok net bir şekilde görmek mümkün. Futbolcular, bir taraftan para kazandıkları kulübün başarısı için ter dökerlerken, bir taraftan da forma numarası olarak memleketlerinin plakasını tercih ederek sıla özlemlerini gidermeye çalışıyorlar.
+   <br>
+    <br>
+     Futbolcuların beşte biri plakalı
+     <br>
+      <br>
+       Şu anda Süper Lig’de forma giyen yaklaşık beş yüz futbolcunun neredeyse beşte biri sırtında memleketinin plakasıyla sahaya çıkıyor. Süper Lig’in on yedi takımında toplam 84 futbolcu, forma numarası olarak memleketinin plakasını taşıyor. Bunlara, Sakarya’nın plaka numarası 54 ile top koşturan İnterli Hakan Şükür’ü ve geçen ay Fatih Terim’in çalıştırdığı Milan’a transfer olup forma numarası olarak İstanbul’un plakası 34’ü seçen Ümit Davala’yı da eklemek gerekiyor. Bir de memleketi olmadığı halde başka illerin plaka numarasını tercih edenler var. Fenerbahçeli Yusuf Şimşek, Antalya Elmalılı olmasına rağmen Denizlispor’dan Sarı—Lacivertli takıma transfer olduğu için forma numarası olarak Denizli’nin plakası 20’yi tercih etti. Beşiktaş’ın orta saha oyuncusu İbrahim Üzülmez, Kocaelili olmasına rağmen, futbolculuk yeteneği Çorum’da askerlik yaparken keşfedildiği için forma numarası olarak 19’u seçti. Kocaelisporlu Serdar Topraktepe, İstanbullu olmasına rağmen top koşturduğu şehrin plaka numarasıyla sahaya çıkıyor. Bunlara ilaveten, Türk asıllı olmayıp da bir ilimizin plakasını tercih eden futbolcu bile var. Bu isim, yıllardır çeşitli takımlarda forma giyip Türkçeyi düzgün bir şekilde konuşabilen Fernand Coulibaly. Malili futbolcu, bir zamanlar formasını giydiği ve çok sevdiği Gaziantep’in plakası 27 ile şu anda Denizlispor’da top koşturuyor.
+       <br/>
+       <br/>
+       10 numara kavgası mazide kaldı
+       <br/>
+       <br/>
+       Bundan üç yıl öncesine kadar futbolcular arasında başta 10 olmak üzere numara kavgası olurdu. Mesela, bir zamanlar Fenerbahçe’de birlikte top koşturan Oğuz Çetin ile Tanju Çolak, 10 numaralı formayı giyebilmek için epey mücadele etmişlerdi. Şimdi ise daha çok memleket plakaları tercih ediliyor. Bir takımda birden fazla aynı memleketten oyuncu varsa, aralarında anlaşıyorlar ve bir sezon biri, bir sezon da diğeri o plakayı taşıyor. Bunu Antalyaspor ve İstanbulspor’daki futbolcular arasında görmek mümkün. İstanbulspor’da geçen yıl 61 numaralı formayı kaleci Haluk giyiyordu, bu sezon ise Güven... Yine İstanbulspor’da 45 numaralı formayı geçen sezon Zeki Önatlı giyiyordu, bu yıl ise Bekir Gür... Antalyaspor’da geçen sezon kaleci Adnan Karahan 61 numara ile sahaya çıkıyordu, bu yıl ise Selahattin Kınalı... Futbolcuların memleket plakalarını tercih etmeleri de üç yıl önce başladı. UEFA, her futbolcunun istediği numarayı taşımasına izin verince, Galatasaraylı Ergün Penbe, memleketi Zonguldak’ın plakası 67’yi sırtına geçirdi ve yeşil sahalarda yeni bir moda başlatmış oldu.
+       <br/>
+       <br/>
+       En çok Trabzonlular tercih ediyor
+       <br/>
+       <br/>
+       Şu anda Süper Lig’de forma giyen 38 Trabzonlu futbolcu var ve memleket plakasını en çok tercih eden onlar. Şu anda Süper Lig’de 9 tane Trabzonlu futbolcu 61 numaralı formayı giyiyor. Bu futbolcular, Trabzonsporlu Gökdeniz Karadeniz, Antalyasporlu Selahattin Kınalı, Diyarbakırsporlu Sinan Közen, Galatasaraylı Mehmet Bölükbaşı, Gençlerbirliğili Ziya Aydın, Gaziantepsporlu Fatih Tekke, Malatyasporlu Ayhan Şirin, İstanbulsporlu Güven Kocabal ve geçen hafta kiralık olarak Trabzonspor’a verilen Göztepeli kaleci Bülent Ataman. Trabzon’dan sonra 6 futbolcu ile İstanbul, 5 futbolcu ile Sakarya, 4 futbolcu ile de Rize ve Manisa geliyor.
+       <br/>
+       <br/>
+       En çok plakalı Malatyaspor’da
+       <br/>
+       <br/>
+       En çok plakalı futbolcunun bulunduğu takım da Malatyaspor. Sarı—Kırmızılı takımda Ömer Gündostu 54 (Sakarya), Murat Kurt 44 (Malatya), Ali Kemal Arslan 62 (Tunceli), Levent Gündoğdu 27 (Gaziantep), Şehmus Özer 21 (Diyarbakır), Ali Kulaksız 53 (Rize), Ayhan Şirin 61 (Trabzon), Abdülkadir Demirci 6 (Ankara), Nesim Özgür 34 (İstanbul), Cemal Koç da 33 (Mersin) numaralı formayı giyiyor. Plakalı futbolcuların en çok bulunduğu takım olarak Malatyaspor’dan sonra 8 futbolcu ile Denizlispor, 7 futbolcu ile Çaykur Rizespor, 6 futbolcu ile de Antalyaspor, Gaziantepspor ve Yimpaş Yozgatspor geliyor.
+       <br/>
+       <br/>
+       Plaka daha da hırslandırıyor
+       <br/>
+       <br/>
+       Trabzonlu olan ve bu sezon 61 numaralı forma ile mücadele eden İstanbulsporlu Güven Kocabal, numara tercihiyle ilgili olarak şunları söylüyor: ‘Trabzonluyum ve Trabzon’u çok seviyorum. O yüzden 61 numarayı tercih ettim. Bu numarayla sahaya çıkınca daha da mutlu oluyorum ve formamın hakkını fazlasıyla vermek istiyorum. Bu da bana avantaj sağlıyor tabii ki. Artık futbolcuların memleket plakasını taşıması bir gelenek haline geldi. Bizde üç tane Trabzonlu futbolcu var. Geçen yıl Haluk abi giymişti, bu sene ben giyiyorum. Gelecek sezon da herhalde Bülent (Üçüncü) abi giyer.’ Manisalı olan ve 45 numaralı forma ile rakip oyunculara geçit vermeyen İstanbulsporlu defans oyuncusu Bekir Gür’ün düşünceleri de şöyle: ‘Geçen yıl ben 17 numaralı formayı giyiyordum. Memleketliler biraz sitemde bulundular, ‘Neden Manisa’nın plakasını tercih etmedin?’ diye... Gerçi geçen yıl 45 numaralı formayı Zeki (Önatlı) abi giymişti. O da Manisalı çünkü. Annesi babası orada yaşıyor. Bu sezon 45’i sen giy, dedi. Kendisi de Manisa’ya en yakın il olan İzmir’in plakasını tercih etti. Memleketin plakasını taşımak hakikaten diğer numaralardan farklı. İnsan hem mutlu oluyor, hem de memleketimin hakkını vereyim, diye düşünüyor.’
+       <br/>
+       <br/>
+       E—mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12754), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093302/http://www.aksiyon.com.tr:80/detay.php?id=12754)

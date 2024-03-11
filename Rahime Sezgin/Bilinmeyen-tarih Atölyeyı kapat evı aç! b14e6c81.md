@@ -1,0 +1,61 @@
+# Atölyeyı kapat, evı aç!
+
+*Rahime Sezgin Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092337im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092337im_/http://www.aksiyon.com.tr/resim/364/29.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Krizin en çok vurduğu kesimlerden olan küçük tekstil üreticileri artık evlere taşınıyor. Kimi tekstilci kapattığı atölyesindeki makinalardan birkaçını evine taşıyıp “Karnımızı doyursak kârdır” diyerek ailece çalışıyor. Böylece işçi yükünden kurtulan, ‘işyeri’ giderlerini de azaltan üretici en azından çorba parasını çıkarmaya çalışıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye’nin içine düştüğü ekonomik darboğaz her geçen gün büyüyor. Son krizle birlikte işini kaybeden sigortalı işçilerin sayısı dokuz yüz altmış bin. Sigortasız olup da işini kaybedenlerin sayısı ise bilinmiyor. Krizin en çok vurduğu sektörlerden biri de tekstil. Kayıtlı ekonomide her dönem en yüksek istihdamı sağlayan tekstil sektöründe küçük çaplı atölyeler çalışanların ücretlerini bile karşılayamadığı için iflas edip kapanıyor.
+   <br>
+    <br>
+     Evler iş yeri
+     <br>
+      <br>
+       Bir zamanlar her köşe başında, elektrik direğinde “Overlokçu, reşmeci, makinacı, son ütücü, kalite kontrolcü aranıyor. “Ücret+sigorta+yemek” yazılı ilanlarını gördüğümüz tekstil atölyeleri birer ikişer kepenkelerini indirirken bir farklı bir çalışma mekanında hayatımıza yerleşmesine de sebep oluyorlar: Atölye evler.
+       <br/>
+       <br/>
+       Dükkan kiralarını, ağır vergi yüklerini, işçi sigortalarını ve işçi ücretlerini karşılayamayan küçük müessese sahipleri artık iş yerlerini kapatarak evlerinde ayırdıkları bir odada üretim yapıyorlar. Kimi tekstilci kapattığı atölyesindeki makinalardan birkaçını evine taşıyıp “Karnımızı doyursak kârdır” diyerek ailece çalışıyor. Kimi de atölyesindeki çalışanların sayısında indirime giderek üretimin bazı aşamaları için evlere fason iş veriyor. Böylece yapılan işin maliyeti düşüyor ve işçi yükünden kurtulan, işyeri giderlerini azaltan üretici çorba parasını çıkarmaya çalışıyor.
+       <br/>
+       <br/>
+       Karı koca çalışıyorlar
+       <br/>
+       <br/>
+       Hayri Kalkan da son yaşanan krize kadar bir iş sahibi olan tekstilcilerden biri. Yurt dışına ihraç edilen pijama takımları diken Kalkan krizin ilk başladığı dönemde yanında çalışan otuz beş işçiden on beşini çıkarmak zorunda kaldığını söylüyor. Fakat zamanla kazandığı parayla iş yerini döndüremediği için zarar etmeğe ifade ederek belli bir müddet sonra ise kalan işçilerin ücretini ve sigortalarını da karşılayamamış. İflasın eşiğine geldiğinde iş yerini kapattığını söyleyen Kalkan borçlarını ödemek için makinalarını satmış. Daha sonra evine iki tane makina alan Kalkan eşi ile birlikte evde çalışmaya başlamış. İki kişinin çalışmasıyla çok seri üretim yapamadıklarını söyleyen Kalkan, kıt kanaat geçindiklerini ama en azından bir iş yerinin getirdiği zorluklardan kurtulduğunu söylüyor. İşini evinde yapmasının utanılacak bir yanı olmamasına, hatta saygı duyulacak yönü olmasına rağmen, Kalkan ailesi fotoğraf çekmemize nedense izin vermedi.
+       <br/>
+       <br/>
+       Üretici çare arıyor
+       <br/>
+       <br/>
+       Tekstil üreticisinin krizle birlikte çeşitli çareler aradığını belirten İstanbul Ticaret Odası Başkanı Mehmet Yıldırım evlerde yapılan işlerde son zamanlarda yüzde kırklık bir artış olduğunu belirtiyor: “Küçük tekstil üreticisi ekonomik krizin olumsuzluklarını en fazla yaşayan kesimlerden biri. Üretici artık çalışanların getirdiği yüklerden kurtulmak istiyor. Bu yüzden evlere fason iş veriliyor. Böylelikle işçinin sigorta ücretinden, yol masrafından ve yemek masrafından kurtuluyorsunuz. Evlere belirli adetlerde verilen işler daha ucuza mal oluyor tekstilciler için. Bu yüzden tekstil üretimine evlerden yapılan katkı arttı. Artık malların overlokları, vatka dikimleri, fermuarları, ilikleri evde yapılıyor ve fabrikalar tarafından adet üzerinden para ödeniyor.”
+       <br/>
+       <br/>
+       Küçük tekstil üreticileri bir yana büyük fabrikalar bile çalışanların getirdiği masraflardan kurtulmak için işçi sayısını asgariye indiriyor. İşçi yükünden kurtulmak isteyen büyük fabrikalar da evlerinde çalışan ve sadece yaptığı işin ücretini alan, fabrikaya başka hiç bir maliyeti olmayan dışarıdan çalışanları tercih ediyor. Büyük işletmeleri bile dara sokan ekonomik koşullar bu şekilde devam ederse anlaşılan fason işler rağbete binecek, işyerine dönüşen evlerin sayısı her geçen gün artacak ve sigortalı işçiler tarihe karışacak.
+       <br/>
+       <br/>
+       Evlerdeki tekstille ilgili artan işler sadece fason işlerle de sınırlı değil elbette. Uzun zamandır hazır giyimin gadrine uğrayıp sehpa niyetine üzerine örtü örtülen “gelin kızın rüyası” çeyizlik dikiş makinaları da günlük hayatta yerini almaya başladı. Dikiş bilen ev hanımları artık kendilerinin ve çocuklarının giyim ihtiyaçlarını kendi elleriyle temin ettikleri gibi konu komşuya dikiş dikerek de aile bütçesine katkıda bulunuyorlar.
+       <br/>
+       <br/>
+       Modern yaşantıya geçmeden önce her evde bir tezgah bulunur, hanımlar kendi eğirdikleri iplerle giysilik, döşemelik kumaşlarını, halılarını, kilimlerini kendileri dokurlar, elbiselerini kendileri dikerlermiş. Buldan gibi bazı yörelerde bu geleneğin kalıntıları hâlâ yaşıyor. Sonra ilk önce tezgahlar ortadan kalktı, kumaşlar hazır alınıp evlerde dikilmeye başlandı, ardından da dikiş makinalarının tıkırtılarını işitmez olduk. Şimdi aynı tıkırtılar yeniden duyulmaya başladı evlerin odalarında. Tarih tekerrür mü ediyor ne?..
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12453), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092337/http://www.aksiyon.com.tr:80/detay.php?id=12453)

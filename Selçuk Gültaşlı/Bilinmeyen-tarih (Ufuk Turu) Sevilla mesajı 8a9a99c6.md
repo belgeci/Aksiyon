@@ -1,0 +1,36 @@
+# (Ufuk Turu) Sevilla mesajı
+
+*Selçuk Gültaşlı Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bir dönem Endülüs’ün başkentliğini yapmış ve şu an İspanya’nın Endülüs eyaletinin başşehri Sevilla’dan Avrupa Birliği’nin tek Müslüman adayı Türkiye’ye net bir mesaj çıktı. “Lütfen bir şeyler yapın, biz de müzakere tarihi verelim” ya da “siz bir adım atın, biz iki adım atmaya hazırız” şeklinde yorumlanabilecek mesaj daha iyi bir zamanlamada ortaya çıkamazdı.
+   <br/>
+   <br/>
+   Türkiye’nin reform sürecine devam etmesi durumunda üyelik müzakerelerine başlama takviminin yakınlaşacağını Laeken Zirvesi’nde duyuran AB, geçen zamanda ciddi bir reform ivmesi yakalayamayan Ankara’ya yine de olumlu mesaj verdi.
+   <br/>
+   <br/>
+   Sevilla öncesi beklenti, AB’nin reformlardan memnun ancak tatmin olmadığı mesajını mündemiç bir teşvik paragrafının sonuç bildirisinde yeralmasıydı. Hatta bazıları zirvenin gündem maddeleri arasında genişleme olmadığı için böyle bir paragrafın dahi Sevilla Bildirisi’nde yeralmayacağını savunuyorlardı. Tam tersi oldu. İspanya dönem başkanlığı beklentilerin fevkinde Türkiye ile ilgili umut verici mesajlar verdi ve bunları bildiriye taşıdı. Önce İspanyol Dışişleri Bakanı Josep Pique, Türkiye’ye Kopenhag Zirvesi’ne kadar bir takvim verilebileceğini söyledi, ardından bu kadar net olmasa da AB koro halinde Türkiye’ye “Artık bir şeyler yap, takvim vermeye hazırız” dedi.
+   <br/>
+   <br/>
+   Sonuç Bildirisi’nin Türkiye paragrafı aynen şöyle: “Avrupa Konseyi Türkiye’nin son zamanlarda gerçekleştirdiği reformlardan memnuniyet duyar. Türkye’nin Katılım Ortaklığı Belgesi’nde yeralan öncelikleri yerine getirmesi için harcadığı çabaları güçlü bir şekilde destekler ve teşvik eder. Gerekli iktisadi ve siyasi reformların gerçekleştirilmesi, diğer aday ülkelere uygulandığı üzere aynı prensip ve kriterler çerçevesinde Türkiye’nin üyelik ufkunu daha da yakınlaştıracaktır. Sevilla ve Laeken zirveleri arasındaki gelişmeler, Komisyon tarafından Ekim 2002’de açıklanacak İlerleme Raporu ve Helsinki ve Laeken zirve sonuçları çerçevesinde, Kopenhag Zirvesi’nde Türkiye’nin adaylığı ile ilgili “bir sonraki safha”ya ilişkin kararlar alınabilir.”
+   <br/>
+   <br/>
+   Zirve sonuçları, “Ne yapsak, AB bizi almaz” tabusunu da sarstı. Türkiye’de koalisyonun AB tartışmaları ile çalkalandığı, MHP kanadının “Bize önce tarih versinler, reformları sonra yapalım” önerisinin seslendirildiği dönemde AB’nin mesajı net ve kısa: “Reformları yapın, takvimi kapın”. Önümüzdeki 6 ay şimdi daha da büyük önem kazandı. Öncelikle Türkiye’nin kıpırdanması durumunda tarih vermeye teşne bir AB var. Bunu unutmamak lazım. İkincisi, Avrupa’daki siyasi harita hızla içinde aşırı sağ unsurların barındığı sağa kayıyor. Bu hareketlerin ortak yanı Fransa istisnası ile Türkiye’nin AB üyeliğine karşı olmaları. Eğer Schroder 22 Eylül’deki seçimleri kaybederse, Türkiye’nin AB’de yeri olmadığını her platformada dile getiren Stoiber'la Türkiye’nin işi daha da zorlaşacak.
+   <br/>
+   <br/>
+   Türkiye bu 6 ay içinde ya tarihi bir fırsatı daha kaçaracak ya da reformları yapıp, Bulgaristan, Romanya ile birlikte ikinci genişleme trenini yakalayacak.
+   <br/>
+   <br/>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 499 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1452), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301160453/http://www.aksiyon.com.tr:80/yazdir.php?id=1452)

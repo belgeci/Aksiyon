@@ -1,0 +1,94 @@
+# Dıyalog tefsırı
+
+*Abdülhamit Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302225914im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302225914im_/http://www.aksiyon.com.tr/resim/295/13.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Ekallü’l—halika Mir Muhammed Kerim b. Haccac Mir Ca’fer el—Alevi el—Musevi el—Hüseyni el—Baküvi...”
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   “Keşfü’l— Hakayık” adlı kitabının girişinde Azerbaycanlı din alimi Mir Muhammed kendini böyle tanıtıyor.
+   <br>
+    <br>
+     Hz. Ali’nin soyundan gelmesinden dolayı Alevi, 12 İmam’dan İmam Musa Kazım’a dayandığı için Musevi, Hz. Hüseyin kolundan geldiği için Hüseyni ve Bakü şehrinde dünyaya gelmiş olması nedeniyle Baküvi sıfatını kullanıyor.
+     <br>
+      <br>
+       1853 yılında dünyaya gelen Mir Muhammed’in Aksiyon’a konu olması da biraz bu sıfatlarla, özellikle de Alevi sıfatıyla ilgili. Kendini Alevi diye tanımlayan Mir Muhammed, İslam’ın iki önemli ekolü arasında diyalog eksenli bir tefsir çalışmasına tam bir yüzyıl önce imza atıyor. Tefsir Uzmanı Dr. Ahmet Dolunay’ın doktora çalışmasına konu olan bu eser, önümüzdeki günlerde Türk okuyucusu ile buluşacak.
+       <br/>
+       <br/>
+       Yazar, en az eseri kadar renkli ve çağdaşlarından farklı bir kişiliğe sahip. Bakü’de 14 yıl kadılık yapan Mir Muhammed, yenilikçiliği, atılımcılığı, asriliği ile dikkat çekiyor. Örneğin Azerbaycan’ın ilk kadın pilotları Züleyha Seyyid Memmedov ve M. D. Hüseyinov’un eğitimlerini tamamlamaları için maddi—manevi katkıda bulunmuş bir din alimi. Bütün sohbetlerinde dinin gayesinin ilim, irfan olduğunu vurgulamış, aileleri ısrarla çocuklarını okula göndermeye teşvik etmiş biri.
+       <br/>
+       <br/>
+       Mayıs 1918’de kurulup Nisan 1920’de sona eren Azerbaycan Demokratik Cumhuriyeti’nin en hararetli taraftarları arasında yer alan Mir Muhammed, Müslümanların arasına giren düşmanlık ve bölünmeleri ele alırken cehalet ve nifak üzerinde durur:
+       <br/>
+       <br/>
+       “Neden birleşmeyelim ki, hepimizin Allah’ı bir, Kitab’ı bir, Peygamber’i bir... Bu kadar birlikler içinde neden ittifak edilmesin? İslam’ın ilk günlerinde Lâ ilâhe illallâh’ta birleşmiştiler. Şimdi öyle bir derde düşmüşüz ki, bu derdin ilacı yok. Bu dert cehalet ve nifak derdidir. İkisi birbirine bağlıdır. Cehaletin olduğu yerde nifak da vardır. Öteden beri hep bilinir ki, hangi toplumlar ilmin nuru ile aydınlanmışsa o toplumlar arasında nifak kalmamıştır; herkes ittifak etmiştir. Anlaşılan o ki, cehalet ve nifakın düşmanı, ilimdir. Bunun tecrübesi bugün Müslümanlar arasında yaşamaktadır.” (Baküvî, Keşfü’l—Hakayık, II, 508—9)
+       <br/>
+       <br/>
+       Dinin Muharrem ayında yapılan döğünmelere, fanatizme, batıl hurafelere indirgenmesine şiddetle karşı çıkmış, çevresindekilerin büyük çoğunluğunun aksine sahabelerin tümüne, Hz. Ali dışındaki Raşid halifelere karşı saygılı bir dil kullanmış ve bu yüzden de kendi ekolünün klasik takipçileri tarafından sürekli eleştirilmiş, hatta evi mezhep fanatikleri tarafından yakılmıştır.
+       <br/>
+       <br/>
+       Baküvi dine gönülden bağlı, duygusal bir Evlad—ı Resul portresi çiziyor. Bu yönüyle Peygamberimize ‘dedeciğim’ diye hitap ederken, okuyanları ağlatacak kadar etkileyen tefsirinin bir bölümünde onu şu şekilde dertlenirken görmek sürpriz değildir:
+       <br/>
+       <br/>
+       “Ey Dedeciğim! Ey Allahın Resulü! Bu cahillerin sözlerinden ve yaptıklarından dolayı ne kadar belalara düçar olmuşsun. Tâ ki beşerüstü bir sabırla bunlara katlanarak İslam dinini yaymış ve kemale ulaştırmışsın. Fakat günümüzde senin vaz’ ettiğin bu esaslar yıkılıp tekrar cahiliyeye dönülmüştür. İslamın sadece resmi kalmıştır. Allah’ım bir câmi’ gelime—i İslam (yani Müslümanları bir araya toplayacak, diyalog kurduracak bir birlik sözü) gönder. Tâ ki, cehaletin pis tohumu, Müslümanların arasından kalksın, yerini ilmin nuru ve marifet alsın. Amin.” (Baküvi, a.g.e. II, 230)
+       <br/>
+       <br/>
+       Kitabı Türkiye Türkçesi’ne kazandıran ve müellifin çok az bilinen hayatını araştıran Dr. Ahmet Dolunay’ın tesbitine göre Baküvi şefkatlidir de. 1905 yılında Ermeni—Müslüman çatışmasında beyaz cüppesini giyip kırmızı bayrağıyla şehrin ortasına çıkmış, dolu gibi yağan kurşunlara hiç aldırmadan, çok kan dökülmesini önlemiştir.
+       <br/>
+       <br/>
+       Mir Muhammed’in metodolojisinde öne çıkan belirgin farklılıklar gözden kaçmaz. Hadis alanında Şii ve Sünni kaynaklardan gelen rivayetleri kabul ederek Buhari’den El—Kafi’ye kadar uzanan geniş bir yelpazeden yararlanması, hadislerin kaynağı olarak sahabelerin tümünü adil kabul etmesi, iki ekolün yüzyıllardır tartıştığı ve aşılamaz görülen imamet gibi konuları bir kenara bırakarak uzlaştırıcı yolu seçmesi, tefsirde Tabresi gibi kendi ekolünden kaynaklar yanında Zemahşeri, Fahruddin—i Razî, Ebu’s Suud, Kadı Beydavi, İsmail Hakkı Bursevi gibi büyük Sünni müfessirleri örnek almaktan çekinmemesi adeta bir devrim niteliğindedir.
+       <br/>
+       <br/>
+       Termodinamikten Pisagor’a
+       <br/>
+       <br/>
+       Bilime büyük önem veren Baküvi’ye göre, Kur’an ispatlanmış hiçbir ilmi buluşa ters düşmez. Bu yüzden ilim adamlarını Kur’an’ın pozitif bilimle ilgili konularını öğrenmeye teşvik eder. Bu konuda İslam dünyasının geriliğinden yakınır. Tefsirinde bu eğilimin izleri görülüyor. Örneğin Şûra Suresi 29. ayetini uzayda hayat ve başka canlılar olduğu şeklinde tefsir eder. Bu ayet, uzay bilimcilerin söylediklerini doğrular niteliktedir ona göre. Yanlışlık bu ayetleri gökte uçan güvercin, karga gibi kuşlar olarak yorumlayan İslam bilginlerinin geriliğindedir. Hz. İbrahim’in yontma taş devrinde yaşadığı, Lokman Hekim’in Yunan filozof Pisagor’dan ders aldığı, Hz. Meryem’in İsa (AS)’dan başka da oğulları olduğu, termodinamik kanunu gereğince tüm evrenin bir gün yok olacağı gibi orijinal tezleri cesaretle savunmaktan çekinmez.
+       <br/>
+       <br/>
+       Hucûrat Suresi 1. ayeti tefsir ederken, yüz yıl önce demokrattır. Ona göre inanan ve inanmayan herkes Kur’an’dan yararlanmaktadır. Kur’an istişareyi, çoğunluğun kararına uymayı, fikir birliğini emretmekte, Müslümanlar bu görüşleri izlemese de, dünyanın bütün ileri ülkeleri bu prensiplerle idare edilmektedir. Baküvi, esas demokrasinin özünün İslam’da olduğunu vurgular ve böyle müthiş bir kaynak elde iken, gerçeklerin gizlenmesine ve çağdaşı Milli Şair Akif’in dediği gibi Kur’an’ın sadece ölülere okunan bir kitap haline getirilişine hayıflanır.
+       <br/>
+       <br/>
+       Dr. Dolunay’ın kendi ekolleri içinde referans kabul edilen Tabatabai, Tabresi, Küleyni gibi tefsircilerle müellif arasında yaptığı karşılaştırmaya göre, Baküvi birçok konuda aykırı tezlere sahip. Örneğin Tabatabai’nin İmamlar’ın gaybı bildiği tezinin aksine, İmamlar’ın gaybı bilemeyeceklerini, peygamberlerin bile ancak Allah’ın bildirmesiyle bilebilecekleri görüşünü savunuyor.
+       <br/>
+       <br/>
+       Kur’an’ın yorumunun İmamlar’ın tekelinde olduğu görüşüne de karşı çıkar. Ona göre, “Muhakkak ki biz Kur’an’ı öğüt alsınlar diye kolaylaştırdık. Öğüt alan yok mu?”(Kamer 17) ayeti Kur’an’dan herkesin yararlanabileceğini göstermekte, bir kısım insanların “Siz Kur’an’ı anlayamazsınız, çok zordur, herkes bilemez. Sizin için ana kurallar koyduk. Onlara başvurun. Kur’an’ı sadece imamlar bilir” görüşüne açıkça savaş açmıştır.
+       <br/>
+       <br/>
+       Baküvi’nin, mezhep taassubu konusunda da duyarlı ve net görüşleri var: İslam mezheplerinden bir kısmı Hz. Ali’nin imameti ve fazileti, başkalarının kafirliği ve zındıklığı konusunda deliller getirmekle meşgul. Sadece kendilerini fırka—i naciye, kurtulmuşlar fıkrası olarak görüyorlar. Halbuki hayatlarına baktığınızda çok sevdiklerini iddia ettikleri Hz. Ali’nin hareket ve davranışlarından eser yok. Üstelik aksine davranışlar var. Diğer İslami fırka da Hz. Ebubekir’i yüceltip Peygamber’den sonra onun sahabelerin en faziletlisi olduğunu kabul etmekte, buna aykırı düşünenleri İslam’a uzak görmekteler. Onlar da yalnız kendilerini hak kabul ediyorlar. Halbuki insaf ile baktığımızda, bu kimselerde o Sıddik’ın (Hz. Ebubekir) hal ve davranışlarından iz olmadığı görülmemektedir. Yarın mahşer günü her iki fırkanın da ilk hasmı Hz. Ali ve Hz. Ebubekir olacaktır. (Keşf—ül Hakayik, III. s.257—258)
+       <br/>
+       <br/>
+       Kitap II. Abdülhamid’e ulaşmış
+       <br/>
+       <br/>
+       Dr. Dolunay araştırmaları sonucunda eserin 1907’de İstanbul’a ulaştırıldığını, bizzat II. Abdülhamid’e takdim edildiğini tesbit ediyor. (İlgili arşiv belgesi: T.C Başbanlık Arşivleri Genel Müdürlüğü Osmanlı Arşivi Daire Başkanlığı, Osmanlı Devleti ile Azerbaycan Türk Hanlıkları Arasındaki Münasebetlere Dair Arşiv Belgesi, II, 216, 218, 220. Belge no: 76) Kitabı elde etmek için Bakü’ye giden Dr. Dolunay’ın kitabı ancak Eski Yazma Eserler Enstitüsü’nde bulabilmesi, eserin yayın yerinde unutulmuşluğa terkedildiğinin bir işareti gibi görünüyor. Azerbaycan komünizmin silindirinden geçtiği için mazur sayılabilir, ancak yazara ne Diyanet Vakfı’nın, ne de Milli Eğitim’in İslam Ansiklopedileri’nde yer verilmemiş olması Türkiye’de de eserin arşivlerin sınırlarını pek aşamadığını ortaya koyuyor.
+       <br/>
+       <br/>
+       Kitabın bir tartışma başlatacağını ve belli tepkilere yol açacağını şimdiden tahmin etmek zor değil. Kendisiyle yaptığımız röportajda Dr. Ahmet Dolunay da belli tepkilere hazır olduğunu söyledi. Ama o, Azeri bir din aliminin yaptığı bu çalışmayı Anadolu insanına takdim edebilmenin mutluluğunu yaşıyor. Ali’siz Alevilik projesi kapsamında değerlendirilecek bazılarının, Allah’ın Kelamı olan Kur’an’ın tefsiriyle ilgili bu çalışmaya fazla önem atfetmeyecekleri ve tepkilerinin ne yönde olacağı hemen hemen belli gibi. Ama yöreden yöreye değişiklik gösteren ve şifahi bir kültüre dayalı Aleviliğe bağlı insanları bir şablona oturtmak, bu konuda yapılacak en büyük yanlış olsa gerek. Çünkü bu insanlar arasında Müslüman olduğunu söyleyenler olduğu gibi, Aleviliğin hümanist bir felsefe, hatta Müslümanlık’tan ayrı bir din olduğunu ispata çalışanlar da var. Köyündeki camiye imam isteyenler olduğu gibi, cami fikrine tamamen kapalı olanlar da var. Bu mozaik içinden, Ehl—i Beyt’e mensup, diyalogdan yana, yaşadığı dönemde gelişmenin, bilimin bayraktarlığını yapmış, bir asır önce demokrasiyi savunmuş ve sonunda Sovyetler aleyhine çalışmaktan suçlanarak 1937’de KGB tarafından kurşuna dizilerek şehit edilmiş Mir Muhammed’in gün ışığına çıkan eserinden yararlanacaklar da olacaktır elbette. Belki Ehl—i Beyt sevgisi taşıyan birçok Sünni de bu tefsiri zevkle okuyacak. Gelecek eleştiriler de, eksiklerin giderilmesi ve niyetlerin anlaşılması adına mutlaka yol gösterici olacak.
+       <br/>
+       <br/>
+       Merkür Yayınları tarafından piyasaya sürülen 2 ciltlik eser, 1300 sahifeden oluşuyor.
+       <br/>
+       <br/>
+       (Kitap isteme: Tel: 0216 340 31 23 — 0414 312 84 56 / 2302)
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14154), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302225914/http://www.aksiyon.com.tr:80/detay.php?id=14154)

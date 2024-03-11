@@ -1,0 +1,95 @@
+# Mersin petrole kurban
+
+*Ümit Pıtır Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040911042618im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040911042618im_/http://www.aksiyon.com.tr/resim/505/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Mersin'de, önce yer altı suları alev aldı. Ardından kanalizasyonlarda patlamalar meydana geldi. Kuyulardan su yerine petrol atıkları çıkarken son olarak da ATAŞ'ta yangın çıktı. Jeofizikçiler bir patlamanın  deprem etkisi yapabileceğini söylüyor. Rafineriye komşu 35 bin kişinin hayatı risk altında.
+ </font>
+ <p>
+  <font class="content">
+   3 Mayıs günü akşam saatlerinde haber merkezlerine ulaşan bir haber herkesin yüreğini ağzına getirdi. Batman'da büyük bir patlama olmuş, ilk belirlemelere göre 2 kişi ölmüş, onlarca kişi yaralanmıştı. Olayın bir terör saldırısı olmadığının tespit edilmesinden sonra hadise gündemin alt sıralarına düştü ve 'kaza' olarak değerlendirildi.
+   <br/>
+   <br/>
+   Altından petrol boru hattı geçen 154 iş yerinin bulunduğu Batman Toptancılar Sitesi'nin yarısı havaya uçmuştu. Oysa 'kaza' geliyorum diyordu; çünkü aylardır çevre sakinleri kuyulardan çıkan benzinden, alev alan su birikintilerinden ve havadaki ağır benzin kokusundan şikayetçiydi, her ortamda bu sorunu dile getiriyorlardı. Sonuçta tedbirsizliğin bedeli ağır ödendi. Çıkan yangında 2 kişi öldü, 20 kişi yaralandı, 2 trilyonu aşkın zarar meydana geldi.
+   <br/>
+   <br/>
+   Batman'daki patlamaların üzerinden aylar geçti; ama Mersin'de yaşanan hadiseler "Acaba Batman gibi mi olacağız?" sorusunu akla getiriyor. Çünkü Mersin'de son birkaç aydır garip olaylar yaşanıyor. ATAŞ Rafinerisi'nin ve dolum tesislerinin bulunduğu Karaduvar Mahallesi'nde yer altı suları alev alıyor, kanalizasyonlarda patlamalar meydana geliyor, dolum tesislerinde yangınlar çıkıyor. Korsan dolum tesisleri inşa ediliyor, yerel yönetimlerle işletmeler arasında savaş yaşanıyor. Rafineri ve özel şirketlere ait dolum tesislerinin yöneticileri "tehlike yok" açıklaması yapıyor; fakat kuyularından benzin çıkan bölge halkı tedirgin, yerel yöneticiler ise endişeli.
+   <br/>
+   <br/>
+   Kanun petrolcülere geçmiyor
+   <br/>
+   <br/>
+   Anadolu Tasfiyehanesi A.Ş. ya da kamuoyunda bilinen adıyla ATAŞ Rafinerisi 1957 yılından bu yana faaliyette olan bir tesis. Uluslararası standartlara göre yapıldığı için bugüne kadar bir sorun yaşanmadı. Gerek konumu gerekse Güneydoğu Anadolu'ya yakın olması nedeniyle bölgenin ihtiyacını tek başına karşılıyor. Ayrıca, Türkiye'nin petrol ihtiyacının da yüzde 14'ünü... Bu önemine karşılık Türkiye'nin tek özel sektör ham petrol işleme tesisi olan ATAŞ, yapılacak yatırımlara rağmen kârlılığa geçemeyecek olmasından ötürü önümüzdeki eylül ayından itibaren sadece dolum tesisi olarak hizmet vermeye başlayacak.
+   <br/>
+   <br/>
+   Yaklaşık 20 bin kişinin yaşadığı Karaduvar Mahallesi'nde kurulu ATAŞ Rafinerisi'nin tehlike arz etmeye başlaması, mevcut depolama tanklarının yanında özel şirketlerin kurduğu LPG tankları ve dolum istasyonları ile oldu. Tesislerin bulunduğu bölgenin bağlı olduğu Akdeniz Belediye Başkanı Kenan Yücesoy, civardaki dolum tesislerinin tehlike arz etmeye başlamasının kanun tanımayan özel şirketlerden kaynaklandığını söylüyor.
+   <br/>
+   <br/>
+   44 yıldır herhangi bir sorun olmadığına dikkat çeken Yücesoy, "ATAŞ standartlara göre yapılmış bir işletme. Tank araları uzak. Otomatik söndürme sistemleri mevcut. Fakat 1983'te yapılan bir sistem değişikliği ile herşey alt üst oldu. Bayraktar firması denizden gemilerle gelen petrolü borularla dolum tesislerine pompalamaya başladı. Ardından da 1990'da OPET firması çalışmaya başladı. Petrol borularla pompalanırken sızıntılar oluyor. Bugün yaşadığımız sorunlar o dönemde yapılan yanlışlara kadar uzanıyor" diyerek gelinen noktayı özetliyor.
+   <br/>
+   <br/>
+   Belediye ile işletmeler
+   <br/>
+   <br/>
+   arasındaki mücadele
+   <br/>
+   <br/>
+   Başkan Yücesoy'a göre, dolum istasyonları ile yerel yönetimler arasında yıllardır süren bir çatışma yaşanıyor. Büyükşehir Belediye Başkanı Macit Özcan, ruhsatsız çalıştıkları gerekçesiyle TUTA Petrolcülük A.Ş. ile Petrolium Ltd. şirketini mühürlediklerini; ancak söz konusu şirketlerin uyarıları dikkate almayarak çalışmaya devam ettiğini söylüyor. Belediye Başkanı Yücesoy, özel şirketlerin tam anlamıyla kanun tanımazlık içerisinde olduğunu savunuyor: "Bu gücü nereden alıyorlar bilmiyorum. Ruhsatsız çalıştıkları, standartlara aykırı inşa edildikleri gerekçesiyle iki defa mühürledik. Ama onlar mühürleri söküp çalışmaya devam etti. 1999'dan bu yana bu kavga sürüyor."
+   <br/>
+   <br/>
+   Herhangi bir ruhsatları olmadığı halde inşa edilen ve yerleşim birimleriyle iç içe bulunan 16 tankta meydana gelecek bir patlamanın Mersin için facia olacağını söyleyen Yücesoy, "Allah'tan yangın ATAŞ'ta çıktı. Yangın Opet ya da Tuta firmalarının bulunduğu bölgede olsaydı, yaşanacakları hayal bile edemiyorum. 9 bin ton nafta (benzin mazot karışımı bir ürün) gökyüzüne yayıldı. Eğer yağmur yağsaydı Mersin için facia olacaktı" diyor.
+   <br/>
+   <br/>
+   35 bin kişinin hayatı tehlike altında
+   <br/>
+   <br/>
+   ATAŞ Rafinerisi'nde meydana gelen son yangından önce de tehlike sinyalleri geliyordu. 25 Temmuz'daki yangından önce mayıs ayında, Tuta Petrol'e ait dolum tesislerinde çıkan yangında iki kişi yaralanırken yangına itfaiye ekipleri rafineri dışından müdahale etmek zorunda kaldı. Birbirine çok yakın inşa edilmiş tanklar arasına giremeyen itfaiye ekipleri tel örgüler dışından uzatılan merdivenler üzerinden yangına müdahale edebildi. Bu yangının hemen ardından su kuyularına petrol sızmaya başladı.
+   <br/>
+   <br/>
+   Karaduvar Mahallesi sakinleri sebze yetiştirmek için kullandıkları kuyulardan petrol çıkması üzerine şaşkına dönerken, yer altı sularına karışan petrolün denizden gelen boru hatlarında meydana gelen kaçaktan kaynaklandığı ortaya çıktı. Bölgede kuyusu bulunan çiftçilerden Fuat Altınbaş, kuyu suyu ile suladığı tüm sebzelerinin öldüğünü, petrolün artık alenen görülebildiğini söylüyor.
+   <br/>
+   <br/>
+   Rögar kapakları havaya fırladı
+   <br/>
+   <br/>
+   Yetkililer "Sorun yok, kaçağı bulduk" açıklaması yapıp vatandaşı rahatlatırken, bölge halkını tekrar tedirgin eden olay 30 Haziran'da meydana geldi. Sabah saatlerinde Karaduvar'da bulunan kanalizasyon borularında bir patlama oldu ve gaz sıkışması sonucu betondan yapılmış rögar kapakları 4 metre kadar yükseğe fırladı. Sahil Yolu olarak adlandırılan bölgede meydana gelen patlamada kanalizasyondan alevler yükseldi. Bölge sakinleri aynı alevleri tuvaletlerinde de gördü. Önce neredeyse balkonlarının içine girecek kadar yakına dolum tankları inşa edildi. Ardından, yer altı sularından petrol çıkmaya başladı, sonrasında kanalizasyonlarda patlamalar oldu ve son olarak da 9 bin ton naftanın kül olduğu yangın meydana çıktı. Bütün bu hadiseler 35 bin kişinin yaşadığı Kadaduvar ve Çay Mahallesi sakinlerini çok tedirgin etti.
+   <br/>
+   <br/>
+   "İnceleme başlatılıp tedbir alınması için facia mı yaşanmalı?" diyen halkın elinden gelen tek şey protesto yürüyüşü yapmak. Tehlikenin büyüklüğünü gözler önüne sermek isteyen bölge halkı zaman zaman suları ateşe vererek "daha ne diyelim?" şeklinde konuşuyor. Önce bölge halkının, ardından da tüm Mersin'in yüreğini ağzına getiren olay ise 25 Temmuz'da ATAŞ'ın 102 numaralı tankında meydana gelen yangın oldu. 9 bin ton naftanın söndürülmesi tam 29 saat sürerken iki gün boyunca çevre sakinleri evlerine gidemedi.
+   <br/>
+   <br/>
+   Suç duyurusuyla ortaya çıkan skandal
+   <br/>
+   <br/>
+   Yangının üzerinden 15 gün geçmesine rağmen resmi bir açıklama yapılmadı henüz. Yangınla ilgili bir skandal ise yapılan bir suç duyurusu ile ortaya çıktı. Mersin Büyükşehir Belediyesi tarafından Cumhuriyet Başsavcılığı'na yollanan suç duyurusuna göre belediyenin gönderdiği tam teşekküllü üç itfaiye aracı tam 55 dakika boyunca kapıda bekletilerek içeriye alınmamış, zamanında müdahale edilemeyen yangın büyümüştü. Resmi kayıtlara göre pazar günü 10:25'te başlayan yangınla ilgili itfaiye aranmazken vatandaşların polisi aramasından sonra harekete geçen Büyükşehir itfaiyesi 10:35'te ATAŞ önüne geldi; fakat yaklaşık bir saat içeriye alınmadı.
+   <br/>
+   <br/>
+   Yangınla ilgili en ilginç iddia ise bu noktada dile getirildi. 1,5 ton köpük taşıyan 3 itfaiye aracı ile polisler, şirketin özel güvenlik ekiplerince içeriye alınmadı. Devreye giren vali vekili Reşat Özdemir'in "Kapıyı kırıp girin" talimatı üzerine itfaiye araçlarının içeriye alındığı kulislerde dile getirildi. ATAŞ Rafinerisi İnsan Kaynakları ve İdari İşler Müdürü Ali Can Sodan'a göre, iddialar "doğru değil ve gereken yapıldı".
+   <br/>
+   <br/>
+   Gerek son yangın gerekse de öncesinde yaşanan petrol sızıntıları ve buna bağlı olaylar konusunda yerel yönetimler de tedirgin. Akdeniz Belediye Başkanı Kenan Yücesoy, özel şirketlerin kanun tanımazlık içerisinde olduklarını iddia ediyor ve sorunun çözümünün ulusal düzeyde adımlar atılmasıyla mümkün olacağını söylüyor. Sadece Çay ve Karaduvar mahallelerinin riskli olmadığını, tüm Mersin'in tehlike altında olduğunu söyleyen Yücesoy, "Dolum tanklarında meydana gelecek bir patlama sonunda ne olur hayal bile etmek istemiyorum" diye konuşuyor.
+   <br/>
+   <br/>
+   Deprem etkisi yapabilir
+   <br/>
+   <br/>
+   Mersin Sanayici ve İşadamları Derneği Başkanı Mustafa Güler bazı şirketlerin dolum tesislerini teknik kurallara uygun inşa etmemesi nedeniyle Mersin'in büyük risk altında olduğunu söylerken, "Yer seçimindeki isabetsizlik ve yeterince denetlenmeme sonucu kurulan tesisler hayıtımızı tehdit eder boyuta gelmiştir" diyor. Mersin Büyükşehir Belediye Meclis üyesi Nuri Özdemir ise Karaduvar Mahallesi'nde standartlara uygun olmadan yapılan dolum tesislerinin patlaması halinde meydana gelecek sarsıntının 9.3 şiddetinde bir deprem gibi olacağını söyleyerek, "Bu Mersin için felaket olur. Bunun hesabını kim verebilir?" diyor.
+   <br/>
+   <br/>
+   Mersin Valisi Atilla Osmançelebioğlu ise konuyla ilgili bir komisyon oluşturularak tüzük ve yasalara uygun olmayan dolum tesisleri hakkında gerekli yasal işlemlerin yapılacağını söyledi. Jeofizik Mühendisleri Odası Mersin Şube Başkanı Ali Karan ise, kanalizasyondaki patlamanın benzin buharlaşması sonucu meydana geldiğini, bunun önemli bir sinyal olduğunu söylüyor. Mayıs ayında, kuyulardan çıkan suyun yanması ile birlikte bölgede incelemeler yapıldığını kaydeden Karan, "Valilik tarafından bir komisyon kuruldu. Bu komisyonun yaptığı çalışma sonucunda kirlenmenin dolum tesislerinden kaynaklandığı ortaya çıktı. Kirliliğin kaynağının boyutu  jeofizik yöntemlerde daha detaylı olarak tespit edilmeli" diyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13996&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040911042618/http://www.aksiyon.com.tr:80/detay.php?id=13996&yorum_id=1)

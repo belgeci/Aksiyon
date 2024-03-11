@@ -1,0 +1,77 @@
+# Bayram eğlence midir?
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041223172012im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041223172012im_/http://www.aksiyon.com.tr/resim/519/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Gereğinden fazla eğleniyor hissine kapılmaktan korkarız biz; “Çok gülen çok ağlar” diye bir lâf vardır. Ne zaman neşelensek ardından “Başımıza hangi felaket gelecek?” endişesi çöker üstümüze.
+ </font>
+ <p>
+  <font class="content">
+   Ramazan neş’esinin biraz abartılmasından rahatsız olmayı anlıyorum ama eğlence kavramına hâlâ doğru dürüst bir karşılık bulamayışımızı da kaydetmeden geçmiyorum.
+   <br/>
+   <br/>
+   Geçenlerde bir İstanbullu okuyucu, yolladığı mektupta ilginç bir şikayetini dile getirirken meâlen diyor ki, “İstanbul’u Ramazan’da görenler, bu ay eğlence ayı zannedecek. Sultanahmet meydanı çığırından çıktı, panayır yerine döndü; eğer bir şeyler yapılmazsa gelecek nesiller Ramazan deyince vur patlasın çal oynasın gülüp oynamayı, yemeyi içmeyi hatırlayacaklar; orucun mânâsı kaybolup gidecek!”
+   <br/>
+   <br/>
+   İtiraftan çekinmeyelim, gereğinden fazla eğleniyor ve gülüp oynuyor hissine kapılmaktan korkarız biz; “Çok gülen çok ağlar” diye bir lâf vardır. Ne zaman neşelensek ardından “Başımıza hangi felaket gelecek?” endişesi çöker üstümüze. Ramazan neş’esinin biraz abartılmasından rahatsız olmayı anlıyorum ama eğlence kavramına hâlâ doğru dürüst bir karşılık bulamayışımızı da kaydetmeden geçmiyorum. Ramazan’da eğlenmeyelim, çocuklar da Sultanahmet’e çıkmasınlar eyvallah (Sanki kaç tane Sultanahmet meydanı var ki şu ülkede?) lakin işte bayram geldi çattı; bayramda da eğlenmek yasak mı bize?
+   <br/>
+   <br/>
+   Eğri oturup doğru konuşalım; hangi dine, hangi dünya görüşüne mensup olursanız olunuz, çeşm-i insaf ile kabul etmelisiniz ki yeryüzünde Müslümanların Ramazan bayramı kadar hak edilmiş bir başka bayram arasanız da bulamazsınız. Ramazan orucunu bir kültür unsuru olarak algılayıp, âdet olduğu üzre oruç tutanlar bir tarafa bu vecibeyi hakkıyla yerine getirenler kadar bayram yapmayı hak etmiş kim vardır ki: Yemek ve sindirim düzeniniz altüst olur, uyku alışkanlığınız bölüntüye uğrar, metabolizmanız oruç âhengine alışıncaya kadar neredeyse yirmi gün geçer; bitmedi, Yunus’un “Derviş bağrı taş gerek / Gözü dolu yaş gerek / Koyundan yavaş gerek / Sen derviş olamazsın” dediği hesap oruçlu kişi, Ramazan boyunca öfkelenme, dengesini bir anlığına bile olsa kaybetme, kendisine yönelen kabalıklara en azından birebir nisbetinde cevap verebilme hakkından da peşinen feragat etmiştir; böyle bir tahrik ile karşılaştığında ona sadece “Ben oruçluyum” diyebilme lüksüne sahiptir. Bu durumda bile, “Bana ne kardeşim senin orucundan, benim hatırım için mi tuttun; dayanamıyorsan boz gitsin; üstelik oruçluyum diye tafra çalım satmak da neyin nesi oluyor?” neviinden ömür törpüsü lâflarla karşılaşmak ihtimâli de cabadandır.
+   <br/>
+   <br/>
+   Tamam, şöyle veya böyle oruç vazifemizi tamamladık, sadaka dağıtıp infakte bulunduk, eşe dosta iftar verdik, elimizden geldiği nisbette fukaraya yardım ettik ve bayrama eriştik.
+   <br/>
+   <br/>
+   Ee, n’apacağız şimdi? Bayrama erişmiş Müslüman nasıl “bayram” edecek?
+   <br/>
+   <br/>
+   Çocuklara göre hava hoş, onlar bir şekilde eğlenmenin yolunu bulurlar ama bizim “bayram” kavramımız ‘eğlence’den pek farklı bir şeydir. Evin önüne çalgı takımı çağırtıp cümbüş etmeyiz, ecnebilerin yaptığı gibi karnaval, faşing, festival benzeri şeylerle cumhur-cemaat sokağa dökülüp seyrana çıkmayız.
+   <br/>
+   <br/>
+   Peki ne yaparız?
+   <br/>
+   <br/>
+   Bayram namazını saymıyorum ama onun dahi kendine göre bir güzelliği olduğu hakikattir. Namazdan çıkar çıkmaz evvelâ aile büyüklerinin kabrini ziyaret ederiz. Artık alıştığımız için fark etmiyoruz, bir bayrama kabir ziyareti ile başlamak, iki farklı kültür arasında tercümesi neredeyse imkânsız bir davranış kalıbıdır. Öyle bir alışkanlık ki, herhangi bir mazeret yüzünden kabir ziyaretinde bulunamayanların bir kanadı kırık, bir tarafı göçük gibi olur. Ardından herkes evlerine dağılır. Bir bayram sabahı bir memlekette garip olmanın en acıtıcı ânı budur belki de. Gariplerin gidecek bir yeri yoktur ve gariplik, Suç ve Ceza’da Marmeladov’un ağzından Dostoyevski’nin dediği üzre “gidecek bir yeri olmamaktır” zaten.
+   <br/>
+   <br/>
+   Onlar, birkaç saatliğine, “Bayram gelmiş neyime / Anam anam garibem / Kan damlar yüreğime” mısralarıyla gönül kanamaları geçirirler. Tâ ki bayram sabahlarında yılın en zengin, en leziz, en coşkulu sofrası etrafında halkalanıp yemek bittikten sonra mâaile el yüz öpüp bayramlaşıncaya kadar. Sonra karşılıklı ziyaretleşmeler başlar ve gariplik biter.
+   <br/>
+   <br/>
+   “Ee, hani eğlenecektik” diye sabırsızlandığını hisseder gibiyim.
+   <br/>
+   <br/>
+   Yine eğri oturup doğru konuşalım; bizim bayramların insâni tarafı pek yüksektir ama eğlence ciheti sıfırdır. Koca bir sıfır. Ev hanımları açısından meseleye baktığımızda fark ederiz ki bayram, tasasıyla bir hafta evvelinden omuzlara çöken tatlı bir telâşedir. Lâf aramızda “bayram temizliği” kavramının ne mânâya geldiğini hâlâ anlayamamışımdır; daha üç gün önceden ev baştan ayağa pırıl pırıl temizlenmiş olsa bile yine de bayram temizliğine girişilir, yemekler hazırlanır, dolmalar sarılır, tatlılar yapılır, alışverişe çıkılır. Ardından bütün ev ahalisi, sanki yedi senelik Yemen seferinden gelmiş ihtiyat neferi muamele tâbi tutulup bayram sabahına gıcır gıcır yıkanmış olarak hazırlanmaları konusunda bükülmez dayatmalarda bulunulur. Hazırlıkların “masraf artırıcı” ciheti üzerinde durmaya lüzum var mı? Çocuklara çorap, gömlek, pabuç, pantolon, etek almaktan geçtik; “muktesit” ev hanımları, mübarek bayramı vesile ederek yıpranmış perdelerin, modası geçmiş mobilyaların, eprimiş pabuçların, rengi atmış halıların farkına varıverirler birden!
+   <br/>
+   <br/>
+   Dikkat ediliyorsa, hâlâ bayramın eğlendirici bir tarafıyla karşılaşmış değiliz.
+   <br/>
+   <br/>
+   Sonra bayram gezmeleri başlar; benim gibi “umûr-ı hariciyesi” zayıf, moda tabirle “antisosyal” adamlar için bayramın karşılıklı ziyaretleşme faslı şüphesiz faydalı hatta zaruri bir gelenektir ama anlatınca siz de teslim edeceksiniz ki her ziyarette birbirine benzeyen seremoniyi tekrarlamakta eğlendirici bir şey buluyoruz belki de; bazen ziyaret esnasındaki muhaverenin “Ee, daha daha nasılsınız bakalım!” cümlesiyle özetlenebilmesi durumun hakiki boyutlarını işaretler. Evde bulunamayan komşu veya akrabanın kapısına “Geldik de bulamadık” mânâsına kartvizit iliştirilmesinde gizli bir, “İyi oldu zamandan kazandık” sevinci sezmemek de mümkün değildir hâni. Her evde aynı ikram mönüsü ile karşılaşmak ise mukadder: Evvelâ şeker, ardından üzümlü bayram çorbası ve tatlı teklifi, “Ay oruçtan çıkınca tedbirimizi şaşırdık, almayalım komşu, bende ülser var zaten” mazeretlerine mukabil, “Ölümü öp, yemezsen küserim; tatlı da öyle hafif düşmüş ki zaten, ağızda dağılıveriyor” ısrarları...
+   <br/>
+   <br/>
+   Hani hızlandırılmış film sahneleri vardır; bir şehrin tam tepesine kuşbakışı vaziyetinde yerleştirilen bir kamerayla gün boyunca çekilmiş görüntüleri on dakikaya sığdırdığımızda karşılaşacağımız manzara, insanların arı öbekleri gibi evler arasında koşuşup durmalarından ibaret gibidir.
+   <br/>
+   <br/>
+   Hâlâ bayramda eğlendirici bir cihet arıyorsanız boşuna beklememenizi tavsiye edebilirim. Bizim bütün dini bayramlarımız aynı minval üzre cereyan eder! Oysaki Müslümanların iki dünya kavramının “bu dünya” yönüyle ilgilenmediğini ileri süremeyiz; iş Müslüman gibi eğlenmeye, def-i gâma gelince muhayyile kuruyuverir ve çözüm gayretleri, “Eğlenmek neyimize, uhrevi sorumluluklarımızı hatırlasak kâfidir” tekilliğinde kaybolur gider.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Mustafa Yılmaz, 19-Kasım-2004
+> bayram telaşı: 
+> Ahmet Turan Alkan hocamızın yazısı doğru; ama bu gerçeği bilmeyen var mı? Bu tür konularda bir çözüm üretemiyorsak bunları gündeme getirmek ne kadar doğru? Zahmetli işlerde rahmet olduğu kanaatindeyim.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18110&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041223172012/http://www.aksiyon.com.tr:80/detay.php?id=18110&yorum_id=1)

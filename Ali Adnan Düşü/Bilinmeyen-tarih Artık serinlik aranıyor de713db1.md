@@ -1,0 +1,49 @@
+# Artık serinlik aranıyor
+
+*Ali Adnan Düşü Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Abdülhak Şinasi Hisar’ın, Samiha Ayverdi’nin tasvir ettiklerini aramak isteyebilir insan. Onların büyük bölümü bulunmuyor artık; ama Boğaziçi hâlâ güzelliklerle doluAbdülhak Şinasi Hisar’ın, Samiha Ayverdi’nin tasvir ettiklerini aramak isteyebilir insan. Onların büyük bölümü bulunmuyor artık; ama Boğaziçi hâlâ güzelliklerle dolu
+   <br/>
+   <br/>
+   Yaz birden bire geldi; geçtiğimiz kış birden bastıran karla başlamıştı. İlkbaharın periyotlar halindeki yağmurlarını bu yıl henüz görmedik. Sıcaklar bastırınca serin yerler aranıyor. Mevsim oturmadığı için sıcaklardan şüphe ediyoruz; yağmur serinliği uzak ihtimal değil. Bu nedenle hafif cesaret eksikliği var, ama bahar gürlüğüne kavuşmuş dalların  serinliği, Boğaziçi’nin esintisi aranıyor.
+   <br>
+    <br>
+     “Hayat sanatı taklit eder” derler. İstanbul’un semtlerini, Boğaziçi’ni, gezip görülecek yerleri düşündüğümüz zaman, akla ilk gelenler nerelerdir? Şairlerin, yazarların hakkında yazılar kaleme aldığı semtler, tepeler, kahveler, yollar değil mi? Fotoğraf da sanattan sayılıyor. Genellikle fotoğrafını gördüğümüz bir semtten çok, hakkında zihnimize işleyen izlenimlerin yer aldığı hikaye, deneme ya da gezi yazılarına konu olmuş semtler gelir aklımıza. Tramvayın gidişini tasvir eden bir hikaye bizi tramvayın arkasından sürükler; yolu anlatan deneme, oraya gidip gezinti  yapmaya davet eder. Duyduğumuzda yanlışlık yoksa, hayatın sanatı taklit ettiğini Oscar Wilde söylemiştir. İçinde yaşadığımız şehirde, gideceğimiz semti önceden okumuş olduklarımızın etkisinde seçiyorsak, Oscar Wilde doğru söylemiştir. Ya da işten yorulan, sıcaktan bunalan ve serin bir  yer arayanın tercihini kapsayan bir sözdür o. Yahya Kemal yazmasaydı “Kanlıca’nın İhtiyarları”nı düşünür müydük? Ya da Beykoz’un, Çengelköy’ün yaşlılarını hiç umursamıyor, onları adeta belediye ve sosyal güvenlik kuruluşları ile başbaşa bırakıyor, Kanlıca’nın ihtiyarlarını hayalimizin içine alıyorsak bunun nedeni, ünlü şairin yazısı değil midir? Hayat sanatı taklit ettiğini saklamıyor. Boğaziçi’nin semtleri hakkında konuşanlar, okudukları yazarlarla, şairlerle sözlerini süslüyor. Bize, gitmemiz gereken yeri tavsiye ederken kendi izlenimlerini anlattığı kadar orası hakkında okuduklarını da söylüyor. Sanat yalnızca bu biçimde taklit ediliyor değil; hayatın taklitleri de bitmez. Ama işte bu da bir örnektir, sanat taklit edilir. Sanatçının hayatına öykünmek ayıp kaçar, kınanır, şakaya vurulur. Sanatın kendisi, yani eser taklit edilirse her zaman kusur aranmaz bunda. Artık serinlik aranıyor. Şehirden şikayet edenlerin bir kısmı modaya uyarak yapıyor bunu. Sanayi şehirlerinin hepsinde varolan koşuşturmacayı tanıtmak üzere oluşturulmuş söz kalıpları vardır. Bir tür retorik her şehir için uygulanır. İstanbul’da trafikten, kalabalıktan; yolların, parkların bakımından şikayetlerin bir kısmı gerçeğe dayanıyor, bir kısmı değil. Kişisel problemlerin baskısı, herkes için geçerli olan örneğin trafikten şikayetle gideriliyor. Bazı şikayet konuları kanıksanmıştır; itiraz edilmez. Trafiğe çok az takılacak tarzda yaşayan bir kişi de bu konuda şikayette bulunabilir.
+     <br>
+      <br>
+       Boğaziçi hâlâ güzellikleri barındırıyor. Abdülhak Şinasi Hisar’ın, Samiha Ayverdi’nin tasvir ettiklerini aramak isteyebilir insan; sanatı taklit edeceğiz ya! Onların büyük bölümü bulunmuyor artık; ama Boğaziçi güzelliklerle dolu. Anadolu yakasında Üsküdar’dan Yuşa tepesine kadar giden yolun dar kalmasında da hayır var! Gidiş geliş altı şeritli bir cadde şimdiki gezinti serinliğini verebilir miydi? İsterse arabayla olsun; altı şeritli gidiş gelişli bir cadde her zaman hızla geçilen bir yoldur. Yol boş olsa bile başkasını yapamazsınız. İşte, Kadıköy yakasındaki sahil yolu. Bizce, Anadolu yakasındaki yolda sık sık dönemeçle karşılaşmayı, ikide bir yavaşlamak zorunda kalmayı fazla da şikayet konusu  yapmamalı. Kanlıca yoğurdunu yerken denizi hissediyorsak biraz da arkadaki yolu unutabildiğimizdendir. Ya, yol kendisini dayatsaydı, hız yapanların sesiyle, görültüyle patırtıyla.
+       <br>
+        <br>
+         Aslında sanat da hayatı taklit ediyor ama çaktırmıyor. Hayat sanatı taklit ederken saklamaz; çoğu zaman övünür bununla. Sanat hayatı taklit ettiğini açığa vurmamaya çalışır; haklıdır belki.
+         <br/>
+         <br/>
+         Yakıcı sıcaklar bastırmadan önceki serinlik özgür bırakır insanı; ötekisini bazan esir alır gibidir. Aranan serinliğin bulunacağı yerler Boğaziçi’nde hâlâ var. Gün batımında tepeden tepeye yansıyan ışıklar, dalgaların parıltıları bu serinliğin tamamlayıcılarıdır.
+         <br/>
+         <br/>
+         Doğadaki güzelliğin ne aradığını bilir misiniz? Doğadaki her güzel köşe, güzellik taşıyan her bucak, insan muhayyilesinde varolmayı arar. Yok olmamak için özlem duyar insan algısına.
+         <br/>
+         <br/>
+         Bu da doğanın sanatı aramasının başlangıcıdır; bizim namımıza.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 9 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12062), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228023153/http://www.aksiyon.com.tr:80/yazdir.php?id=12062)

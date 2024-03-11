@@ -1,0 +1,136 @@
+# Liraya iade-i itibar
+
+*Kadir Dikbaş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050211233227im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050211233227im_/http://www.aksiyon.com.tr/resim/525/64.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sağlanan ekonomik istikrar ve enflasyonun dizginlenmesi ile birlikte Türk ekonomisinde yeni bir döneme giriliyor. 1 Ocak 2005 itibariyle Türk Lirası’ndan (TL) altı sıfır atılacak ve Yeni Türk Lirası’na geçilecek.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Yeni uygulama ile mevcut banknotların dizaynında ve görünümünde değişikliğe gidilmedi, sadece sıfırlar silinerek TL’nin önüne “Yeni” ibaresi eklendi. En büyük kupür olan 20 milyonluklar 20 YTL’ye, 10 milyonluklar 10 YTL’ye, 5 milyonluklar 5 YTL’ye, 1 milyonluklar da 1 YTL’ye dönüştü. Ayrıca seriye 50 ve 100 YTL’lik yeni kupürler ilave edildi.
+   <br>
+    <br>
+     YTL’ye geçişle birlikte, tarihe karışmış olan kuruşlar da geri dönüyor. 1 YTL, 100 Yeni Kuruş’a eşitlendi. 1, 5, 10, 25, 50 Yeni Kuruş ile 1 YTL’lik madeni paralar basıldı. 1 YTL aynı zamanda banknot olarak da tedavülde olacak.
+     <br>
+      <br>
+       Sıfır atan ülke sayısı 49
+       <br/>
+       <br/>
+       Bundan böyle 250-300 bin TL olan ekmek 25-30 kuruşa satılacak, en düşük memur maaşı 500 YTL dolayında olacak. Milyoner sayısı artık parmakla gösterilecek kadar az olacak. Terziler ve konfeksiyoncular, yeniden kuruş cebi olan pantolonlar dikecek, tarihe karışan kumbara çocukların hayatına yeniden girecek. Milyonlarca genç ve çocuk ilk kez kuruşla tanışacak. Parasal işlemler kolaylaşacak ve sadeleşecek. Banknot “hamallığı” son bulacak.
+       <br/>
+       <br/>
+       Sıfır atma olayı, Türkiye Cumhuriyeti tarihinde bir ilk. Dünyada ise bugüne kadar 49 ülke parasından sıfır atmış. Kimisi bir defa, kimisi birkaç defa. En çok sıfır atanlar arasında Sırbistan (Yugoslavya), Brezilya, Arjantin, Almanya, Angola ve İsrail var. Bu ülkeler Türkiye ile kıyaslanamayacak kadar fazla sıfır atmış. Bir çırpıda atanlar arasında Almanlar 1923’teki 12 sıfır atma operasyonu ile ilk sırada. Almanya, İkinci Dünya Savaşı’ndan sonra bir sıfır daha atmıştı. İkinci sıradaki Sırbistan-Karadağ, 1994’te 9 sıfır birden sildi. Bir yıl sonra 6 sıfır daha attı. 6 sıfır birden atan diğer ülkeler 1987’de Bolivya, 1991’de Peru, 1993’te Kongo ve 1999’da Angola oldu. Macaristan ve Ukrayna ise bir çırpıda 5 sıfır birden eksilten ülkeler.
+       <br/>
+       <br/>
+       Toplamda sıfır atma rekoru Sırplar’a ait. 1966 ile 1994 arasında atılan sıfır sayısı 28’i buldu. Uzun süre istikrarsızlık  yaşayan Güney Amerika ülkesi Brezilya 1967-1994 arasında 18 sıfır atarken, Arjantin 1970 ile 1992 yılları arasında 13 sıfır attı.
+       <br/>
+       <br/>
+       Kaime ile başlayan kağıt paralı dönem
+       <br/>
+       <br/>
+       ABD ve Avrupa kağıt para ile 1690’lı yıllarda tanışmıştı; ama Osmanlı’nın kağıt paralara geçişi 150 yıl sonra oldu, ilk uygulama 1840’de gerçekleşti. “Kaime” adı verilen bu para, halk arasında uzun yıllar “kayma” ve “kayme” olarak adlandırıldı. Bugün bile, TL’yi bu isimle anan yaşlılar bulabilirsiniz.
+       <br/>
+       <br/>
+       1840-1862 arasında çeşitli vesilelerle değişik kaimeler çıkarılır. 1963’te ise İngiliz sermayesi ile kurulmuş olan Osmanlı Bankası’na banknot basma ve ihraç etme imtiyazı verilir.
+       <br/>
+       <br/>
+       1914’te Birinci Dünya Savaşı’nda Osmanlı’nın müttefiki Almanya’dır. Karşısında ise İngiltere ve Fransa vardır. Almanya ve Avusturya’dan alınan borç karşılık gösterilerek Osmanlı Bankası’ndan banknot basması istenir. Ancak İngiliz ve Fransız ortakların yönetimindeki banka, alınan borçtan daha büyük olan banknot ihracı teklifini reddeder. İlişkiler kopma noktasına gelir, hatta bankaya el konulması bile gündeme gelir; ancak daha sonra vazgeçilir. Banka, banknot basma imtiyazından kendisi vazgeçer.
+       <br/>
+       <br/>
+       Cumhuriyetin ilk banknotları
+       <br/>
+       <br/>
+       Bunun üzerine Osmanlı yönetimi, altın ve Alman hazine bonolarını karşılık göstererek 1915 - 1918 yılları arasında toplam 160 milyon liralık banknot basar. “Evrak-ı nakdiyye” adı verilen bu banknotlar, Osmanlı’nın çöküşünden sonra Türkiye Cumhuriyeti’ne de intikal eder.
+       <br/>
+       <br/>
+       Türkiye Cumhuriyeti’nin ilk Türk Lirası banknotları, 5 Aralık 1927 tarihinde tedavüle çıkarılır. İngiltere’de bastırılan banknotlar, Osmanlı Bankası aracılığıyla tedavüle sürülür. Bu operasyonla, Osmanlı mirası “evrak-ı nakdiyye”, aynı nitelik ve miktarda kağıt para ile değiştirilir. 1, 5, 10, 50, 100, 500 ve 1.000 liralık kupürlerden oluşan banknotlar, Harf Devrimi öncesinde basıldığı için üzerlerindeki ibareler eski Türkçe ve Fransızca’dır.
+       <br/>
+       <br/>
+       Eski Türkçe ve Fransızca yazılı Cumhuriyet’in ilk banknotları, Merkez Bankası’nın kurulmasının ardından 1937 yılından itibaren Latin alfabesi ile Türkçe olarak basılmaya başlanan yeni banknotlarla değiştirildi. 27 Şubat 1947 tarihli bir Bakanlar Kurulu kararı ile de Osmanlı Bankası’nın Osmanlı döneminde bastığı banknotlarının tedavülüne son verildi. Osmanlı Bankası banknotlarını bir yıl içinde iade edenlere altın karşılığı tam olarak ödenirken, ibraz edilmeyen 58 bin 460 liralık banknot karşılığı olan 386.686 gr. saf altın banka tarafından Hazine’ye aktarıldı. Bu tasfiye işlemiyle birlikte Cumhuriyet’in 24. yılında milli para dönemine geçildi.
+       <br/>
+       <br/>
+       Enflasyon yükseldikçe sıfırlar arttı
+       <br/>
+       <br/>
+       Bazı resmi devalüasyonlara rağmen Türk Lirası, 1970’li yıllara kadar uzunca bir süre değerini korudu. Cumhuriyetin ilk yıllarında 1 dolar, 80 kuruş civarındaydı. O günlerde dolardan daha değerli bir para olan TL, ilk resmi devalüasyonu İkinci Dünya Savaşı sonrasında gördü. ABD Doları’nın değeri 1930’da 1,3, 1939’da da 1,7 TL idi. 1946’daki devalüasyonla 2,8 TL’ye eşitlenen dolar, 1958’de 9, 1970’te 14,85 TL’ye kadar çıktı. Bundan sonraki süreçte ise Türk parası hızlı bir şekilde değer kaybetmeye başladı. Dolar, 1979’u 47 TL olarak tamamladı, meşhur 24 Ocak Kararları’ndan sonra bir yıl içinde 89 lirayı buldu. 100 liralık ilk psikolojik sınır 1981 yılında görüldü. 1987’de bin liralık, 1996 sonunda da 100 bin liralık sınır geçildi. 2001 krizinin ardından da 1 milyon barajı aşıldı. Ve bir Amerikalının ya da Avrupalının bir basamakla ifade ettiği parasal değeri biz 7 basamakla ifade eder hale geldik.
+       <br/>
+       <br/>
+       Bir zamanlar Almanya’da ve Yugoslavya’da olduğu gibi hiçbir zaman alışverişe çuvalla çıkmadık; ama ceplerin ve cüzdanların yetmediği bir gerçek. Bir zamanlar milyoner olmanın bir anlamı vardı. Ancak son yıllarda bırakın milyonerliği milyarderliğin bile esprisi kalmadı.
+       <br/>
+       <br/>
+       Kronik hale gelen yüksek enflasyon TL’yi son 30 yılda büyük bir erozyona uğrattı. Ve Türkiye, kısa zaman aralıklarında daha büyük kupürlü paralarla tanıştı. 1981 yılından bu yana artan emisyon ihtiyacını karşılamak, dolaşımın sağlıklı yürümesini sağlamak için Merkez Bankası sürekli bir üst kupür banknot basmak zorunda kaldı. Çıkarılan her yeni banknot, hem enflasyonun hem de ekonomi politikalarındaki isabetsizliğin, başarısızlığın en son belgesi ve sonucu olarak tarihe geçti.
+       <br/>
+       <br/>
+       1927-1981 yılları arasında 50 kuruş ile 1.000 TL arasında 10 farklı değerde banknot tedavüle çıkarılırken, 1981’den günümüze kadar geçen 23 yılda 11 yeni kupür tedavüle çıkarıldı. YTL gündemde olmasaydı şu anda belki de 50 milyonluk hatta 100 milyonluk banknotların basımını konuşuyor olacaktık.
+       <br/>
+       <br/>
+       Türkiye, halihazırda dünyanın en büyük kupürlü banknotlarına sahip. Bu durum TL’nin itibarını zedelediği gibi vatandaşın da psikolojisini olumsuz etkiliyordu. Ayrıca bol sıfırlı rakamlar, parasal değerlerin yazılmasında ve ifade edilmesinde, bankacılık ve vezne işlemlerinde, muhasebe vb. kayıtların tutulmasında, fiyat etiketlemesinde, bilgisayar programlarında, hesap makinelerinde, benzin pompalarında, taksimetrelerde ve hayatın daha pek çok alanında sıkıntıya yol açmaktaydı.
+       <br/>
+       <br/>
+       TL’nin değişim ve değer saklama aracı olma özelliği de zedelendi. TL elde tutulmaz hale geldi. Dolayısıyla banknot talebi düştü, bozuk paralar kullanılmaz oldu.
+       <br/>
+       <br/>
+       Sıfır atılması için bugüne kadar birkaç kez teşebbüs edildi. Hatta iki kanun tasarısı hazırlandı. Birincisi Aralık 1998’de hazırlanan 5 sıfır atmaya ilişkin tasarı, diğeri de Mayıs 2000’deki altı sıfır silmeye ilişkin tasarı. Ancak enflasyonla mücadelede başarı sağlanamadığı için bu girişimlerden vazgeçildi.
+       <br/>
+       <br/>
+       Bununla birlikte, Türkiye’de iki yıldır yaşanan ekonomik düzelme ve enflasyonun yüzde 10’a kadar çekilmesi, önümüzdeki yıldan itibaren de tek haneye indirileceği yönündeki kuvvetli inanç ve güven, TL’den sıfır atma projesini gerçeğe dönüştürdü.
+       <br/>
+       <br/>
+       Siyasi ve ekonomik istikrarla birlikte TL, bugün uzun zamandır görmediği bir istikrar içine girdi. Halk tekrar kendi parasına güven duymaya, itibar etmeye başladı. Sıfırların atılmasıyla birlikte bu güven ve itibarın daha da pekişmesi bekleniyor şimdi.
+       <br/>
+       <br/>
+       YTL ile sıfırlara veda
+       <br/>
+       <br/>
+       Merkez Bankası 1 Ocak 2005’in ilk dakikaları ile birlikte 15 katrilyon liralık yeni banknotu tedavüle çıkaracak. Basımına 2004’ün ikinci yarısında başlanan YTL banknotlar, parti parti Merkez Bankası’nın yurt genelindeki şubelerine gönderildi. Kış aylarındaki ulaşım zorlukları dikkate alınarak dağıtım doğu illerinden başlatıldı. Merkez Bankası Başkanı Süreyya  Serdengeçti’nin açıklamalarına göre şubat ayı sonunda dolaşımdaki banknotların yüzde 90’ının YTL olması bekleniyor.
+       <br/>
+       <br/>
+       Bozuk paraların basımını üstlenen Darphane Genel Müdürlüğü ise tarihinde ilk kez bu kadar yoğun çalıştı. Üç ay boyunca üç vardiya çalışarak toplam 1 milyar 200 milyon adet madeni para bastı.
+       <br/>
+       <br/>
+       Geçişin sorunsuz olması için devlet ve özel sektör kuruluşları aylar önce çalışmalarına başladı. Birkaç ay önceden marketlerdeki fiyat etiketleri bile hem TL hem YTL olarak yazılmaya başladı. Pilot uygulama alanı seçilen bazı devlet kurumlarında ikili kayıt tutuldu. Bankalar arası işlemler için test çalışmaları yapıldı.
+       <br/>
+       <br/>
+       Banknotların ve madeni paraların yeni görünümünü, güvenlik özelliklerini ve hesaplama kolaylıklarını içeren 1 milyon adet broşür ile çok sayıda afiş ve tanıtım kitapçığı bastırıldı, birçok toplantı düzenlendi.
+       <br/>
+       <br/>
+       Bankalardaki bütün hesaplar 01 Ocak 2005 tarihi itibarıyla YTL’ye dönüştürülecek. Merkez Bankası personeli, her ihtimale karşı, en kritik an olan 31 Aralık 2004 gecesi de mesaide olacak. Saat 24.00’ten sonra sistemde bir sıkıntı olup olmadığını izleyecek, gerektiğinde müdahale edecek. Personel 1 Ocak Cumartesi ve 2 Ocak Pazar günü de çalışacak.
+       <br/>
+       <br/>
+       TL’den sıfır atılması ve YTL’ye geçiş teknik ve operasyonel bütün sıkıntıları ortadan kaldıracak. Ayrıca Türk halkının parasına olan güveni yenilenecek, enflasyonun düşürülmesi konusunda sağlanan başarının ve kararlılığın bir göstergesi olacak. Enflasyonla mücadelede psikolojik etki meydana getirecek. Enflasyonun dizginlenmesi ile birlikte uzunca bir süre yeni kupüre ihtiyaç duyulmayacak En azından önceki dönemlerin aksine beklentiler ve umutlar o yönde. Kısacası paramızın itibarı iade olunacak, parasal işlemler ve ifadeler sadeleşecek, kolaylaşacak.
+       <br/>
+       <br/>
+       Maliyet 20 milyon dolar
+       <br/>
+       <br/>
+       YTL’ye geçişin maliyeti Merkez Bankası Başkanı Serdengeçti’nin açıklamasına göre, 20 milyon doları bulacak. Rakamın bu kadar düşük olmasının sebebi, zaten kirlilik ve yıpranma sebebiyle, zaman zaman tedavüldeki paranın bir kısmının imha edilip yenilerinin basılıyor olması.
+       <br/>
+       <br/>
+       YTL piyasaya çıkmadan önce koleksiyoncular arasında A serisinin ilk banknotlarını kapma yarışı başladı. Bunu düşünen Banka, A serisinden oluşan 20 bin adet YTL banknot seti hazırladı. İsteyen Ziraat Bankası şubelerinden 186 milyon TL karşılığında bu setlerden alabilecek.
+       <br/>
+       <br/>
+       Türk Lirası banknotlar da YTL ile aynı anda bir yıl süreyle tedavülde olacak. Daha sonra da 10 yıl boyunca değerini muhafaza ederek Merkez Bankası şubelerinde, onun olmadığı yerlerde Ziraat Bankası’nca değiştirilebilecek. Dolayısıyla yeni para eski para telaşına kapılmaya gerek yok. Başkan Serdengeçti bu konuda vatandaşa şu tavsiyelerde bulunuyor: “Eskisini istemiyorum tavrı içinde olmak, kendimiz için zorluk çıkarır. Bunlara gerek yok. Zaten zaman içinde paranın yenisi elimizde olacak. Hemen ertesi günü, ‘Ben illa yeni para istiyorum’ demenin anlamı yok.’’
+       <br/>
+       <br/>
+       YTL’ye geçişin, vatandaşa ve mali sisteme sadelik, Türk parasına da itibar getireceği muhakkak. Karşılaşılan en büyük zorluk ise muhtemelen sıfırsızlığa ve kuruşlu hayata alışmak olacak. Biraz gözlerimiz ve beynimiz yorulacak. Hepsi o kadar.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=19307), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050211233227/http://www.aksiyon.com.tr:80/detay.php?id=19307)

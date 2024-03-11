@@ -1,0 +1,97 @@
+# 41. Aile siz olun
+
+*Ayşe Adlı Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türkiye’de, korunmaya muhtaç kayıtlı çocuk sayısı 20 binin üzerinde. Toplam sayının ise bir milyona yakın olduğu sanılıyor. Sadece akşam haberlerinde ve gazetelerin üçüncü sayfalarında gündeme gelen korunmaya muhtaç çocukların en büyük eksiği sıcak bir ev ve sevgi...
+   <br/>
+   <br/>
+   Türkiye bir dönemecin eşiğinde. Evlerin oturma odalarıyla siyaset kulislerinin gündemi aynı. Aylardır bir tek konuya kilitlendik: Avrupa Birliği. Türkiye’nin yeniden yapılanmaya gittiği bu dönemde kamuoyu gündeminde yer bulamayan başka tartışmalar da yapılıyor. Türkiye Büyük Millet Meclisi komisyonlarında gündem dışı konular mercek altına alınıyor. Iskalanan tartışmalardan biri, Sokak Çocukları Araştırma Komisyonu’nda yaşandı. Adalet ve Kalkınma Partisi Kahramanmaraş Milletvekili Avni Doğan, Sosyal Hizmetler ve Çocuk Esirgeme Kurumu’na (SHÇEK) sert eleştiriler yöneltti: “Bizim hükümetimiz de bu konuya ciddiyetle eğilemedi. Bu kafa değişmezse sokak çocuğu üretmeye devam ederiz.”
+   <br>
+    <br>
+     Komisyon toplantısında dile getirilen bu görüşler, Himaye-i Etfal Cemiyeti’nden Çocuk Esirgeme Kurumu’na gelinceye dek milyonlarca çocuğa barınak olan kurumun, yeniden yapılanma sürecinden nasibini alması gereğini ortaya koyuyor. Kediler ve köpekler bile tehlike altında oldukları gerekçesiyle sokaklardan toplanırken, bir milletin geleceğini omuzlayacak binlerce çocuk sokağa emanet edilebilir mi? Siyasiler tarafından tartışılsa da siyaset üstü bir kurum olan SHÇEK gerçekten de bu kadar denetimsiz mi?
+     <br>
+      <br>
+       SHÇEK ve korunmaya muhtaç çocuklar kamuoyu gündemine kurum üzerinde yapılan polemikler ve üçüncü sayfa haberleriyle geliyor çoğu zaman. “Yuvadan kaçan çocuk” üzerine kurgulanan hikâyeler, Çocuk Esirgeme Kurumu’na yöneltilen eleştirilerle son buluyor. En üst perdeden dile getirilen eleştiriler, kurumda ‘çocukların esirgenemediği’ yönünde. Basının ve kamuoyunun duyarlılığının sonu, sosyal hizmet yapılanmasının sorgulanmasına ve yetkililerin ağır bir dille itham edilmelerine kadar varabiliyor.
+       <br>
+        <br>
+         Kurum bütçesi beklentiler için yeterli değil
+         <br/>
+         <br/>
+         Bir milyon civarında korunmaya muhtaç çocuğun olduğu tahmin edilen Türkiye’de, bu çocuklara hizmet veren tek yer olan SHÇEK bünyesinde 20 binden fazla çocuk kalıyor. Kayıtlı çocuk sayısı hızla artan kurumun bütçesi ise son 10 yılda istikrarlı bir düşüş gösteriyor. Sosyal Hizmet Uzmanları Derneği Başkanı Hürriyet Uğuroğlu’na göre, bebeklik ve ilk çocukluk döneminde çocukların anneleri yerine benimseyecekleri, birebir ilişki kuracakları insanlar tarafından bakılmaları gerekiyor. Bu nedenle bu gruplarda çalışan bakıcı annelerin 5 yıldan önce değiştirilmesine sıcak bakılmıyor. Ancak SHÇEK’te personel eksikliği, kaynak yetersizliği yüzünden, hizmet alımıyla giderilmeye çalışılıyor. Eğitimsiz ve gerekli donanıma sahip olmayan bu personelse birkaç ay içinde görevden ayrılabiliyor.
+         <br/>
+         <br/>
+         ‘Korunmaya Muhtaç Çocuk Yasası’ ile tanımlanan çocukların en uygun şartlarda rehabilite edilebilmesi gerekiyor. Uğuroğlu, farklı nedenlerden gelen çocukların bir arada kalmasının olumsuz bir etkileşime neden olduğuna dikkat çekiyor. Benzer problemlerden dolayı kurum bakımına alınan çocukların birlikte kalması ve rehabilite edilmesi gerekiyor. Ancak SHÇEK’e bağlı mevcut yuva ve yurtlarda aile içi şiddet, taciz, cinsel suçlar, ekonomik yetersizlik gibi nedenlerden gelen çocuklar bir arada kalıyor.
+         <br/>
+         <br/>
+         İstanbul Sosyal Hizmetler İl Müdürlüğü Şube Müdürü Nermin Fügen Altuntaş, bunun kurum politikasından değil altyapı eksikliğinden kaynaklandığını dile getiriyor. Farklı problemler nedeniyle kurum bakımına alınan çocukların mevcut yapılanmadan dolayı bir arada kalmak zorunda olması, hizmeti zorlaştırıyor.
+         <br/>
+         <br/>
+         Islah evi değil, çocuk yuvası
+         <br/>
+         <br/>
+         Basının kurumla ilgili haberleri abartarak aktardığını söyleyen Altuntaş’a göre, suça karışan çocukların çoğu problemli oldukları için kuruma bırakılmış. “Aileler, kurumda kalmaya başlayınca çocuklarının problemleri ortadan kalkacak düşüncesiyle bize geliyor. Çocuk iyi bir eğitim alacak ve sorunlar ortadan kalkacak sanılıyor. Ancak biz eğitim ya da rehabilitasyon merkezi değil, yaşam kurumuyuz. Ailelerin engel olamadığı bir davranışı gidermeye bizim de gücümüz yetmiyor.”
+         <br/>
+         <br/>
+         Problem çocuk yuvalarında yaşıyor olmalarından değil, birlikte getirdikleri sorunların giderilememesinden kaynaklanıyor. “Fiziksel ya da cinsel şiddet görmüş çocuklar geliyor bize. Problemlerin temelinde bu çocukların geçmişte yaşadıkları travmalar var, kurum yok. Evlerinden kaçtıkları için yuvaya getirilen çocuklar aynı davranışı burada da sergiliyor.” Çocukların arasında oluşabilecek olumsuz etkileşim meslek elemanları ve uzmanlar tarafından önlenmeye çalışılıyor. Patolojik problemler için ise profesyonel yardım alınıyor. Altuntaş’a göre eleştirilerin nedeni çocuk yuvaları ve yetiştirme yurtlarının ıslah evi zihniyetiyle değerlendirilmesi. SHÇEK’e bağlı kurumlarda kalan çocukların çevredeki okullara dağıtıldığını belirten Altuntaş, ıslah evlerindeki gibi bir koruma ve denetleme olmadığı için kendini kaçmaya kodlayan çocukların okula gidip gelirken bile bunu yapabileceklerini söylüyor. “Kaçmaları için bir nedenleri olması gerekmiyor. Çocuk tercihini sokakta yaşamaktan yana koyabiliyor. Bazen kaçarken arkadaşını da götürebiliyor tabii.”
+         <br/>
+         <br/>
+         En çok sevgiye ihtiyaçları var
+         <br/>
+         <br/>
+         Nermin Altuntaş, kurum bakımının bir çocuk için en son düşünülmesi gereken seçenek olduğunu söylüyor. Tüm alternatifler tükenmişse kurum bakımı gündeme geliyor. “Bizim kurumlarımızda çocukların karınları doyuyor. Sıcak bir ortamları var, birçok çocuk hiç görmemiştir belki ama bizim çocuklarımız Tatilya’ya gidiyor. Her aile çocuğunun okul malzemelerini, önlüğünü, çantasını her yıl değiştirmezken bu çocuklar her yıl yeni çanta, önlük, ayakkabı sahibi oluyor. Ama bütün bunlar onların mutlu olması için yeterli değil. Çocukların ihtiyaç duyduğu aile ve sevgi eksikliğinin yerini başka bir şeyin tutması mümkün değil.”
+         <br/>
+         <br/>
+         Çocuk Esirgeme Kurumu tarafından zaman zaman çeşitli kampanyalarla yaygınlaştırılmaya çalışılan uygulamaların temelinde çocukların kurum bakımının olumsuzluklarından kurtarılması arayışı var. Altuntaş, “Çok çocuk sahibi bir anne bile çocuklarına yeterli ilgi ve sevgiyi gösteremezken bir yuvada kalan 150 çocuğa yeterli sevginin verildiğini savunmak mümkün değil.” diye açıklıyor durumu. 11 yıldır sorumlu olduğu koruyucu aile uygulaması süresince çocukların durumunu gözleyen Altuntaş, çocuk yuvalarında kaldıktan sonra aile yanına geçen çocukların durumunda kısa sürede çok ciddi değişiklikler olduğunu dile getiriyor. “Çocuk aile yanına gittikten sonra inanılmaz derecede değişiyor. İçindeki özlemi dindirme imkanı elde ettiği için hemen sahipleniyor aileyi. Birlikte kaldığı insanların öz anne babası olmadığını bilse de öz gibi kabulleniyor. Kendine güvenmeyi, sorumluluk sahibi olmayı öğreniyor.”
+         <br/>
+         <br/>
+         Yeni ailesini 10 yaşında tanıdı
+         <br/>
+         <br/>
+         SHÇEK, koruyucu aile uygulamasını 1940’lı yıllardan beri yürütüyor. Bu uygulamayla, korunmaya muhtaç çocuklar, sağlıklı gelişebilmeleri, fiziki ve psikolojik ihtiyaçlarının karşılanması için gönüllü ailelerin denetimine veriliyor. Televizyon ve gazeteler aracılığıyla yaygınlaştırılmaya çalışılan kampanyalar sonucunda, şu anda Türkiye genelinde 575, İstanbul’da ise 40 koruyucu aile var. Bir elini devletin tuttuğu korunmaya muhtaç çocukların boşlukta kalan elleri, ‘Öteki elini sen tut’ gibi kampanyalarla yeni ailelere uzanıyor. Ailelerden tek istenen, devletin koruması altında olmaları hasebiyle kamuya mal olan çocuklara sıcak bir yuva sağlamaları.
+         <br/>
+         <br/>
+         Koruyucu aile uygulamasının yaygınlaşmasının önünde, kampanyaların yeterince duyurulamaması dışında bir engel daha var: Zihinlerdeki “Acaba kendi çocuğum gibi sevebilir miyim” sorusu. 6 yıldır koruyucu ailesi oldukları ‘Turner Sendromu” hastası Taliha ile birlikte yasayan Afife ve Nizam Kuru çifti, tereddütlerin yersiz olduğunu düşünüyor. Ciddi sağlık sorunları olmasına rağmen onlar Taliha ile birlikte oldukları süre zarfında bu soruyu kendilerine hiç sormamışlar. Çünkü aynı evde yaşamaya başlamadan aile olmuş onlar. Nizam Bey, durumu “Taliha bizimle kalmaya başladıktan bir hafta sonra, onsuz bir hayat düşünemiyorduk.” diye özetliyor.
+         <br/>
+         <br/>
+         Taliha, 16 yıl önce birkaç günlükken polisler tarafından yuvaya getirilmiş. Talihi dönsün diye konulmuş bu isim. “Turner Sendromu” nedeniyle doğuştan boyun, göz, kulak, böbrek ve kalp problemleri olan Taliha’nın resmi kayıtlara göre kimsesi yok. Nüfus kütüğünde kayıtlı olmayan ailesi ise çok geniş. O, Afife ve Nizam Kuru’nun kızı, Osman Kuru’nun kardeşi. Ordu’da, İstanbul’da akrabaları, komşuları ve arkadaşları var...
+         <br/>
+         <br/>
+         Kuru çifti, depremde ailesini kaybeden yüzlerce çocuğun yeni yuvalarını aradığı bir dönemde ‘Öteki Elini Sen Tut’ kampanyasına katılmaya karar vermiş. Afife Hanımın çaktığı kıvılcım, Nizam Beyin desteğiyle büyüyünce 3 kişilik Kuru ailesi de genişlemiş. Afife Hanım, Taliha’yı ilk gördüğünde hasta olduğunu anlamasına rağmen kendisi için vazgeçilmez olmuş küçük kız. Çünkü Taliha müstakbel annesini görünce saatlerce ağlamış. “Çok etkilendim, eve dönünce eşime ve oğluma anlattım. Sonra onu görmesi için eşimle birlikte yuvaya gittik. Taliha’yı görür görmez ‘bu çocuk özürlü’ dedi. Baş ve boyun kısmındaki damar kasılmaları nedeniyle hasta olduğu anlaşılıyordu.”
+         <br/>
+         <br/>
+         Eşinin Taliha’yı istemeyeceğini düşündüğü için çok üzülmüş. O gece rüyasında yine Taliha’yı ağlarken görünce konuyu sabah tekrar açmış eşine. Nizam Bey’in cevabı bu kez ‘tamam’ olmuş. Resmi işlemlerin tamamlanması için uzun bir zaman gerekmesine rağmen yetkililerin de yardımıyla işlemler tamamlanmadan yanlarına almışlar.
+         <br/>
+         <br/>
+         Taliha 6 yıldır Kuru ailesiyle birlikte yaşıyor. Bu süre zarfında 3 kez ameliyat olmuş, tedavisi hâlâ sürüyor. Ciddi sağlık problemlerine rağmen onunla birlikte olmaktan çok mutlu olan işçi emeklisi çift, artık Taliha’sız bir hayat düşünemiyor. İnsanların kendi öz çocuklarını hangi ruh haliyle terk ettiğini anlamakta zorluk çeken Afife Hanım, aile şefkatine muhtaç binlerce çocuk varken sergilenen duyarsızlığa da anlam veremiyor: “Bizim kızımız hasta. 6 yıldır yaz kış hastanelere taşınıyoruz. Buna rağmen bizim için artık Taliha’sız bir hayat söz konusu olamaz. İnsanlar, acaba sabır gösterebilir, kendi çocuğum gibi sevebilir miyim diye düşünmesinler. Bir yuvaya ihtiyacı olan bu çocuklara gönül kapılarını açmak gözlerinde büyüttükleri kadar zor değil.”
+         <br/>
+         <br/>
+         Koruyucu aile yeterince bilinmiyor
+         <br/>
+         <br/>
+         Afife Hanım, sergilediği örnek davranış nedeniyle 2002 yılında ‘yılın annesi’ seçilmiş. Fakat Taliha ile olan ilişkisini daha çok önemsediği için kendini yılın annesi olarak değil Taliha’nın annesi olarak tanıtmayı tercih ediyor. Çocuk Esirgeme Kurumu yetkililerinin duygusal gelişimini olumsuz yönde etkileyebileceği gerekçesiyle görüşmemize izin vermediği Taliha ise sadece okula gitmek için ayrıldığı ailesinden teneffüslerde bile uzak kalmak istemiyor. Telefon edip seslerini duyduktan sonra akşamı etmek daha kolay onun için.
+         <br/>
+         <br/>
+         Afife Hanım ve Nizam Bey, 15 milyon nüfuslu İstanbul’da sadece 40 çocuğun kendileri için yeni bir aile bulmasını koruyucu aile kampanyasının yeterince bilinmemesine bağlıyor. Aksi takdirde çocuk sahibi olmak için tüm servetlerini harcamayı göze alan insanların, sadece sevgi bekleyen bu çocuklardan uzak durmalarını anlamak kolay değil. Ayrıca koruyucu aileliğe teşvik için yapılan maddi yardımın da yetersiz olduğunu söyleyen Nizam Bey, Sosyal Hizmetler korumasından çıktıktan sonra hiçbir güvencesi kalmayacağı için Taliha’ya ev almayı planlıyor. Gerekli koşullar oluştuğunda ise ise evlat edinme işlemlerine başlayacaklar.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 531 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=19270), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050221055916/http://www.aksiyon.com.tr:80/yazdir.php?id=19270)

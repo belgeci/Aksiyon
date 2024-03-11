@@ -1,0 +1,44 @@
+# Paramparça hayatlar üzerine ihtimal hesapları
+
+*Ercüment Dursun Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041226003053im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041226003053im_/http://www.aksiyon.com.tr/resim/515/75.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yazı-Tura, ihtimal hesapları üzerine verilen ilk örnek. Parayı havaya atınca, ya yazı gelir, ya tura. Ama Yazı-Tura bir film olunca, hesap bu kadar basit olmuyor. Uğur Yücel’in Yazı-Tura adlı filmi bize hayatın da olmak ya da olmamak noktasında iki seçeneğe indirgenebileceğini, en azından Türkiye’de çoğu kez insanın ancak ve ancak bu iki seçeneğe sahip olabileceğini vurguluyor.
+ </font>
+ <p>
+  <font class="content">
+   41. Antalya Film Festivali’nin ardından, adından en çok söz edilen film oldu Yazı-Tura. İçlerinde En İyi Film, En İyi Yönetmen, En İyi Senaryo ve En İyi Erkek Oyuncu ödülleri de dahil, 11 ödülle döndü Antalya’dan. Festivale ilişkin tartışmalara, eleştirilere yeniden kapı açmaya gerek yok burada. Tek başına festivale damgasını vuran Yazı-Tura, bütün bu tartışmaların üzerini külle örttü.
+   <br/>
+   <br/>
+   Yönetmenliğini Uğur Yücel’in yaptığı, başrollerinde Kenan İmirzalıoğlu ve Olgun Şimşek’in yer aldığı Yazı-Tura, rahatsız edici bir üslûba ve öyküye sahip. Türk sinemasında zaman zaman denenen, idealistçe parmak basılmak istenen sosyal konulardan henüz zihinlerimizde taze olan bir olguya değişik açılardan bakıyor Yazı Tura. Daha insanî, daha objektif ve elbette daha estetik.
+   <br/>
+   <br/>
+   Uğur Yücel, kendisinden İkinci Bahar’la söz ettirdi ilk önce. Renkli ve farklı alanlardaki başarısıyla tanınan sanatçı, müzisyen, oyuncu ve yazar kimlikleriyle izleyici karşısında yer aldı çoğu kez. Koltuğuna sığdırdığı bütün karpuzları da kırmadan, dökmeden taşımayı bildi. İkinci Bahar dizisinin reyting adına sulandırılmasına tepki göstererek, dizinin yönetmenliğini bıraktı. Başarılı bir müzisyen olduğunu da takip eden hayranları biliyor. Son zamanlarda farklı anlatım tarzı ve öyküsüyle Alacakaranlık ile televizyon ekranlarında izleyici ile buluşmuştu. Yine Olgun Şimşek ve Kenan İmirzalıoğlu ile.
+   <br/>
+   <br/>
+   İmirzalıoğlu, Deli Yürek’teki adının altında kalıp, klişe rollerle kariyerini tüketmek yerine, akıllıca bir tercih yaparak, karakterinin ve yeteneklerinin elverdiği ölçüde önce Alacakaranlık’ta yer aldı ve ardından da Yazı-Tura’da. Aslında bütün bu rollerinin altında hep bir Miroğlu etkisi de yok değil. Buna rağmen, oyuncunun gelişim çizgisi açısından bakıldığında kendini yinelemediğini, yenilediğini ve geliştirdiğini söylemek mümkün. Yazı-Tura bu gelişimin bir göstergesi.
+   <br/>
+   <br/>
+   Uğur Yücel, “Türkiyeli bir insan olarak, duygularımın, sorumluluğumun bir yansıması” diyor Yazı-Tura için. Sorumlu bir sanatçının kayıtsız kalamayacağı yoğun bir döneme, öykünün duygusallık ve didaktik tuzaklarına rağmen ustalıkla yaklaşabilmiş. Teknik ve estetik anlamda yaptığı deneysel yaklaşımlar ise filmin içeriğiyle de uyumlu olmuş. Bu anlamda filmin sürekli devinen kamerası, flu veya sepya görüntüleri öyküdeki karmaşayı ve parçalanmışlığı görsel düzeyde verme açısından bilinçli ve yerinde tercihler. Uğur Yücel filmi dijital olarak çekmiş ve daha sonra 35mm’ye aktarmış. Görüntülerin dijital olarak çekilmesi elbette ki estetik açıdan çekim sonrası yönetmene büyük imkânlar sağlayan bir teknik. Ama filmin başarısını sadece tekniğe indirgemek haksızlık olur. Fotoğraflar, çekim açıları ve kurgudaki tercihler Yücel’in tercihlerindeki bilinçli yaklaşımı belli ediyor. Bir ilk film olmasına rağmen, öykü ve anlatım tutarlılığı yakaladığını söylemek mümkün Yücel için.
+   <br/>
+   <br/>
+   Yazı-Tura, iki temel sosyal olguya parmak basıyor: terör ve deprem. İkisini de bu ülke insanı yakından ve derinden tanıyor. Filmin her iki kahramanı da Güneydoğu’da askerliğini yapmış iki gazi. Film daha çok bu ikilinin Türkiye’nin birbirinden hayli uzak iki ayrı ucunda hayata tutunma çabalarını konu ediniyor. Bir çeşit Doğum Günü 4 Temmuz’un Türkiye versiyonu denebilir. Uğur Yücel incelikli ve zekice tespitlerle eleştirel olmaktan da geri kalmıyor. Ama en çok da onun kamerasına yansıyan toplumsal duyarlılık ve tespitleri izleyiciyi yüreğinden vuruyor.
+   <br/>
+   <br/>
+   Başta da söylediğimiz gibi, Uğur Yücel, duygusallık ve didaktizm tuzağına düşmeden; sinema yaptığının bilinciyle ele aldığı konuyu, estetik ölçütler içerisinde başarıyla işliyor ve aldığı ödülleri hak ettiğini ortaya koyuyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16901&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041226003053/http://www.aksiyon.com.tr:80/detay.php?id=16901&yorum_id=1)

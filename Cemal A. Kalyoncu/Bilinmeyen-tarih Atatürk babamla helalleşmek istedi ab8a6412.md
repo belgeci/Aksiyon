@@ -1,0 +1,125 @@
+# "Atatürk babamla helalleşmek istedi"
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050124192249im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050124192249im_/http://www.aksiyon.com.tr/resim/473/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir Selçuklu ailesi olan Karabekiroğulları"ndan Kazım Karabekir"in kızı Timsal Hanım, 1926 senesinde Atatürk"e düzenlenen suikasti fırsatbilenlerin suikast içinde suikast yaptıklarını söylüyor. Kurtuluş Savaşı"nın tohumları Anadolu"da henüz serpilmeye başladığında özellikle İngilizlerin baskı ve tazyiki ile gerek Rauf Orbay gerekse Mustafa Kemal"in yakalanıp idam talebi ile yargılanmak üzere İstanbul"a gönderilmeleri istenir.
+  <br/>
+  <br/>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bunun üzerine Atatürk azlin gerçekleşmesini beklemeyip istifa etmeyi yeğler. Yanındaki kurmay başkanı Manastırlı Kazım (Dirik) hiç vakit kaybetmeden "Paşam" der, "Siz artık istifa ettiğinize göre emirleri kimden alacağım? Dosyaları kime teslim edeceğim." Atatürk bu söz karşısında sadece "Öyle mi efendim, peki efendim" demekle yetinir. Tam bu sırada 15. Kolordu Kumandanı odaya girer. Ki o komutan, silahlarını teslim etmemiş yegane ordunun başkumandanıdır o sırada. O komutan İstanbul"dan gelen emri gerçekleştirmek yerine, Atatürk"ün bu harekette desteklenmesi gerektiğini söyler. Bu, Kurtuluş Savaşı"nın en kritik anlarından, tabir yerinde ise kader anlarından biridir. Kurtuluş mücadelesi bundan sonra ayrı bir ivme kazanır.
+   <br>
+    <br>
+     İşte bu kritik kararı veren Kazım Karabekir"dir. Karabekir, Şark Cephesi Kumandanlığı"na atanmadan önce de Osmanlı"nın Doğu bölgelerinde savaşmıştır. Hatta henüz çocukken, yıllar sonra kumandanlık edeceği Doğudaki bu yerlerden birçoğunu babasının vazifesi nedeniyle gezmiştir. Kazım Karabekir"in üç kızından en küçüğü olan Timsal Karabekir Yıldıran (Çok yerde Köymen şeklinde yazılsa da bu eşinin ismidir, soyadı ise Yıldıran şeklindedir), babasının bu yönü ile ilgili "Babamın sonradan kurtaracağı yöreleri önceden tanıması büyük şanstı" demektedir.
+     <br>
+      <br>
+       Kazım Karabekir aslında bir Selçuklu ailesine mensuptur. Tarihte Karabekiroğulları unvanına sahip ailenin bugün il olan Karaman"da kendi adları ile anılan ilçeleri var. Soyadı daha kullanılmadığı zamanlarda da Kazım Bey"in ismi Kazım Karabekir"dir. Kanun çıkınca ikinci ismini soyad olarak alır. Timsal Hanım anlatıyor: "Yararlılıklarından dolayı tımar verilmiş bunlara. Kırmızı şalvarlı, kırmızı cepkenli, ellerinde kılıçları olan süvari birlikleriymiş bunlar. Gerek duyulduğunda orduya alınırlarmış."
+       <br>
+        <br>
+         Ancak Musa Kazım Doğuda bir yerde değil de 1882 yılında İstanbul/Kocamustafapaşa"da gelmiştir dünyaya. Babası Osmanlı"nın ünlü paşalarından Mehmet Emin Paşa ile Mekke ve Medine"ye de gider Kazım. Mehmet Emin Paşa"nın asker oluşu da ilginçtir: "Mehmet Emin, yani babamın babası 15 yaşında iken Kırım Harbi patlak veriyor (1853). Ve devlet asker toplamak için her yere haber gönderiyor. Birçok insan çocuğunu askere yollamamak için saklıyor. O sırada Mehmet Emin"in babası, "Eğer biz çocuklarımızı askere göndermezsek bu vatanın şerefini kim kurtaracak? Yazın" diyor, "İlk gönüllü Mehmet Emin"imdir." Oradan madalyaları var. Sonra paşalığa kadar yükseliyor."
+         <br/>
+         <br/>
+         Mehmet Emin Paşa, görevli olduğu Mekke"de koleradan vefat eder. Kazım Karabekir henüz on yaşlarındadır. Bunun üzerine annesi beş erkek çocuğuyla birlikte İstanbul"un yolunu tutar. Zeyrek"te otururlar. Kazım Karabekir de tahsil hayatını burada devam ettirir. Fatih Askeri Rüştiyesi, Kuleli İdadisi ve Harp Akademileri"ni birincilikle bitirir. 1905 senesinde kurmay yüzbaşı olarak orduya katılır. Bundan sonra Osmanlı ordusu adına yararlılıklar gösterir. Arnavutluk isyanını bastıran Hareket Ordusu"nda görev alır, Çanakkale Muharebeleri"ne katılır. 1917"de II. Kolordu, 1918"de de I. Kafkas Kolordusu Komutanı olur. Burada Ermeniler ile Ruslara karşı sert mücadeleler verir. Kars, Gümrü ile Moskova Anlaşmaları"nda bizzat onun imzası vardır. (Bu anlaşmalara imza attığı üç kalem de bugün Ankara"da sergilenmektedir. Kazım Karabekir"in cephede giydiği kar ayakkabılarından seyyar karargâhına, kütüphanesinden ve savaşlarda kullandığı silahlarına varıncaya kadar birçok eşyası ise yeni müze olan Kazım Karabekir Paşa Müzesi"nde sergileniyor artık.)
+         <br/>
+         <br/>
+         Kazım Karabekir, Mondros Antlaşması"ndan sonra İstanbul"a çağrılır; ancak vatana daha çok faydası dokunacağını düşünerek Doğuda görev ister. Ve yukarıda bahsettiğimiz gibi 1919"da Şark Cephesi Kumandanlığı"na atanır: "Gitmeden bir ay önce Mustafa Kemal Paşa"yı Şişli"deki evinde ziyaret ediyor ve "Paşam" diyor "Doğuya gelin. Kurtuluşun anahtarı Doğudadır".
+         <br/>
+         <br/>
+         Kazım Karabekir, Doğuda sadece askerlere kumandanlık yapmaz. Bölgede halkı bilgilendirecek her türlü çabayı safr eder. Ermeni ayaklanmaları  ve savaşlar sırasında sahipsiz kalan 2 bini kız 6 bin yetime babalık eder: "İlk eşim Bir Ayasbeyoğlu (Maarifçi, milletvekilliği yapmış ve Karabekir Paşa"nın yalnızlığa itileceği dönemde onun en yakın arkadaşlarından olacak Nevzat Ayasbeyoğlu"nun oğludur) ile evli iken, onun kısa dönem askerliği için bulunduğumuz Sivas"ın bir köyünde bana da öğretmenlik yapmam için bir sınıf verdiler. 1960 senesi idi. 19 yaşındaydım. Bir gün "Sabri Koçak albay seni çağırıyor" dediler. "Beni niye çağırsın?" dedim. Odasına gittiğimde elini şöyle bir omuzuma koydu "Bak kardeşim" dedi, "Senin baban senden önce benim babamdı." Babamın yetim çocuklarındanmış Sabri Koçak Paşa da."
+         <br/>
+         <br/>
+         Karabekir, o gençleri eğitir ve Gürbüzler Ordusu olarak Padişah"ın ordusuna dahil eder. Bundan dolayı "Yetimler Babası" olarak da anılır. Kabiliyetlerine göre meslek öğrettiği çocuklar savaş sırasında orduya kaput, potin dikmeye başlar. Sarıkamış"ta, halkı bilgilendirmek için Varlık adıyla  bir gazete bile çıkarır Karabekir.
+         <br/>
+         <br/>
+         "Suikast içinde suikast"
+         <br/>
+         <br/>
+         Doğuda sadece Kazım Karabekir yoktur tabii. Refet Bele, Rauf Orbay, Ali Fuat Cebesoy ve Atatürk de oradadır: "Öyle bir kadro var ki Allah bu milleti kurtarmak istemiş." Kurtuluş Savaşı verilmiş ve ardından Türkiye Cumhuriyeti kurulmuş. Büyük Millet Meclisi oluşturulmuş. Karabekir de siyaset sahnesindeki yerini almış. Bir süre sonra 1924 senesinde Atatürk"ün de onayıyla Karabekir, Terakkiperver Cumhuriyet Fırkası"nı kurmuş ve genel başkanı olmuş. Doğuda birlikte olduğu komutanlar da burada onunla beraberdir. Ancak 1926 senesinde, İzmir"de vuku bulan Atatürk"e suikast hadisesinden sonra, nasıl olmuşsa olmuş, Kazım Karabekir Paşa"nın da adı suikaste karışmış: "Bana anlatılan, -benim kanaatim de o yönde- babam ve diğer paşalara yapılan, suikast içinde bir suikasttir. Yani "hazır böyle bir şey olmuş, biz de bunları bertaraf edelim" gibilerinden. Bunları da maalesef yok etmek istemişler. Ve babamın bütün suçu neymiş biliyor musunuz: Samanpazarı"ndan geçerken suikaste karışanların birinin, galiba Ziya Hurşit"in amcası, dayısı falan gibi birine merhaba deyip geçmiş olması."
+         <br/>
+         <br/>
+         - Kimler babanızı bu işe bulaştırmak istemiş size göre?
+         <br/>
+         <br/>
+         "Kurtuluş Savaşı esnasında Atatürk"ün etrafındakileri biliyorsunuz. Daha sonra yeni bir kadro onun etrafına geldiği zaman, o eski kadrodaki insanların hepsi elinin tersi ile silinmek, yok edilmek istenmiş. Bütün paşalar suikastle suçlanıyorlar çünkü."
+         <br/>
+         <br/>
+         Kazım Karabekir, suikast davalarının görülmeye başladığı 1926"da henüz üç yıllık evlidir: "O tarihe kadar kendini düşünmeye fırsat yok ki. Ancak 1923 senesinde evlenebilmiş." Peki Kurtuluş Savaşı"nın bu önemli kumandanı nasıl evlenmiş? "Babama birkaç kız gösteriyorlar, içlerinden en çok annemi beğeniyor. Babam "Bir göreyim yüzünü falan" demiş. İkbal Mağazası mı ne, orada alış verişe çıkmışlar. Dayım biliyormuş durumu. Kasada bir yerde annem birkaç kez babamı görmüş ve birazcık da sitem etmiş galiba. Ama bilmiyor da. Dayım tekrar "Ablacığım şöyle açsanız örtünüzü" falan deyince çok sinirlenmiş annem, "Ne oluyor?" diye. "Seni istiyor Paşa" dedikleri zaman Mustafa Kemal Paşa, ufak tefek bir paşa (galiba Refet Paşa ), bir de babam varmış. Annem bakmış, Mustafa Kemal Paşa"yı zaten herkes tanıdığı için, "İnşaallah şu ortadakidir" demiş. Babamı beğenmiş yani."
+         <br/>
+         <br/>
+         "İşte Hayat, işte Emel"
+         <br/>
+         <br/>
+         Karabekir, Aydın eşrafından çiftçilikle uğraşan varlıklı bir aile reisi olan Cemal Çifçi"nin kızı İclal Hanım"la evlenir böylece. Aile ilk çocuğunu 1927 senesinde beklemektedir: "İkiz kız doğunca "Biz bunlara ne isim koyacağız?" diye şaşırmışlar. Babamın bir şiiri vardır, "İşte hayat işte emel, vatan için sağlam temel..." diye. Dayım da "Ne düşünüyorsun Paşa enişte? İşte Hayat, işte Emel" demiş. İsimleri böyle konulmuş. Benim adım da erkek olsaymışım hazırmış. İşte hayat, işte emel, vatan için sağlam temel. Yani Temel. Doğduğumda, babam "Karabekir"in timsali olsun" diye adımı Timsal koymuş."
+         <br/>
+         <br/>
+         "Paşaları beraat ettirin"
+         <br/>
+         <br/>
+         Kazım Karabekir, bu ikiz çocuğunun doğacağı zamanda suikastle ilgili mahkemelerle uğraşmaktadır. Onun için bu yıllar çok sıkıntılıdır, hem maddi hem manevi açıdan: "Suikast mahkemesi çok enteresandır. Bütün askerler silahlarını masaya koyup bekliyorlar. O sırada, askeri, bir manevra ile Çeşme"ye çekmek istiyorlar. Hiçbiri gitmiyor. Ve hatta diyorlar ki "Paşaların, bilhassa Kazım Karabekir"in aleyhine bir karar alınırsa burayı yok ederiz. Durumu Mustafa Kemal Paşa"ya iletiyorlar. "Beraat ettirin paşaları" kararı alınıyor. Yani paşalar çok kolay beraat etmiyorlar ya da çok kolay beraat etmeleri istenmiyor."
+         <br/>
+         <br/>
+         Karabekir polis takibinde
+         <br/>
+         <br/>
+         Bu hadiseden sonra Karabekir, 1927 senesinde emekliye ayrılır ve İstanbul"a yerleşerek kabuğuna çekilir. Kayınpederinin yardımı ile de, bugün müzeye dönüştürülen köşkü satın alır. Burada 1930"dan 38 yılına kadar çok dar bir çevre ile temas kurar. Onu bu dönemde yalnız bırakmayanların başında Nevzat Ayasbeyoğlu, Cafer Tayyar Eğilmez, Ali Fuat Cebesoy, Rauf Orbay gelmektedir: "Herkes çok korkarmış kapıyı çalmaya o dönemde." Devlet, Karabekir"in peşine polis bile takar: "Köşkün karşısındaki yerde polisler yuvalanmıştı. Kazım Karabekir evinden çıktığı anda arkasında mutlaka polis takibi vardı. Ve babam yüreği o kadar iyi bir insandı ki, bazen tramvaya binermiş, bakarmış ki polis aşağıda kaldı. Hemen vururmuş cama "Oğlum, Cafer Tayyar"a gidiyorum, oraya gel" dermiş. Annem de kızarmış "Niye söyledin? Madem atlattık, bırak" diye. Babam "Onlar da ekmek için bu işi yapıyorlar. Ekmeklerinden olurlar" dermiş. Annem biraz daha sert bir hanımdı. Erenköy Tren İstasyonu"na gelirlermiş, bakarlarmış iki tane polis arkalarında. Hemen "Gel bakayım çocuğum buraya. Eve kadar nasılsa geleceksiniz şu paketleri taşıyın bari" dermiş."
+         <br/>
+         <br/>
+         Atatürk ve arkadaşları ibaresi
+         <br/>
+         <br/>
+         İclal Hanım, bu konularda daha tepkilidir anlaşılan: "Ben 1941 doğumluyum. 1946-47 senelerinde ilkokuldaydım. Zavallı annem ödevlerime "Atatürk ve arkadaşları" ibaresini eklemeye uğraşırdı, bu vatanı kurtaran insanlar diye. Çünkü bize hiç bir zaman "ve arkadaşları" ibaresi ekletilmedi. Bunlar okutulmadı. Atatürk herşeyi yapan çok yüce bir insan; ama o kadro, o halk hareketi, o Kuva-i Milliye ruhu olmasaydı ne yapılabilirdi?"
+         <br/>
+         <br/>
+         Kazım Karabekir"in bu dönemde çektiği sıkıntılar şiirlerine bile yansır: "Annem çok varlıklı bir çiftçi ailesindendi. Şişeyle yağ alırlarmış. Bu, annemin çok ağırına gidermiş. "Fakire verirken bile vermezdik şişe ile" dermiş. Hatta bu babamın "İki Damla Gözyaşı" adlı şiirinde de geçer. ".../ Hayatımın kalmamıştı artık tadı: / Kalmamıştı elimde hiç satacak, / Peki! Ya bu hastalara kim bakacak? / Vejetalin eritmek için sarılmıştım kepçeye / Fakat doktor parası sığmıyordu hiç bütçeye.. / Satmıştım elimde olanı, / Yemiştik maziden kalanı! /..."
+         <br/>
+         <br/>
+         Kazım Karabekir, bu dönemi daha çok kitap yazarak değerlendirir. İstiklal Harbinin Esasları kitabının başına gelenler ise ayrı bir hikayedir. Bu kitap yüzünden Ankara ile araları bile bozulmuştur Karabekir"in. (Yazdığı kitapları kızı Emel Hanım"ın eşi Doktor Faruk Özerengin tarafından daha sonraki yıllarda yeni yazıya çevrilir ve basıma hazırlanır. Sırası gelmişken buraya bir not düşelim; Karabekir"in diğer kızı Hayat Hanım da hukukçu Prof. Feyzi Feyzioğlu ile evlenmiştir. Timsal Hanım ise ilk evliliğini Bir Ayasbeyoğlu ile yapmış ve Kazım, Ferhan ve bir de Uğur adında kızları gelmiştir dünyaya. Timsal Karabekir ikinci kez ise 1990 senesinde Attila Köymen Yıldıran ile evlenir. Kazım Karabekir Kültür Merkezi ve Vakfı"nın temellerini atan ve 2000 yılında vefat eden Yıldıran, TBMM Başkanlık Hukuk danışmanlığı yapmış birisi idi.)
+         <br/>
+         <br/>
+         Kazım Karabekir, bu olanlardan sonra siyasete ancak İsmet İnönü"nün daveti ile 1938 yılında döner. İstanbul milletvekilliği yapar. 1946-48 arasında da TBMM Başkanlığı"na getirilir. 26 Ocak 1948'de hayata gözlerini yumar.
+         <br/>
+         <br/>
+         "Çağırın Kazım"ı helalleşmek istiyorum"
+         <br/>
+         <br/>
+         Kurtuluş Savaşı"nın bazı paşaları ile Atatürk"ün arasında suikast hadisesi veya başka nedenlerden birtakım problemler olur o zamanlar. Kazım Karabekir de bunlardan biridir. Fakat Atatürk 1936"ta Dolmabahçe Sarayı"nda tertiplenen uluslararası bir Tarih ve Dil Kongresi"ne kendisini de çağırmış ve o da davete icabet etmiştir. Ancak, Karabekir, eşine verdiği söz yüzünden kongreden erken ayrılınca Atatürk"le görüşebilme imkanı bulamaz. Dolayısıyla ikisi arasındaki bu durum yine çözülemez: "Atatürk Dolmabahçe"de hasta yatarken "Çağırın Kazım"ı helalleşmek istiyorum" diyor. Babama onu da bildirmiyorlar. Hatta ablamdan duyduğuma göre "Gider miydin babacığım?" dediği zaman "Tabii giderdim. O Mustafa Kemal"di" diyor."
+         <br/>
+         <br/>
+         İclal Hanım köşkte piyano çalarken Kazım Karabekir Paşa da kemanla eşlik edermiş. Çok merakı varmış ki, 1944 senesinin parasıyla tam 500 lira vermiş kemanına. Özel hocalarla başladığı eğitim hayatında İstanbul"daki Zihni Paşa İlkokulu"nu bitiren, sonrasında İngiliz Highschool"dan mezun olan Timsal Karabekir Yıldıran, babasını kaybettiğinde henüz 7 yaşındadır: "Ama şu odada bugün görmüşüm gibi hatırlıyorum. Çok sinirlendiği, kızdığı ve üzüldüğü zaman bir tek gül goncasını alıp odasına kapanırdı. Onun ne anlama geldiğini şimdi anlıyorum. O gülün kokusu, şekli ile yaratanı onda görebiliyorsan zaten birtakım şeyleri aşmışsın demektir. Bir bayram günü idi. Çok güzel yeşil bir kazak giymişti. Gözleri de yeşildi. O sırada biri geldi, "Açım, çıplağım Paşam" dedi. Babam o kazağını çıkarıp o insana verdi. Yani gönülden herşeyi paylaşabilen güzel insanlardandı. Annem tabii daha bir dünya insanı idi ama babam daha öbür âleme yönelikti. Annem derdi ki; "Son peygamberin Hz. Muhammed (s.a.v) olduğunu bilmesem paşam peygamberdir derdim."
+         <br/>
+         <br/>
+         1960 senesinde ilk evliliğini gerçekleştiren Timsal Karabekir Yıldıran bir süre de Aydın"da dedesinden kalma pamuk çiftliğini işletir. 1979 senesinde Anadolu yakasında ailecek bir tenis kortu işletmeye başlayan Timsal Hanım"ın işletmesi, terör olaylarının bol olduğu 1980"de bombalanır. Bunun üzerine ihtilale kadar bizzat Selimiye"den gelen asker korur onları. Babasının bütün çalışma masalarının arkasına astığı "Cihan yıkılsa Türk yılmaz" anlayışıyla 1996 yılına kadar böyle bir işletmecilik işini yürüten Timsal Hanım, Kazım Karabekir Kültür Merkezi ile Müzesi"nin işleriyle ilgilenmeye başlar. Kültür Merkezi"nde anma günleri, ücretsiz elişi ve sanat kursları, tasavvufi içerikli sohbetler düzenler. Derviş Halil Özkan ile tanışınca hayata bakışı değişir: "Ben babamı ne yüceltebilirim ne aşağıya alabilirim. O yerini kendi bulmuş bir insan. Okullara gidip babamı ve dolayısıyla babamın yaşadıklarını anlatmakla Türkiye Cumhuriyeti"nin kuruluşunu anlatmaya çalışıyorum. Demek istediğim Türkiye Cumhuriyeti çok zor şartlarda, gözyaşı ile kanla kuruldu. Bunu çok kolay harcamayalım."
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### SÜLEYMAN KAĞAN BOZKURT, 03-Mart-2004
+> Türk Yılmaz ,: 
+> Merhabalar , Burada anlatılanları, Timsal hanımefendiden dinlemiş şanslı kişilerden biriyim.  Kendisinin davet edildiği bir programda ( Kadıköy ) istifade fırsatı yakalamıştım.  Şimdiye kadar çeşitli kitaplardan aldığımız bilgilerin bir kısmnı,çocuk yaştada olsa canlı tanığı ağzından dinlemenin bir büyüsü var ! .  Yazı gayet güzel hazırlanmış . Şimdi müze haline getirilen köşkün adresine yer verilebilinirdi .  Çalışmalarınızda başarılarınızın devamını dilerim.
+
+### İbrahim YILMAZ, 02-Ocak-2004
+> UNUTULMAZLAR: 
+> Osmanlı evladı olmak güzel bir şey ama bende bir Selçuklu olmaktan gurur duyarak diyorumki Paşam sizi unutamadık. Rabbimde sizi unutmasın.Bu Millet sana ve diğer kahramanlara Minnettardır.Bir gün hak ettiğiniz gerçek itibara kavuşacaksınız.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3327&yorum_id=835), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050124192249/http://www.aksiyon.com.tr:80/detay.php?id=3327&yorum_id=835)

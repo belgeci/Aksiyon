@@ -1,0 +1,67 @@
+# ABD bu sefer cıddı!
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031301im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031301im_/http://www.aksiyon.com.tr/resim/365/10.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  11 Eylül günü New York ve Pentagon’a gerçekleştirilen saldırıların ardından dünyada başlayan ‘terörizmle mücadele’ hareketi komşumuz Yunanistan’ı zor durumda bırakıyor. Hazine Bakanlığı tarafından açıklanan terörist örgütler listesinde 26 yıldır bir çok diplomat, istihbarat görevlisi ve işadamını öldüren ancak bugüne kadar bir tek üyesi bile yakalanamayan 17 Kasım terör örgütünün de bulunması Yunanistan’ı sıkıntıya sokuyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   11 Eylül günü New York ve Pentagon’a gerçekleştirilen saldırıların ardından dünyada başlayan ‘terörizmle mücadele’ hareketi komşumuz Yunanistan’ı zor durumda bırakıyor. Bugüne kadar PKK, DHKP—C gibi terör örgütlerine destek vererek Türkiye’nin tepkisini çeken, Yunanistan’ı sıkıntıya sokan örgüt ise aralarında Batılı diplomatlar, işadamları, istihbarat ve polis şeflerinin bulunduğu 23 kişinin ölümüne neden olan 17 Kasım terör örgütü. Yunanistan’ın terörizm karnesindeki kırık not olarak göze çarpan örgüt ilk kez 1975’te Atina’da CIA istasyon şefi Richard Welch’i öldürerek adından söz ettirdi. Aradan geçen 26 yıl içinde bir tek üyesi bile yakalanamayan örgütün, 11 Eylül sonrasında ABD İstihbarat birimlerinin raporları doğrultusunda Hazine Bakanlığı tarafından açıklanan mücadele edilecek örgütler listesinde de yer alması Yunanistan’ın gizli gündemi.
+   <br>
+    <br>
+     1973 yılında Yunanistan’ı yöneten askeri cuntanın, Atina’daki aşırı sol görüşlü Politeknik Okulu öğrencilerine yönelik 17 Kasım’da gerçekleştirdiği ve 20 kişinin hayatını kaybettiği kanlı müdahaleye ithafen kurulan 17 Kasım örgütü ilk eylemini 1975’te Atina’da CIA istasyon şefi Richard Welch’i öldürerek gerçekleştirdi. O tarihten bugüne kadar 70 eylem ve saldırı gerçekleştiren örgüt, ABD’li, İngiliz ve Türk diplomatlarının yanısıra Yunanlı polis müdürleri, askeri yöneticiler ve işadamlarının bulunduğu 23 kişiyi düzenlediği suikastlerle öldürdü.
+     <br>
+      <br>
+       İstihbarat görevlileri, üst düzey yöneticiler ve işadamlarına yönelik suikastlerin yanısıra bombalı saldırılarla da kendisinden söz ettiren 17 Kasım hakkındaki bilgilerin tamamı ise bazı gazetelerde yayınlanan bildirileri ve seçtiği hedefler. Marksist–Leninist, anti–emperyalist, anti–sömürgeci, anti–Amerikancı ve anti–NATO’cu bir görüşü benimsediğini açıklayan örgütün aynı zamanda fanatik bir Türk düşmanı olduğunu söyleyen Dışişleri İstihbarat Dairesi’nde görev yapan eski bir diplomat, örgütün bugüne kadar tek üyesinin bile yakalanamamasını ise şöyle açıklıyor: “Örgütün çekirdek kadrosunu sayıları sınırlı, disiplinli ve kapalı bir grubun oluşturduğu, içlerinde öğretmen, gazeteci, profesör, doktor gibi aydın kesime mensup kişilerin bulunduğu Yunan basınında yer aldı. Sızma veya baskın olmadan böyle bir örgütü yakalamak kolay değil.”
+       <br/>
+       <br/>
+       Eylemlerini genellikle, silahlı saldırı, otomobillere bomba yerleştirme ve binalara bombalı veya roketli saldırı şeklinde gerçekleştiren 17 Kasım örgütünün bu saldırılarda askeri malzemeleri kullandığına dikkat çeken Sakarya Üniversitesi öğretim üyesi Doç. Dr. Emin Gürses ise sözlerini şöyle sürdürüyor: “İşaretler 17 Kasım örgütünün arkasında Yunan derin devleti bulunduğunu gösteriyor. Örgütün eylemlerinde askeri depolardan çaldığı silahları kullanması ve katillerin çoğu zaman olay yerinden yürüyerek uzaklaşması örgütün devlet içinden desteklendiğinin açık bir kanıtı. 3 sene önce öldürülen Yunanlı bir armatörün oğlu bana babasının katillerinin taksiyle olay yerinden uzaklaştığını anlatmıştı.”
+       <br/>
+       <br/>
+       Gürses’in açıklamaları eski CIA ajanı David Galula’nın 1991 yılında gazetecilere yaptığı açıklamayla örtüşüyor. David Galula 17 Kasım terör örgütünün askeri silah ve teçhizat kullandığını ve askeri personeli bünyesinde istihdam ettiğini belirterek, “Bu ipuçları örgütün Kızıl Tugaylar gibi kontrgerilla olduğunu gösteriyor” açıklamasında bulunuyordu.
+       <br/>
+       <br/>
+       17 Kasım terör örgütünün seçilmiş hedeflere yönelik sansasyonel saldırılarının dikkat çekici olduğunu söyleyen Emekli Büyükelçi İsmail Berduk Olgaçay ise bu örgütün saldırıları sonucu hayatını kaybedenler arasında iki Türk diplomatının da bulunduğunu hatırlatıyor ve Yunanistan’ın şehit diplomatlarımızın katillerini hâlâ bulamadığına dikkat çekiyor. Anti–NATO’cu, anti–emperyalist söylemlerle hareket eden örgütün 1990 yılından itibaren Türk diplomatlarına saldırılara başladığını söyleyen Olgaçay, bu tarihin PKK terör örgütünün etkin olduğu döneme denk gelmesinin şasırtıcı olduğunun altını çiziyor. 17 Kasım terör örgütünün Türkiye’deki bazı terör örgütleriyle benzerliklerine dikkat çeken Olgaçay şöyle diyor: “Türkiye’de de bazı sol terör örgütleri genelde seçilmiş hedefleri vuruyorlar. MİT mensupları, emekli komutanlar, eski polis müdürleri gibi ancak aynı örgütün bazı hedefler konusundaki hassasiyeti dikkat çekici. 17 Kasım’ın bu hedef ayrımı devlet içinden destek aldığını gösteriyor.”
+       <br/>
+       <br/>
+       Türk diplomatlarını da şehit etti
+       <br/>
+       <br/>
+       Üst düzey Batılı diplomatlara yönelik saldırılarıyla dikkat çeken örgüt Türk kamuoyunda ilk kez 16 Temmuz 1991 günü Türkiye’nin Atina Büyükelçiliğine ait servis aracına bombalı saldırıda bulunarak yer almıştı. Üç Dışişleri mensubunun yaralandığı olayı üstlenen 17 Kasım, eylemlerini Türk Ordusu Kıbrıs’tan çekilinceye kadar sürdüreceğini açıklıyordu. Yunanlı yetkililerin geniş güvenlik önlemleri (!) aldıklarını açıklamasına karşın olayın üzerinden 3 ay bile geçmeden, örgütün namlularından çıkan kurşunlar sonucu, 7 Ekim 1991’de Atina Büyükelçiliği Basın Ataşe Yardımcısı Çetin Görgü evinin önünde düzenlenen suikast sonucu şehit oluyordu. Yunanlı yetkililerin katillerin yakalanacağı sözünü vermelerine karşın saldırının üzerinden 4 sene geçiyor ve örgüt bu sefer bir başka Türk diplomatı olan Haluk Sipahioğlu’nu katlediyordu. 4 Temmuz 1994 tarihinde Türkiye’nin Atina Büyükelçiliğinde görevli Ömer Haluk Sipahioğlu, kimliği belirlenemeyen 2 kişi tarafından gerçekleştirilen silahlı saldırı sonucu hayatını kaybederken, olayla ilgili bir açıklama yapan Kamu Düzeni Bakanı Papathemelis, Haluk Sipahioğlu’nu şehid eden kurşunlarda yapılan balistik incelemeler sonucunda, kurşunların 17 Kasım terör örgütüne ait olduğunu, silahın ise aynı örgüt tarafından 19 yıl önce ABD Büyükelçiliği görevlisi WELCH’in katlinde de kullanıldığının tespit edildiğini açıklıyordu.
+       <br/>
+       <br/>
+       Bu sefer Yunanistan’ı vuruyor
+       <br/>
+       <br/>
+       Avrasya Stratejik Araştırmalar Merkezi Balkan Masasında görevli araştırmacı Birgül Demirtaş, 17 Kasım terör örgütünün son olarak 6 Haziran 2000’de İngiliz Askeri Ataşesi Tuğgeneral Stephen Saunders’i öldürmesinin ardından Yunanistan üzerindeki baskının arttığını vurguluyor. Bu olayın ardından ABD Kongresi 2000 yılı “Uluslararası Terörizm Raporu”nda terörizme karşı işbirliği yapmayan ülkeler listesine alınması ve yaptırım uygulanması önerilen Yunanistan’ın ciddi çalışmalar yürütmeye başladığını anlatan Demirtaş, uluslararası alanda büyük tepkilere yol açan 17 Kasım örgütünün de 11 Eylül sonrasında pasifize edileceğini ifade ediyor.
+       <br/>
+       <br/>
+       Bugüne kadar 42 diplomatımız, büyük kısmı Avrupa’da olmak üzere düzenlenen saldırılar sonucu yaşamını kaybetti. Hayatını kaybeden bu insanların katillerini kendi topraklarında barındıran Avrupa ülkelerinin BM ve NATO tarafından alınan ‘terörizmle mücadele’ kararından pek memnun olmadığını söyleyen Türkiye’nin Belçika eski Büyükelçisi Güner Öztek, “Bugüne kadar terör konusunda tek taraflı davranan ülkelerin artık rahat davranması mümkün olmayacak. Çünkü katiller kadar onlara destek verenlerin de aynı şekilde cezalandırılacağını açıklayan ABD Dışişleri Bakanı Colin Powell’ın bu açıklamalarından sonra birilerinin uykuları kaçacak.”
+       <br/>
+       <br/>
+       Yunanistan’ın Susurluk’u ya da Derin Yunanistan’ı olan 17 Kasım örgütünün çökertilmesi kolay olmayacak çünkü ulvi görevler üstlenen bir örgütün tasfiyesi için daha ulvi bir görev ve görevlilerin ortaya çıkması gerekiyor. Görevleri kim veriyor sorusunun yanıtını ise ‘Master’s of the puppet’ kitabından isteyenler öğrenebilir....
+       <br/>
+       <br/>
+       e—mail: u.sanli@zaman.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12358), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031301/http://www.aksiyon.com.tr:80/detay.php?id=12358)

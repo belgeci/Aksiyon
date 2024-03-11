@@ -1,0 +1,68 @@
+# Çin korkutuyor
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040515225938im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040515225938im_/http://www.aksiyon.com.tr/resim/483/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çin devletinin ucuz işgücünden kaynaklanan büyük avantajı diğer ülkeleri güç birliğine itti. Türk ve Amerikan tekstil ve hazır giyimcileri yayınladıkları ortak deklarasyonda, Dünya Ticaret Örgütü’nün (DTÖ) en kısa sürede harekete geçerek kotaların kalkacağı son entegrasyon aşamasının uygulanmasını 31 Aralık 2007’ye ertelemesini talep ettiler. İstanbul’da düzenlenen basın toplantısında, Amerikan Tekstil Üreticileri Enstitüsü (ATMI), Amerikan Üreticileri Ticari Eylem Koalisyonu (AMTAC), Türkiye Hazır Giyim ve Konfeksiyon İhracatçıları Birlikleri (İHKİB), Türkiye Tekstil ve Hammaddeleri İhracatçı Birlikleri (İTKİB), Türkiye Tekstil Sanayi İşverenleri Sendikası ve Türkiye Giyim Sanayicileri Derneği (TGSD) imzalı ortak deklarasyon kamuoyuna açıklandı.
+ </font>
+ <p>
+  <font class="content">
+   Deklarasyonda, kotalar kalktığında Çin’in dünya tekstil ve konfeksiyon ticaretinin yüzde 50’sinden fazlasına sahip olacak gücü bulunduğu ve bunun dünyada 30 milyon tekstil ve konfeksiyon çalışanını işsiz bırakacağı belirtildi. Çin’in bu sektörü düşük para birimi, düşük faizli kredi gibi ticareti bozan uygulamalarla teşvik etmesinin bu ürünlerde fiyatları yüzde 75 düşürmeye imkân verdiği kaydedilen deklarasyonda, DTÖ’nün önlem alınması için Temmuz 2005’ten önce acil oturum yapması talep edildi.
+   <br>
+    <br/>
+    İHKİB Başkanı Süleyman Orakçıoğlu, İstanbul deklarasyonuna yakında Meksika, Japonya ve Güney Afrika’nın da katılmayı düşündüğünü söyledi. ATMI Başkanı Johnson da “Bir kriz yaklaşmakta, eğer bir adım atılmazsa Çin dünya tekstil ticaretinin yüzde 75’ini ele geçirecek” dedi.
+    <br/>
+    <br/>
+    <br/>
+    Özel ödenekten 500 trilyon
+    <br/>
+    <br/>
+    Hükümet 7 katrilyon liralık önlem paketi çerçevesinde özel ödenekten de 500 trilyon kesecek. 7 katrilyon liralık açığın 6 katrilyonu için gerekli düzenlemeler yapılırken, kalan 1 katrilyonun 500 trilyonunun bir bölümünün özel ödenekten yapılacak kaydırma ile karşılanacağı, diğer 500 trilyon liranın ise sigarada yeni ÖTV artışıyla karşılanmasının öngörüldüğü öğrenildi. Bu arada SSK ve Bağ—Kur emekli maaşlarına yapılan zamdan kaynaklanan yükü karşılamak amacıyla ek ödenek verilmesini ve bazı ödeneklerden de kesinti yapılmasını öngören yasa tasarısı, TBMM Plan ve Bütçe Komisyonu’nda kabul edildi. KKTC’ye aktarılan ödenekler tasarı kapsamı dışında tutuldu. Söz konusu önerge ile bu ülkeye aktarılan ödeneklerin kapsam dışına çıkarılmasıyla 28 trilyon liralık kesinti önlendi.
+    <br/>
+    <br/>
+    <br/>
+    İş dünyasına kadınca bakılacak
+    <br/>
+    <br/>
+    İş dünyasının kadın profesyonelleri seslerini duyurmak amacıyla bir araya geldi. Hülya Avşar’ın da aralarında olduğu iş ve meslek sahibi kadınlar, Türkiye İş Kadınları Derneği’ni (TİKAD) kurdu. TİKAD yaptığı açıklamada misyonunu “İş dünyasında kadın varlığını güçlendirmek, iş kadınlarının kamuoyunda ve hükümetler üzerinde etkinliğini artırmak” olarak açıkladı. Türkiye’de konuşulan konu ve sorunların sadece erkeklerin değil toplumun problemi olduğu belirtilen açıklamada, çözümlerin de kadın—erkek ayrımı yapmadan tüm toplum tarafından tartışılması gerektiğinin altı çizildi. Kurucu Başkanlığını Nilüfer Bulut’un yaptığı İş Kadınları Derneği’nin (TİKAD) kurucu üyeleri arasında birçok ünlü profesyonel iş kadını bulunuyor. Adı geçen kurucu üyeler şunlar: Hülya Avşar, ETV Yönetim Kurulu Başkanı Fulya Eyilik, Kütahya Porselen Yönetim Kurulu Üyesi Sema Güral, Global Grup Dış Ticaret Yön. Kurulu Üyesi Hülya Kalyoncu, Marmara Ün. Hastanesi Başhekimi Prof. Dr. Zehra Neşe Kavak, ANK Ajans Yönetim Kurulu Başkanı Nilüfer Bulut, borsa yönetmeni Figen Kuzanlı, Bossa Yönetim Kurulu Üyesi Demet Çetindoğan Sabancı, Toprak Sanat Galerisi Kurucu Başkanı Ayfer Toprak, ABM Dış Ticaret Yön. Kur. Başk. Sevgi Toprak, Dentra Diş Hekimliği Yön. Kur. Üyesi Aylin Yalçın ve Koton Mağazası Yön. Kur. Başk. Şükriye Gülden Yılmaz.
+    <br/>
+    <br/>
+    <br/>
+    Citigroup Deutsche Bank’ı alacak mı?
+    <br/>
+    <br/>
+    Alman Der Spiegel dergisi ABD’li Citigroup’un Deutsche Bank’ı almak istediği iddiasına yer verdi. ABD’nin bankacılık devi Citigroup’un Almanya’nın en büyük bankası Deutsche Bank’ı satın almak için harekete geçtiği iddia edildi.  Derginin haberinde, Deutsche Bank Başkanı Josef Ackermann ile Citigroup Başkanı Sandy Weill’ın şahsen görüştükleri bildirildi. Deutsche Bank kaynakları haberle ilgili yorum yapmıyor. Bankacılık sektöründe haftalardır iki grup arasında görüşmeler yapıldığı dedikoduları dolaşırken, Ackerman 5 Şubat’taki açıklamasında söylentilerin “spekülasyondan ibaret” olduğunu savunmuştu. Citigroup bir hafta önce Güney Kore’nin altıncı büyük bankası KorAm’ı 2 milyar 730 milyon dolara satın aldı. Bu Güney Kore mali sektöründeki en büyük yabancı yatırım oldu. 23 Şubat’ta resmen açıklanan satın alma işleminin ardında grubun ticari bankacılık faaliyetlerini artırma çabası var. Citigroup’un 200 milyon, Deutschebank’ın ise 13 milyon müşterisi var.
+    <br/>
+    <br/>
+    <br/>
+    Yine Kıbrıs
+    <br/>
+    direncine takılı
+    <br/>
+    <br/>
+    İMKB cephesinde yeni bir şey yok. Beklenti oluşturamayan ve belli bir bant içerisinde hareket eden İMKB Avrupa Birliği perspektifinde Kıbrıs görüşmelerine kilitlenmiş durumda. Görüşmelerin nihai çözümü sağlayamayacağını ve ipin referandumla kesileceğini anlayan oyuncular ise KKTC Başkanı Rauf Denktaş’ın sert açıklamalarına ya da Papadopulos’un nazlanmalarına prim vermiyor. İMKB 100 endeksi haftayı 19.165’ten kapattı. Gün boyunca Kıbrıs gündemini takip eden piyasa önümüzdeki hafta boyunca yine adada süren müzakerelere odaklanacak. KKTC Cumhurbaşkanı Denktaş’ın cuma günü söylediklerine göre daha somut bir sürece; 11 Mart Perşembe gününden itibaren müzakerelerde al—ver sürecine girilecek. Çatı çakılacak ve detaylara girilecek. Bu arada IMF ile yürütülen 7. gözden geçirme görüşmeleri çok büyük sürprizler olmaması halinde dar bir marjda takip edilecek ve tepki gösterilecek.
+    <br/>
+    <br/>
+    <br/>
+    50 milyar dolarlık
+    <br/>
+    ihracat
+    <br/>
+    <br/>
+    Geçen yıl 47 milyar dolarla rekor düzeye ulaşan ihracat bu yıl da rekorlarına devam ediyor. Türkiye’nin 12 aylık ihracatı şubat sonu itibariyle ilk kez 50 milyar doları aştı. Şubat ayı ihracatı da geçen yılın aynı ayına göre yüzde 29 artarak 3.8 milyar dolar oldu. Türkiye İhracatçılar Meclisi (TİM) şubat ayı verilerine göre, 1 Mart 2003 — 28 Şubat 2004 tarihleri arasında geçen 12 aylık sürede ihracat bir önceki yılın aynı dönemine göre yüzde 32.29 oranında arttı ve 50 milyar 14 milyon dolara ulaştı. Mart 2002—Şubat 2003 döneminde ise ihracat 37.8 milyar dolar olmuştu. Son bir yıllık dönemde sanayi sektörü 33.9 milyar dolarla ihracatın lokomotifi oldu.
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11224&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040515225938/http://www.aksiyon.com.tr:80/detay.php?id=11224&yorum_id=1)

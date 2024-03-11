@@ -1,0 +1,82 @@
+# Senin TopList’in hangisi?
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Özellikle kişisel web sayfalarında, TopList reklamları ve linkleri mutlaka gözümüze takılmıştır. TopList siteleri, üye siteler arasında ziyaretçi sayısına göre, bir nevi rating ölçme işlevi görüyor.
+   <br/>
+   <br/>
+   Webde dolanırken nereye gireceğine karar veremeyenler için ise “sörf rehberi” niteliğini taşıyabiliyor. Profesyonel açıdan bakıldığında ise “lüzumsuz” olarak nitelendirilebiliyor.
+   <br>
+    <br>
+     TopList’ler konulara göre de ayrılıyor. Örneğin, eğlence siteleri, oyun siteleri gibi. Tabii genellikle ahlaki seviyesi düşük siteler ziyaretçi alabilmek için bu tür yollara başvuruyorlar. Herhangi bir TopList’e baktığınızda seviyesi sıfırın altında seyreden bir sürü site ismini görmek kaçınılmaz bir durum. İşi ciddiye alarak yapanlar ise siteleri ciddi bir elemeden geçirerek bu yarışa kabul ediyorlar. Üye olan sitelerin TopList’lere ait bir banner’ı siteye yerleştirme zorunluluğu var. Zaten üye sitenin TopList’teki rating durumu da bu banner’ın tıklanma sayısı ile ölçülüyor. Yani sitenin ziyaretçisinden çok sitedeki banner’a tıklanması önemli görülüyor.
+     <br>
+      <br>
+       Yerli TopListlerden en bilinenleri:
+       <br>
+        <br>
+         www.zirve100.com, www.zirve20.net, www.zirve500.com, www.hepberaber.com, www.go.gen.tr, www.bizimliste.de, www.iyi.net, www.design—tr.com, www.webservis.gen.tr, www.turksite.com...
+         <br/>
+         <br/>
+         Biraz vakit kaybettirecek olsa da kişisel sitelerde ne var ne yok diye görmek isteyenler için TopList’ler faydalı olabilir.
+         <br/>
+         <br/>
+         Bendeniz, TopList’leri kişisel sayfa yapan genç cevherleri ortaya çıkarmanın en iyi yolu olarak değerlendiriyorum. Zira kurumsal bir kimlik altında olamadığı için hit almakta zorlanan bireysel çalışmalar ancak bu yolla kabiliyetlerini sergiledikleri siteye ziyaretçi çekebiliyorlar. Mühim olan bu listelerdeki seviyesi düşük siteler arasında kaynayıp karambole gitmemek için klas toplistlerde yer almaya bakmak.
+         <br/>
+         <br/>
+         İyi sörfler, iyi haftalar...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Yurtdışında eğitim
+         <br/>
+         <br/>
+         YÖK ve ÖSYM’nin statükocu eğitim politikaları neticesinde birçok genç cevher eğitim için yurtdışına gitmeyi en ideal yol görüyor. Bu öğrencileri yönlendirecek yeterli bir bilgi servisi de ne yazık ki verilmiyor. Son zamanlarda yurtdışına giderek herşeyi deneme—yanılma metoduyla test etmiş öğrenciler, yeni gelecekler için siteler hazırlamaya başladılar. İşte bu sitelerden bazıları:
+         <br/>
+         <br/>
+         Studentorganization.com
+         <br/>
+         <br/>
+         Esasen ticari amaçlı hazırlanmış bir site. Amerika’ya indikten itibaren konaklama, gezme, okul kayıt işlemleri dahil değişik paket alternatifleriyle her türlü hizmeti sağlıyorlar. Sitenin yararlı bilgiler bölümünde ise yurtdışı düşünenlerin ihtiyaç duyduğu vize başvurusundan bankada hesap açmaya, çalışma izninden saat farklılıklarına kadar her türlü bilgi bulunuyor.
+         <br/>
+         <br/>
+         Mezun.com
+         <br/>
+         <br/>
+         Hatırlarsınız bu siteyi daha önce tanıtmıştık. Yurtdışı eğitim konusunda en kapsamlı çalışma. Bir süre önce, Superonline’ın da içerik ve sponsorluk desteğini alarak iyi bir yer edindi.
+         <br/>
+         <br/>
+         Itss.org
+         <br/>
+         <br/>
+         Türkçe ismi Üniversitelerarası Türk Öğrenci Birliği olan bu organizasyon ABD’deki Türk Öğrenci Derneklerinin ortak bir oluşumu. ITSS, Türk Öğrenci Dernekleri arasındaki işbirliği ve iletişimi arttırmak, dernek bazında çözülemeyen sorunlara çare bulmak, Amerika’daki Türk öğrencilere okul öncesi, sırası ve sonrasında yardımcı olmak ve Türk öğrencileri genel anlamda temsil etmek amacı ile kurulmuş. Bu site de bu misyonun webdeki yansıması…
+         <br/>
+         <br/>
+         Globalvizyon.com
+         <br/>
+         <br/>
+         Bu site de ticari amaçla eğitim danışmanlığı yapan Globalvizyon şirketinin sitesi. Yurtdışında dil eğitimi organizasyonunun yanısıra ABD, İngiltere, Kanada, Avustralya, Almanya, Fransa, İtalya, Malta, Yeni Zelanda gibi ülkelerdeki üniversiteler hakkında bilgi veriyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14265), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222044047/http://www.aksiyon.com.tr:80/yazdir.php?id=14265)

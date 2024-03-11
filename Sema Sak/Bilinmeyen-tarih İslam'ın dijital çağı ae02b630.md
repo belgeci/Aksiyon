@@ -1,0 +1,97 @@
+# İslam'ın dijital çağı
+
+*Sema Sak Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050113145914im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050113145914im_/http://www.aksiyon.com.tr/resim/454/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Hangi mezhep ya da meşrepten olursanız olun, İslâmiyet hakkında merak ettiğiniz her şeye bilgisayar ortamında ulaşmanız mümkün. Sanal dünya artık on-line tebliğ çağrılarının yapıldığı, sanal ulemanın fetva verdiği dijital bir medrese haline geldi. Elektronik postasına gelen ayet ve hadisleri okudu. Güzel bir gün olacağını hissediyordu. İftar için sanal marketten bir şeyler sipariş etti. Akşama yahoogroups"taki dostlarını davet etmişti. Sonra messenger"ını açtı. En yakın arkadaşının babasını kaybettiğini öğrendi. Hemen üye olduğu dua sitesine tıklayarak bir hatim dağıttı. Ayşe"ye internetten çiçek sipariş etti. Onunla İslâmî bir site kanalıyla tanışmışlardı ve evlenmeyi düşünüyorlardı. İnternet üzerinden ödemesi gereken zekatı hesapladı ve kredi kartıyla ödedi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tamam, belki hepsi bir araya gelince abartılı durabilir. Ama internetin ve sağladığı kolaylıkların hayatımıza bu kadar dahil olması, beraberinde dijital İslâm kavramını getirdi, özellikle 11 Eylül"den sonra. İkiz kulelere yapılan saldırı ilk bakışta İslâm"ın kalbine inen bir darbe olarak algılansa da bu fenomen, tam bir bumerang etkisi yaparak İslâm"a duyulan ilgiyi artırdı. Bu tarihten itibaren sadece Amerika"da 6 milyon Kur"an-ı Kerim satıldı ve 34 bin kişi Müslüman oldu. 11 Eylül öncesinde İslâm ve şiddeti beraber görenlerin oranı yüzde 50 iken, bu oran yüzde 44"e düştü. Böylelikle İslâmiyet, doğduğu ve yaşandığı coğrafyaların dışında da cazibe merkezi olarak görülmeye başladı.
+   <br>
+    <br>
+     İnsanlar bilmediklerini öğrenebilmek için parmaklarının ucundaki teknolojiyi yani "internet"i tıklayarak istedikleri bilgiye ulaşmaya başladılar. Bu da siber mürşitlerden elektronik posta ile boşanmaya, elektronik fetvalardan dijital cihat çağrılarına uzanan yeni bir kültür oluşturdu.
+     <br>
+      <br>
+       Bu yeni kültür de ilahiyatçılardan bilgi teknolojisi uzmanlarına kadar pek çok kesim için yeni araştırma sahaları meydana getirdi. Bunlardan biri de İngiltere"de Wales Lampeter Üniversitesi"nde İslâmî Araştırmalar Enstitüsü öğretim görevlisi Gary Bunt. İslâmiyet ve internetin bu kadar sık anılması akademisyenin o kadar ilgisini çekmiş ki, bu konuda pek çok makale dışında üç de kitap yazmış. Sürekli güncellenen bir web sitesi de mevcut (www.virtuallyislamic.com). Son kitabı Islam In The Digital Age ( Dijital Çağ"da İslâm) 11 Eylül sonrasında İslâm ve Müslümanlar hakkında internette yapılan en kapsamlı din analizi. Kitapta ele alınan cihat kavramı, site çökertmek ve sansürden, daha barışçıl protestolara uzanan geniş bir yelpazede ele alınmış. Ayrıca bir din otoritesi olarak internet, on-line fetvalar ve bunların farklı kesimler üzerindeki etkileri göz önüne alınarak incelenmiş.
+       <br/>
+       <br/>
+       İnternette tebliğ
+       <br/>
+       <br/>
+       "İnternette Risale-i Nur"larla tanıştıktan sonra hayatım tamamen değişti. Zihnimi kurcalayan pek çok soruya tatmin edici cevaplar buldum. Bu da beni İslâmiyet"e ulaştırdı." Salonda alkışlarla karşılanan bu sözler, iki yıl önceki Risale Sempozyumu"nda konuşmacı olan, eski adıyla Cecilia yeni adıyla Asuman Martan adlı Portekizli bir bayana ait. O da pek çok kişi gibi İslâmiyet ile sanal ortamda tanışmış. Sadece Amerika"da her gün bu şekilde 100 kişi Müslüman oluyor.
+       <br/>
+       <br/>
+       Arama motorlarından birine İslâm, Müslüman ya da Muhammed (s.a.v) yazdığınızda karşınıza çıkan sitelerin çokluğu ve çeşidi sizleri hayrete düşürecektir. Aklınıza gelebilecek her dilde Kur"an mealine ve tefsirlere, hadislere, peygamberimizin ve sahabenin hayatını anlatan yazılara, fıkıh ve ilmihal bilgilerine rastlayabilirsiniz. Daha da ilginci artık internet üzerinden fetva almak da mümkün. Ayrıca günlük hayattaki her topluluk Şii, Alevi, Sünni, Caferi vb. kendine sanal âlemde bir yer edinmiş. İlahiyatçı Hayreddin Karaman internet ortamındaki çok renkli İslâm"ı bir avantaj olarak değerlendiriyor. "Özellikle Irak Savaşı"nda Irak"a asker gönderme/göndermeme, Amerika ya da Saddam yanlısı olma gibi pek çok şey tartışıldı ve bunların İslâm dünyasına yansımaları da farklı oldu. Tüm İslâm uleması aynı şeyi düşünmedi ve ben bunu bir zenginlik olarak görüyorum" diyor. Bu tür siteler İslâm"ı tanımak isteyenlere de büyük kolaylıklar sağlıyor. Bunun bir adım ötesi sanal âlemde şahadet getirerek Müslüman olmak. İngiltere"de yaşayan ve böyle bir siteyle ilgilenen Arzu Yılmaz, sitenin işleyişini şöyle anlatıyor: "Siteye pek çok ülkeden, pek çok dilde "mail" geliyor. Mail gönderenler içinde Müslüman olup aklına takılan sorulara cevap arayanlar olduğu kadar, İslâm ile ilk defa tanışıp merak ettiği konuları öğrenmek isteyenler de var. Eğer gelen mailler İngiltere"den ise ben cevap veriyorum. Yakın oturuyorsak ve karşımdakinin merakı fazla ise buluşup görüşmeye başlıyoruz." İslâmî sitelere olan ilginin artmasında 11 Eylül"ü bir milat olarak kabul ediyor Arzu Yılmaz. "Özellikle Batıda insanların çoğu internetle içli dışlı. Dolayısıyla İslâmî bilgilerle ilgili olarak ilk müracaat ettikleri adres İslâmî siteler oluyor. Sitelere İslâmiyet ve peygamberimiz hakkında genel sorularla başlıyorlar. Bunların devamında hayatı sorgulayan ve Müslüman olan çok kişi gördüm."
+       <br/>
+       <br/>
+       Sanal dünya sadece İslâmiyet"i öğrenmek ve öğretmek isteyenlere değil, farklı beraberliklere de vesile oluyor. İslâmî kanallarda tanışan pek çok genç bu beraberliği evlilik ile noktalıyor. Öyle ki internette en çok tıklanan siteler arasında kendine uygun eş arayanlara hizmet verenlerin bulunması dikkat çekiyor. Bu tarz evlenmeler kimileri için görücü usulünün modernize edilmiş hali. Hayreddin Karaman bunun tam tersini savunuyor. "Görücü usulünde çiftler tanıştırılmadan önce birbirlerini görmeseler bile ortak bir tanıdık vasıtası ile bilgi sahibi oluyorlar. Fakat sanal âlemde böyle bir şey yok. Tuşların ucundaki kendini nasıl tanıtmak istiyorsa öyle tanıyorsun."
+       <br/>
+       <br/>
+       İnternet üzerinden sadece evlenmek değil, boşanmak da mümkün. Hayrettin Karaman, boşanmanın sözlü ve yazılı olabileceğini, dolayısıyla internette mail yoluyla gerçekleşen boşanmanın mümkün olduğunu; fakat sosyal bir din olan İslâmiyetin ruhuna aykırı olduğunu söylüyor. İslâmî sitelerdeki sanal flörte Ali Bulaç"ın yaklaşımı şöyle: "İslâmî sitelerde tanışmayı ideolojik buluyorum. Evlilik; aynı kültür ortamında yetişme, eğitim denkliği gibi unsurların gözetilmesi gereken bir müessese. İdeoloji üzerine kurmak doğru olmaz."
+       <br/>
+       <br/>
+       İnternette sesini duyur!
+       <br/>
+       <br/>
+       Her türden İslâmî düşüncenin kendine bir yer edindiği sanal ortam, birey, toplum ya da organizasyonlar için kendilerini tanıtmanın en ekonomik ve etkili yolu. Etki alanını artırmak için siteler genellikle birden fazla dilde hazırlanıyor. Özellikle İngilizce, Almanca ve Arapça bu dillerin başında geliyor. Örneğin Irak"ta yaralanan ya da ölen sivillerin fotoğrafları e-mail yolu ile diğer Müslümanlara gönderilerek onlardan Beyaz Saray"ı elektronik posta yağmuruna tutmaları isteniyor. Bu oldukça barışçı bir protesto yöntemi. Bunun yanında kendi düşünce ve inançlarına aykırı buldukları grup ya da organizasyonların sitelerini çökertenler de mevcut. Bunun en son örneğini Filistin-İsrail savaşında gördük. Karşılıklı saldırıların yanı sıra sanal âlemde de devam eden savaşlar elektronik cihat ile farklı bir boyut kazanmıştı. Londra merkezli bir bilgisayar güvenlik firması, geçtiğimiz ekim ayında bilgisayar ve web sitelerine yapılan saldırıların sayısının 16.559" a ulaştığını açıklamıştı. Yazar ve doktor Senai Demirci"ye göre site "hack"lemenin bir yeri bombalamaktan farkı yok: "Bence sanal âlemde bunu yapan insan, eline imkan geçse gerçek dünyada daha da ileri gidebilir."
+       <br/>
+       <br/>
+       İslâm coğrafyasına yansıyanlar...
+       <br/>
+       <br/>
+       İslâm âleminde interneti en iyi kullanan ülkelerin başında Malezya geliyor. Malezya İslâmî Gelişme Servisi (JAKİM) tarafından açılan siteler dikkati çekiyor. Yine Suudi Arabistan hükümetinin resmi kanallarla açtığı siteler de internette en çok ziyaret edilen adresler arasında yer alıyor. Fakat resmi kanallara oranla çok daha ilgi çeken ve özel kişi ya da kuruluşlar tarafından açılmış internet siteleri de sanal ortamda kendine yer bulmuş. Yine Amerika"da yaşayan Müslümanların iş hayatında dayanışması için açtıkları "İslâm"ın Cümle Kapısı", İslâm-Amerika ilişkileri Konseyi tarafından kurulan ve İslâm"la ilgili haberler veren "Cair", merkezi Afrika"da bulunan ve Müslüman olmayanlara hitap eden "İslâm"ın Ufukları" gibi siteler hem İslâmî bilgiler veriyor hem de bulundukları ülkeler arasındaki dayanışmayı sağlıyor. Öte yandan İslâmî örgütler de internette açtıkları web sayfaları ile kendilerini anlatıyorlar. Merkezi Mısır"da bulunan Müslüman Kardeşler örgütünün de bir sitesi var ve bu site örgütün resmi yayın organı işlevi görüyor. Yine İngiliz İslâm Partisi"nin siteleri de dikkate değer başka bir site. İslâmî bilgilerin yer aldığı sitelerde Müslüman olmayanlara da İngilizce olarak İslâm anlatılıyor. Bir Amerikan sitesi olan, "Kur"an ve Sünnet Toplumu" adlı sitede, şeriatla ilgili tezler sunulurken, Amerikalı Müslüman zencilerin "Nation Of İslâm" örgütü ise, açtığı sitede kendileriyle polemiğe giren Hıristiyan gruplara cevap veriyor. Sitelerde, İslâm ile internet vasıtasıyla tanışan kişilerin hayat hikayeleri yer alıyor. Ayrıca Müslüman olan diğer Hıristiyanlar"ın yaşam öykülerini ya da onların niçin İslâm dinini seçtiklerini öğrenmek isteyenler, "İslâm"a Doğru Seyahatim", "Yeni Müslümanlar" veya "Nasıl Din Değiştirdik" gibi sitelerde aradıklarını bulabiliyor.
+       <br/>
+       <br/>
+       Herkes internette...
+       <br/>
+       <br/>
+       Sanal âlemin ünlü âlimlerden Katarlı Şeyh el- Karadağ, "Herkes internette. Dolayısıyla biz Müslümanların da bu alana girmesi gerekir" diyor. Birleşik Arap Emirlikleri"nde bir web sitesi, zekat hesabı ve kredi kartıyla zekat alıyor. İslâm âleminde tartışılan bir başka konu da cemaatle sanal âlemde namaz kılınıp kılınamayacağı. Mısırlı âlim Şar Bassri "Evinden çıkamayacak olanlar sanal âlemde namaz kılabilir" diyor ve ekliyor: "Ama bu asla televizyon ya da internette yayınlanan namaza bakarak olmaz. Çünkü özellikle cuma namazında insanlar Allah"la ve cemaatle buluşmak için camiye gitmek durumundadırlar."
+       <br/>
+       <br/>
+       Türkiye"den örnekler"
+       <br/>
+       <br/>
+       Bu tür sitelere Türkiye"den de pek çok örnek bulmak mümkün. Örneğin itirafları kitaplaştıran ve kurduğu www.omurboyuask.com sitesinde buluşma noktası oluşturan Cemil Tokpınar, internet yoluyla çok kişiye ulaşılabildiğini söylüyor. Namaz ile alakalı bir site kurmayı düşünen yazar, bu yolla namazın hayatımızdaki vazgeçilmezliğini vurgulamak istiyor. İngilizce-Arapça ve Almanca hazırlanması planlanan site sayesinde sadece Türkiye"de değil dünya üzerinde de pek çok insana ulaşmak mümkün olacak. Tokpınar internetin bilgiye ulaşmadaki önemine inanıyor; ama yine de sanal dünyanın gerçeğin yerini tutmadığını belirtiyor. Yazar ve doktor Senai Demirci, kendisinin kurduğu www.dualar.com adlı sitenin, misyonerlerin oluşturduğu "Alo Dua" hattının güzel bir alternatifi olduğunu düşünüyor. Sitede farklı dua halkaları mevcut. İşsizler, hastası olanlar, yakını ölenler kendilerine dua istiyorlar ve böylelikle insanlar yüzlerini bile görmedikleri kişiler için el açıp yalvarıyorlar. 2001 krizi nedeniyle özellikle banka çalışanları çok dua istemiş. Üç bine yakın üyesi olan site her gün binlerce kişi tarafından ziyaret ediliyor. İnternetin İslâmiyet için önemini vurgulayan Demirci, İslâmla ilgili bilgi aramayı "esrar" aramaya benzetiyor. Çünkü doğru bilgiye ulaşma sorunu var. Kimden en iyi bilgi alınır, hangi bilgi gerçektir? Yazar ayrıca elektronik posta yolu ile boşanma, sanal evlenmeler gibi olgulara pek sıcak bakmıyor; "İslâm sahabe dini, sahabe ise sohbet demek. İnternet doğru bilginin paylaşımı için kaçınılmaz bir öneme sahip; ama bazı noktalarda insanın sosyalliği gözardı edilmemeli."
+       <br/>
+       <br/>
+       İlahiyatçılar ne diyor?
+       <br/>
+       <br/>
+       İstesek de istemesek de İslâmiyet kendisine sanal âlemde oldukça geniş bir yer edinmiş. Bu kadar dallı budaklı bir olguya ilahiyatçılarımız da tepkisiz kalamıyorlar. Bu konuda görüşlerini aldığımız Hayreddin Karaman; "Bilgisayar dünyasında özellikle de bir ilim adamı için İslâmî konuları takip etmemek mümkün değil. Ancak bunun yeterli bir takip olduğuna inanmıyorum. Çünkü o kadar geniş bir dünya ki, iki lisan bilseniz bile yine de çok küçük bir kısmına ulaşabiliyorsunuz. Ben internetteki İslâmî siteleri oldukça olumlu buluyorum. İnternet eğer hayatımızın kaçınılmaz bir parçası ise, bundan her alanda yararlanmak gerek. Tabiî bu nimeti hem müspet hem de şer anlamda kullananlar var. Özellikle de İslâmın düşmanları ve bilmeyenleri bu araçtan olabildiğince istifade ediyorlar. Biz de dinimizi korumak ve tanıtmak için (zaten Müslümanın gayesi de budur), internete hakim olmalı ve bu teknolojiden elimizden geldiğince yararlanmalıyız."
+       <br/>
+       <br/>
+       Dijital savaş
+       <br/>
+       <br/>
+       İnternetin meşhur buluşma alanları var ve Yahoo-groups da onlardan biri. Yahoogroups üzerinde oluşturulan mail -haberleşme grupları ile birbirleriyle daha kolay irtibata geçen Müslümanlar bu sayede daha hızlı haberleşebiliyorlar. Sadece "İslâm" ana başlığında Yahoo-groups"ta 4024 adet mail grubu hizmet verirken, "Kur"an " başlığında 705 mail grubu hizmet veriyor. Fakat internetin denetimsiz bir ortam olması nedeniyle farklı kişi ve gruplarca açılmış web sayfalarında dinler arası savaşlar da yaşanmıyor değil. Öyle ki İsrailli bir grup tarafından hazırlandığı iddia edilen http://www.thequran.com isimli web sayfasındaki bilgiler gerçekte İslâmla ilgisi olmayan konuları içeriyor. Yine İslâmî bir site gibi gözüken ancak detaylı inceleme yapıldığı zaman bir çok çarpıtma bilginin yer aldığı www.answering-islam.org adlı site de dikkatli Müslümanlar tarafından keşfedilip deşifre edilmiş bile. Yine bir başka site (http://dialspace.dial.pipex.com/town/park/geq96/original) İslâmî kimlik taşıyormuş hissi veren ancak gerçekte çarpıtma bilgilerle dolu bir yer. "Niyeti" farklı olmakla birlikte doğru bilgiler veren siteler de var. Hıristiyanların İslâmî sitelere ilgisini gören ABD"deki Hıristiyan misyonerler kendi sitelerinde "İslâmî" bilgiler ihtiva eden bir bölüm açıyorlar. Maksat Hıristiyanların İslamiyeti kendilerinden öğrenmelerini sağlamak. Örnekleri uzatmak mümkün.
+       <br/>
+       <br/>
+       İslâm"ın günlük hayattaki çok renkliliği sanal dünyada da yankı buluyor. Örneğin Avrupalı ya da Amerikalı Müslümanlar fetva konusunda kendi eğilimine en yakın ulemayı seçiyorlar. Bu da Avrupa ve Amerika Müslümanları kavramlarını ortaya çıkarıyor. Bunu bir çeşitlilik olarak algılayan İstanbul Üniversitesi İletişim Fakültesi öğretim üyesi Edibe Sözen; "Bilgi o kadar hızlı yayılıyor ki, kontrol etmek mümkün değil. Bu da İslâmın ve bilginin merkezsizleşmesine sebep oluyor. Artık bilgilerin "forward"landığı günümüzde bilginin kaynağı ortadan kalkıyor. Örneğin elektronik postanıza uydurma ayetler ya da savaş hakkında değişik spekülasyonlar gelebilir. Ancak dezenformasyon her sahada yaşanıyor. Siz bir kitapta ya da gazetede okuduğunuz habere hemen inanıyor musunuz? Aynı şey internet için de geçerli" diyor.
+       <br/>
+       <br/>
+       Kısıtlı özgürlükler
+       <br/>
+       <br/>
+       Batı"da yaşayan Müslümanlar internetin sunduğu imkanları sonuna kadar kullanırken, İslâm dünyasında ise İslâmi konularda bile tam anlamıyla özgür bir internet ortamından bahsedilemiyor. Sözgelimi Suudi Arabistan"da internet kullanımı teorik olarak serbest; ancak enformasyon bakanlığı özel ekipler oluşturarak Vehhabi anlayışa aykırı siteleri sansürlüyor. Aynı ülkede politik içerikli sitelere giriş yasak. Ama halk bunun da kolayını bulmuş. Hackerlara 30 ila 70 dolar ödeyerek istedikleri sitelere ulaşıyorlar.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2877&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050113145914/http://www.aksiyon.com.tr:80/detay.php?id=2877&yorum_id=1)

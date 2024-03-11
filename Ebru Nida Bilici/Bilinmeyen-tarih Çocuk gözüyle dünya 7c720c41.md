@@ -1,0 +1,65 @@
+# Çocuk gözüyle dünya
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226005636im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226005636im_/http://www.aksiyon.com.tr/resim/395/cocuk.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sekiz yaşındaki Ali Koca ile altı yaşındaki kardeşi Ayşe’nin “Kainat ve Ben” konulu ev sergileri, görenleri şaşırtıyor. Resim, maket ve video çekimleri yardımıyla insanın kainatla benzeştiği noktalar ve bazı mucizevi yönleriyle hayvanlar âlemi iki çocuğun penceresinden ziyaretçilere sunuluyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Çocuğunuza yerçekimini nasıl açıklarsınız, ya da dünyanın bazı bölgelerinin neden daha soğuk/sıcak olduğunu? Peki ya kainatla insan arasındaki benzerlikleri hangi kıyas noktalarından yola çıkarak anlatırsınız? Balın, sütün ya da yumurtanın mucizevi birer ikram olduğunu hangi fırsatları değerlendirerek belleklerine yerleştirmeyi hedeflersiniz? Anne babaların çocuklarına öğretme konusunda zaman zaman aciz kaldığı bu konular kısmen eğitim kurumlarının çeşitli basamaklarında verilse de zihinlerdeki kalıcılıklarını artırmak için farklı yöntemlere başvurmak kaçınılmaz. Eğitimcilere göre öğrenmenin en etkili yollarından biri, kazandırılmak istenen bilginin yaşayarak  ve gözlemleyerek öğrenilmesini sağlamak. Bu yüzdenden de eğitim kurumlarının en verimli ve etkili öğrenmeyi sağlayan bölümleri deney salonlarıdır.
+   <br/>
+   <br/>
+   Ancak evrenin başlıbaşına bir deney salonu olduğu düşünülürse edinilen hemen her bilginin hayat sahnesindeki izdüşümlerini görmek mümkün. Yeter ki bakmayı ve görmeyi bilelim.
+   <br/>
+   <br/>
+   Münife Koca altı yaşındaki Ayşe ile sekiz yaşındaki Ali’nin annesi. Çocuklarına alternatif öğrenme metodları sunma konusunda kayda değer çabalar sarfeden nadir annelerden biri olarak tanımlayabiliriz onu. Birçok anne baba çocuğunun okulda yaptığı faaliyetleri karşısında sadece “Çok güzel olmuş” diyerek belki de saklama/ biriktirme ihtiyacı dahi duymaksızın ilgisiz kalırken Münife Koca evini çocukları için hem faaliyet hem de bir sergi alanı haline getiriyor.
+   <br/>
+   <br/>
+   Çocuğunun evi kirletmesin diye suluboya ya da kesme yapıştırma gibi çalımalarına dahi izin vermeyen anneler burada yazacaklarımızdan hoşlanmayabilir ama “çocuğum için neler yapabilirim, onun okulda aldığı eğitimi evde nasıl takviye edebilirim ya da ona kendini ifade edebilme yetisiyle özgüveni  nasıl kazandırabilirim” diyen anne babalar bu yazıda anlatılacakları kendi kabiliyet ve hayal güçleriyle  zenginleştirerek çocuklarına uyarlayabilir.
+   <br/>
+   <br/>
+   İnsan küçük bir kainat...
+   <br/>
+   <br/>
+   Herşey Koca ailesinin yaşadığımız evrendeki görülebilir canlı ve cansız tüm varlıkları meraklı gözlerle inceleme alışkanlığıyla başlar. Çevrelerindeki hayvanların işlev, görev ve kabiliyetleriyle, insan ve hayvanların ekolojik denge içindeki konumlanışı üzerine gözlem ve incelemeler yapan Münife Koca çocuklarını da bu yönde motive eder. Ve onların ilgi duyduğu ve karşılıklı konuşmalar yoluyla kendilerince cevap buldukları bazı konuları çocuk bakış açısıyla nesnelleştirip kendi algı sınırları içinde ifade edebilecekleri bir sergi açmaları ve bunu arkadaşlarıyla paylaşmaları konusunda önerilerde bulunur. Böylece evde sergi açma fikrinin ilk adımları atılmış olur. Anlatılacak konu çok, lakin evle sınırlı olduğu için bir tek konu belirlemek ve buna uygun ifade yolları tasarlamak yoğun ve heyecanlı bir fikir alışverişinden sonra ortaya çıkar. Sonuçta serginin konusu ‘Kainat ve Ben’ olarak belirlenir. Evdeki odalar ve çeşitli bölümler sergiyi oluşturan temaların resim ya da maketlerine zemin oluşturur.
+   <br/>
+   <br/>
+   Öncelikle insanın kainatla benzeşen yönleri ve insan vücudundaki özelliklerin kainattaki karşılıklarına dikkat çekmek ister sergilerinde Ali ve Ayşe. Örneğin insan vücudunda kan damarları vardır. Oksijenin ve gıdaların vücuttaki dolaşımını kanın vücuttaki devri daimi sağlar. Buna mütekabil olarak da dünya yüzeyinde akarsular vardır ve yerin altındaki ve üstündeki canlı cansız varlıkların dolaşımını ve hayatın devamlılığını sağlar. Bu bilgileri, içine gazete kağıtları doldurulmuş giysilerle canlandırılan bir insan vücudu üzerine kırmızı iplerle kan damarları çizerek anlatan Ali, projesini harita üzerinde renkli kalemlerle belirlediği akarsu ibareleriyle güçlendirerek kıyas ve karşılaştırmalarla tezini anlatıyor.
+   <br/>
+   <br/>
+   İnsan vücudunun dörtte üçü suyla kaplıdır, dünyanın da dörtte üçü suyla kaplıdır. Ayşe dikkat çekmeyi hedeflediği bu konuyu anlatmak için yine gazetelerle içi doldurulmuş bir insan vücudunun dörtte üçünü mavi parşömen kağıtlarla kaplayarak anlatmayı tercih etmiş. Hemen yanıbaşında duran dünya haritasının da deniz ve göllerle kaplı alanları yine mavi kağıtlarla kaplanmış. Bu yolla dünya ve insan arasındaki paralelliğe dikkat çekilmiş. Sonuçta gelinen nokta şudur: İnsan vücudu küçük bir kainat, kainat ise büyük bir insandır.
+   <br/>
+   <br/>
+   Evin bir başka köşesinde ise Ali ve Ayşe mucizevi bir canlı olarak tanımladıkları arıya ve onun ürünü olan bala dikkat çekmeye çalışıyor. Balın nasıl yapılmış olabileceği üzerine kafa yoran ekip, içinde varolduğu kabul edilen vitaminlerle su ve şekeri karıştırarak hatta içine maya olarak biraz da bal katarak bal elde etmeye çalışmış. Ancak ne görüntü ne de tat olarak arının yaptığı bala benzetememişler. Arılara ait çizim ve fotoğraflarla desteklenen bu projede edinilen nihai kanı ‘arının başka hiçbir canlının sahip olmadığı özel yetenekleri sayesinde mucizevi bir gıda üretebildiği’dir. Bu da Yaratan’ın özel bir ikramıdır insanlara. Ali ve Ayşe’nin beraber hazırladıkları bir başka projede  “Sihirbazlık diye birşey var mıdır?” sorusuna cevap aranıyor. Harry Potter filmini izledikten sonra merak konusu olan sihirbazlık, kamera hileleriyle açıklanmaya çalışılıyor ve bu bunun için kısa bir çekim yapılıyor. Kızkardeşini pandaya çevirmeye çalışan bir sihirbazı canlandıran Ali, küçük bir kamera hilesiyle bu isteğini gerçekleştirmiş görünür ama bir anda ortaya çıkan Ayşe bunun bir sihir değil kamera hilesi olduğunu belirtiyor. Bütün bunları videodan ziyaretçilere anlatan Ali ve Ayşe bu noktada teatral kabiliyetlerini de konuşturuyorlar.
+   <br/>
+   <br/>
+   Esas oğlan esas kız
+   <br/>
+   <br/>
+   Bu ve benzeri birkaç konu daha Ali ve Ayşe’nin ev sergisinin bölümlerini oluşturuyor. Sergiye kendi öğretmen ve arkadaşlarının yanısıra tüm tanıdıklarını davet eden çocuklar gelen her misafire ayrı ayrı, yaptıkları çalışmalar hakkında bilgi veriyorlar.
+   <br/>
+   <br/>
+   Serginin hazırlık sürecinde her an onlarla olan ve desteğini esirgemeyen anne Münife Koca serginin hazırlanış amaçlarından birkaçını şöyle özetliyor: “Bize sık sık misafir gelir ve çocuklardan böyle durumlarda bazı fedakarlıklar  bekleyebiliyorum. Bu sefer de ben çocuklarım ve arkadaşları için birşeyler yapmak istedim.  Bu faaliyetleri görmek için yetişkinlerin ve arkadaşlarının yaptığı sergi ziyaretleri onlara başarma duygusunu yaşatarak kendilerine güvenmelerini sağlıyor ve kendilerini ifade edebilme yeteneği kazandırıyor. Bugün öğrendikleri ilerde karşılarına bir şekilde çıkınca kavramakta zorlanmayacaklar, hatta zihinlerinde farklı açılımlara da zemin hazırlayacaktır.”
+   <br/>
+   <br/>
+   Bu küçük yaşta böyle şeyler yapmayı başarmaları büyüdüklerinde daha önemli işlere imza atacakları hissini veriyor anneye. Bunlar ilk adımlar. Üstelik diğer çocuklara da örnek olabilecek şeyler.
+   <br/>
+   <br/>
+   Yaşayarak ve her ayrıntısını bizzat gözlemleyerek edindikleri bu bilgiler Ali ve Ayşe’nin hayatları boyunca zihinlerindeki yerini koruyacak desek yanlış olmaz. Anne babaların çocuklarının ufkunu açacak, hayal güçlerini geliştirecek ve başarma azimlerini kamçılayacak faaliyetleri gerçekleştirmeleri için zemin hazırlamaları takdir edilmesi gereken önemli davranışlar. Üstelik bunu yaptıklarında emeklerinin karşılığını mutlaka alıyorlar. Başarılı ve özgüven sahibi olmasını istediğiniz çocuğunuz için siz de hayal gücünüzü ve şartlarınızı biraz zorlamaz mısınız?
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1420), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226005636/http://www.aksiyon.com.tr:80/detay.php?id=1420)

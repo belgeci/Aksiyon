@@ -1,0 +1,67 @@
+# İstanbul Boğazı'na Amerikan "demir perde"si
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050127010416im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050127010416im_/http://www.aksiyon.com.tr/resim/457/18.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Churchill"in meşhur 1946 konuşmasından sonra Baltık"taki Stettin"den, Adriyatik"teki Trieste"ye kadar Avrupa kıtası üzerine boydan boya demir bir perde indi. Soğuk Savaş"ın başlamasından iki yıl sonra da İstanbul Boğazı"na Amerikan "demir perde"si indi. Rus atom denizaltıları, Boğaz"ın girişine örülen çelik ağlarla durduruldu
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Emekli SAT komandosu Namık Ekin, 39 kilometrelik İstanbul Boğazı"nı 14 saatte geçerek, "su altında en uzun mesafeyi tüple yüzme" dünya rekoru kırdı. 61 yaşındaki çelik adam, rekorunu "Ağabeyim, komutanım" dediği Deniz Kuvvetleri Komutanı Oramiral Özden Örnek ile komutanı, aynı zamanda halter ve body hocası olan Kara Kuvvetleri Komutanı Orgeneral Aytaç Yalman"a hediye etti. Ünlü dalgıcın rekoru, hem gazetelere hem de Guinness Rekorlar Kitabı"na yazıldı. Fakat Ekin"in asker yönüne ilişkin emekli bir SAT komandosu olduğunun dışında pek birşey yazılıp çizilmedi. Oysa Namık Ekin, Türkiye"nin ve dünyanın yakın tarihini ilgilendiren birçok olayın tam orta yerinde, özel ve seçilmiş bir asker olarak görev yaptı.
+   <br>
+    <br>
+     Namık Ekin"in tamamına yakını su altında geçen biyografisine dalıp, "sessiz görev"deki yıllarını araştırdık. Karşımıza medyatik bir portreden ziyade yakın tarih belgeseli çıktı. Ekin, Türkiye"nin ilk su altı taarruz timini oluşturan arkadaşlarıyla birlikte, Amerikalılar tarafından aslında Sovyetler"e karşı eğitilmiş. Türk SAT birliği, 1963 yılında, gerektiğinde demir perdenin arkasına geçmek ve o taraftan gelecek tehlikelere karşı anında karşılık vermek üzere kurulmuş. Dünyanın en tehlikeli askerlerinin yetiştirilmesini zorunlu kılan süreç 1945"e kadar uzanıyor. Japonya"ya atom bombası atarak 2. Dünya Savaşı"na nihai noktayı koyan ABD, henüz atom bombasını yapamamış olmasına rağmen Sovyetler"in gelebileceği bütün yolları kapatmaya çalışıyordu. ABD için İstanbul Boğazı Rus denizaltılarına karşı kapatılması gereken en staratejik yolların başında geliyordu. 1946 yılında, Baltık"taki Stettin"den, Adriyatik"teki Trieste"ye kadar Avrupa kıtası üzerine boydan boya demir bir perde indi. Bundan iki yıl sonra, 1948"de İstanbul Boğazı"na da Amerikan "demir perde"si indi! Boğaz, Anadolukavağı ve Yenimahalle Orduevi"nin bulunduğu noktalardan dibe kadar çelik ağlarla örüldü.
+     <br>
+      <br>
+       ABD, endişelerinde haklı çıktı ve Sovyetler, beklenenden altı yıl önce bu ölümcül bombayı geliştirdi. Stalin, 10 Temmuz 1949"da ilk atom bombasını patlatarak, Büyük Güç statüsünden Süper Güç statüsüne sıçradı. O tarihte her iki gücün nükleer denizaltısı yoktu ama birkaç yıl içinde sessiz göreve çıkmaya hazır hale geleceklerdi. İstanbul Boğazı çelik bir perdeyle kapatıldığı için Amerika"nın içi rahattı. Atom bombası yüklü ölüm gemilerinin önü Türk sularında kesildiği için Amerikalılar, okyanus ötesinde rahat uyuyabiliyordu. Rus Silahlı Kuvvetleri"nin ilk nükleer denizaltısı K-19"un, 1961 yılında ABD"nin 400 kilometre uzağında bir noktada pozisyon almış olması İstanbul"un önemini daha da artırıyordu. Bugün Rus donanmasının kıtalararası balistik füze taşıyan 26 stratejik, 72 de taktik denizaltısından birçoğu, o dönemde Boğaz"daki çelik perdeyi aşamadıkları için Anadolukavağı önlerinden geri dönmüş.
+       <br/>
+       <br/>
+       İstanbul Boğazı geçilmez
+       <br/>
+       <br/>
+       Soğuk Savaş"ın tehlikeli saatlerinin yaşandığı bu yıllarda ABD, çelik ağlarla yetinmiyor, gerektiğinde sıcak temasa girebilecek çok özel birlikler yetiştirmek istiyordu. O tarihlerde Türkiye"nin su birlikleri vardı ama su altı timleri yoktu. Türk SAT"ı, bir anlamda ABD"nin nükleer korkusunun bir ürünü olarak ortaya çıktı. Çünkü Amerika, gözünün arkada kalmaması için birlikte veya yalnız baskın, sabotaj, savunma, istihbarat yapacak bir birlik istiyordu. İki süper güç arasındaki nükleer gerilim doruk noktasına çıkarken, 1963 yılında Türk SAT"ının kurulmasına karar verildi. 12 yaşında Deniz Kuvvetleri"ne adım atan Namık Ekin, bu tarihte Kılıç Ali Paşa Muhribi"nde Astsubay Çavuş olarak göreve başlamıştı. Psikoteknik testlerden sonra sonarcı olan Ekin"in, düşman denizaltılarını yakalama konusunda hayli kabiliyetli olduğu ortaya çıkmış. Ekin"in balık burcu olmasına bağladığı bu özelliğini Amerikalılar da fark etmiş. Kurulacak SAT birliği için donanmadan ismen çağrılmış. Savaş şartlarında geçen eğitimden sonra 76 kişiden 11 kişi kalmış. Namık Ekin ve arkadaşlarını, atom silahları konusunda uzman olan Amerikalı Binbaşı Bob Gallagher eğitmiş. Gallagher, Vietnam"daki başarılarından dolayı 5 kez şeref madalyası almış. Ayağında platinle yaşayan ve bazı parmakları olmayan Gallagher, Birinci Körfez Savaşı sırasında ateşe verilen petrol kuyularını patlatma yöntemleriyle söndürmeyi başaran sıradışı bir asker.
+       <br/>
+       <br/>
+       Vietnam Savaşı boyunca her sene iki Türk timi, Amerikalıların Vietnam"da kullandığı taktikleri, silahları öğrenmek üzere Amerika"ya gitmiş. Gerilla savaş taktikleri, ileri marin keşif, su altı silahları konularında eğitim almışlar. Bu arada, Amerikalılara bataklık eğitimini Türk SAT"ları öğretmiş. Namık Ekin, bu ziyaretler sırasında, daha dünyanın hiçbir yerinde bilinmezken Amerika"nın kullandığı "beyaz fosfor" denilen ve 800 bilye atan mayınları, silahları, patlayıcılarını çıkarıp uçakla Türkiye"ye getirmiş gizlice. Bir tür sanayi casusluğu yapmış. Sonunda, Amerika ile başa çıkabilecek dünyadaki çok ender timlerden biri yetişmiş.
+       <br/>
+       <br/>
+       Ekin, gösterdiği sıradışı başarılardan dolayı denizaltı yakalama görevi için Beykoz"daki, stratejik öneme sahip Mania Grubu"na tayin olmuş. Denizden gelecek bir Rus tehdidiyle, ilk sıcak teması bu grup sağlayacak; denizde, denizaltında, havada ve karada aralıksız savaşacaktı. Ekin, bu özel görevini ve Rus denizaltılarıyla temaslarını şöyle anlatıyor: "Boğaz"ın önünde, dışında, girişinde üç tane cihaz var. Rus denizaltısı Boğaz"a girmeye başladığında, denizaltıyı yakalayıp yönlendiriyor. Aynı anda hücumbatlar alarma geçiriliyor. Su altındaki cihazlar bizi Rus denizaltısının üstüne yönlendiriyor. Kendi sonarımızla da yerini tespit edip tam üstüne gidiyoruz. Sualtı maniplesiyle "adını, kodunu, ülkeni bildir" diye ikaz ediyoruz. Yüzeye çıkması için uyarıyoruz. Eğer çıkmazsa 300 feete kadar geldiğinde su bombası atmak için hazırlık yapıyorduk. Rus denizaltıları böyle çok gelip kaçtılar Boğaz"ın önünden. Zaten Boğaz"daki ağlar onları engelliyordu. Rus şilepleri, dipten yüzeye kadar çıkan bu ağlara geçiş noktalarında çarparak hasar veriyordu." Çelik ağlar, denizaltı takip ve imha sistemlerinin gelişmesiyle 1968"de sökülmüş. SAT"lar, Boğaz"ın soğuk sularında, üçüncü dünya savaşına yol açabilecek K-19 benzeri bir kaza ya da saldırıya karşı yıllarca tetikte beklemiş. Amerikalılarla birlikte 40 civarında taktik geliştirilmiş. Ekin, bu kritik yıllarla ilgili pek fazla konuşmak istemiyor. Soğuk Savaş döneminden kalma Mania Grubu, bugün aynı noktada görevini sürdürüyor. Ekin, sürpriz bir durumla karşılaşıldığında, Boğaz"ın yeniden Mania Grubu tarafından 2 saat içinde çelik perdeyle kapatılabileceğini ve mayınlanabileceğini söylüyor. Demir perde yıkılmış olsa bile İstanbul Boğazı"na inen perde tamamen kaldırılmamış aslında.
+       <br/>
+       <br/>
+       Namık Ekin, Amerika"nın en büyük deniz üssünün bulunduğu Virginia"da, Atlantik"i kontrol eden Amerikan atom denizaltısına da girmiş. Burada, sahilden 40 mil açılıp, 500 metre aşağıda denizaltıdan çıkıp, Rus denizaltısına mayın koyup, kaçma tatbikatlarına katılmış. Bu tehlikeli sularda Amerikalılarla Rusların kedi-köpek oyunlarına da şahit olmuş. "Nerede tatbikat yapsak, sözde Rus balıkçı tekneleri başımızın üstünde biterlerdi" diyor.
+       <br/>
+       <br/>
+       Girne"yi 24 SAT komandosu aldı
+       <br/>
+       <br/>
+       Namık Ekin, Karadeniz"in karanlık sularında da sabotaj tatbikatlarına katılmış. Burada Mustafa Tosun isimli bir arkadaşını kaybetmiş, cesedini de bulamamışlar. Bu olayı yeniden hatırladığında oldukça üzülen Ekin, "Birçok arkadaşımız eğitimler, tatbikatlar sırasında öldü. Bazılarının cesetleri, bazılarının da kemikleri bulundu. Balıklar, yengeçler belden aşağısını götürmüş halde çok arkadaşımızı bulduk. Tüplerini bulduk. Bazılarını da iskelet halinde yıllar sonra ağlara takılı bulduk" diyor. Kurulduğu günden bugüne kadar 21 SAT komandosu ölmüş.
+       <br/>
+       <br/>
+       Ekin, 1964-67 Kıbrıs olayları yaşanırken, Akdeniz"de bilinmeyen bir yerde 4 ay süren sabotaj tatbikatlarında yer almış. Boğaz"da Ruslar"ı bekleyen SAT"lara, 1974"te Rumlarla savaşmak nasip olmuş. Harekat öncesi komandolar ikiye ayrılmış. 24 kişiden oluşan SAT1, Girne önlerindeki mayınları temizleyip, sahili ve köprü başlarını tutmuş. Ardından daha ilerilere giderek sabotajlar düzenlemiş. Girne Kalesi"nde gizlenen komandolar, önceden belirlenmiş binalara girerek, önemli belgeleri Türkiye"ye getirmişler. SAT"lar, daha sonra hiç kayıp vermeden Girne"yi ele geçirmiş. Daha kalabalık olan SAT2 ise, savaşın seyrine göre, İzmir yakınlarında 12 adayı ele geçirmek üzere tetikte beklemiş. SAT2 grubunda yer alan Ekin, Kıbrıs Harekatı"nı bir antrenman olarak görüyor. Bugün Türk SAT"ları hiçbir deniz aracı olmasa bile, İzmir sahilinden 12 adaya ve Yunanistan"a 30, Mersin"den de 40 kilometre su altından yüzerek Kıbrıs"a çıkıp operasyon yapabilecek kabiliyete sahip.
+       <br/>
+       <br/>
+       Bu arada Yunanlı SAT"lar, Kıbrıs yerine Amerika"da karşılarına çıkmış. Amerikalıların Yunanistan"da da SAT kurduğunu, yıllar sonra bir tatbikat sırasında öğrenmişler. Yunanlı SAT, Amerika"da Türk SAT"ları eğlence mekanına davet edip, sarhoş ettikten sonra bilgi almak istemiş ama kendisi daha önce konuşmaya başlamış. "Türklerle savaşılmaz" diyerek samimi bir itirafta bulunmuş.
+       <br/>
+       <br/>
+       Bir dönemin tanığı ve henüz su yüzüne bile çıkmamış birçok olayın öznesi olan Namık Ekin, emekli olduktan sonra Amerika"dan, başta İsrail olmak üzere dünyanın çeşitli yerlerinde paralı asker olarak çalışması için davet almış. Bu teklifleri değerlendirmeyen Ekin, kendini spora ve hayır işlerine adamış. "Su altında en uzun mesafeyi tüple yüzme" dünya rekorunu da omurilik felçlilerine tekerlekli sandalye almak için kırdı. Fakat kimseden tek kuruş gelmemiş. Önümüzdeki aylarda 3 gün 3 gece su altında kalma rekorunu deneyecek. "Öyle bir rekor kırayım ki, bir daha kimse bu rekoru kıramasın" diyen Ekin, 1998"de İsviçreli D. Derbant tarafından kırılan 52 saatlik rekoru 72 saate çıkarmayı hedefliyor. Yine omurilik felçlileri için, suyun altında uyumadan, bayılmadan, boğulmadan durarak psikolojik ve fizyolojik bir savaş verecek. Çok sayıda ülke, bu rekor denemesindeki tüm aşamaları canlı olarak yayınlayacak. Ekin, rekor denemesi sırasında hayranlarıyla su altından chat yapabilecek. Yeme içme ihtiyaçları ile tuvalet ihtiyacını havuz içinde karşılayacak.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2938&yorum=283), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050127010416/http://www.aksiyon.com.tr:80/detay.php?id=2938&yorum=283)

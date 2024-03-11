@@ -1,0 +1,56 @@
+# Türkiye'nin yazarları bu kitapta toplandı!
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Üç kalın cilt, Türkiye'nin yazarlarını anlatıyor. "Bu kadar yazar ne yazıyor?" sorusu bir yana İhsan Işık'ın çalışması türünün hem en kapsamlı hem de en 'objektif' olanı.
+   <br>
+    <br>
+     <br>
+      Türkiye Yazarlar
+      <br>
+       Ansiklopedisi 1-2-3
+       <br/>
+       İhsan Işık
+       <br/>
+       Elvan Yayınları
+       <br/>
+       0 312 417 54 93
+       <br/>
+       <br/>
+       <br/>
+       <br>
+        Ansiklopedi türü çalışmalar genellikle çok ilgi ile karşılanmaz Türkiye"de. Ama araştırmacı-yazar İhsan Işık"ın hazırladığı Türkiye Yazarlar Ansiklopedisi, ideolojik bir ayrım yapılmadığı için olsa gerek oldukça ilgi gören bir çalışma. Çalışmayı daha önce Yazarlar Sözlüğü olarak yayınlayan, kişi sayısının artmasından sonra ansiklopediye dönüştüren ve artık üç cilt olarak bizlerin istifadesine sunan İhsan Işık, bu alanda çok önemli bir boşluğu doldurmuş oluyor.
+        <br>
+         <br/>
+         İhsan Işık"ın, kısmen fotoğraflı olarak hazırladığı Türkiye Yazarlar Ansiklopedisi, kendi alanında bir rekor kırarak tam 5 bin 786 edebiyatçı ve bilim adamının hayatına ve eserlerine yer veriyor. Peki İhsan Işık bu rakama ulaşmayı nasıl başardı? Öyle ya Türkiye"de, İhsan Işık"ın da kitabın önsözünde belirttiği gibi, bu türde hazırlanmış kitap veya ansiklopedilerin içerisindeki kişi sayısı hepi topu bin 200 ile sınırlı kalırdı. Çünkü oluşturulan bu tarz ansiklopediler sadece edebiyatçılardan müteşekkil olurdu. Tarihçi, felsefeci, ilahiyatçı, toplumbilimci, dilbilimci, halkbilimci, siyasetbilimci, sanat tarihçisi, ekonomi tarihçisi, serbest araştırmacılar, gazeteci-yazarlar hep göz ardı edilirdi. Bir diğer önemli nokta, bu tür çalışmaları yapanların kendi ideolojilerine hapsolup, diğerlerini belli çevrenin dışında tutarak yok saymasıydı. Bu yaklaşımlar bugün edebiyat dünyasında hâlâ geçerliliğini koruyor zaten.
+         <br/>
+         <br/>
+         İşte Işık, edebiyat öğretmenliği yaptığı dönemde gördüğü bu eksikliklerden duyduğu rahatsızlıktan yola çıkarak 1983 yılında başladı çalışmalarına. 1990 senesinde bin 700 kişiye çıkardığı ve Yazarlar Sözlüğü adını verdiği çalışmayı sürekli genişletti. Bunun için anı, hatırat taramaları yaptı, birçok biyografik bilgiye de ilk elden ulaştı. Böylece, 2 bin 600 civarında biyografi elde etmiş oldu. 2001 yılında, artık ortaya çıkan malzeme bir sözlükten ansiklopediye dönüşmüştü. Bu sefer 3 bin 218 kişi hakkında bilgiler elde etmişti İhsan Işık.
+         <br/>
+         <br/>
+         Türkiye Yazarlar Ansiklopedisi oldukça ilgi gördü ve kısa sürede ikinci baskısını yaptı. İhsan Işık, bir yandan da isimler üzerindeki çalışmalarını sürdürerek, şimdi 5 bin 786 kişiye yer verdiği Türkiye Yazarlar Ansiklopedisi"ni üç cilt haline getirdi. Elvan Yayınları tarafından basılan çalışma ile İhsan Işık, araştırmacılara önemli bir kaynak eser ortaya çıkarmış oldu.
+         <br/>
+         <br/>
+         1952 Diyarbakır doğumlu olan yazar İhsan Işık, önce bir boşluğu doldurmak üzere yapmaya başladığı bu işle gelecek kuşaklara da yardımcı olacak Türkiye Yazarlar Ansiklopedisi"ni genişletmeye devam edecek anlaşılan.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1132 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11275), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050126120101/http://www.aksiyon.com.tr:80/yazdir.php?id=11275)

@@ -1,0 +1,73 @@
+# İspanyol futbolunda bir asırlık iç savaş
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119204702im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119204702im_/http://www.aksiyon.com.tr/resim/450/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İspanya"da devleti temsil eden Real Madrid ile bağımsızlık mücadelesi veren Katalanya"nın sembolü Barcelona arasında yüz yıldır bitmeyen bir çekişme yaşanıyor. Her iki takım da birbirlerini engellemek için her türlü yola başvuruyor. Önümüzdeki 5 sezon bu çekişmeye Rüştü de ortak olacak.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Yıl 1953... Diktatör Franco"nun yeşil sahalardaki en büyük silahı olarak kabul edilen Real Madrid ile bağımsızlık mücadelesi veren Katalonya"nın sembolü Barcelona arasında o dönemin en gürültülü transfer savaşı yaşanıyor. Savaşa sebep olan bu kişi ise Real Madrid"de efsaneleşecek Alfredo Di Stefano. Arjantinli ünlü futbolcu, Kolombiya"nın Millionarios takımında top koştururken Barcelona"dan transfer teklifi alıyor. Di Stefano, bu teklife olumlu cevap verip Katalonya"nın başkenti Barcelona"nın yolunu tutuyor. Ancak son anda Franco"nun takımı Real Madrid devreye giriyor ve dünyanın gelmiş geçmiş en iyi futbolcularından biri olarak kabul edilen Di Stefano"yu başkente kaçırıyor. Tam 20 yıldır şampiyonluk yüzü görmeyen ve bu dönemde Barcelona"nın gölgesinde kalan Real Madrid"in bu operasyonu yapmakla ne kadar iyi ettiği daha ilk sezondan itibaren anlaşılmaya başlıyor. 11 yıl Real Madrid forması giyen ve toplam 228 gol atan Di Stefano, bu süreçte 5 kez İspanya gol kralı oluyor ve takımını 8 kez ligde, 5 kez de Şampiyon Kulüpler Kupası"nda mutlu sona ulaştırıyor. Barcelona ise Di Stefano"nun Real Madrid forması giydiği bu dönemde sadece 2 kez lig şampiyonluğu sevinci yaşayabiliyor.
+   <br>
+    <br>
+     Real Madrid ile Barcelona arasındaki transfer çekişmesi sonraki yıllarda da aynen devam ediyor. Real Madrid Katalan, Barcelona da İspanyol oyuncu oynatmadığı için savaşlar hep yabancı futbolcular için yapılıyor. Mesela, Michael Laudrup (Danimarka), Luis Figo (Portekiz) ve David Beckham (İngiltere), her iki takımın son dönemlerde paylaşamadığı yabancı futbolculardan sadece birkaçı. Bu transferlerde dikkat çeken bir ayrıntı ise sürekli Real Madrid"in kazanması. Hâlâ devletin takımı olduğuna inanılan Real Madrid, Barcelona"nın formasını giyen ya da Katalan ekibinin talip olduğu tüm yıldız futbolcuları astronomik rakamlar ödeyerek kadrosuna dahil etmeyi başarıyor. Bunun sonucunda da Barcelona"yı güçsüz bırakıp ligde ve Avrupa"da başarılı oluyor.
+     <br>
+      <br>
+       Real"in Barca"ya acıması yok
+       <br/>
+       <br/>
+       Ezeli rakibine karşı hiç acıması olmayan Real Madrid, son yıllardaki gürültülü transferlerinden ilkini 1994 yılında Danimarkalı Michael Laudrup"u Barcelona"dan kopartarak yapıyor. Başkentin güçlü temsilcisi, menajerliğini Bayram Tutumlu"nun yaptığı Laudrup"u kadrosuna katarak 4 sezondur arka arkaya şampiyon olan Katalan ekibini zayıflatıyor ve Danimarkalı oyuncunun forma giydiği ilk sezonda (1994-95) Real Madrid zirveye çıkıyor. Michael Laudrup"un ayrılmasından sonra bocalayan Barcelona ise üç yıl şampiyonluk yüzü göremiyor.
+       <br/>
+       <br/>
+       Real Madrid"in Barcelona"dan kopardığı bir başka yıldız futbolcu ise Portekizli Luis Figo oluyor. Florentino Perez, 2000 yılında yapılan başkanlık seçimi öncesinde Barcelona"lı Luis Figo"yu alma vaadinde bulunuyor ve bu vaat sayesinde Real Madrid"in koltuğuna oturuyor. İspanya"daki birçok futbolsever, bu vaadin gerçekleşmesinin zor olduğunu düşünürken, Luis Figo, 62 milyon euro karşılığında Real Madrid"e transfer oluyor. Böylece, üç yıldır şampiyonluk yüzü göremeyen başkent ekibi, bu dönemdeki Barcelona hakimiyetini kırıyor ve 2000-2001 sezonunu zirvede tamamlıyor. Aynen Di Stefano ve Laudrup transferlerinin ardından olduğu gibi.
+       <br/>
+       <br/>
+       Figo"nun transferinden sonra Real Madrid"li taraftarlar çılgınca sevinirken, Barcelona"lı taraftarlar fahri Katalan olarak kabul ettikleri Portekizli oyuncuya bu hainliğinden(!) dolayı müthiş bir kin ve nefret duymaya başlıyor. Katalan futbol otoriteleri de yıllar önceki Di Stefano olayını hatırlatarak taraftarları daha da ateşliyorlar. Nitekim, 21 Ekim 2000 tarihinde Barcelona"da oynanan lig karşılaşmasından önce ve maç sırasında Portekizli oyuncuya futbol tarihinin belki de en ağır protestosu yapılıyor. Bir taraftan Katalan halkına 200 bin düdük dağıtılıyor ve Real Madrid kente gelir gelmez bu düdüklerin çalınması isteniyor, bir taraftan internet kanalıyla Figo"ya ağır hakaretler yağdırılıyor, bir taraftan da 110 bin kişilik Nou Camp Stadı"nda çeşitli protestolar gerçekleştiriliyor.
+       <br/>
+       <br/>
+       Özellikle Nou Camp Stadı"nda gerçekleştirilen protestolar Figo"yu olumsuz etkiliyor. Kendilerini para için satan(!) Figo"ya karşı örgütlenen Katalanlar, stadyumu tıklım tıklım doldurup hakaretler içeren pankartlar açıyor. Bu taraftarlardan kimi Figo"nun resimlerini yakıyor, kimi sahaya çıkarken kafasına pet şişe atıyor, kimi ayağına top geldiğinde inanılmaz şekilde ıslıklayıp yuhalıyor, kimi de özel olarak yapılan ve üzerine Figo"nun resminin monte edildiği 10 milyar pesetoluk paraları sallıyor. Protestoların bu kadar şiddetli olacağını tahmin edemeyen Figo ise gözlerini ve kulaklarını tıkayarak kendisine top gelmemesi ve maçın bir an evvel bitmesi için dua ediyor. Ve maç Barcelona"nın 2-0"lık galibiyetiyle sona eriyor. Bu arada, bu sezon Barcelona"da oynanan lig maçında Figo"ya pet şişelerin yanı sıra kesik domuz başı atıldığını ve ölüm tehdidinde bulunulduğunu da hatırlatalım.
+       <br/>
+       <br/>
+       Figo"dan sonra Beckham"ı da kaptılar
+       <br/>
+       <br/>
+       Figo"nun gidişinden sonra kendini bir türlü toparlayamayan Barcelona"nın yeniden yükselişe geçmesini kesinlikle istemeyen Real Madrid"in Katalan ekibinin elinden kaptığı son yıldız futbolcu ise David Beckham oldu. Geçtiğimiz günlerde yapılan başkanlık seçimi öncesinde Barcelona"nın koltuğuna aday olan Joan Laporta"nın en büyük vaadi, F.Bahçe"nin ve Türk Milli Takımı"nın başarılı kalecisi Rüştü Reçber ile Manchester United"ın yıldız futbolcusu David Beckham"ı transfer etmekti. Nitekim, Laporta, seçimden önce Rüştü ve Manchester United ile anlaşmıştı. Laporta"nın seçimi kazanmasından sonra Rüştü Barcelona"lı olurken, David Beckham ise kesinlikle Katalan ekibine gitmeyeceğini açıkladı. Çünkü; Ronaldo, Zidane, Figo, Raul ve Roberto Carlos gibi dünya çapında yıldızlara sahip olan Real Madrid, hep yapageldiği gibi David Beckham için de devreye girmişti. Amaç, hep kazanmak ve Barcelona"ya hiç kazandırmamaktı. Devreye girenlerden biri de ne ilginçtir ki şimdi Real Madrid"in onursal başkanlığını yapan ve bir zamanlar Barcelona"nın kapısından dönen Di Stefano idi.
+       <br/>
+       <br/>
+       Sonuçta transfer savaşını kaybeden yine Barcelona oldu. Dünyaca ünlü David Beckham"ı 35 milyon euro karşılığında kadrosuna dahil eden Real Madrid, bu transferi paraya dönüştürmeye daha imza atılır atılmaz başladı. 89 dolardan satışa sunulan ve ilk gün 8 bin adet satılan 23 numaralı Beckham formaları, geride kalan bir ay gibi bir sürede Real Madrid"e 2 milyon dolara yakın para kazandırdı. Barcelona"nın muhtemel bir başarısının önüne geçmek için İngiliz oyuncuyu transfer eden Real Madrid"in bu atağı gerçekleştirerek ne kadar akıllı davrandığı böylece anlaşılmış oldu. Çünkü, ilk gün Ronaldo"nun transferinde 2 bin, Zidane"ın transferinde de sadece 500 forma satılmıştı.
+       <br/>
+       <br/>
+       Yeniden ayağa kalkmak ve 4 yıldır hasret kaldığı şampiyonluğa ulaşmak isteyen Barcelona ise mücadeleyi bırakmış değil. Önümüzdeki sezonda ve ondan sonraki yıllarda ezeli rakibine üstünlük sağlamak isteyen Barcelona, şimdi de Paris Saint Germain"in Brezilyalı yıldızı Ronaldinho ile geleceğin Figo"su olarak nitelenen Portekizli Quaresma (19 yaşında)"nın peşinde. Bakalım, önümüzdeki sezon Rüştü"lü, Saviola"lı, Kluivertli Barcelona ile Figo"lu, Zidane"lı, Beckham"lı Real Madrid arasındaki amansız mücadeleden kim galip çıkacak?
+       <br/>
+       <br/>
+       REAL, BARCA"DAN DAHA BAŞARILI
+       <br/>
+       <br/>
+       İspanya"nın F.Bahçe"si ve G.Saray"ı olarak niteleyebileceğimiz Real Madrid ile Barcelona arasında tam bir asırdır devam eden ve bu gidişle hiç bitmeyecek olan amansız bir mücadele var. Barcelona 1899, Real Madrid ise 1902 yılında kuruldu. Her iki takım, 1928 yılında başlayan İspanya Ligi"nde hep şampiyonluk mücadelesi verdi. Bu mücadelelerde 29 kez Real Madrid, 16 kez de Barcelona mutlu sona ulaştı. Ayrıca, 75 yıllık İspanya Ligi"nde (iç savaş nedeniyle 1936-1939 yılları arasında liglere ara verildi) Real Madrid ile Barcelona 20 kez ilk iki sırayı paylaştı. Bu sezonlarda 13 kez Real Madrid, 7 kez de Barcelona şampiyon oldu. İspanya Kupası"nda ise Barcelona Real Madrid"den daha başarılı bir grafik çizdi. İspanya Kupası"nı 24 kez Barcelona, 17 kez de Real Madrid kazandı. Avrupa kupalarında ise Real Madrid 6 kez Şampiyon Kulüpler Kupası, 3 kez Şampiyonlar Ligi, 2 kez UEFA Kupası ve bir kez de Süper Kupa sevinci yaşadı. Barcelona ise bir kez Şampiyon Kulüpler Kupası"nı, 4 kez UEFA Kupası"nı, 4 kez Kupa Galipleri Kupası"nı, 2 kez de Süper Kupa"yı müzesine götürdü.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### seçkin, 27-Temmuz-2003
+> biraz çaba: 
+> sevgili necati bey, yazılarınızı takip ediyorum.hoşgörünüze sığınarak size bir eleştiride bulunmak istiyorum.seçtiğiniz konular ne yazıkki ya çok klişeleşmiş ya herkes tarafından bilinen yada modası geçmiş konular.sizden daha farklı haberler ve araştırmalar bekliyoruz.mesela futbolcularla ayrıntılı ropörtajlar olabilir.dikkate almanız dileğimle.selametle
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2802&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119204702/http://www.aksiyon.com.tr:80/detay.php?id=2802&yorum_id=1)

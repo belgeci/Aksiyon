@@ -1,0 +1,43 @@
+# ''Ben de Ertuğrul Özkök gibi yapardım''
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226010745im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226010745im_/http://www.aksiyon.com.tr/resim/400/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  90'lı yılların postmodern mimarlarını tanımak istiyor musunuz?  "Başının üstünde sanki bir haleyle dolaşıyormuş gibi " dolaşan köşe yazarları size yol gösterebilir. Son yirmi yıllık süreçte oluşan sosyo -ekonomik anlayışı topluma anlatma, daha doğrusu insanları "aydınlatma" görevi büyük gazetelerin anlı şanlı yazarlarına düştü.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Aydınlatılacak konu belli; değişen Türkiye"nin yükselen değerleri. Sozkonusu olan fikirler değil yazan kişinin yaşadıkları, daha açıkçası "tükettikleri"ydi. "Şurada yedim, burada içtim, oraya gittim, falanca iş adamı 'dostumla' uzun uzun Türkiye"yi konuştum... Gece geç saatlerde başbakanla bir telefon görüşmesi yapmayı da ihmal etmedim... " Sorun da burada başladı. Rıfat Bali"nin ifadesiyle "Başının üstünde sanki bir haleyle dolaşıyorlar. Güce çok yakın olmanın verdiği bir mıknatıslaşma var. Yani bir ölümsüzlük iksirini keşfetmiş insanlarız tavrıyla medeniyeti işaret ederek "doğru yol odur" diyorlar. Olay bu". Türk elitinin yaşam standardını ve Türk halkının "hayalleri"ni yansıtıyordu yeni aristokrat köşe yazarları. Rıfat Bali, varlıklı ailelerin "ötekilerce" rahatsız edilmeyeceği ultra lüks sitelerden sermaye destekli yeni siyasi hareketlere, müdavimleri ancak zenginler olabilen popüler mekanlardan, başarılı bir halkla ilişkiler çalışmasıyla "entellektüel kimlik" edinen iş adamlarına kadar geniş bir çerçevede son yirmi yılda oluşan "kült"leri ve medyatik alışkanlıkları irdeliyor.Tabii, köşe yazarlarının izinden giderek...
+   <br>
+    <br>
+     İshak Alaton ve Can Paker isimlerinin sermaye çevrelerinde "sol" "liberal" ama her halükârda "entellektüel" bir imaj edinmesinin eş dost köşe yazarlarıyla zaman içinde nasıl "inşa edildiğini", bununsa negatif anlamlar içermeye başlayan iş adamı imajını düzeltme çalışmasından başka bir şey olmadığını söylüyor. Rıfat Bali"ye göre onlar belki başarılı iş adamları ama "entellektüel" değiller.
+     <br>
+      <br>
+       Kitabı okurken yazarın Özal dönemi ve sonrasını klasik bir sol refleksle ele alan, her yeniliğe kapitalist âdetler olarak bakan, değişime kapalı bir insan olduğu izlenimi ediniyorsunuz. İdeolojik yelpazede nerede yer aldığını sorduğumuzda, Rıfat N. Bali "Sosyal demokratım. Liberal de diyebilirsiniz" diyor. Aslında onunkisi ideolojilerle açıklanabilir bir durum değil. "Benim kişisel hayat tecrübemden gelen bir şey bu. Ne ben, ne ailem, ne çocuklarım böyle bir gösterişin, başkalarını imrendirecek kadar gösterişin doğru olmadığına inandık. Netice itibarıyla hepimiz ölümcülüz." Bali"ye göre görülen manzara, açlıktan çıkmış ya da birden piyango vurmuş bir insanın kendini frenleyememesinin tezahürlerinden farklı değildir. "Bu liboşluktan ziyade yeni yetme zenginlerin şımarıkça davranışlarıydı. Ekonomik krizle birlikte medya krizi çıkıncaya kadar bu devam etti. "Biz kaybedemeyiz" diyorlardı. Krizle birlikte ölümcül olduklarını farkettiler."
+       <br/>
+       <br/>
+       Rıfat Bali bu büyük gazetelerin birine yayın yönetmeni olsaydı ne yapardı acaba? "Aynı Ertuğrul Özkök ya da Mehmet Ali Yılmaz gibi. Oyunun kuralları bu. Benim onlara eleştirel bakmam dışarıda olmanın verdiği bir güçtür. Yani ben o cemaate ait değilim. O cemaate ait olmamanın verdiği lüksle serbest atış yapıyorum. Ama ben o cemaate girsem, oyunun kurallarına uymak zorundayım. Oyunun kuralları bu. Reklam verenin mecrasına hitap edeceksin. Yoksa batacak gazete. O zaman üç aşağı beş yukarı onlar gibi davranacaktım." Rıfat N. Bali, köşe yazarlarının yerleşik düzenin sesi ve tercümanı gibi davranmak durumunda olduklarını, bunu da kötülemek anlamında kullanmadığını söylüyor.
+       <br/>
+       <br/>
+       Tarz-ı Hayat"tan Life Style"a, okuyanın nereden baktığına bağlı olarak eleştirilecek yönlerini içinde taşıyan, zaman zaman olumsuzladığı şeyi imrendiren, idealle-reel arasında sıkışan ama son yirmi yılı okuma çabasında olan bir çalışma.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1604), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010745/http://www.aksiyon.com.tr:80/detay.php?id=1604)

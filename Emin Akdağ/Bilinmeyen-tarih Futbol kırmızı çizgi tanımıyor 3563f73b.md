@@ -1,0 +1,66 @@
+# Futbol kırmızı çizgi tanımıyor
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050208163437im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050208163437im_/http://www.aksiyon.com.tr/resim/496/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Euro 2004, Portekiz-Yunanistan maçı ile başlıyor.  Yüz milyonlarca insanı, bir spor dalı olmanın ötesinde güç ve misyona sahip futbol heyacanı sardı. Bu yıl İsrail kupasını Arap, Rusya kupasını ise Çeçen takımının kazanması futbolun sınır tanımadığını ispatlayan iki gelişmeydi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İnsanları, düşünmekten uzaklaştırarak uyuttuğu mu ya da acıları unutturarak yaşamlara sevinç mi kattığı tartışıladursun, futbol, oluşturduğu heyacan fırtınasıyla yeniden dünya sahnesindeki yerini aldı. 12"nci Avrupa Futbol Şampiyonası, bu cumartesi günü (12 Haziran) evsahibi Portekiz ile Yunanistan"ın karşı karşıya geleceği müsabakayla başlıyor. Dört gruba dağılan 16 finalist ülkenin mücadelesini yüz milyonlarca insan takip edecek. Haftalar boyunca futbol konuşulup futbol yazılacak.
+   <br>
+    <br>
+     "Futbol sadece futbol değildir" ile "futbol basit bir oyun değildir" yargıları herkes tarafından tümüyle onaylanmasa da, kesin bir dille reddedilemiyor da. Milyarlarca insan futbola tutkuyla bağlı. Bu öyle bir tutku ki, inanç, milliyet, kültür, ekonomi, ırk, coğrafya, yaş ve cinsiyet farklılıklarına takılmadan özgürce varlığını sürdürebiliyor. Futbol bazen kendini ispat etmenin, biz de varız, duyun bizi demenin yolu oluveriyor. Bezen ekonomi, sanayi ve endüstri gibi alanlarda gerçekleştirilemeyen boy ölçüşmelerin, güç gösterilerinin aracı. Kimi zaman da propaganda, tanıtım ve popülaritenin en etkin silahı. 1960"ta yapılan ilk Avrupa Futbol Şampiyonası"nda ipi göğüsleyen Sovyetler Birliği, bir sonraki şampiyonada finalde kaybediyor. Üçüncüde yarı finalde elenirken, dördüncüde ise yine finalde kupayı rakibine kaptırıyor. İlk dört turnuvanın üçünde final, birinde yarı final oynayan Sovyetler için futbol, bağlı ülkelerle birlikte uyguladıkları kapalı yönetim biçimini sempatik göstermek için kullanılan uluslararası bir dildi. Sovyetler"in 1990"larda dağılması sonrasında ise Amerika Birleşik Devletleri (ABD), spor kültüründe hemen hemen hiç yeri olmayan futbola son yıllarda müthiş önem vermeye başladı. Onların da amacı, yaygınlıkta İngilizceyi bile geride bırakan bu evrensel dil ile dünyaya mesaj verebilmek.
+     <br>
+      <br>
+       Aslında her geçen yıl futbolun sınır tanımadığını, kırmızı çizgisi bulunmadığını ve bir dünya dili olduğunu ispatlayan olaylar meydana geliyor. 2004 yılında da futbolun spor olmanın ötesinde anlam ve güç taşıdığına dair biri İsrail"de, diğeri Rusya Federasyonu"nda iki önemli gelişmeye şahit oldu dünya.
+       <br/>
+       <br/>
+       2003-2004 futbol sezonunda İsrail Kupası"nı ülkedeki bir milyonu aşkın yerleşik Filistinli Arap"ın takımı Bnei Sakhnin kazandı. Bunun anlamı şu: Önümüzdeki yıl İsrail"i UEFA kupasında bir Arap takımı temsil edecek. Bnei Sakhnin, şimdiye kadar İsrail 1"inci Futbol Ligi"nde mücadele eden 3"üncü Arap takımı. Takım, İsrail"in kuzeyinde yer alan 30 bin nüfuslu Sakhnin ile aynı ismi taşıyor. "Tekmeciler" lakaplı ve ligde oyuncuları en fazla kart gören takımın teknik direktörlüğünü bir Yahudi yapıyor. Tel Aviv yakınlarındaki Ramat Gan Stadı"nda oynanan final maçını 25 bini ülkenin değişik yerlerinden gelen Araplardan oluşan 38 bin kişi izlemiş. Maçı İsrail televizyonunun yanı sıra CNN ile El Cezire de yayımlamış. 60"ıncı dakikaya kadar Hapoel"in 1-0 önde götürdüğü maçı Bnei Sakhnin 4-1 lehine çevirmeyi başarmış. Takım şeref turunda İsrail bayrağı taşımış. Sakhnin Belediye Başkanı Muhammed Beşir, bir antrenman sahaları bile olmadığından yakınınca, Ariel Şaron"ın bizzat arayarak, stat inşası için yardım sözü veriyor. Bu arada Sakhnin, kanlı olaylara da sahne olmuş. 1976 ile 2000 yıllarında ölümlü Arap-İsrail çatışmaları yaşanmış şehirde. Bazı Filistinli Araplar, final gününü "İsrail Araplarının bağımsızlık günü bile ilan etmiş. İsrail Eğitim Bakanı Livnat, bir Arap takımının şampiyon olmasının İsrail için onur verici olduğunu söylemiş. Bnei Sakhnin, aynı zamanda UEFA"da boy gösteren ilk Arap takımı.  İsrail"deki ilginç gelişmenin bir benzeri de Rusya Federasyonu"nda hayat buldu. Bu sezon Rusya Kupası"nı Terek isimli bir Çeçen takımı kazandı. Rusya"yı UEFA"da temsil edecek takımlardan biri olma başarısını elde eden Terek, stadı yıkıldığı için maçlarını hep deplasmanlarda oynuyor. Rusya"nın 1"inci lig takımlarından olan Terek, Moskova"nın Lokomotiv Stadı"nda 17 bin kişi önünde oynanan kupa finalinde diğer finalist Krilya Sovyetov"u 1-0 yenerek kendisi için büyük anlam taşıyan bir başarıya imza atıyor. Terek"in başarısının başka bir anlamı daha var. 35 yıl sonra Rusya Kupası"nı süper ligde oynamayan bir takım olarak havaya kaldırıyor. Kısa bir süre önce öldürülen Çeçen lider Ahmet Kadirov"un oğlu Ramazan Kadirov da futbolcularla başarı sevincini paylaşmış. Teknik Direktör Vahit Talgayev, böylesine bir başarıyı beklemediklerini açıklarken, sonuç, Çeçenistan"ın başkenti Grozni"de de kutlanmış. 1958 yılında kurulan Terek"in stadı 1994 Rus-Çeçen savaşında yerle bir olmuş. Terek ile ilgili çok önemli bir dipnot daha: Rusya"nın, adını bir numaralı terörist diye dünyaya duyurduğu Çeçen komutan Şamil Basayev de bir zamanlar bu takımda top koşturmuş.
+       <br/>
+       "Din değişir, taraftarlık değişmez..."
+       <br/>
+       <br/>
+       Futbolun neden bu kadar çok sevildiğini ve Türkiye"nin dünya 3"üncülüğü başarısının ardından 2004 Avrupa Şampiyonası"na katılamamasının ne anlama geldiğini spor yazarları Kemal Belgin, Ömer Üründül ve Togay Bayatlı"ya sorduk.
+       <br/>
+       <br/>
+       Futbolun "dünyanın en popüler sporu" olduğunun altını çizen Kemal Belgin, "Bütün insanları rakip yapabilen bir spor dalı. Korkunç bir ekonomisi var. Düşman rakiplerin, harp eden ülkelerin takımlarının birbirinden oyuncu alarak oynatabildiği hem sosyolojik, hem de ekonomik bir olgu futbol. Olayın psikolojik ve felsefi yönleri de var" diyor. Fenerbahçe"nin, Avrupa Şampiyonlar Ligi"ne direkt katılacağı için şimdiden 4 buçuk milyon İsviçre frangını garantilemesini ve ikinci tura yükselmesi halinde de kasaya 6 milyon frankın daha girecek olmasını futbolun ekonomik gücüne örnek gösteriyor. Ayrıca, Türkiye"nin 2002"de dünya şampiyonluğunu yakalasaydı yaklaşık 10 milyar dolar prim alacağını da hatırlatıyor.
+       <br/>
+       <br/>
+       Babaların önceleri gerekirse döverek top sevdasından uzaklaştırmaya çalıştıkları çocuklarını şimdi ellerinden tutarak futbol okullarına götürdükleri gerçeğine de atıfta bulunan Belgin, futbolun bu kadar sevilmesi hakkında şunları söylüyor: "Bir kere görsel yanı çok önemli. 40-50 bin kişilik statlarda oynanıyor. Kuralları çok az değişti. Dünyada dinler, partiler, hükümetler, anlayışlar, ideolojiler değişir; değişmeyen tek şey takım taraftarlığıdır. Taraftarlık süreci çoğu zaman babadan oğula geçer. Mesela İngiltere"de futbol aynı zamanda bir kültürdür. Ayrıca futbol 11"e 11 oynanan kalabalık bir takım oyunudur. Bütün spor dalları aşağı yukarı birbirine benzer. Mesela basketbolda bile 5 farklı set oyunu vardır. Ama futbol çok renkli. Çok sayıda figür, oyun anlayışı, gösteri, güç ve hüner sahaya konabiliyor. Bir de en fazla aidiyet hissini futbol taraftarlığı veriyor."
+       <br/>
+       Belgin, Türkiye"nin Portekiz vizesi alamamasıyla çok şey kaybettiğine inanmıyor. Finallere kalabilseydi, dünya üçüncülüğünden sonra ne kadar da ciddi bir rakip olduğunun kabulünü sağlayacaktı. Ama turnuvalara davet alması, yoğun özel maç talepleri gelmesi hâlâ çok iyi yerde durduğunu gösteriyor.
+       <br/>
+       <br/>
+       2004"e gidememek dünyanın sonu değil...
+       <br/>
+       <br/>
+       Ömer Üründül"ün futbol yazarı olması başlı başına ilginç bir olay. Üründül"ü yazarlığa getiren unsur, futbol tutkunları arasında yer alması ve bu tutkusu yüzünden dünyanın birçok yerine giderek önemli turnuva ve maçları bizzat sahada izlemesi. Yıllardır vazgeçemediği hobisini birkaç yıldır iş olarak yerine getiren Üründül"e göre, futbol artık son derece zor bir oyun. Günümüz futbolunda fizik kondisyon ön planda. Futbolcunun yaşantısına dikkat etmesi ve özen göstermesi şart. Önceden devre arası tatilleri vardı. Onlar da kalktı. Çarşamba, perşembe maçları başladı. Futbolcuya tatil dönemi bitti. Futbol bir sanayi, futbolcu da bunun karşılığında para kazanır oldu. Giderek dar alanda satranca dönüşen futbol her geçen gün tempo kazanıyor.
+       <br/>
+       Futbola ilgi duyulmasının sebebi, sevilmesi. Talep televizyon gelirleri birbirini körüklüyor. Real Madrid eşyası almak için sıraya giriyor insanlar. Futbol kadar tutku duyulan başka bir spor yok. Ülkeler niçin dünya kupası ya da olimpiyat organizasyonu alabilmek için mücadele veriyor? Çünkü hem para gelecek, hem de müthiş bir propaganda olacak.
+       <br/>
+       <br/>
+       Üründül de, 2004"e gidilememesini büyütenlere ve felaket tellallığı yapanlara katılmıyor. Türk Milli Takımı, 1994"ten sonra bir kıpırdanış göstererek, çıkış sürecine girdi. Temel eksiklerini tam gideremedi ama yakalanan bir jenerasyonun üzerinden başarılar kazanıldı. Bir önceki dünya ve son Avrupa şampiyonu Fransa"nın 2002"de grubunda puan alamadan turnuvaya ilk turda veda etmesini ve yine Hollanda"nın son dünya kupasına katılamamasını unutmamak gerekiyor.
+       <br/>
+       Başkanlığını yaptığı Dünya Spor Yazarları Birliği toplantısı için bir haftadır New York"ta bulunan Türkiye Milli Olimpiyat Komitesi (TMOK) Başkanı Togay Bayatlı ise kısa telefon görüşmesinde futbolu şöyle tarif etti: "Futbol, dünyanın en büyük endüstrilerinden biri. Kuralları çok basit; sadece 17 tane kuralı var. Bunlar da herkes tarafından bilinmekte. Herkes maçı izlerken hem seyirci, hem hakem, hem spor yazarı gibi olabilmekte. Bu özellikleriyle birçok spordan farklı bir durum arz ediyor futbol."
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11571), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050208163437/http://www.aksiyon.com.tr:80/detay.php?id=11571)

@@ -1,0 +1,79 @@
+# “Soru”ların hanımefendisi: Nuriye Akman ve 4 eseri
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031020im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031020im_/http://www.aksiyon.com.tr/resim/366/66.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sorulacak suali kalmayanlar herşeyi bilenler değillerdir; kendilerini teskin eden cevapların sathında yeni sual kıymıklarını hissedemeyecek kadar dikkatlerini kaybetmişlerdir sadece
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Maddi mânevi bütün birikimimiz aslında keşif, icat, araştırma, tahlil veya derinlemesine teemmülün değil de, tam zamanında, doğru istikamete yöneltilmiş, meseleyi kaplayan ve kapsayan soruların eseridir desek mübalağa etmiş olur muyuz? Soru sormak, mesele sahibi olmaktır; cevabın ödülüdür soru ve eski tabirle cevabın mütemmim cüzüdür. Suali kenarına iliştirilmemiş bir cevabın yöneldiği hiçbir istikamet yok.
+   <br>
+    <br>
+     “Düşünüyorum, öyleyse varım” aforizması “soruyorum, öyleyse varlığımın bir anlamı var” mânâsıyla da tercüme edilebilir. Düşündüğümüz şey nedir? Cevaplar hakkında düşünmeyiz ama bütün cevaplar yeni soruların kıymığını bünyesinde bulundurduğu için düşünceye sebeb olurlar. Soru sorarak ve ondan daha önemlisi sual sahibi olarak öğreniriz. Eğitimin en verimli biçimi, cevapların değil suallerin öğretilmesidir; bunu, “öğrencide suallerden oluşan bir vakum boşluğu inşa etmek” şeklinde formüle etmek de mümkün. Bilgi yoluyla insanın yükselmesi eğer mümkünse, bu, tabiatın boşluktan nefret etmesi sebebiyledir. Vakum, boşluk veya açlık kararsız dengelerdir ve ille de kararlı denge haline geçerek yatıştırılmak eğilimini taşırlar. Sorulacak suali kalmayanlar herşeyi bilenler değillerdir; kendilerini teskin eden cevapların sathında yeni sual kıymıklarını hissedemeyecek kadar dikkatlerini kaybetmişlerdir sadece. Taassup işte böyle bir kararlı denge halinin insanda yerleşip kalmasıdır.
+     <br>
+      <br>
+       “Ne aradığını bilmeyen ne bulduğunu da bilemez” vecizesini şerhetmeğe gerek yok; bulanlar, sadece arayanlardır, arayanlar ise cevap bekleyen bir sual gezdirirler beraberlerinde. Sual, dikkatin ve “oluş”un ta kendisi. Henüz cevap bulamadığımız suallerimiz, yeryüzünde kapladığımız hacmi de tarif ederler.
+       <br/>
+       <br/>
+       Suallerimiz kadar varız.
+       <br/>
+       <br/>
+       Röpartaj, gazeteciliğin ötesinde bir yer...
+       <br/>
+       <br/>
+       Röportajı bir gazetecilik tekniği olarak görenlere hiç hak vermedim. Sual hakikatin peşindedir. Kişiye kendisi hakkında sual sormak, kişiden kendi hakikatini taleb etmektir; halbuki insan kendi hakikati hakkında yaradılışı itibariyle ketumdur. Sırlarımız vardır, insanın ruhunda ve tarihinde kırkıncı odalar vardır ve çoğu kere o odaların derûnunda neler saklı olduğunu biz bile bilmeyiz. İnsanları bu noktada, kendi ruhuna ve kendi tarihine karşı sual soranlarla, her haliyle kendinden râzı olanlar diye kabaca ikiye ayırmak mümkün. Bize dair sualleri cevaba dönüştürürken, acı ilaçların şekerle sırlanması nev’inden bir kimya ameliyesinde bulunuruz. Röportaj sanatkârı, aldığı cevabları sırlayan şekere karşı şerbetlidir; onu sanatkâr derecesine yükselten kabuğu kırıp öze vâsıl olmak ve suallerle insanın tabiatını makyajsız haliyle göstermektir.
+       <br/>
+       <br/>
+       Nuriye Akman’ı gazeteci diye vasıflandırmak, bir heykeltraşı “taş ustası”, bir ressamı “badanacı” diye adlandırmak neviinden kaba bir niteleme gibi görünüyor bana. Akman, işini icra ederken gösterdiği titizliği ve mükemmeliyet arayışını maddeye yöneltmiş olsaydı, onu rahatlıkla “fizikçi” veya “kimyager” diye niteleyebilirdik. Sual yöneltirken zaman zaman takınmak zorunda kaldığı mütecaviz ve sinirlendirici üslûp elbette aslî şahsiyetinden bir parça değildir. İlim adamı veya sanatkâr da kendi meselesine (konu, tema, anafikir, bir eserin tamamlanmışlıktan evvelki hâli) karşısında buna benzer bir merak saldırganlığı serdeder: İlim adamı, gördüğünü olduğu gibi bütün çıplaklığıyla tesbit edip bırakır; sanatkâr ise tahlilden ziyade sezişe müracaat ettiği için hakikatiyle temas ettiği kişiyi son kerteden sonra yine “sırlayarak” sunmayı tercih eden kişidir.
+       <br/>
+       <br/>
+       Nuriye Akman’ı yıllar önce Sabah gazetesinde tam sayfa, bazen daha fazla hacim tutan ve ertesi güne de sarkan röportajlarıyla tanımıştım; konuştuğu kişilerin kendi cevaplarıyla iktifa etmiyor, onları kendi suallerinin cevabını vermeleri için zorluyordu; daima tatlı—sert ama kararlı. Çoğu defa zihnimde büyük bir haz intibaı bırakan röportajlarını okuduktan sonra Nuriye Akman’ın muhatabı olmamayı tercih ettiğimi düşünmüşümdür. O röportajlardan seçilen bir koleksiyon, daha sonra “Üzümü ye bağını sor” ve “Mebus burcu” başlıklarıyla kitaplaştı. Gazeteciliğin röportaj dalını seçenler için çok değerli birer temrin, hatta başucu kitabı diyebileceğim türden eserlerdi bunlar. Nuriye Akman’la mülakat yapmayı kabul edenlerin hiçbiri, ruhun dış çeperlerini kaplayan ve koruyan kabuk yarasının sızısından uzak kalmayı başaramamışlardır bana göre: Son tahlilde ne iseler öyle görünmek zorunda kalıyorlardı.
+       <br/>
+       <br/>
+       Dört kitap; yazarın dört boyutu
+       <br/>
+       <br/>
+       Nuriye Akman geçtiğimiz günlerde, “ruhun kabuklarını yerinden oynatan gazeteci” vadisinden dışarı çıkarak röportajın mücavir (komşu) sahalarında verilmiş dört kitapla birden okuyucunun karşısına çıktı. Kitaplardan ilki, “Yüzleşme: Açlık Grevinde 205 Gün” başlığını taşıyor. Türkiye gündeminin alışıldık ama öteki yüzü neredeyse hiç bilinmeyen “ölüm oruçları” gerçeğine derinlemesine merak düşüren bir çalışma. “Örgüt üyesi” Oya Açan’la yapılmış 246 sayfa tutarında ve kitap hacminde bir röportaj bu. Sert, örseleyici ve yırtıcı bir realitenin öteki yüzünü anlamak isteyenler, eminim ki sayfalar arasında bir dünyadan ötekine geçecekler ve hayatı alışageldiğimizden farklı gösteren bir başka pencerenin varlığıyla irkilecekler.
+       <br/>
+       <br/>
+       İkinci kitap “Elli Kelime”; Adnan Menderes’ten Berin Menderes’e Yassıada Mektupları. Niçin elli kelime? Çünkü ihtilâl idaresi, Yassıada tutuklularının birinci dereceden yakınlarıyla haberleşmeleri için on satırlık matbu bir mektup formuna elli kelimeden ibaret bir mesaj iletebilmelerini öngörmüştür. Kitapta sadece “elli kelimelik” hasret mektupları değil, bir zulüm arakesitini en manidar detaylarıyla aydınlatan gazete kupürleri, karikatürler, fotoğraflar, röportajlar ve hatıra parçaları da yer alıyor. “Yüreğe taş gibi çöken şey”in ne olduğunu unutanlardan iseniz bu benzersiz belgesel çalışması size müthiş bir fikir verebilecektir.
+       <br/>
+       <br/>
+       Üçüncü Kitap, Nuriye Akman’ın geçtiğimiz yıl TRT için hazırladığı ama TRT’nin her nedense yayın saatlerinde gösterdiği anlaşılmaz itinasızlık yüzünden seyircisinden çalmayı başardığı onüç televizyon programının tam metninden meydana geliyor. Yukarda anlattığım sebeplerden ötürü basında neredeyse hiç yankı bulmayan bu müstesna video—röportaj serisinin anafikri, röportaj yapılan kişilerin gündelik hayatlarında bir mânâ ifade eden şahsi eşyalarından hareketle şiirle sohbeti kaynaştıran farklı bir format geliştirmek olarak özetlenebilir. İnsanla eşya arasındaki derinliği kestirilemez ilişkiye bir ucundan ışık düşürmeyi amaçlayan bir eser.
+       <br/>
+       <br/>
+       Son kitapta Nuriye Akman, röportaj sanatının birinci prensibi sayılabilecek meşhurlarla konuşmak fikrine yöneltilen esaslı bir itirazın içini dolduruyor: “Kalabalıklar” adlı eserde ünlü ve önemli insanlar yok; belki daha fazlası var. Kitap, sayfalar arasına serpiştirilmiş temsil edici fotoğraflarla sıradan insanların ve sıradanlığın şiiri olarak zevkle okunuyor.
+       <br/>
+       <br/>
+       “Bir gazeteci kalbinin çektiği fotoğraflar” diyor yazar kitap için; “Tek kişilik kalabalıklardan, kalabalıkların ortasındaki tenhalıklara kadar yüzlerce insana dokunuş... Bireyi toplumla tanışmaya, toplumu bireyi hatırlamaya davet... Hem geçip gideni yakalama, hem ötekini anlama coşkusu...
+       <br/>
+       <br/>
+       Kalabalıklar Türklerin kokusu...”
+       <br/>
+       <br/>
+       ...
+       <br/>
+       <br/>
+       Ve kitaplar, ismini ilk defa duyduğumuz “Benseno” yayınları tarafından yayınlanmış bulunuyor (Tel: 0212 528 23 57—Fax: 528 25 89).
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12315), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031020/http://www.aksiyon.com.tr:80/detay.php?id=12315)

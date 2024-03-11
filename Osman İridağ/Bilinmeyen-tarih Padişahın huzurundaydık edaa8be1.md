@@ -1,0 +1,55 @@
+# Padişahın huzurundaydık
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302174908im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302174908im_/http://www.aksiyon.com.tr/resim/307/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Belki ekranlarda gözünüze çarpmıştır, ya da gazetelerde okumuşsunuzdur. Geçtiğimiz hafta yediyüz yıllık bir tarihin mimarları İstanbul Aya İrini Müzesi’nde karşımıza çıkmışlardı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Üstelik tek tek değil otuzaltısı aynı anda. Orta Çağ ve Yeni Çağ’ın hakim devleti Osmanlı’nın sultanları, sultanlıklarının heybetiyle geçmişten esintiler sundular. Uzatmanın anlamı yok. Ünlü modacılarımızdan Faruk Saraç, Osmanlı padişahlarının giysilerini orijinal halleriyle yeniden dikmiş ve İstanbullulara tanıtmak için bir gece düzenlemişti. İşte o geceyi izlemek için oradaydık.
+   <br>
+    <br>
+     Eleştirilerden önce gözlemler ve beklentilerden başlayalım. Dedik ki madem padişah(lar) hazretleri bizleri çağırmış, herhalde boş bir sofra olmaz. Şöyle eski havalardan; sedirler, oturaklar, taburelerle dizilmiş, halk sofraları kurulmuş, kuş sütü eksik olmayan, şerbetlerin su gibi aktığı bir sofra donatılmıştır diye düşünmüştük ki, yanıldığımızı anladık. Onun yerine kokteyl prolonge vardı. Anlamını tam bilmeyenler olabilir diye padişahlardan birini çevirip sormak istedim, acaba biliyorlar mıydı kokteyl prolonge nedir? Aaa o ne, bütün padişahlar öztürkçe konuşmaya başlamışlar. Doğrusu çok şaşırdım. Seçkin davetliler arasında gördüklerim bana kalsın, yediklerimiz ve içtiklerimizi anlatmaya devam edelim. Padişahlar gibi ihsanları sonsuz değildi, bir kaç parça et ancak yiyebildik. Şerbet de yoktu. Onun yerine, az biraz meyve suyu ve bilumum içki çeşitleri izleyicilere ikram ediliyordu. Bereket garsonlar, Osmanlı tarzı giyinmemişlerdi.
+     <br>
+      <br>
+       Ancak padişahlarımızın ayakları bereketli gelmiş olacak ki sağanak yağmur durmak bilmedi. Tam üşümeye ve bu arada yemekleri çaktırmadan götürmeye başlamıştım ki, defilenin başlama saati geldi. Salonda iyi bir yer seçemedikten sonra, sahne tam görünmüyordu, kulisin yanındaki kapı uygun görülmüştü bize. Önce kızsam da sonra “gazetecilik” gözlemleri yapabilecek bir yerde olduğumuzu görünce sevindim. O da ne, kulise yani padişahların giysilerini sunacak olan mankenlerin oldukları bölüme garsonlar şampanya ve şarap şişeleri götürüyor. İyi ki geldik dedik. Yoksa sadece 4. Murat’ın içkiyi sevdiğini düşünecektik. Böylece aslında bütün padişahlarımızın ne kadar içki sevdiklerini(!) anlamış olduk. Biz bunları düşünürken Cihan Ünal’ın TRT döneminden alıştığımız o muhteşem sesi ve Tuluyhan Uğurlu’nun müziğiyle gözlerimiz kulisten sahneye kaydı. Önce Osman Gazi geldi. Alkışlar başlamıştı ki yine bizim huysuzluğumuz tutmuş olacak, başımızı biraz daha yukarıya kaldırınca kocaman bir haç resmi görmeyelim mi? Behey Osman Gazi sen ve torunların yıllarca o haça karşı savaş verdiniz ama şimdi onun gölgesinde sizden uzaklaşan torunlarınızla barışmak istiyorsunuz demeden edemedik.
+       <br/>
+       <br/>
+       Ama bunlar defilenin muhteşemliğini örtmeye yetmiyordu tabii ki. Herşeye rağmen ünlü bir modacının izlerinden sultanların insan yüzlerinin seyirciyle buluşmuş olması önemliydi. Genç Türkiye Cumhuriyeti’nin daha 77 yaşında, bugün dünyaya hakim olan Amerika’nın bile en çok iki yüzyıllık bir geçmişe sahip olduğu düşünüldüğü zaman Osmanlı’nın (küsuratı yuvarladıktan sonra) yediyüz yıllık saltanatının ne kadar büyük bir başarı olduğunu unutmuştuk. Bu geçmişimizle yeniden barışmak için atılmış önemli bir adımdı. Defileyi izleyenler geçmişleriyle barışmakla da kalmamış, onlarla gururlanmayı da öğrenmişlerdi. Gurur dolu alkışları özellikle yükselme dönemindeki padişahlarda görmek mümkündü. En çok alkışı da onlar aldı. Tabii bunda müziğin etkisini de unutmamak gerekiyor. Yükselme önemine kadar coşkuyla verilen müzikler duraklama ve gerileme dönemiyle coşkusunu kaybederek, insanları hüzünlendirecek melodiler içeriyordu. Benim en çok merak ettiğim iki padişah ise 2. Abdülhamit ve Vahdettin’di. Acaba Türkiye Cumhuriyeti’nin elit kesimini oluşturan davetliler bu iki padişahla barışacaklar mıydı? Öyle de oldu. 2. Abdülhnamit de, Vahdettin de gereken alkışı aldı.
+       <br/>
+       <br/>
+       Salondaki coşkuyu ne yazık ki mankenlerde görmek mümkün olmadı. Kara Murat filmlerinde gördüğümüz padişahları bilirsiniz. Gerek yürüyüşleriyle, gerekse davranışlarıyla padişah heybetini çok iyi yansıtırlardı. Oysa bir kaçını saymazsak padişahları canlandıran mankenlerde o ruhu göremedik. Elbiseler muhteşemdi, büyük emekler harcandığı, titiz bir çalışmanın ürünü olduğu belliydi. Mankenler ise bir tarihin tanıklarından çok sıradan bir defile sunumunda gibiydiler.
+       <br/>
+       <br/>
+       Daha önce Atatürk’ün giysilerini yapan Faruk Saraç, bu kez çok daha zor bir işe imza atmıştı. Çünkü Osmanlı Padişahlarının çoğunun resmi çizilmemişti. Bir çoğunun portresine bakılarak nasıl giyindiği üzerine tahmiler yapmak zorunda kalmışlardı. Bunlardan daha önemlisi de, padişahları bir Türk gözüyle değil de, yabancıların gözünden değerlendirmek zorundaydı. Buna rağmen ortaya çıkan elbiselere hayran kalmamak elde değildi. Yanlış anlaşılmasın ama (anlaşılabilir de) insanın içinden padişah olmak geçmiyor değildi. İsmim Osman diye söylemiyorum, bu padişahları çok sevdim. Hep savaş meydanlarında, devlet yönetiminde gördüğümüz padişahların ne kadar zevkli insanlar oldukları, bu defilenin ortaya çıkardığı güzelliklerden biriydi. Böylece Kanuni, Yavuz, Abdülhamit ve diğerleri devlet adamı kimliklerinden sıyrılarak, insan olarak kendilerini tanıtma fırsatı buldular. Böylece tarih öğretimimizdeki bir aksaklık, küçük çapta da olsa giderilmiş oldu. Çünkü onlar da sonuçta bir insandı ve hatalarıyla birlikte ülke yönetmişlerdi. Hiçbiri mükemmel değildi. 2. Osman’ın da iyi ve kötü tarafları vardı, Fatih’in de, Sultan Reşat’ın da. Oysa tarih kitapları bize hep Kanuni’ye kadar olan padişahları muhteşem anlatırlar, sonra gelenleri ise beceriksiz, keyfine düşkün ve ülke yönetmekte yetersiz gösterirlerdi. Merak etmedim değil, acaba o kitapları yazanlar bu defileyi izlemeye gelmişler miydi?
+       <br/>
+       <br/>
+       Bu kadar sevilen bir çalışmanın sahibine de bir kaç söz vermek gerekir herhalde. Bu işin ne kadar büyük olduğunu ancak projeye başladıktan sonra görebildiğini itiraf etmekten çekinmeyen Faruk Saraç yediyüz yıllık tarihten yediyüz parça elbiseyi 120 kişilik bir ekiple hazırlamış. Neden mi hazırlamış, işte onun da cevabı; “700 yıl boyunca dünyayı etkisinde bırakan Osmanlı kültürüne sahip çıkmak ve gelecek nesillere aktarmak için yaptım bu çalışmayı”.
+       <br/>
+       <br/>
+       Konser sonrası herkes gibi biz de memnun bir şekilde salondan çıkmıştık ki, bizi çifte kavrulmuş lokumlarla kapıda bekleyen görevlilerle karşılaştık. İster istemez aklımıza padişah sofralarında yiyip içtikten sonra ikram olarak verilen “diş kirası” geldi. O da ne diyenler için küçük bir hatırlatma. Bilenler bilmeyenlere anlatsın.
+       <br/>
+       <br/>
+       E—mail: osmaniridag@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13817), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302174908/http://www.aksiyon.com.tr:80/detay.php?id=13817)

@@ -1,0 +1,67 @@
+# Irak, Afganistan değil
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050114200115im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050114200115im_/http://www.aksiyon.com.tr/resim/451/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  "Türkiye"nin asker göndermesi mümkün olursa bu ilişkilerimiz için büyük bir fırsat oluşturur. Asker sayısına da Türkiye kendi karar verir. Pazarlık yapmayacağız. Asker gönderip göndermemeye hükümet karar verecek." Bu sözler, Dışişleri Bakanı Abdullah Gül"ün Washington temaslarını Anadolu Ajansı"na değerlendiren Amerikalı bir yetkiliye ait.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Neredeyse yarım asırlık bir geçmişe ve inişli çıkışlı bir seyre sahip Türk-Amerikan ilişkilerinde gelinen son noktayı göstermesi bakımından bu ifadelerin önemi büyük.
+   <br>
+    <br>
+     Görüyoruz ki iki ülke arasındaki münasebetlerde belirleyici unsur ne ekonomi ne de siyaset. Baskın figür her zamanki gibi askeri konular. Daha dün Kore"ye, Kosova"ya, Afganistan"a asker göndermeyi görüşenler şimdi de Irak"tan bahsediyorlar.
+     <br>
+      <br>
+       Amerikalı kaynaklara göre, asker göndermek, Türk-Amerikan ilişkilerinin durumu ve Türkiye"nin, Irak"ın geleceğinde ağırlığını ortaya koyması bakımından bir fırsat anlamına geliyor. Kuzey Irak"taki varlığından rahatsız olunan Türk askerinin, ülkenin orta kesimlerinde konuşlanması isteniyor şimdi. Hem de son dönemde Amerikan güçlerine karşı düzenli bir direnişin her geçen gün varlığını daha bir şiddetle hissettirdiği bölgelere...
+       <br/>
+       <br/>
+       Henüz bu konuda verilmiş bir karar yok elbette. Ancak, ortada Türk askerinin hangi konumda gideceğinden tutun, Irak"ın yeniden yapılandırılmasında Türkiye"nin ne kadar söz sahibi olacağına kadar bir dizi ciddi ciddi hesaplanması gereken olgu var. Yanısıra, bir kısmı tarihi geçmişe dayanan bir kısmı da Saddam rejimi sonrası meydana gelen şartlardan kaynaklanan başka unsurlar da sözkonusu tabii. Birinci kısımda zikredilen hususları ABD ile yürütülecek müzakerelerde belli bir çerçeveye oturtmak mümkün. Bu da ancak ikinci kısımda belirtilenlerin gözardı edilmemesine bağlı...
+       <br/>
+       <br/>
+       Türkiye"nin, "Irak denkleminin içinde bir şekilde yer almak, dışarıdan kalmaktan iyidir" yaklaşımını benimsediği anlaşılıyor. Bu yaklaşım fırsatlar kadar riskleri de ihtiva ediyor elbette. Nitekim, bu rizikoların en önemlisinin, Türk askeri varlığının Anglo-Sakson güçlerin bir uzantısı gibi algılanması ya da zihinlerde tarihi geçmişi hatırlatacak çağrışımlar meydana getirmesi tehlikesi olduğu söylenebilir. Yine, Irak"ın güneyinde yaşayan halkla Mehmetçiğin karşı karşıya gelmesi ihtimalinin de en az bunlar kadar büyük bir risk taşıdığını belirtmek lazım.
+       <br/>
+       <br/>
+       Boyut değiştiren direniş
+       <br/>
+       <br/>
+       Esas üzerinde durulması gereken olgu ise her geçen gün boyut değiştiren direniş. Saddam Hüseyin"in iki oğlu, Uday ile Kusay"ın öldürülmesi Amerikan güçlerinin şimdiye kadar küçümsedikleri direnişe karşı elde ettiği en önemli başarılardan biri. Fakat, bu olayın halkın direnişe olan bakışını ne yönde değiştireceği ise şimdilik meçhul. Zira, Irak halkı kendilerini Saddam rejiminden kurtaran insanlar olarak bakmıyor Amerikan askerlerine. ABD"nin belki de en çarpıcı yanılsaması burada.
+       <br/>
+       <br/>
+       İkinci Dünya Savaşı sonrası Almanların ve Japonların kendilerine dayatılan demokratik rejimleri benimsedikleri gibi Irak halkının da aynı tavrı sergileyeceklerini bekliyordu Washington"daki yönetici elitler. Halbuki, tam tersi oldu. Irak halkı bugün Amerikan askerinin ülkeyi terk etmesini istiyor. Bunun altında sivillerin Almanlar ve Japonlar gibi aylarca bombardıman altında kalıp çok ciddi zayiatlar vermemesi gerçeği yatıyor. Dayanma gücünün son raddelerine henüz gelmiş değil Irak halkı. Böyle olunca da günlük yaşamının bir türlü düzene girmemesinden rahatsızlık duyuyor ve sorumlu olarak da ülkerindeki Amerikan askerlerini görüyor.
+       <br/>
+       <br/>
+       Irak"taki direnişi gerçekleştirenler dört ana gruba ayrılabilir: Baas Partisi"ne mensup farklı gruplar, geçiş döneminde devre dışı bırakılan küçük Arap aşiretleri, Amerikan işgali öncesi Irak"a gelen Arap gönüllüler, bağımsız çalışan gangsterler ve yağmacı gruplar. Bunların arasında en etkili olanları Baas Partisi"nin kalıntıları. Söylentilere göre, partinin orta ve kuzey bölgelerinden sorumlu yöneticileri bir araya geldiler ve yeni bir isim altında faaliyetlerini sürdürme kararı aldılar. Seçtikleri isim de kendileri açısından oldukça anlamlı: Avdet. Partinin iktidardaki ihtişamlı günlerine geri dönüş anlamına geliyor.
+       <br/>
+       <br/>
+       Aynı zamanda, Kerkük civarındaki bazı Baas üyeleri de "yılan" adını verdikleri ayrı bir halka oluşturmuş durumdalar. Bu insanların ortak noktası, Saddam yönetimin sırasında rejimin nimetlerinden istifade etmiş olmaları. Artık kendileri için dönüşü olmayan bir yol var karşılarında ve Amerikan güçleri ile çarpışmayı tercih ediyorlar. Süleymaniye"de Kürtçe yayınlanan haftalık Havleti gazetesi, Baas üyelerinin zihinsel bir değişim yaşadığından bahsediyor ve kendilerini İslami mantaliteye uygun hale getirdiğini yazıyor. Gazeteye göre, bu eğilim giderek Irak"ın diğer bölgelerine de sıçrayabilir.
+       <br/>
+       <br/>
+       İkinci gruba giren aşiret liderleri yeni rollere göre tanımlıyorlar kendilerini artık. Bunun için bazen bölgelerinde birtakım sabotaj eylemleri bile yapabiliyorlar. Örneğin, Ebu Ubeyd adlı bir aşiretin Kerkük-Yumurtalık petrol boru hattına 11 Haziran"da yaptığı saldırı gibi. Saddam zamanında kendisine hattın korunmasına karşılık ödenen ücretin Amerikalılar tarafından kesilmesi, aşireti taraf olmaya itiyor. Baas mensuplarına oranla daha az organize olan bu grupların Amerikan hedeflerine arada sırada saldırması bundan kaynaklanıyor.
+       <br/>
+       <br/>
+       Irak"a savaşmak için gelen Arap gönüllülerin durumu baştan belli zaten. Amerikan askerleri ile savaşmak için geldiklerinden, bu amaçları uğrunda mücadele ediyorlar. Hukuk düzeninin olmamasından yararlanan gangsterler ise kendilerina ait bağımsız bölgeler oluşturmayı hedefliyor. Eğer ABD, kısa zamanda güçlü bir siyasi sistem kuramaz ise gangsterler ve yağmacıların kendilerini tıpkı Afanistan"daki savaş lordları gibi görmeleri kuvvetle muhtemel.
+       <br/>
+       <br/>
+       İşte Türkiye"nin karşısında yer alan Irak manzarası böyle. Geleceği inşa ederken, geçmişten ders alıp bugünü doğru okumak gerekiyor. Dileriz, Türkiye ABD ile görüşürken bu gerçekten hareketle en doğru olan hamleleri yapar.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2823), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050114200115/http://www.aksiyon.com.tr:80/detay.php?id=2823)

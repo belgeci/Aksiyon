@@ -1,0 +1,46 @@
+# 500 kere Aksiyon
+
+*İbrahim Karayeğen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119205113im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <font class="content">
+    Elinizdeki Aksiyon ile 500. sayıya ulaşmanın sevincini yaşıyoruz. Türkiye’de pek az dergiye nasip oldu böyle bir istikrar. Bu sayıda haber dergiciliğini kapsamlı bir çalışma ile tartışmaya açıyoruz.
+    <br>
+    </br>
+   </font>
+   <br/>
+   <p>
+    <font class="content">
+     Türk medyası şu sorunun cevabını mutlaka vermelidir: “Bu ülkede haber dergisi neden satmıyor?” Onca promosyona, sınırsız tanıtıma ve süslü püslü takdime rağmen tirajı on bini bulanların bayram yapması çok düşündürücü. Haftalar önce başlattığımız bu özel dosyada dergiciliğin serüvenini bulacaksınız. Çok faydalı, arşiv niteliğinde bir belgesel çıktı karşımıza.
+     <br>
+      <br>
+       Dergilerin yolculuğu Türkiye’nin onar yıllık darbeler tarihine benziyor. Siyasal, sosyal ve ekonomik yapının izdüşümünü görüyoruz. Dönemin sonuna gelindiğinde dergiler de misyonunu tamamlıyor. Soğuk savaşın bittiği, ideolojik yaklaşımın buharlaştığı içinde bulunduğumuz dönemde ise kimlik arayışı devam ediyor. Aynen bu kuşakta olduğu gibi.
+       <br>
+        <br/>
+        Bütün arkadaşlarımızın katkıda bulunduğu çalışma ile anlaşılıyor ki, Aksiyon ağır ama istikrarlı çizgisiyle basın tarihine şimdiden adını yazdırmış durumda. Haber dergisi geleneğinin olmadığı bir ülkede 20 binlerin üzerindeki tiraj çok anlamlı. Aksiyon’u kuran, geliştiren ve buraya getiren kadronun kuşkusuz hedefi daha büyük. Ulusal ölçeği aşmış, tirajı yüzbinleri bulan ve gündemi belirleyen güçlü bir dergi hayal ediyoruz. Bu hedeften vazgeçmiş değiliz.
+        <br/>
+        <br/>
+        Çıktığı günden bu yana nev’i şahsına münhasır bir dergi olduğunun farkında olan Aksiyon, ne Batıdan kopya çekti ne de kapak güzellerinden medet aradı. Zarfı abartıp mazrufu geri plana iten genel yaklaşımı reddedip, görsel zenginlik kadar fikri derinliği önemsedi. Dibe vuran dergi haberciliği için canlı bir soluk oldu. Yeni sürgünler için okul işlevi gördü. Bugün yetiştirdiği öğrencileriyle gurur duyuyor.
+        <br/>
+        <br/>
+        Yeni bir yapılanmanın arefesinde bazı arkadaşlarımız aramızdan ayrılıyor. Zaman gazetesine geçen Osman İridağ, Ahmet Doğru ve Yaşar Durukan ile başka limanlara yelken açan Meral Yılmaz, Ebru Nida Bilici ve Ahmet Kesgin’e şükran duyguları ve başarı dileklerimizle güle güle diyoruz.
+        <br/>
+        <br/>
+        Hepinize iyi haftalar.
+        <br/>
+       </br>
+      </br>
+     </br>
+    </font>
+   </p>
+  </p>
+ </font>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11967&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119205113/http://www.aksiyon.com.tr:80/detay.php?id=11967&yorum_id=1)

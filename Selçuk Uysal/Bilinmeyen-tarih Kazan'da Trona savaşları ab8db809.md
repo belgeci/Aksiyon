@@ -1,0 +1,180 @@
+# Kazan'da Trona savaşları
+
+*Selçuk Uysal Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040712064524im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040712064524im_/http://www.aksiyon.com.tr/resim/488/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Madenler, Türkiye’de kaderine terk ediliyor ama yabancılar bu fırsatı kaçırmıyor. Yabancı şirketlerin maden ararken toprak satın almaları birçok şaibeyi beraberinde getiriyor. Ankara'nın şirin ilçesi Kazan'da trona avcıları cirit atıyor. Ankara’ya sadece kırk kilometre uzaklıkta olan Kazan ilçesine bugünlerde bir hâller oldu. Yakın zamana kadar Ankaralıların bile pek bilmediği Kazan’a İngiltere’den, Amerika’dan yabancılar geliyor; Türkiye’den bürokratlar, askerler ilçede denetim yapıyor. Kazan halkına ise iki soru soruluyor: “Toprağını satıyor musun?”, “Toprağını sattın mı?” Kazan’ın fakir köylerine bir yandan toprağı sat baskısı yapılırken diğer yandan “toprağını satma, köyünü kurtar” telkini yapılıyor.
+ </font>
+ <p>
+  <font class="content">
+   Kazan ilçesinin kıraç topraklarının bugünlerde değer kazanmasının nedeni ise bölgede tespit edilen trona madeninin göz kamaştıran rezervleri... Maden yasasındaki değişiklikler ve AB uyum yasalarıyla yabancıların toprak edinebilmesi için getirilen düzenlemelerin etkisiyle Kazan’ın ürün vermez, yol geçmez topraklarına talipli yağıyor. Köylüler şaşkın; toprağını satan ayıplanıyor ama satmayan da “Ne yapacağım ben bu bayırı?” diyor.
+   <br>
+    <br/>
+    Yabancı maden şirketleri köylüleri toprak satmaya ikna etmek için bazen gıda yardımı yapıyor, bazen cami yaptırıyor, bazen de köylere doktor getiriyor. Askerlerin ve kamu görevlilerinin ise ucuz ve denetimsiz toprak satışına karşı tek bir silahları var: “Aman vatan toprağını satmayın!”
+    <br/>
+    <br/>
+    İlk bakışta yabancı şirketlerin trona aramasında ve çıkarmasında hiçbir problem yok; hatta yarar bile var. Çünkü Türkiye, değeri milyar dolarla ifade edilen çorak toprakları feda etmiş durumda. Ancak Kazan havzasında yabancı şirketlerin gizli toprak almaları, toprağını vermeyen köylüleri tehdit etmeleri ve bor madeninin çıkartılmasında yaşanan hileli raporlara benzer vakıalar, madencilik sektörünü endişeye sevk ediyor.
+    <br/>
+    <br/>
+    Endüstriyel ürünlerin oluşumunda hayati önem taşıyan trona madeni Kazan’da çıkartılıp piyasalara sürülürse Avrupa ve Amerika arasındaki endüstri savaşları kızışacak. Fakirlikten kurtulma duygusu ile vatan toprağını satma duygusu arasında sıkışan Kazanlıların ve Türkiye’nin inişli çıkışlı trona öyküsü ülkemizin bir bilinmezini aydınlatıyor.
+    <br/>
+    <br/>
+    Kazan’ın tronası dünya cam ve deterjan
+    <br/>
+    <br/>
+    fiyatlarını etkileyebilir
+    <br/>
+    <br/>
+    Trona endüstriyel bazda dünyada sadece Amerika’da bulunduğu zannedilen bir maden. Suda çok kolay erime özelliği sebebiyle yüzey tabakalarda pek rastlanmayan ve tespit edilmesi çok zor olan bu maden genellikle bor ve lityum tuzlarıyla birlikte bulunuyor. Trona soda külüne dönüştürülmek suretiyle cam, deterjan, kağıt, demir, çelik, alüminyum, tekstil ve kimyasal maddelerin üretiminde kullanılıyor. Tronanın oluşturduğu soda külünün hayati önem taşıdığı sektörler ise cam ve deterjan sanayii... Trona madenlerinin çıkarılması konusundaki en küçük çalışma anında cam ve deterjan fiyatlarına yansıyor; çünkü 1 ton cam üretimi için 200 kg soda külüne ihtiyaç var.
+    <br/>
+    <br/>
+    Avrupa’nın hiçbir ülkesinde trona madeni yok; Güney Amerika ve Çin gibi ülkelerdeki trona madenlerini çıkarmak ise neredeyse imkansız. Türkiye 650 milyon ton olduğu tahmin edilen trona rezerviyle Amerika’nın en büyük rakibi. Endüstriyel ürünlerin üretiminde hayati önem taşıyan trona madeninin tek rezerv ülkesi olan Amerika, Türkiye’deki trona madenlerinin işletmeye açılmasılya özellikle cam ve deterjan sanayiindeki “belirleyici” rolünü azaltmak zorunda kalacak. Başta Avrupa ülkeleri olmak üzere tam 34 ülke endüstri ürünlerinin üretiminde Amerika’ya bağımlı olmamak için sentetik soda külü üretiyor. Türkiye de Amerikan şirketlerinin soda fiyatlarına getirdiği fahiş zamlardan kurtulmak için Mersin’de Şişecam’a bağlı bir fabrikada sentetik soda külü üretiyor.
+    <br/>
+    <br/>
+    Trona tüm dünyada 34 milyon tonluk tüketimi ile yaklaşık 5 milyar dolarlık bir pazara sahip. Türkiye yapacağı yatırımlarla bu pazarın 2 milyar dolarını çok kısa bir süre içinde ele geçirebilir; çünkü Amerika’nın Avrupa sanayi ülkelerine uyguladığı kotalar yine Avrupa’da üretilen sentetik sodanın pahalılığı ve Uzak Asya pazarının bu konuda aç olması ticari avantajlar arasında sayılıyor. Ankara Kazan ve Beypazarı’nda çıkartılacak trona madeniyle sadece Türkiye’nin değil bütün dünyanın cam ve deterjan fiyatları değişebilir.
+    <br/>
+    <br/>
+    1979’da bulundu, 1997’ye kadar unutuldu
+    <br/>
+    <br/>
+    Trona madeninin Türkiye’de büyük bir rezervininbulunduğun, 1979 yılında tespit edildi. Beypazarı’nda bulunan ilk trona madenleri 1983’te devlet tekeline alınarak Etibank’a devredildi. Aynı tarihte dünya Trona tekellerini oluşturan Avrupa ve Amerikan şirketleri FMC WYoming Corporation, Solvay ve Rio Tinto, Etibank ile resmi görüşmelere başlayarak trona çıkartılmasında gönüllü olduklarını bildirdiler. İlerleyen yıllarda Canadian Oxy firması da Türkiye’deki trona madenine yoğun ilgi gösterdi. Kamu yönetiminin isteksizliği ve yabancı şirketlerin kendi aralarındaki rekabet trona madenlerini gündeme taşımaya yetmedi.
+    <br/>
+    <br/>
+    1997’de dönemin başbakanı Necmettin Erbakan, muhalefetteyken seslendirdiği “İşletin trona madenini, ödeyin devletin borcunu” söylemini hayata geçirmek için harekete geçti ve soda külü kavramını Türkiye’nin gündemine bir kez daha soktu. Uzakdoğu gezisinde Malezyalı ve Singapurlu firmalarla Türkiye’deki soda yataklarının işletilmesi konusunda ön anlaşma yapan Erbakan’ın girişimlerinin sonunda dönemin madencilikten sorumlu bakanı Teoman Rıza Güneri trona madenlerinin üstünde basın toplantısı yaparak yabancı şirketlere gözdağı vermişti.
+    <br/>
+    <br/>
+    1983’ten 1997’ye kadar Etibank’la birçok kez pazarlık görüşmesine oturarak trona madenlerinin işletmesini almak isteyen yabancı şirketler ise 1997’de üst üste raporlar hazırlayarak “Türkiye’de trona madeninin olmadığını ispatlamaya” çalıştı. Madenin Türkiye’de olduğu ispatlanınca da ‘Bunu siz çıkaramazsınız, bu tronanın üzerinde çok büyük bir su tabakası var, bu özel bir teknik gerektirir, siz bunu yapamazsınız’’ diyen pek çok rapor hazırladılar; bugünse trona cevheri yeryüzüne çıkartılabiliyor ve gereken yatırımlar için hiçbir doğal engel bulunmuyor. Avrupa’nın en büyük trona şirketlerinden Solvay Grubu 1983 ile 1997 arasında sürekli “Size gerekli teknolojiyi biz vereceğiz” dese de Etibank’ın tüm başvurularına olumsuz cevap verdi.
+    <br/>
+    <br/>
+    Yabancı şirketlerin kötü niyetli rapor hazırladığına kanaat getiren 1997’nin madenlerden sorumlu devlet bakanı Teoman Rıza Güneri, kıt imkanlara rağmen Beypazarı’nda bizzat soda üretimi için Necmettin Erbakan’ın da katıldığı şaşaalı bir açılış düzenlemişti. Avrupa ve Amerika Türkiye üzerinden trona savaşı yapıyor. Dünya soda (trona) üretiminin devi Amerikalı firmaların Beypazarı ve Kazan’daki soda yatakları ile ilgili stratejisi Avrupa pazarı ile yakından ilgili. ABD’nin toplam 11 milyar tonluk üretiminin 7 milyar tonu iç pazarda tüketilirken, 4 milyar tonu ihraç ediliyor. ABD, 4 milyar tonluk ihracatının 1 milyar tonunu Latin Amerika ülkelerine, 500 milyon tonunu Japonya’ya, 1.5 milyon tonunu Uzakdoğu ülkelerine yapıyor. ABD, Avrupa pazarına ise sadece 200 milyon ton soda satabiliyor. Avrupa ve Amerika soda külünün satışında acımasız bir rekabet halindeler; Türkiye’de işletilecek bir trona madeni Avrupa’yı Amerika’ya karşı avantajlı hale getiriyor. Çünkü Avrupa, soda ihtiyacını sentetik üretimle sağlıyor ve ABD’ye bağımlı olmak istemiyor. Avrupa sentetik yollardan üretilen sodanın ton maliyeti için 200 dolar harcıyor; oysa doğal yollardan elde edilen soda için sadece 60 dolarlık maliyet yeterli.
+    <br/>
+    <br/>
+    Avrupa’nın soda külü üretim kapasitesinin neredeyse tamamı Solvay isimli Belçika merkezli çok uluslu şirkete ait. Solvay’i İngiliz Brunner Mond isimli şirket takip ediyor.
+    <br/>
+    <br/>
+    2003 yılında trona işletme ruhsatı alan ve Türkiye’de trona aramak için tam 20 milyon dolar harcayan İngiliz kökenli Rio Tinto (Türkiye’de Riotur ismiyle faaliyet gösteriyor), trona için neden Türkiye’yi tercih ettiğini açıklarken ABD ile aralarındaki savaşı da kısmen belirtmiş oluyor. Riotur’un işletme projesi raporlarında şu cümlelerle anlatılıyor: “Türkiye’de Kazan ilçesinin trona için hedef seçilmesinin nedeni başta Batı Avrupa cam pazarlarıdır. Batı Avrupa’nın dışında Güney Amerika ve Uzakdoğu pazarları Kazan için alternatif bölgelerdir.”
+    <br/>
+    <br/>
+    Yardım yapılıp ‘tarla satın” deniliyor
+    <br/>
+    <br/>
+    Ankara’ya sadece 40 kilometre mesafedeki köylerde yabancı şirket temsilcileri köylülere toplantılar düzenleyerek yardım yapıyor, bu bölgelerin çok yakında Ankara’nın en lüks semti olacağını müjdeliyor. Riotur isimli şirketin Türk avukatları, “Devlet bu arazileri nasıl olsa istimlak edecek, siz şimdiden para kazanmaya bakın” uyarısını yapıyor. Ankara’nın hemen yanı başında yer alan İncirli köyünde, tarlalarına fiyat biçen avukat ile köylüler arasında arbede bile çıkmış.
+    <br/>
+    <br/>
+    Riotur’un Türkiye temsilciliğini arayıp, yardım ya da tehdit yoluyla köylülerden toprak satın almak isteyip istemediklerini sorduğumuzda şu cevabı aldık: “Madeni toprak altında arayacağız. Dolayısıyla da çok büyük araziler almayacağız. Dünyanın en büyük şirketlerinden birinin elemanları kimseyle itişmez.”
+    <br/>
+    <br/>
+    Özellikle de Riotur, İncirli, Kınık, Fethiye Bayat, İlyakut ve Mülk köylerinde halkın gönlünü kazanmak için oldukça uğraşıyor. Ramazan’da Kazan ve çevresindeki yüzlerce aileye gıda ve giyecek yardımı yapılmış. İncirli Köyü’ndeki caminin inşaatı İngiliz Rio Tinto şirketinin yardımıyla ilerliyor! Riotur yetkililerine niçin Kazan’a yardım yapıyorsunuz da Mamak’a yapmıyorsunuz sorusunu yönelttiğimizde ise şu cevabı aldık: “Yerel yönetimlerle işbirliğine giderek halka yardım dağıttık. Bunda ticari bir amaç yoktu. Köy konağında bir toplantı da düzenledik.” Riotur, Kınık köyüne içme suyu getireceğine söz vermiş ve çalışmaları hemen başlatmış; ancak çevrede içme suyu kaynağının olmaması Rio Tinto’yu amacına ulaştıramamış. Köy misafirhanelerine, köy odalarına yapılan yardımlar ve özellikle de köylere getirilen doktorlar, köylülerin büyük takdirini kazanıyor.
+    <br/>
+    <br/>
+    “Arazin çorak” muamelesi
+    <br/>
+    <br/>
+    Toplam 29 bin nüfusu olan Kazan’ın 47 bin hektarlık alanında 36 köyü, 7 mahallesi bulunuyor. Trona madeni için önemli olan arazi ise yaklaşık 28 bin dönüm. Bu alanın daha çok köylülerin mülkiyetinde olması yabancı maden şirketlerini köylülerle iyi anlaşmaya zorluyor.
+    <br/>
+    <br/>
+    Riotur’un raporlarına göre Kazan beldesiyle İncirlik ve Fethiye köylerinde 30 kilometrekarelik bir alanda yoğun olarak trona cevheri bulunuyor. Yapılan uzun hesaplamalarla bir metrekarelik toprak üzerinden 10 bin dolar para kazanmak mümkün. Kazanlı köylülere verilen metrekarelik toprak bedeli ise sadece 3 milyon lira. Yani bir dönüm arazi 3 milyar bile etmiyor.
+    <br/>
+    <br/>
+    Köylüler tarlalarına biçilen metrekare başına 3 milyon lirayı az bulunca şirket yetkilileri, fiyatı artırarak satın alacakları tarlaların metrekaresini 6,5 milyon liraya çıkartmış. Kazan’da oturan ve tarlasına sık sık müşteri gelen Ali Dumrul, asıl korkularının metrekare fiyatının 20 milyon liraya çıkması olduğunu belirtiyor. Ali Dumrul’a göre tarlasından alacağı 1 milyarlık ürün bedeliyle bütün yıl geçinmeye çalışan bir köylü, metrekaresini 20 milyondan satacağı tarlayla Ankara’da küçük bir dükkan açma hevesine kapılabilir ve tarlalar kısa sürede satılabilir.
+    <br/>
+    <br/>
+    Riotur’un Kazan havzasında gerçekleştirmeyi planladığı proje, resmi rakamlara sabit yatırımlar ve işletme sermayesi olarak 1.211 milyar dolar olarak yansıdı. 1.2 milyar dolarlık yatırım gerçekleştirmeyi hedefleyen bir şirketin tarlaları ucuza mal etmek istemesi köylüleri tedirgin ediyor. Altındaki trona madeni hesaba katılmadan tarlaların metrekare fiyatının 3 milyon lira olduğunu belirten köylüler, şirket temsilcilerinin fiyat tespitlerinden oldukça rahatsız. Riotur yetkililerine Kazan’a biçtikleri fiyatın niçin düşük olduğunu sorduğumuzda ise şu cevabı aldık: “Fiyatlarımız gizlidir, açıklayamayız. Faaliyet alanlarımız içinde kamu alanları, orman alanları ve özel mülkiyetler var. Hukuki olarak ne gerekiyorsa onu yapıyoruz.”
+    <br/>
+    <br/>
+    İncirli köyünde yaşayan Fatih Erova arazilerine gelen teklifleri değerlendirirken oldukça gerçekçi konuşuyor: “Evet bize teklifler geliyor ama şu an için düşük fiyat çekiyorlar. Biz yarı aç yaşayan köylüleriz. Yarın yüksek bir teklif getirdiklerinde neden satmayalım ki. Burada toprak satmak, almak suçsa yanımızda askeriye var, 30 kilometre uzağımızda Meclis var. Ben satarım. Yeter ki bana yüksek teklif gelsin. Şirketin sosyal faaliyetlerine hiçbir itirazımız yok. Yardımlarını hepimiz aldık.”
+    <br/>
+    <br/>
+    Fethiye köyünün eski muhtarlarından Mehmet Bayrak, tarlaların satılıp köylerinin bir maden bölgesi haline gelmesiyle en çok tarım ve hayvancılık sektörünün yok olmasından korktuklarını belirterek “Biz madenden anlamayız. Belirli bir yaştan sonra bizi madende işe de almazlar. Bizim tek geçimimiz tarla ve hayvandır. Hayvanlara şimdiden ot bulmakta zorlanıyoruz. Ben sırf bu yüzden tarlaların satılmasına karşıyım.”
+    <br/>
+    <br/>
+    Öğretmen emeklisi Eyüp Sami Uslu ise köylülerin topraklarını satarken de, satmamak için direnirken de örgütlü olmaları gerektiğini belirterek “Topluca karar alacağız. Komşularla istişare edeceğiz. Sizin yaptığınız bu tesislerin ormanlara, sulara zarar verecek durumu var mı diyeceğiz. Arazi işini hep birlikte yürüteceğiz. Biri tek başına arazisini satarsa sığırını, davarını ayırır, köyden kovarız. Tek yürek olacağız. Meclis seyirci kalamaz. Birileri geliyor bize ödül dağıtıyor, tehdit ediyor, devlet ortada yok. Üç—beş adamla bizi tehdit ediyorlar. Sahipsiziz ama güçsüz de değiliz” diyor.
+    <br/>
+    <br/>
+    Sondajlar toprak ve suyun yapısını değiştirdi
+    <br/>
+    <br/>
+    Kazan ve çevre köylerinde yaklaşık beş  yıldır sondaj yapılıyor. Rio Tinto’nun faaliyet raporlarından öğrendiğimize göre ise bölgede bugüne kadar 117 sondaj yapılmış. Sondaj yapılacak arazi Hazine'ye ait ise şirketin teknik elemanları işleme hemen başlıyor. Sondaj yapılacak arazi özel bir mülk ise arazi sahibiyle pazarlık yapılıyor. Fethiye köyünde yaşayan ve sütçülük yaparak hayatını kazanan Hayati Aydın kendi tarlasındaki sondaj için iyi bir pazarlık yapıp 300 milyon lira aldığını söylüyor.
+    <br/>
+    <br/>
+    İşlemler bittikten sonra restore
+    <br/>
+    <br/>
+    edeceklerini söylüyorlar
+    <br/>
+    <br/>
+    Riotur proje bitince Kazan ve çevresine 40 milyon dolarlık restorasyon yatırımı yapacağını taahhüt ediyor; ancak projenin bitmesi onlarca yıl alabilir. Şirketin sondajları şimdiden çevreyi olumsuz etkilemeye başladı. Riotur yetkililerine çevreye zarar verip vermediklerini sorduğumuzda ise şu cevabı aldık: “Biz madeni özel bir teknikle kazmadan yani çözelti yöntemiyle arayacağız. Bu yüzden de çevreye herhangi bir zarar vermiş değiliz. Bu konuda iddialıyız.”
+    <br/>
+    <br/>
+    Yapılan her sondajdan sonra çevreye tonlarca su akıyor ve bu suların içindeki kimyasal maddelerden dolayı tarlalardaki ürünler zarar görmeye başlamış. Yağmur suları sondajlardan çıkan suları geniş bir alana taşıyor. Kazan’da çiftçilik yaparak geçimini sağlayan birçok köylü sondaj kuyularından sonra tarlasının çoraklaştığını iddia ediyor. Bugünlerde yaşanan en büyük korkuysa su kaynaklarına sondajlardan kimyasal atıkların sızması. Suyun tadının değiştiğini iddia eden Kazanlı Mustafa Aydın, köylülerin sadece suyun tadından anladıklarına, kimsenin yetkili bir laboratuvara suyu götürmediğine dikkat çekerek “Bu bölgede 30 binden fazla insan yaşıyor, kimse suyu tahlile götürmedi. Biz göçe mi zorlanmak isteniyoruz?” diyor.
+    <br/>
+    <br/>
+    Yabancı şirketler yeni yasayla toprak satın alabiliyor
+    <br/>
+    <br/>
+    Anayasa’nın 168. maddesi tabii servet ve kaynakların devletin hüküm ve tasarrufu altında olduğunu açıkça belirtiyor. Ancak yabancıların mal edinebilmesi için getirilen düzenlemeler ve yeni maden yasasının hükümleri, yabancıların Kazan ve Beypazarı’nda toprak alabilmesine izin veriyor. Yeni yasasıyla madencilik, yabancıların da ticaret yapabileceği bir sektör oldu. Yine yabancıların mal edinebilmesi konusunda anayasada özel bir hüküm yok. 2003 Haziran ayına kadar yabancılara mal almada kısıtlayıcı hükümler getirilmekteydi. Köylerde ise yabancıların mal edinmesi kesinlikle yasaktı. 4916 sayılı yeni kanuna göreyse yabancılar mal edinebiliyor. Anlaşmazlık durumunda uluslararası tahkim tek söz sahibi.
+    <br/>
+    <br/>
+    Bir İngiliz şirketi olan Riotur, Kazan havzasında yatırım yaptığı takdirde Hazineden teşvik maksatlı ücretsiz arsa alabilecek. Köylüleri ikna etmeye çalışan avukatların da en büyük güvencesi yabancı şirketlerin Kazan’dan Hazine arazilerini alabileceği. İkinci derece tarım arazisi iken geçen yıl üçüncü derece tarım arazi olarak kabul edilen Kazan’ın Hazine arazilerinin yatırım karşılığında yabancılara bedelsiz olarak verilebilecek olması tarlalarını satmamak için direnen köylülerin umudunu kırıyor.
+    <br/>
+    <br/>
+    1.2 milyar dolarlık yatırım
+    <br/>
+    <br/>
+    Trona dünyada en çok ticareti yapılan madenler arasında üçüncü sırada yer alıyor. Tronanın pazarlanabilirlik özelliği dünyanın en büyük maden şirketlerinden olan Rio Tinto için bulunmaz bir fırsat... İngiltere kökenli uluslararası bir şirket olan Rio Tinto, Türkiye’de trona faaliyetlerini Riotur ismiyle yürütüyor. Rio Tinto’nun bor madenini araştıran şirketinin ismiyse Türk Boraks olarak tescil edilmiş. Rio Tinto şirketi Türkiye’de 60 yılı aşan bir süredir bulunuyor. 1950’lerde Türk Borax ismiyle Türkiye’de bor madeni olmadığını ısrarla yayan ve bu arada da 10 bor sahası açarak bor madenine ilgisini gösteren şirket birçok kez maliye tarafından “hile yapmakla” suçlanmış. Rio Tinto/Borax yıllarca “Türkiye’deki bor madenlerinin yetersizliğini savunmuş ve özellikle de 1950 ve 1963’te etkili yayınlar yapabilmiş bir şirket. Balıkesir ve Eskişehir’de yaptığı bor çalışmalarıyla bilinen Rio Tinto’nun, Türkiye’deki diğer madenler için Cominco, Anatolia Minerals, Newmount gibi yabancı şirketlerle ortaklıkları bulunuyor. Riotur’un bugünlerdeki en büyük faaliyet alanı ise trona madeni. Trona madenini çıkartmak için gerekli tüm ruhsatları 2003’te alan ve 2048 yılına kadar trona işletme faaliyetine yatırım yapacağını açıklayan Riotur, Kazan’da trona cevherinin sadece aranması ve ön işletme ruhsatları için 20 milyon dolar harcama yaptı. Yine şirket faaliyet raporlarından öğrendiğimize göre, Riotur, Kazan’da çıkaracağı trona ile yıllık 5 milyar dolar soda külü ihracatı yapmayı amaçlıyor. Trona madenleri üzerinde uzun yıllar araştırma yapan Kadir Yılmaz ise bütün dünyada yıllık cirosu 5 milyar dolar olan bir madenin sadece bir ilçeden çıkartılacak ürünlerle nasıl 5 milyar dolar kazandırabileceğini soruyor.
+    <br/>
+    <br/>
+    Askerî üsler yabancı topraklarla çevriliyor
+    <br/>
+    <br/>
+    Tapu kanununun 35. maddesi, askeri sınırlara yakın olmaması şartıyla yabancılara toprak alma izni veriyor. Riotur’un ise Türkiye’nin en büyük askeri tesislerinden olan 4. Ana Jet Üssü’nün hemen yanında trona arama ruhsatı bulunuyor ve aynı üssün hemen yanındaki bütün arazileri yabancı maden şirketleri satın almak istiyor. Kazan ilçesi ve trona maden yataklarının yanında ayrıca Türk Havacılık ve Uzay Sanayii de bulunuyor. Askeri üssün ve Türk Havacılık ve Uzay Sanayii’nin kontrol altına alınmak istendiğini iddia etmek “komplocu” bir yaklaşım; ancak askeri üssün dört bir yanının yabancı şirketler tarafından çevrilmek istenmesi askeri çevreleri de rahatsız ediyor. Riotur’un trona projesi tam 400 kilometrekarelik bir alanı kapsıyor ve askeri üsler bu alanın tam ortasında. Kazan köylerini sık sık ziyaret edip köylülere “toprak satan” var mı sorusunu soran askerler, şimdilik hükümet düzeyinde girişimlerde bulunmadı.
+    <br/>
+    <br/>
+    Riotur’un raporlarında ise “Ana Jet Üssü ve gerekli mülki idare amirleriyle mutlaka ruhsat müzakeresi yapılmalıdır” ibaresi geçiyor.
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### güray, 01-Haziran-2004
+> neden bişey yapılmıyor: 
+> geçen hükümet yabancılara mülk edinme hakkını verirken bunların başımıza geleceğini bilmiyormuydu. avrupa birliğine giremeyeceğimiz gün gibi açıktayken nedir bu avrupa birliğine uyum sağlamak için yaptığımız anlamsız mücadele. elimize bişey geçmeyeceğini bildiğimize göre daha ne bekliyoruz .elimizdekilerden de olmadan artık bi dur diyelim.
+
+### Cevat Akca, 31-Mayıs-2004
+> Bor şimdide Trona: 
+> Frankfurtdan selamlar ya kardeşim işinizmi yok sizin nasil olsa İMF den para geliyor neden böyle şeylerle uğraşalım
+
+### sefa, 18-Nisan-2004
+> turkiyede neler oluyomuş böyle..: 
+> valla internette dolaşırken yazınızı gordum ve ilgiyle okudum..bence hükümetin bu konulara yoğunlaşması lazım..ve halkımızın bilinçlendirilmesi gerekir..yabancı şirketler cami yaptırarak yardım yaparak halkımızın gözünü boyamaya çalışıyor ve sempati kazanmaya çalışıyolar..umarım devletimiz bu konuya kayıtsız kalmaz... bu yazıyı kazan koylulelirin de okumasını isterdim..tşk
+
+### A.T, 17-Nisan-2004
+> İlginç bir ülkeyiz.: 
+> Bir ülke ancak yeraltı zenginlikleri ile refaha kavuşur.Bizde var çıkartmıyoruz çıkartanada engel oluyoruz.Bu stalin döneminden kalma bir uygulama olsa gerek ne ben yapayım nede başkasına yaptırayım.İlginç....
+
+### İsmail Hakkı ÇAĞLAK, 17-Nisan-2004
+> tebrik: 
+> İlk önce Aksiyon Dergisinin Trona Madeni konusunu gündeme getirdiği için tebrik ediyorum. Derginizden buna benzer konuların hep gündeme getirilmesini bekliyorum. Böyle konuları gündeme getirmenizle insanlar hep aydınlanıyor Aksiyon dergisine başarılar iyi çalışmalar
+
+### şükrü can, 14-Nisan-2004
+> bir an önce....: 
+> devletin hemen vakit kaybetmeden  işe el atmalı.köylülere ortak olacak şekilde işletmeyi ele almalı,teknolojiyi bu vatanıın evlatları elbette geliştirir yeterki bu konuya yoğunlaşalım.....
+
+### Adnan Mehmedoglu, 13-Nisan-2004
+> YAĞMAYI ÖNLEYECEKSİNİZ: 
+> Sevgili Aksiyon yazarları Bir KAZANlı  olarak sizin sayenizde yabancı şirketlerin yağmasının önlenmesi ve halkın bilinçlendirilmesi için yapılan yayınınızı gururlanarak okudum. Artık halk aklını başına almalı ve bilinçlenerek kendi topraklarının altındaki madenleri biraraya gelerek kendisi işletmeli.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11364&yorum_id=1105), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040712064524/http://www.aksiyon.com.tr:80/detay.php?id=11364&yorum_id=1105)

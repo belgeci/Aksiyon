@@ -1,0 +1,106 @@
+# İnsanliğin Şaron'la imtıhani
+
+*Kerim Balcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005615im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005615im_/http://www.aksiyon.com.tr/resim/383/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bütün dünya Arafat denince Filistin'i, Filistin denince Arafat'ı hatırlıyor. Bu yüzden ona Bay Filistin de deniyor. Şiddetten başka dil bilmeyen Şaron, Arafat'ı hedef alarak ne yapmaya çalışıyor?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ramallah’taki Mukata Karargahı’nda bir yalnız Yasir... Başında hiç çıkarmadığı kefiyesi, yanında da bir müddettir taşıdığı makinalı tüfeği var. 73 yaşındaki ihtiyar dua ediyor. Duasında kardeşi Ebu Cihad’a kavuşma arzusundan, 50 yıldır özenle büyüttüğü evladı Filistin Devleti’nin hayatta kalması dileklerinden bahsediyor. Dışarıda bekleyen İsrail askerlerinin seslerini duyuyor ara ara. Konuşmalardan askerlerin tedirgin olduğu anlaşılıyor. “Dilleri ne kadar da Arapça’ya benziyor” diye düşünüyor, “Dinleri de dinimize...” Asırlık çatışmayı yeniden geçiriyor aklından; “Siyonistler ülkelerini Angola’da veya Arjantin’de kursalardı şimdi Hırıstiyanlarla çatışıyor olurlardı ve biz de muhtemelen onları destekliyor olurduk” diye düşünüyor. Gülümsüyor sonra, “Tarihin keşkesi olmaz, olsaydı nice keşke yapmasaydım diyeceğim işlerim var” diyor kendi kendine... Sabahın ilk ışıklarında günlerdir üzerindeki kıyafetiyle aynanın önünden geçiyor, buruşmuş kefiyesine takılıyor gözleri. Yirmidört yaşında bir gençken Çekoslavakya’da katıldığı bir öğrenci konferansında başına geçirdiği kefiyeyi düzeltip yeniden tarihi Filistin haritası şeklini aldırıyor ona. Bir an kopuyor ümitsiz çehrelerle dolu odasından ve elli yıl öncesine dönüp o konferanstaki dinleyicilerinin karşısında buluyor kendini. Kalabalığın karşısında kefiyesini geçiriyor başına ve “Ben, Bay Filistin” diye başlıyor konuşmaya... Koridorda duyduğu bir ses koparıyor onu geçmişinden ve “Bay Filistin ölüyor...” diyerek dönüyor odasına...
+   <br>
+    <br>
+     Bay Filistin onlarca kez ölümün eşiğinden döndü. Bir helikopter kazası, bir ağır kalp krizi atlattı ve hemen tamamının arkasında Ariel Şaron’un imzası olan onlarca suikast girişiminden sıyrılmayı bildi. Biyografisini yazanlar ondan “sağ kalan adam” diye bahsediyorlar. Ama Ramallah’taki ofisinde fiilen esir Arafat da, dışarıda gelişmelerin gidişatını tedirginlikle izleyen İsrail askerleri de biliyorlar ki bu kez durum farklı. Ürdün’de, Lübnan’da, Şam’da ve nihayet Tunus’tayken arkasında hep kaçacak bir yerleri olan Arafat bugün çepeçevre kuşatılmış durumda. Filistin halkının kaderiyle öylesine bütünleşmiş ki kaderi, onun can güvenliği Filistin davasının hayatiyetiyle bir tutuluyor. Ve dünya soruyor: Arafat’a ne olacak?
+     <br>
+      <br>
+       Savaş bu noktaya nasıl geldi?
+       <br/>
+       <br/>
+       Arafat—Şaron savaşı Arafat’ın Kuveyt tabanlı El—Fetah örgütünü Ürdün’e taşıyıp İsrail’e karşı silahlı operasyonlar başlattığı 60’lı yıllara denk düşer. 1967 öncesinde operasyonları marjinal kalan El—Fetah, Altı Gün Savaşı’nın İsrail tarafından kazanılıp Batı Şeria topraklarının bu ülkenin eline geçmesinden sonra İsrail hedeflerine daha kolay ulaşabilecek bir halk tabanı elde etti. Şaron’un, Arafat’ın hafsalasında oluşturduğu “düşman” imajı ise daha 1953 yılında şekillenmişti. Bu yıl içinde Şaron’un oluşturduğu Kuvvet 101 adlı bir paramiliter birlik, İsrail’in sınırlarındaki mülteci kamplarına yönelik saldırılar örgütlemeye başlamıştı. Özellikle Ürdün’deki Kibya Mülteci Kampı’na yönelik saldırılarıyla dünya kamuoyunda tanınan Şaron, 1956 Süveyş Kanalı Harekatı’nda paraşüt birliklerini kumanda etti. Disiplinsizliği yüzünden Genelkurmay Başkanı Moshe Dayan tarafından cezalandırılan Şaron’un “kendi kişisel başarısı için askerlerini göz göre göre ölüme gönderdiği” belgelenmiş, dört subayı bu mahiyette rapor sunmuşlardı.
+       <br/>
+       <br/>
+       Arafat’ın Ürdün Kralı ile arasının açıldığı 1970—71 yıllarında Şaron da askerlik hayatının en “başarılı” harekatlarından birini gerçekleştiriyordu. “Gazze’nin Pasifleştirilmesi” operasyonunda Gazze Şeridi’ndeki mülteci kampları yerle bir edilmiş, çok sayıda Filistinli haksız yere hayatlarından, evlerinden veya özgürlüklerinden olmuştu. Arafat örgütüne yeni bir “güvenli bölge” oluşturmak için Lübnan’a geçerken Şaron da ordudan siyasete geçecek, ve Likud’un kuruluşuna katkıda bulunacaktı. 1973 Mısır—İsrail Savaşı’nda yeniden orduya çağrılan Şaron bu kez Süveyş Kanalı içlerine bir operasyonu yönetecek; ancak sonra yeniden siyasete atılarak milletvekili seçilecekti. Arafat ise, Arap dünyasında Filistin halkının “tek meşru temsilcisi” olarak kabul görmeye başlayacaktı.
+       <br/>
+       <br/>
+       Siyaseti savaşçı ruhuna uygun görmeyen Şaron bir yıllık milletvekilliğinden sonra istifa ederek Negev’deki aile çiftliğine geri döndü. 1977 yılında Likud Partisi iktidara geldiğinde Başbakan Menahem Begin’in altında yerleşim birimlerinden sorumlu Tarım Bakanı olarak görev yaptı. Dünya tarihinde bir tarım bakanının ülkenin geleceğini böylesine etkilediği asla görülmemiştir. Şaron Batı Şeria ve Gazze Şeridi’nde başlattığı yerleşimcilik faaliyetleriyle işgal edilmiş toprakları “Yahudileştirmeye” başlamış ve kısa zamanda Batı Şeria’da stratejik önemi haiz noktalarda onlarca yerleşim birimi kurdurmuştu. Yerleşimcilik politikası 1981 yılında Likud Partisi’nin yeniden seçilmesinde önemli bir katkı sağlayınca Şaron yeni kabineye Savunma Bakanı olarak girdi. Şaron ve Arafat’ın kişisel savaşının Arafat’ın hayatını tehdit etmeye başlayışı bundan sonradır.
+       <br/>
+       <br/>
+       1982 yılında “Galile İçin Barış” adı altında Güney Lübnan’ın işgalini gerçekleştiren İsrail Ordusu’nun temel hedefi son on yıldır Lübnan topraklarında yarı devlet statüsünde faaliyet gösteren FKÖ’nün bölgeden uzaklaştırılmasıydı. Savaşın sonunda Lübnan rakamlarına göre yüzde 90’ı sivil, 14.000 insan hayatını kaybetmişti. Güney Lübnan’ın 20 yıl İsrail işgalinde kalmasını sağlayan operasyon Arafat ve Arafat’ın askerlerini de etkin bir biçimde Lübnan topraklarından uzaklaştıracaktı. Arafat’ın FKÖ savaşçılarının Lübnan’ı boşaltması sırasında gösterdiği kahramanlıklar Filistinliler arasında hâlâ anlatılır. Bu sırada defalarca İsrail özel birliklerinin kendisini ortadan kaldırmaya yönelik girişimlerini atlatan Arafat, Şaron’un “düşman modeli” olup çıkmıştır.
+       <br/>
+       <br/>
+       Arafat Lübnan sonrasında bir yıl kadar kaldığı Şam’dan çıkartılırken Savunma Bakanı Şaron da Kahan Komisyonu’nun raporuyla Sabra—Şatilla katliamından dolaylı olarak sorumlu bulunmuş ve istifaya zorlanmıştır.
+       <br/>
+       <br/>
+       Arafat’ın Tunus’ta geçirdiği sıkıntılı yıllar Şaron için de gündemden uzak yıllar oldu. Savunma Bakanlığı’ndan istifa etmekle birlikte devlet bakanlığı görevini devam ettiren Şaron, bir yıl boyunca Negev’de kaldı. 1984—1992 arasındaki milli birlik hükümetlerinde dış politika ve savunma konularından uzak bakanlıklarla avutulmaya çalışıldı. Bakanlık görevini yerleşim birimlerinin artırılması ve büyütülmesi için kullanan Şaron, Oslo Anlaşmaları’nı yapan Rabin Hükümeti sırasında parlamentodaki Dış İlişkiler ve Savunma Komisyonu’nda görev yaptı ve Oslo Anlaşmaları’nın azılı muhalifiydi.
+       <br/>
+       <br/>
+       Bu arada çatışmacı liderlik vasfından diplomat vasfına kayan Arafat da İsrail’de iktidarı elinde bulunduran ılımlı solcularla barış masasına oturmayı başarmış ve 1993 yılında kendisini en son 1956 yılında gördüğü Gazze topraklarına geri getirecek Oslo sürecini başlatmıştı.
+       <br/>
+       <br/>
+       İshak Rabin’in öldürülmesinden sonra başlayan intihar saldırıları ve nihayet başında Binyamin Netanyahu’nun bulunduğu Likud Partisi’ni iktidara getiren 1996 seçimleri Arafat—Şaron savaşına yeni boyutlar kazandırdı. Netanyahu Hükümeti’nde önce Milli Altyapı Bakanlığı yapan Şaron bilahare Dışişleri Bakanlığı’na getirildi ve Ekim 1998’deki Wye Plantation Görüşmeleri sırasında yarım asırlık düşmanıyla yüz yüze gelmek zorunda kaldı. Burada Arafat’ın elini sıkmamakta direten Şaron, Oslo Süreci’nin tarihe karışmasında önemli bir rol oynadı. Barak’la birlikte ılımlı solu yeniden iktidara taşıyan 1999 seçimleri Şaron’un radikal politikalarına darbe vurmakla birlikte intihar saldırılarının arkası kesilmedi ve Barak—Arafat ikilisinin Oslo Süreci’ni yeniden canlandırmak için verdikleri bütün uğraşılar başarısızlıkla sonuçlandı.
+       <br/>
+       <br/>
+       2000 Camp David görüşmeleri İsrail ile Filistin arasındaki uçurumun kapatılamazlığını ortaya koydu ve görüşmelerin başarısızlığı Barak Hükümeti’nin sonunu getirdi. 28 Eylül’de muhalefet lideri olarak Şaron’un Aksa Camii’ne yaptığı sansasyonel ziyaret taraflar arasındaki bütün köprülerin atılmasıyla sonuçlandı.
+       <br/>
+       <br/>
+       Savaşta son perde: Aksa İntifadası ve işgal
+       <br/>
+       <br/>
+       Şaron’un “Aksa ziyareti” ile patlak veren Aksa İntifadası, hemen İsrail ve Filistin çapında yayıldı. İntihar saldırıları, İsrail’in misillemeleri ve hedefli öldürmeler bölgedeki gerilimi sürekli tırmandırdı. Başbakan Şaron’un her terör saldırısından sonra bütün sorumluluğu Arafat’a yüklemesi, buna karşılık terör örgütlerinin bilinen liderlerini bir defa olsun zikretmemesi Şaron’un yeni savaşının “kişisel” olduğunun bir göstergesi. 18 ay süren Aksa İntifadası boyunca Şaron, Arafat’ı “katil, hain, terörist başı, bizim Bin Ladin’imiz, terör ağının ev sahibi, konuyla alakasız, İsrail’in ve hür dünyanın düşmanı” ifadeleriyle yaftaladı. İntihar saldırılarına karşı girişilen operasyonlarda terörün altyapısıyla değil, Filistin Otoritesi’nin altyapısıyla uğraştı. Arafat’ın evi ve ofisi defaatle bombalandı, uçağı ve helikopterleri havaya uçuruldu ve nihayet karargahına hapsedildi.
+       <br/>
+       <br/>
+       Ramallah’ta hapis durumundayken bile gerçekleşen saldırıları Arafat’ın organize ettiğini iddia eden Şaron bir taraftan Filistin polisinin araç ve binalarını bombaladı, diğer yandan aynı polisin terörü durdurmak için gayret sarfetmediğini iddia etti. Dahası Şaron’un bu “hedef saptırma politikası” ABD Başkanı George Bush tarafından da desteklendi. İsrail Ordusu’nun Arafat’a uyguladığı Ramallah hapsi geçtiğimiz 28 Mart akşamı gerçekleşen Netanya saldırısı ile bilfiil işgal ve tecrit politikasına dönüştü. Arafat’ın karargahında kendi kaldığı kat haricinde bütün ofisler işgal edildi. Elektrik ve sudan mahrum, telefon hatları kesilmiş Arafat, bu tecrit halindeyken gerçekleştirilen terör eylemlerinden dahi sorumlu tutuldu.
+       <br/>
+       <br/>
+       Kişisel savaşın arkasındaki stratejiler
+       <br/>
+       <br/>
+       Şaron’un Arafat’ın hayatına son verip vermemekte kararlılığı tartışılsa da, “Arafat çağı”nı kapatmak istediği açık. Arafat çağına son verme stratejisine göre İsrail Ordusu’nun Arafat’ın karargahı çevresindeki kuşatmasının temel amacı dünya kamuoyunun dikkatlerini ordunun Batı Şeria ve Gazze Şeridi’nde girişeceği kapsamlı operasyonlardan uzak tutmak. Bu arada Arafat sonrasında lider boşluğunu dolduracak “tehlikeli isimleri” yok etmek. Stratejinin birinci kısmı tutmuş görünüyor. Haberlerin yüzde 90’ı Arafat’ın esareti ve geleceğiyle ilgili.
+       <br/>
+       <br/>
+       Stratejinin ikinci kısmı bir tek çatlak haricinde olanca hızıyla uygulanıyor. Arafat sonrası için lider adayı olarak gösterilen Cibril Rejub hali hazırda İsrail Ordusu’nun gözetimi altında. Haberalma’dan sorumlu Tevfik Tiravi, Arafat’ın dış bağlantılarını sağlayan Nebil Ebu Rudeyne gibi genç isimler Arafat’la birlikte Mukata Karargahı’nda kuşatılmış durumdalar. İsrail’in arkasında olduğu ve müstakbel liderliğinden korktuğu Mervan Barguti ise kayıplarda. Şaron’un “konuşmak istemeyeceği bütün liderleri ortadan kaldırma” stratejisi tek çatlağı bile kaldırmayacağından Barguti’nin ele geçirilmesi şu andaki operasyonların belkemiğini oluşturuyor. Filistinliler İsrail Ordusu’nun Barguti’yi teslim olmaya zorlamak için altmış kadar akrabasını tutukladığını ve bunlardan dokuzunu idam ettiğini iddia ediyorlar.
+       <br/>
+       <br/>
+       Bu perdeden sonra Şaron’un ne yapacağı bilinmiyor. Koalisyonundaki radikal partiler ve bugünlerde yanına aldığı Netanyahu Arafat’la birlikte Filistin Otoritesi’nin de ortadan kaldırılmasını savunuyor. Şaron ise geçmişte Filistin’in bazı liderleriyle konuşmaya hazır olduğunu açıklamıştı. Arafat’ın Ramallah’ta tecrit edildiği dönemde Dışişleri Bakanı Şimon Peres’in Ebu Ala ve Ebu Mazen gibi pragmatik isimlerle yaptığı görüşmeler İsrail’in Arafat’a alternatif bir Filistin liderliği aradığının ilk işaretleri olarak görülmüş, ancak bu yorumlardan sonra her ikisi de İsraillilerle görüşmelere devam etmeyi reddetmişlerdi. Şaron’un bir sonraki adımı Filistin’de kendi kabul edeceği bir Filistin Devleti fikrini destekleyecek bir liderlik oluşturmaksa, bunun için yeni bir isim üzerine yoğunlaşması gerekecek.
+       <br/>
+       <br/>
+       Bu analiz doğruysa cevaplanması gereken soru Şaron’un Arafat’ı ortadan kaldırmadan Arafat çağına nasıl son vereceği. Arafat’ın Ramallah’taki ev hapsinin halk tabanındaki meşruiyetini yok edeceği beklentisi olsa da, Arafat’ın bugünlerde gerek Filistin’de gerekse dünyada desteğinin arttığını kaydediyorlar. Arafat’ın mum ışığında yabancı devlet başkanlarıyla yaptığı görüşmelerin görüntülerinin İsrail’in işine yaramadığını anlayan Şaron, derhal Mukata Karargahı’nın elektriklerinin bağlanmasını emretmişti.
+       <br/>
+       <br/>
+       Hasılı Şaron’un ilk planı tutmuyor. Şaron’un yedek stratejisi Arafat’ı sürgüne zorlayarak pasifleştirmek. Ama tarihten ders almadığı görülüyor. Oslo görüşmeleri öncesinde Arafat’la değil de Filistin’den çıkacak bir liderlikle görüşmek isteyen İsrail o dönemde Faysal Hüseyni ve Hanan Aşravi’nin isimlerini öne çıkarmış, ancak sonuçta Oslo’ya imzayı atan Arafat olmuştu. Şaron, Arafat’ın yorgun kalbinin sürgünün psikolojik baskısına dayanamayacağını umuyor olabilir. Ama Ramallah’ta köşeye sıkışmış Arafat’ın “meydan okuma karşısında” nasıl güç kazandığı ortada. İsrail, Mısır’la, Avrupa Birliği’yle onun sürgün işi için kulisler yapsa da, Arafat asla Filistin’i terketmeyeceğini açıkça söylüyor. Şaron’a kalan, Arafat’ın doğal ölümünü beklemek. Ancak Azrail’in kimi önce ziyaret edeceğini kim bilir?
+       <br/>
+       <br/>
+       Hapis, sürgün, ölüm... Yorumcular İsrail’in değişiklik gösteren açıklamalarının Arafat’a ne yapacakları hakkında kendilerinin de karar veremediklerinin göstergesi olduğunu vurguluyor. “Güvenlik Duvarı Operasyonu”nun başlangıcından bugüne Arafat’ın can güvenliğinin garanti altında olduğu ve sürgüne gönderilmesinin söz konusu olmadığı, İsrail’in politikasının Arafat’ın dış dünyadan tamamen “tecrit” edilmesi olduğu açıklansa da,   Arafat’ın “kazara ölebileceği” ve “tutuklanıp yargılanabileceği” yönünde bazı iddiaların basına sızdırılması dikkat çekiyor.
+       <br/>
+       <br/>
+       Arafat’ın öldürülmesi hâlâ gündemde
+       <br/>
+       <br/>
+       Can güvenliği garantilerine rağmen İsrailli yorumcular ve Filistin üst düzey görevlileri Şaron’un sonunda Arafat’ı ortadan kaldırması ihtimalinin güçlü olduğunu belirtiyorlar. Arafat’ın yabancı televizyon kanallarına Şaron’un kendisini öldürtmeye kararlı olduğunu iddia etmesinin yanısıra Filistinli baş—müzakereci Saeb Erakat da İsrail’in Arafat’ı ortadan kaldırmak istediğini kaydetmiş, bu hususta verilen Amerikan garantisine güvenmediklerini söylemişti. ABD’nin Güney Lübnan işgalinin üçüncü ayında FKÖ savaşçılarının Beyrut’u boşaltmaları şartıyla bölgede yaşayan Lübnanlı ve Filistinliler için de Arafat’a verildiği gibi “can güvenliği garantisi” verdiğini, fakat bunun Şaron’un mülteci kamplarında gizlendiklerini iddia ettiği 2 bin FKÖ savaşçısını bulmak iddiasıyla Beyrut’a yeniden girmesine ve Sabra—Şatilla Katliamı’na engel olmadığına parmak basıyorlar.
+       <br/>
+       <br/>
+       Erakat, Şaron’un “Arafat’ı Lübnan’da öldürtmediğim için pişmanım” şeklindeki ifadesinin “o zaman yapamadığımı şimdi yapacağım” manasına geldiğini kaydediyor. Şaron, 1982 yılında Arafat’ın öldürülmemesi yönünde bir prensip kararı olduğunu ve Arafat’ın bu sayede hayatta kaldığını iddia ediyor. Oysa Dan Ravi ve Yossi Melman’ın Every Spy a Prince [Her Casus Bir Prens] adlı kitabında Arafat’ı ortadan kaldırmaya defalarca teşebbüs edildiği ve sadece bu operasyonlar sırasında onlarca sivilin hayatını kaybettiği kaydedilir. Arafat’ı avlamak için araba bombalarından hedefli bombardımana kadar her yöntem denenmiş ancak Menahem Begin’in “iki ayaklı canavar” dediği Arafat saldırılardan kaçmayı başarmıştı.
+       <br/>
+       <br/>
+       Arafat’ın öldürülmesi yönündeki en açık ifadeler Şaron politikalarını “fazlasıyla yumuşak” bulan ırkçı milletvekili Avigdor Lieberman’dan geldi. Beyrut Zirvesi öncesinde Arafat’ın Ramallah’ı terk edebileceği yönündeki bir bakanlar kurulu kararını protesto ederek bakanlığından istifa eden Lieberman, İsrail Radyosu’na yaptığı bir açıklamada, İsrail’in kendi askerlerini Ramallah’a göndererek tehlikeye atmasını yanlış bir politika olarak vasıflandırmıştı. İsrail’in yapması gerekenin ABD’nin Yugoslavya ve Afganistan’da yaptığı gibi Batı Şeria’yı havadan bombalayarak Filistin Otoritesi’ni lideriyle birlikte tarihe gömmek olduğunu söyleyen Lieberman, Arafat hayatta olduğu müddetçe İsrail’in terör belasından kurtulamayacağını iddia etmişti.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12009), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005615/http://www.aksiyon.com.tr:80/detay.php?id=12009)

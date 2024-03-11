@@ -1,0 +1,70 @@
+# "Yarınlar"a merhaba
+
+*Şamil Kucur Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302181709im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302181709im_/http://www.aksiyon.com.tr/resim/304/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  ‘Yarınlar Bizim’ ve ‘İlk Öğretmen’ adlı şarkıları, üzerinden eksik olmayan beyaz takım elbisesi ve bir aşağı bir yukarı inip kalkan sol yumruğuyla bir döneme damgasını vurmuş bir sanatçı idi Ali Rıza Binboğa
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   1970’li yıllarda televizyon ve çeşitli büyük gazetelerde yaptırılan anketlerde en popüler, en sevilen sanatçı seçilirdi. Anadolu’yu şehir şehir, köy köy dolaşarak konserler veriyor ve şarkılarını coşku ile paylaşıyordu sevenleriyle. Bu söylenenleri günümüz gençliğinin, hele de 90 kuşağının hayretle karşılaması pek muhtemeldir. Çünkü bunlar mâlum döneme kadar sürmüştü, 12 Eylül 1980 tarihine kadar...
+   <br>
+    <br>
+     Şimdi Ada Müzik tarafından tekrar hatırlanıyor, hatıra arşivlerine kaldırılmış bir portre eski kırkbeşliklerden derlenen 17 şarkılık bir albümle yeniden aramıza dönüyor. Binboğa’nın hayatını, farklı kesitlerinde yaşadığı, duyduğu ve gördüğü olayların yansımalarını görmek mümkün bu albümde. 1968’li yılları yaşamış ve ardından 1980 darbesini de atlatmış bir sanatçı Ali Rıza Binboğa.
+     <br>
+      <br>
+       Kayseri’nin Sarıkız Kazası’nın Ördekli Köyü’nde başlayan hayat yolculuğu İTÜ’den elektrik mühendisi diplomasını aldıktan sonra farklı bir dönemece girer. Bu coşkulu mühendis genç, başarılı olacağı bir başka alana; müzik dünyasına girecek, besteleriyle ve tavırlarıyla ses getiren bir karakter olacaktır.
+       <br/>
+       <br/>
+       Diyetini ödedim
+       <br/>
+       <br/>
+       İsmail Cem İpekçi döneminde TRT’de sıkça görülen Binboğa, daha sonraki hükümetler döneminde ise aynı derecede televizyonda görünme şansını elde edemedi. Fakat bu durum, peşpeşe konserler vermesine ve 45’likler çıkarmasına engel değildi. Safâ Önal’ın yönettiği Yarınlar Bizim adlı bir filmde de rol almıştı. Binboğa, Türk halk müziğinin farklı tonlarını, pop müziğin rahat ve aktif potasında eritmiş, halkın beğenebileceği şarkılar üretmişti. Ancak şartlar sanatçının tam onaltı yıl gibi bir süre sevenlerinden ayrı kalmasını gerektirdi.
+       <br/>
+       <br/>
+       Bu ayrılık Binboğa için bir diyet oldu adeta, sevildiği—sevdiği, paylaştığı, ürettiği yılların diyeti... Bu süre içinde ilginç bir şey yaptı Binboğa: yurtdışına çıkmadı, ‘Ancak, kendimi geri çekmek mecburiyetindeydim. Ben bilinçli olarak kendimi geri çektim, çünkü öyle bir ortamda benim yazacağım şarkılarda ödün verme korkusu vardı. Yani yazdığı her söz masaya yatırılan bir insansanız, her sözünüzün altında birşey aranıyorsa, afedersiniz niye yalancı pehlivan gibi güç kaybedesiniz. Bu nedenle ancak geçimimi sağlayabileceğim işlerle uğraştım’.
+       <br/>
+       <br/>
+       Binboğa, popülarite adına yapacağı bir şey olmadığını farkettiğinde kendisini gönüllü olarak kızağa çektiğini söylüyor. “Bu süre içinde hiçbir ucuz kahramanlığın içinde olmadım ve hiç bir spekülatif olayda bulunmadım. Hiçbir polemiğe de girmedim” diyor ve ekliyor; ‘O yüzden de ben bir derviş sabrıyla yazdığım her şarkının mutlaka bir gün bir yerde değerini bulabileceğine inandım’. İnsanlara biraz küsmüş ve kırılmış anlaşılan. Ancak ‘Kardeşiz Biz’ albümünü çıkarırken ‘Bağışla Türkiyem geciktim’ diye de yazmış albümüne...
+       <br/>
+       <br/>
+       ‘Bir sanatçı için en önemli zorluk sevdiğinden uzakta kalmaktır” diyor. Bu uzak kalmanın sanatçının psikolojisinde oluşturacağı negatif etkileri tanımlamaya çalışıyor: ‘Sevgi gösterilerinden sokakta yürüyemez bir haldeyken vazgeçiyorsunuz, sizden vazgeçiliyor... Oysa sevilmek sanatçı için bir bağımlılık, öyle bir virüs, öyle bir hastalık ki bu, popülaritesindeki en ufak bir yoksulluk bile bunalıma sokmaya yeter sanatçıyı. Hasta olur yataklara düşersiniz.’ Böyle bir dönemeçte sanatçıyı ancak kültürel altyapısının ve kendine duyduğu inancın kurtarabileceğini düşünüyor Binboğa...”Ancak kendisi ile barışık olan insanlar bu badireleri atlatabilir’.
+       <br/>
+       <br/>
+       Çiçekler solmasın!
+       <br/>
+       <br/>
+       “Bu ülkenin insanlarının her biri çiçek gibidir, bu çiçeğe bir halel gelmesin ve solmasın”, Binboğa’nın en büyük dileği bu. Bu ülke insanları arasında barış olmazsa, seni de beni de üzer, seni de beni de insanlıktan çıkarır. Oysa karşılıklı saygı her şeyin çaresi olabilir”. Kardeşiz Biz şarkısını bu birlik ve kardeşlik duygularını paylaşmak için yazmış. ‘Benim yazdığım en güzel melodi idi. Ben insanların kimlikleriyle insan olduklarına inanıyorum. İnsanlar kimliklerini gizliyorlarsa, o zaman kendilerinden bir endişeleri vardır. İnsanlar kimlikleriyle, doğrularıyla, yapmak istedikleriyle vardır. Onu reddettiğiniz zaman kendinizi reddediyorsunuz demektir”.
+       <br/>
+       <br/>
+       Özgürlük ve barış: “Yarınlar Bizim”
+       <br/>
+       <br/>
+       Kardeşiz biz diyor ve bunun temellerini kültürün köklerinden çıkarıyor, “Bizim öyle bir köklü kültürümüz var ki, ister Yunus’a yaklaşır  şiir yazayım, ister Hacı Bektaş—ı Veli’nin felsefesini yapacak kadar felsefe üreteyim, önemli olanın şu olduğunu bilmem lazım: ‘Allah katında hangimiz bir adım öndeyiz? Bunu bir tek Allah bilir. Ama bizi o katta yükseltecek şeylerin ne olduğunu bilebiliriz: özgürlüğü ve barışı örneğin”. Oysa Yarınlar Bizim şarkısının ilk cümlesi için yirmi sene beklediğini söylüyor Binboğa. “Özgürlük ve barış tüm insanların özlemi olacak yarınlarda” dediğimiz zaman, ‘asıl sizin istediğiniz düzende insanlar özgürlük ve barışı özleyecek’ diye karşımıza dikilen, aleyhimize yazı yazanlar vardı o dönem... Yirmi sene sonra gelip, doğru buymuş dediler. O dönemde o şarkıma alınan olumsuz tavıra şarkının bir parti tarafından sahiplenilmesi neden oldu. Bundan da karşı kesimler rahatsız olmuştu. Yoksa sözlerin özüne ve müziğe karşı olduklarını zannetmiyorum. Ancak ben sabırla sözümü değiştirmedim. Özgürlük ve barış kelimeleri bir dönemler siyasi grup ve tercihlerin aidiyeti ile ilgili bir yere karşılık geldiğinden çokça mücadele etmesi gerekmiş Binboğa’nın. Bugün özgürlük ve barış insan onuru ve yaşamı ile ilgili onun için...
+       <br/>
+       <br/>
+       “Sanatçı çok kutsal ve önemli görevler üstlenen insandır”, Binboğa’ya göre sanatçının “hata yapmak” gibi bir lüksü yok! Ve “...sanatçı inanarak yaptığı ve ürettiği eserlerinden taviz vermemeli”. Bu noktada, özellikle şu “dönmek/dönmemek” bahsi açısından katı gibi görünen tavrına açıklama getiriyor: “Ancak bir sosyalistin ağzından ‘Allah yardım ederse’ sözü çıktı diye dönek kabul edemezsiniz, o insanın ‘Muhammed’ demesini de hâkeza”.
+       <br/>
+       <br/>
+       Ali Rıza Binboğa, yaşadığı zor dönemlerden sonra ömrümü verdim dediği yıllara ait şarkılarının yeraldığı albümle döndüğü müzik dünyasında eski popülerliğini yakalayabilecek mi? Bilmiyoruz. Ama o yine de gelecekte yeni albüm ve yeni çalışmalarla sevenlerine şarkılarıyla güne ait sorunları dile getireceğini düşünüyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13890), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302181709/http://www.aksiyon.com.tr:80/detay.php?id=13890)

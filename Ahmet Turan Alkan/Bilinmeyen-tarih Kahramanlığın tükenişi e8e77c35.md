@@ -1,0 +1,100 @@
+# Kahramanlığın tükenişi
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031822im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031822im_/http://www.aksiyon.com.tr/resim/364/67.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Hamâset, sadece kahramanlık hikâyelerine abanıp kalmak değil, kahramanlığın tüketilişidir; satanı anladık da müşterilere ne oluyor diye sormalı. Hamâseti harcıâlem hale getirmek, her gün Hazreti Musa’nın gösterdiği âsâ mucizesini tekrarlamaktan farksız. Mucizenin sirke düşmüş halini tasavvur edebilir misiniz?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   —Ne çağıdır, ne çağıdır?
+   <br>
+    <br>
+     —Ne olacak; çağımız sosyal bunalımlar ve patlamalar çağıdır!
+     <br>
+      <br>
+       —Ha ha ha!..
+       <br/>
+       <br/>
+       ...
+       <br/>
+       <br/>
+       Yine 70’li yıllar; 70’li yıllar demek, 7’den 70’e hemen herkesin bir “vatan tehlikede!” endişesiyle memleketi kurtarmaya, işlere çekidüzen vermeye sıvandığı yıllar. Konferans, seminer, miting, panel, forum gibi ecnebi kavramların adını ilk defa duyuyor olsak da, netice itibariyle birinin konuştuğu, diğerlerinin dinlediği toplantılar mânâsına geldiğini öğrendiğimiz zamanlar. Necib milletimiz ötedenberi kitapla, okumayla başı hoş bir kavim olmadığından, vatanın niçin ve nasıl kurtarılması gerektiğini izah için, ağzı lâf yapar arkadaşların râyicinin yükseldiği günlerdeyiz.
+       <br/>
+       <br/>
+       Devrin en geçerli hitabet tonu şöyle: Sesiniz mikrofonik olacak bir kere. İkincisi kaba ve erkekçe bir sadâsı olacak. Konuşurken yer yer çatlayan, ince, edâsında hafiften kadınsı yumuşaklıklar barındıran halim—selim bir ses tonuyla konuşarak “günün mânâ ve ehemmiyetinin” vurgulanabilmesi, bugün bile hayal sınırlarını zorlayan bir fantezidir. Sâlisen İstanbul şivesiyle telâffuz yerine eğer mümkün ise mahallî ağız özellikleri de aksettirilecek. Bitmedi; nutuk esnasında sesin tonalitesi belirli bir bağırtı frekansının altına hiç düşmeyecek. Daima ciddi ve endişeli bir edâ ile konuşulacak. Espri yapılmayacak!
+       <br/>
+       <br/>
+       Espri dedim de kafamın bir yerlerinden “drinkk” diye bir ses geliverdi; şimdi farkediyorum ki biz 70’li yılların gençleri birbirimize doğru dürüst fıkra bile anlatmamışız; yaşadıklarımızın bir de mizahi boyutu olabileceğini hiç farketmeden o koca on yılı, şimdi bana çok safça görünen bir yapmacık ciddiyet maskesiyle yaşayıp tüketmişiz. Gülmenin ne olduğunu, fıkranın ne işe yaradığını, mizah boyutunu hissetmeden kurduğumuz yapma ciddiyet dünyasının kasvetli öğrenci kantinlerinde, daracık yurt odalarında, okul koridorlarında ve izbe “teşkilat” binalarında yıllarca birbirimize ciddi, gergin ve endişeli suratlar göstererek on yılı geçirivermişiz. 12 Eylül darbesinin ruhlarda meydana getirdiği sarsıntı yatıştıktan sonradır ki, Kenan Paşa hakkında uydurulan fıkralarla gülmeyi yeniden hatırlayabilmiş, yarım yamalak öğrenebilmiştik. Gençliğin her iki kanadında da gülmeyi eğlenmeyi “sululuk, ciddiyetsizlik, karakter düşüklüğü” olarak niteleyen sert değer yargıları üretilmişti çünkü; “Halkımızın tekelci kapitalizmin ve vahşi emperyalizmin pençesinde bir olmak—olmamak mücadelesi verirken...” veya “esir Türk illerinde milyonlarca soydaşımız esaret altında inim inim inlerken...” gülmeye kalkışmanın ne gibi vahim neticelere müncer olabileceği konusunda tahmine kalkışmak mânâsızdır. O günlerde kimimiz yeniden bir milli mücadele şeraiti içinde bulunduğumuzu varsayıyor, kimimiz “halkımızın ulusal kurtuluş savaşımı” içinde olduğunu kabul ediyorduk ve bu büyük lâflar, her halde vara—yoğa gülerek, olur olmaz yerde espri patlatılarak idrak edilemezdi.
+       <br/>
+       <br/>
+       Pür ciddiyet tavırları içinde bir gençlik düşünün; aynen öyleydik işte.
+       <br/>
+       <br/>
+       Safları sıklaştıralım
+       <br/>
+       <br/>
+       Devrin en geçerli konusu hamâsetti. Hamâseti sadece muhafazakâr—milliyetçilerin sıkça başvurduğu bir klişe olarak görüyorsanız yanılıyorsunuz demektir. Sağ hamâset olduğu gibi sol hamâset de vardı; hattâ o günün İslâmcıları sayabileceğimiz Akıncı gençlik de kendine göre hamâset diskuru tutturmuştu. Nutuklarda sıkça vatan veya memleket için şahsi feragatta bulunabilmek övülüyor, bir gencin ancak yüksek mefkûrelere kendini bütünüyle adayabildiği zaman yücelmiş sayılacağı üzerinde duruluyor ve tabii şahsi fedâkârlığın sert bir disiplin içinde memleket sathına ibzâl edilmesi gerektiğinden dem vuruluyordu. Solcusundan sağcısına bu anafikrin etrafını sol veya sağ edebiyattan alınmış gerekçelerle doldurarak safları sıklaştırıyor ve birbirimizin inancını tazeleyip duruyorduk. Şairlerimiz vardı, minik bir mushaf veya bayrak gibi kalb üzerinde gezdirdiğimiz şiirlerimiz, vecizelerimiz vardı. Kollektif şekilde cesaret artırmaya ihtiyaç duyulduğunda derûnuna bir sıla sıcaklığıyla gömüldüğümüz marşlarımız vardı.
+       <br/>
+       <br/>
+       Bir kere daha âşık olmak içi okumak
+       <br/>
+       <br/>
+       —Arkadaşlar, çağımız bir sosyal bunalımlar ve patlamalar çağıdır!
+       <br/>
+       <br/>
+       Bu cümle, teşkilatta belli bir kıdeme sahip ve bizden yaşça hayli büyük bir ağabeyimizin her seminer, konferans, miting veya toplu sohbette mevzua girmek için başvurduğu bir önsöz klişesiydi. Sesi, yukarda anlatmaya çalıştığım özelliklere tıpatıp uyuyordu. Edası sertti; o da hepimiz gibi birilerine dâ’vayı anlatmak lüzum gösterdiği zaman olağan hâletinden sıyrılıyor, gerginleşiyor, çehresini ancak büyük bir meydan muharebesi arefesinde kurmay subayların takındığı türden bir ciddiyet endişesi istilâ ediyor ve çakmak çakmak bakışlarıyla söze hep böyle başlıyordu;
+       <br/>
+       <br/>
+       —Çağımız bir sosyal bunalımlar ve patlamalar çağıdır! Çağı değerlendirecek kadar bilgi hamûlesine sahip miydi bilmem; sonraki yıllarda bilgisine güvendiğimiz, “vardır bir bildiği” diye itimad ettiğimiz nice insanın ne kadar sathi bir bilgi birikimiyle işi idare ettiğini farkettiğimde şaşırmıştım. Tevekkeli bize boşuna “okuyun, okumak iyidir” deyip durmuyorlardı. Halbuki o devirde herkes —şimdi değişti mi bilmem— önceki kanaatlerini pekiştirmek ve her alanda birkaç paragrafı geçmeyen “doktriner” görüşe bir kere daha âşık olmak için okuyordu. Geçenlerde meclis kürsüsünde bir milletvekilinin;
+       <br/>
+       <br/>
+       —Biz I. Cihan Harbinde yedi cephede arslanlar gibi çarpıştık; hiçbir savaşta yenilmediğimiz halde müttefiklerimizin dayanıksızlığı yüzünden mağlup sayıldık yollu cümlesini işitince, bunun “insanın kendi kanaatlerine âşık olması” olgusuna güzel bir örnek sayılabileceğini hatırladım. Okumuyor değildik, okuyorduk elbette ama bu serbest fikir edinmek maksadıyla yapılan bir okuma değildi ve o yüzden bizden öncekilerin düşünmeden inandığı şeyleri yeniden okumakla birşey kazanmış olmuyorduk. I. Cihan Harbinde yenilmemiştik de Basra körfezinden, kanal harekâtından Suriye cephesinden paldır küldür çekilen hangi orduydu diye sormak isterdim o vekile. Sarıkamış cephesinde üç—beş gün içinde 90 küsür bin kişilik koca Osmanlı ordusunun mahvolmasını da mağlubiyetten saymayacak mıydık? Ya Çanakkale cephesinde olup bitenler? 1915’te Boğazdan yüzgeri eden müttefik gemileri, 1918 sonbaharında Sarayburnu açıklarına nasıl gelebilmişti acaba? Bir mağlubiyeti üç yıl geciktirmek için ödediğimiz bedelin ağırlığını ne zaman hissedebilecektik?
+       <br/>
+       <br/>
+       İşin garibi, çağımızın hakikaten bir bunalım çağı olup olmadığını anlayacak donanımımız yoktu; belki öyleydi, belki değil; mühim olan söze etkili bir giriş cümlesiyle başlamaktı belki de. Dale Carnegie’nin “Söz söylemek ve iş başarmak sanatı” kitabında da aynı şey tavsiye ediliyordu; belki de ağabeyimiz Carnegie’nin kitabından yalnız bu faslı okumuştu fakat bu bizim için o günlerde büyük bir mânâ ifade etmiyordu. Adam iyi konuşuyordu; hitabeti fevkaladeydi. Daha ne olsundu ki; yetiyordu bu kadarı işte!
+       <br/>
+       <br/>
+       Kahramanlığın tüketilişi
+       <br/>
+       <br/>
+       Hamâset, sadece kahramanlık hikâyelerine abanıp kalmak değil, kahramanlığın tüketilişidir; satanı anladık da müşterilere ne oluyor diye sormalı. Hamâseti harcıâlem hale getirmek, her gün Hazreti Musa’nın gösterdiği âsâ mucizesini tekrarlamaktan farksız. Mucizenin sirke düşmüş halini tasavvur edebilir misiniz?
+       <br/>
+       <br/>
+       .....
+       <br/>
+       <br/>
+       Sesini seven adamları sevmedim; galiba onlar da kendilerinden başka kimseyi sevmiyorlardı. Bu hükmü fazlaca insafsız bulabilirsiniz; belki de yeterince sesini seven adam tanımamışsınız demektir. Kendi yüzüne hayran adamlar vardır, kendi bedenine eşi bulunmaz bir Apollon heykeli imiş gibi perestiş edenler, aynada kendini seyrederken huşû ile ürperip, “Yarabbi azametini tasdik ederim; ne güzellikler yaratıyorsun!” diyerek vecd ispazmozlarına tutulan tipler vardır ve böylelerinin zararı olsa olsa kendi hudutlarından taşmaz. Sesine hayran adamlardır ki eğer denk düşüp de dublaj sanatçısı olamamışlarsa, hamâset madeninden başka işleyebilecekleri malzeme bulamazlar. Kahramanlık hallerinin gündelik hayata teksir edilmiş biçimi parodidir; hatta günün birinde kendilerini siyasetin pek âlî mertebelerinde bulmuş olsalar bile bu böyledir.
+       <br/>
+       <br/>
+       ........
+       <br/>
+       <br/>
+       —Söyle bakayım, “ne çağıdır?”
+       <br/>
+       <br/>
+       —Ne olacak; çağımız sosyal bunalımlar ve patlamalar çağıdır!
+       <br/>
+       <br/>
+       —Ha ha ha!..
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12443), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031822/http://www.aksiyon.com.tr:80/detay.php?id=12443)

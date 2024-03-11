@@ -1,0 +1,36 @@
+# BİLGİTEK Fuarı'nı Başbakan Erdoğan açacak
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   1-4 Mayıs 2003 tarihleri arasında Denizli"de gerçekleştirilecek olan BİLGİTEK 2003 Bilgi Teknolojileri Kongre ve Fuarı"na devletin ilgisi büyük oldu. BİLGİTEK 2003"ün açılış konuşmasını Başbakan Recep Tayyip Erdoğan yapacak. Başbakan, 1 Mayıs Perşembe günü 10:00"da makamından video konferans sistemi ile yapacağı bir konuşmayla Denizli"deki BİLGİTEK 2003 katılımcı ve ziyaretçilerine seslenecek.
+   <br/>
+   <br/>
+   Başbakanın Ankara"daki makam ofisine ve Pamukkale Üniversitesi Kongre, Fuar ve Kültür Merkezi"ndeki konferans salonuna yerleştirilecek video konferans cihazları sayesinde, Recep Tayyip Erdoğan açılışta interaktif bir konuşma yapacak. Başbakan konuşması sırasında Denizli"deki katılımcılardan gelecek soruları yanıtlayacak ve onlarla görüş alışverişinde bulunacak. BİLGİTEK 2003"ün açılış töreninde başbakanın yanı sıra Milli Eğitim Bakanı Doç Dr. Hüseyin Çelik de video konferans yoluyla bir konuşma yapacak.
+   <br>
+    <br>
+     Yaklaşık 1.3 milyar dolarlık ihracat hacmine ve KOBİ yoğunluğuna sahip olan Denizli, üretim alanında yeni teknolojileri yoğun olarak kullandığı için sektörün de ilgisini çekiyor. İlki geçen yıl Pamukkale Üniversitesi tarafından BİLGİTEK 2002 adı ile düzenlenen Bilgi Teknolojileri Kongre ve Fuarı, bilişim şirketlerini Denizli"nin hızla değişen yeni yüzüyle tanıştırmak ve sanayi ile bilişim sektörü arasında yeni işbirlikleri yaratılmasına olanak tanımak amacıyla düzenleniyor. Sektör temsilcileri ve akademisyenler tarafından Anadolu"da gerçekleştirilen en büyük organizasyon olma hedefiyle düzenlenen BİLGİTEK 2003"te, bilgi ve iletişim sektörlerinde sunulan ürün, çözüm ve hizmetler ziyaretçilerin beğenisine sunulacak. E-devlet ve e-belediye gibi kavramların da işleneceği fuarda e-iş, e-ticaret ve e-eğitim çözümleri ile tıbbi bilişime yönelik ürün ve hizmetlerin tanıtımı da yapılacak.
+     <br>
+      <br>
+       Bilgi için, www.pamukkale.edu.tr ve www.atlaspr.com/bilgitek adreslerine bakılabilir.
+       <br>
+        <br/>
+        <br/>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 306 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2512), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043704/http://www.aksiyon.com.tr:80/yazdir.php?id=2512)

@@ -1,0 +1,76 @@
+# El Cezıre, We’l Demokrası
+
+*Abdülhamit Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093355im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093355im_/http://www.aksiyon.com.tr/resim/358/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Almanya’dan, Japonya’dan, Rusya’dan, Kanada’dan, İngiltere’den CNN’e bir rakip çıksaydı, kimse umursamazdı ama galiba kimse Körfez’de çoğu kimsenin haritadaki yerini bile kolay kolay gösteremeyeceği Katar’dan CNN’e çok güçlü bir rakip çıkmasını beklemezdi. Galiba tam da gerçek küreselleşme denen olaydı bu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Dış dünyada üne kavuşmadan çok önce Arap dünyasında şöhreti yakalamıştı El Cezire. Mesela bir gün Ürdün’den bir bakan ve ABD’den Arap asıllı bir profesör El Cezire sütüdyolarında hararetli bir tartışma yapmaktadırlar. Konu, Ürdün diye bildiğimiz Haşimi Krallığı’nın aslında tamamen İsrail’in güvenlik ihtiyaçları gerekçesiyle kurulmuş uydu bir yönetim olduğudur. Müteveffa Ürdün Kralı Hüseyin’in İsrail’le özel ilişkileri masaya yatırılmaktadır (Kral o zaman daha sağdır). Dünyanın demokratik ülkelerinde bile kolay kolay yapılamayacak böyle bir tartışma, Londra’da ya da Washington’da değil Arap dünyasının orta yerinde yapılmaktadır. Program yayınlanmadan önce Ürdün yönetimi yayını durdurmak için elinden gelen herşeyi yapar. Ama nafile. Aksine program 3 kez tekrar tekrar yayınlanır. Tabii ardından kızılca kıyamet kopar. Televizyonun Ürdün’deki bürosu apar topar kapatılır. Sonra muhabirinin akreditasyonu iptal edilir.
+   <br>
+    <br>
+     Başka bir sahne. Cezayir Cumhurbaşkanı Butelfika canlı yayın konuğudur. Olacak bu ya, tam da yayının ortasında Kosova’ya NATO bombardımanı başlar. Tereddüt edilmez ve öncelik sıcak haberdedir. Koca cumhurbaşkanının röportajına son verilir. Ve Cezayir o gün bugündür cumhurbaşkanına yapılan bu tavrı sindirememiştir. Çünkü hâlâ El Cezire muhabirlerinin Arap dünyasında giremediği ülkelerden biri bu ülkedir.
+     <br>
+      <br>
+       1990’daki Körfez Savaşı’ndan bu yana geçen 10 yılda bölgede yaşanan belki en büyük, en gözle görünür değişikliktir El Cezire. Körfez Savaşı’nda hafızalardan çıkmayan canlı canlı savaş yayınıyla adından söz ettiren CNN’in karşısında şimdi kılıcının iki tarafı da kesen El Cezire vardır.
+       <br/>
+       <br/>
+       Çoğu diktatöryel rejimlere sahip Arap dünyasında böyle bir medya kuruluşu nasıl doğmuştur? Katar gibi 800 bin nüfuslu bir Körfez şeyhliği, S. Arabistan, Mısır gibi önde gelen Arap ülkelerinin baskılarına boyun eğmeden bu projeye desteğini nasıl sürdürebilmiştir?
+       <br/>
+       <br/>
+       ABD’nin Afganistan operasyonunda Körfez Savaşı’nın aksine medyaya getirmeyi düşündüğü sınırlama uygulamasını boşa çıkaran El Cezire televizyonu galiba Arap dünyası dışında Üsame bin Ladin’in operasyonun başlamasından hemen sonra özel açıklamalarını yayınladığı ana kadar fazla bilinmiyordu. Halbuki 1996 yılından bu yana Arap dünyasında neredeyse istisnasız her evde El Cezire televizyonu izleniyor. 1998’de Bağdat’ın bombalanmasını dünyaya görüntüleriyle geçen tek televizyon kanalı o olduğu gibi, Aksa İntifadası’nı neredeyse hergün canlı yayınlayarak Arap dünyasını ayağa kaldıran o idi. Körfez Savaşı’nın parçaladığı Arap dünyasını 10 yıl aradan sonra tekrar biraraya getiren kamuoyu etkisinin arkasında da El Cezire’nin olduğuna inanılıyor.
+       <br/>
+       <br/>
+       Bush’un çok sinirlendiği, hatta kimilerinin Ladin tarafından finanse edildiğini söylediği televizyon, başlangıçta Arap yönetimlerinden Amerikan başkanından daha büyük tepkiler almış. Arap dünyasındaki yönetimleri sorgulayan haberler karşısında bölgede kullanılacak ilk mekanizma tetiklenmiş Cezire’ye karşı: Arkasında İsrail var. Televizyonun Türkiye’deki temsilcisi Yusuf el—Şerif “Arap dünyasında otoriter yönetimlere eleştiri yöneltildiği zaman kullanılacak ilk silah budur’ diyor. Suriye’deki Hafız Esat yönetimini Hama Katliamı dosyasını açarak sorgulamış televizyon. Bu katliamın kabul edilmesi, zararların tazmin edilmesi ve toplumla barışılması çağrısında bulunmuş. Bir tür tabu konuların tartışıldığı ‘ters yön’ adlı program, bizde özel televizyonların hayatımıza girdiği dönemlerde izlediğimiz Ateş Hattı, Dinamit, bir miktar da olsa Siyaset Meydanı gibi programları çağrıştırıyor. Ürküttüğü fincancı katırları dolayısıyla bugün Cezayir, Tunus ve S. Arabistan’a giremeyen El Cezire’nin tutkunları da yok değil. Televizyonun hayranları arasında en üst seviyelerde kişiler de var. Örneğin Yemen Cumhurbaşkanı “Yemen’de olup bitenleri dahi Yemen televizyonlarından değil El Cezire’den öğreniyorum” diyor.
+       <br/>
+       <br/>
+       Ladin de çıkıyor Şaron da
+       <br/>
+       <br/>
+       Objektifliği, evrensel habercilik anlayışı, diğer taraf Araplar’ın can düşmanı İsrail de olsa bütün tarafların görüşlerine yer vermedeki titizliği nedeniyle bir vakıa, bir oldu bitti olarak şimdilerde kabul görmüşe benziyor. Şaron gibi bir İsrail yöneticisine bile canlı yayında görüşlerini açıklama fırsatı vermiş ilk Arap televizyonu olduğu söyleniyor. Değil Şaron gibi şaibeli bir İsrailli’ye, daha önceki Arap televizyonlarının İsrail görüşlerine asla yer vermediği düşünülürse El Cezire’nin farklılığı belki daha iyi anlaşılır.
+       <br/>
+       <br/>
+       Arap medyasını bilenler bilir, orada herhangi bir medya kuruluşundan bahsederken mutlaka cümlenin başına yarı—resmi gibi bir sıfat iliştirilir. Peki ya El Cezire? Onu diğerlerinden ayıran neydi?
+       <br/>
+       <br/>
+       Herşey Arap dünyasında pek benzeri yaşanmamış bir devrimle başlar. 1994’te Katar’daki Prens Muhammed babasını tahttan indirerek iktidarı eline alır. Babasını İsviçre’ye gönderir. Kral Muhammed, İngiltere’de eğitim görmüş, değişimden yana, liberal eğilimli genç kuşaktandır. Babasının cebinde ya da özel banka hesaplarında sakladığı krallığın parasını modern alt yapı harcamalarına yönlendirir. Yalnız babasına değil bölgedeki klasik, değişime kapalı, despotik yönetim biçimlerine de soğuk bakmaktadır. Bu düşüncelerle El Cezire adında özgür bir televizyon kurulmasını emreder. Televizyon için bir yönetim kurulu oluşturulur. Hükümet ile arasında hiçbir bağ olmamasına özenle dikkat edilir. Ve genç kral televizyonun 5 yıllık bütçesi olan 150 milyon doları peşin verir. Hiç kimseye bağlı olmaması, şantajlardan etkilenmemesi için bunu yapar. Ancak bir şartı vardır: Bundan sonra televizyon kendi kendini çevirecektir. Suudi Arabistan’ın etkisinde 1989’da kurulan MBC televizyonunun kötü tecrübelerinden yararlanılır. Çünkü bu televizyon da aynı niyetlerle kurulmuştur, ancak çok geçmeden Suud yönetiminin etkisine girmiştir. Bu arada BBC’nin 1994’te Arap dünyasına yönelik kurup işletmesini başaramadığı bir televizyonun kadrosu da tamamen transfer edilerek kadro ihtiyacı karşılanır. Katar’ın siyasi iddiası olmayan, kimsenin ekonomik desteğine ihtiyaç duymayan bir ülke olması, ileride karşılaşılacak müdahaleler açısından bir avantajdır.
+       <br/>
+       <br/>
+       Bu özgürlükçü çizgi ilk etapta Fas, Ürdün, Suriye, Irak ve Mısır’da bürolarının kapatılmasına, muhabirlerinin sınırdışı edilmesine neden olur. Ama şu anda El Cezire yalnız Araplar’ın değil bütün İslam dünyasının kendini dünya çapında kabul ettirmiş en önemli medya kuruluşu olduğu tartışılamaz. Güney ABD, Japonya dışında bütün dünyaya, fasih Arapça’yla yayın yapan televizyonun, uydular vasıtasıyla Arap dünyasında bir demokratik devrim getirebilecek güçte olduğu kabul ediliyor. ABD’de televizyonun 300 binden fazla kablo abonesi bulunmakta. Fasih Arapça’nın kullanıldığı kanal, Arap dünyasının her yerinden hemen hemen tamamı yerli personelle çevrilen bir televizyon.
+       <br/>
+       <br/>
+       Bir dönem El Cezire için çalışan Arap gazeteci Muhammed Adil, bu bölgedeki bağımsız ilk haber televizyonu olan Cezire’nin bütün İslam dünyası için gurur vesilesi olduğunu, hatta yayıncılık anlayışının CNN’den bile üstün olduğunu şu sözlerle dile getiriyor: El Cezire, CNN’den daha objektif. CNN Amerikan emperyalizmi çizgisinde yayın yapar, en azından Batı merkezlidir. El Cezire’de ise bütün dünyaya yer vardır. Orada İslamcı, liberal, muhafazakar bütün sesleri duymak mümkündür. İslam’ı da, demokrasiyi de, insan haklarını da, Arap kültürünü de savunur.”
+       <br/>
+       <br/>
+       Televizyonun Arap dünyası üzerindeki misyonuna da dikkat çeken Adil, “Arap dünyasına demokrasiyi Cezire getirecek. Arap dünyası genelinde köprü oluyor. Halk ve aydınlar arasında bağ kuruyor” diyor.
+       <br/>
+       <br/>
+       Taliban yönetimiyle ilgilerinin özel bir nedenden değil habercilikle ilgili yatırımlarından kaynaklandığını söyleyen televizyon yetkilileri, hiç kimsenin umursamadığı dönemde 1999’da Kabil’de ofis açtıklarını, Afganistan’daki irtibatlarının önceden kurulan bu ilişkiye bağlı olduğunu belirtiyorlar. ABD Dışişleri Bakanı Powell’ın operasyonu destekleyen Katar Emiri’nin ABD ziyaretinde kanalın yayınlarının durdurulmasını istediği, ancak hükümetin bunu reddettiği belirtiliyor. Ankara Temsilcisi Şerif, ABD’lilerin kendilerine zorluk çıkardıklarını ve bazı önemli toplantılarda ambargo uyguladıklarını söylüyor.
+       <br/>
+       <br/>
+       Kesinlikle daha büyük değerlendirme ve incelemelere konu edilmesi gereken El Cezire’nin kısa öyküsü böyle. Ne dersiniz, El Cezire’nin ve aslında sözün gücü özgürlüğün kapısını aralayabilir mi?
+       <br/>
+       <br/>
+       E—Posta: a.bilici@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12766), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093355/http://www.aksiyon.com.tr:80/detay.php?id=12766)

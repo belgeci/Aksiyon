@@ -1,0 +1,93 @@
+# Futbolda aynı tas aynı hamam
+
+*Behram Kılıç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040930043907im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040930043907im_/http://www.aksiyon.com.tr/resim/502/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bu hafta, son dakikada bir aksilik olmazsa Futbol Federasyonu seçimleri yapılacak. Yaşananlar, 7 yıl önce yapılan seçimleri aratmayacak cinsten. Konuşmalar, feryatlar hep aynı. Başrolde görülen isimler de...
+ </font>
+ <p>
+  <font class="content">
+   Milli formayı giymiş eski futbolcuların, ‘bizim zamanımızda kola içecek parayı bile cebimizden verirdik’ diye başlar anıları genelde. Bu tür hatıraları dinlediğinizde dünle bugünün mukayesesini çok iyi yaparsınız, futbolumuzun geldiği noktayı öğrenmek için. Dün milli oyuncularına kola parası verecek gücü olmayan Türkiye Futbol Federasyonu bugün ekonomik yönüyle ülkenin en güçlü kurumlarından biri.
+   <br/>
+   <br/>
+   Futbolda, saha sonuçları itibariyle de bir hayli mesafe katettik, dünya üçüncüsü olduk. Ama maalesef, futbol federasyonu başkanlığı seçimini akıllarda soru işareti bırakmadan, doğru düzgün yapacak bir seviyeye henüz gelemedik. Bir aksilik olmazsa 22 Temmuz’da yapılması beklenen seçimle futbolun yeni patronu belli olacak. Seçim öncesi yaşananlara bakıldığında, Türkiye’nin futbolda belli bir mesafe aldığı görülüyor. Ancak, iş federasyon seçimlerine geldiğinde aynı başarıyı gösterdiğimizi söylemek mümkün değil. Yedi yıl önce yaşananlarla, bu seferki federasyon seçimleri arasında gerek aktörler, gerekse ortaya atılan dedikodu ve karalamalar açısından pek bir fark yok. Aksine, söylemler de aktörler de aynı...
+   <br/>
+   <br/>
+   Kritik nokta yayın ihalesi
+   <br/>
+   <br/>
+   Yıl 1997. 4 yıl için yeniden Federasyon Başkanlığına seçilen Şenes Erzik, F.Bahçe ve Beşiktaş kulüplerinin ilk yapılan naklen yayın ihalesinin karşısında yer alması sebebiyle istifa eder. Cine 5’in 40 milyon dolara kazandığı ihalenin ardından Ali Şen ve Süleyman Seba, kulüplerinin haklarını bu kuruma vermedikleri gibi, açtıkları davalarla maçlarının BİMAŞ (Kanal D ve ATV ortaklığı) tarafından yayınlanmasını isterler. Erzik’in istifasının ardından Trabzonspor Başkanı Mehmet Ali Yılmaz ile Gaziantepspor Başkanı Celal Doğan başkanlığa aday olur. İki aday son sürat hazırlıklarını sürdürürken bir yandan da Show TV ile BİMAŞ (Kanal D ve ATV) arasında yayın kavgası yaşanır. İki grup da başkan adaylarını kendi safına çekmek için büyük uğraş verir. Bu durum karşısında her iki başkan adayı da “Biz kimsenin adamı değiliz” diyerek seçimin yapılacağı 2 Temmuz 1997’de genel kurula katılmama kararı alır.
+   <br/>
+   <br/>
+   Şenes Erzik, 3 Temmuz’da Türk futbolunun kaosa girmemesi için ligler başlamadan seçimin yapılmasını kararlaştırır. 25-26 Temmuz seçim tarihi olarak belirlenir. Alp Yalman, rahmetli Prof. Dr. Kaya Çilingiroğlu, Ufuk Özertem ve Çetin Susan başkanlığa aday olur. Alp Yalman’ın kazanmasına kesin gözüyle bakılan seçim için belirlenen tarih 26 Temmuz’dur. Ancak delegelerin çoğu kongre salonuna gelmez ve seçim de olmaz. Dönemin asbaşkanı Özkan Olcay, yeterli sayıyı bulmak için saat 11.00’de yapılması gereken oylama işlemini 12.30’a kadar uzatmak için kürsüye çıkarak, “Sayımı 12.30’da yapalım. Bu süre Türk futbolunun kurtulması ve özerkliğin elinden alınmaması içindir” diye konuşur.
+   <br/>
+   <br/>
+   Kongreye gelmeyen iki kişi
+   <br/>
+   <br/>
+   Kongrenin yapılabilmesi için 152 kişi gerekiyordur. Ama kongre salonunda 150 kişi vardır. Beklenen iki kişi gelmez. O gün Futbol Federasyonu’nda yönetici olan Haluk Ulusoy da salona gelmeyenler arasındaydı. Seçim yapılamaz. Yaşananları Şenes Erzik, “Şu an Türk futboluna büyük bir darbe vurulmuştur. Kongreye katılmayanlar Türk futboluna en büyük kötülüğü yapmışlardır” sözleri ile eleştirir. Başkan adayı Alp Yalman, “Futbol adına cinayet işlendi. Devletin parasını hiç ettiler. Katılmayanları kınıyorum” derken, diğer aday Kaya Çilingiroğlu da “Bu işlerin altında başka pazarlıklar yatıyor” açıklamasında bulunur.
+   <br/>
+   <br/>
+   Dönemin spordan sorumlu Devlet Bakanı Yücel Seçkiner, Özkan Olcay’ı geçici olarak Federasyon Başkanlığı’na atar. Olcay, federasyonu olağanüstü kongreye taşır ve başkanlığa Abdullah Kiğılı seçilir. Bir süre sonra baskılara dayanamayan Kiğılı, durumu “Havuzu biz kurduk, içinde boğulduk.” sözleri ile özetleyerek istifasını verir.
+   <br/>
+   Türk futbolu bir kaos içine girmiştir artık. O dönemde, Bakan Yücel Seçkiner Küba’ya bir seyahate çıkar. Yerine vekalet eden Orman Bakanı Ersin Taranoğlu, Haluk Ulusoy’u federasyon başkanlığı görevine getirir. Halbuki, Seçkiner’in göreve atamayı düşündüğü isim değildir Ulusoy. Ancak, atama yapılır ve futbolun içine düştüğü kaos, o günlerde Türk usulü bir yöntemle çözüme kavuşturulur.
+   <br/>
+   <br/>
+   Yine aynı oyunlar oynanıyor
+   <br/>
+   <br/>
+   Aradan geçen 7 yıldan sonra bugün de federasyon seçimleri çerçevesinde aynı oyunlar oynanıyor. Yaşananlar yıllar öncesinin senaryolarını hatırlatıyor. Yedi senedir başkanlık yapan Haluk Ulusoy bir dönem daha aynı görevde kalabilmek için Danıştay’ın “iki dönem başkanlık yapan bir kişi üçüncü kez seçilemez” kararına rağmen yeniden aday oldu. Karşısına ise 7 yıl önce de başkanlığa aday olan Mehmet Ali Yılmaz çıktı. Yılmaz, kulüplerin Ulusoy yönetiminden şikayetleri ve yolsuzluk iddiaları karşısında sorumluluk alma gereği hissettiği için aday olduğunu açıkladı.
+   <br/>
+   <br/>
+   Seçim 26 Haziran 2004’te yapılacaktı. Mehmet Ali Yılmaz, arkasında yeterli desteği bulamaması ve oy kullanacak delegelerin seçimden önce açıklanmamaları sebebiyle yarıştan çekildi. (7 yıl önce de çekilmişti). Yılmaz bu sefer kulüplere veryansın ediyordu. Ona göre, kulüpler kayıkçı kavgası yapıyorlardı.
+   <br/>
+   <br/>
+   Haluk Ulusoy kongreye tek aday olarak girmeye hazırlanıyordu ki olan oldu. Olağan Genel Kurul mahkeme kararıyla durduruldu. Gençlerbirliği yöneticisi ve Futbol Federasyonu Delegesi Abdülkadir Aksoy’un açtığı dava sonucunda mahkeme, 25 Haziran günü genel kurulun ihtiyati tedbir yoluyla durdurulmasını kararlaştırdı. Karara gerekçe olarak, futbol federasyonu genel kurulunun nasıl yapılacağının ayrıntılı olarak düzenlenmesine rağmen, yasanın 5. maddesinde yer alan yükümlülüklerin yerine getirilmemesi gösterildi.
+   <br/>
+   Karar karşısında Haluk Ulusoy’un sözleri, 7 yıl önce Şenis Erzik’in yaptığı yorumdan özü itibariyle çok farklı değildir; biraz daha sert olmasından başka: “Futbolu tam 7 sene öne mahkeme kapılarından aldım. Bu kararı aldıranları, futbolun önüne geçenleri, futbolu engelleyenleri bulsunlar, ağızlarını burunlarını kırsınlar. Bunlar futbolun vatan hainleridir, futbola ihanet etmişlerdir.” Ulusoy, eleştirilerini art arda sıralar. Tıpkı o dönemde başkanlığa aday olan Alp Yalman gibi: “Genel kurulun yenisi en erken 15 Temmuz’da yapılır. Hadi seçildik, naklen yayın ihalesi ne olacak? 6 Ağustos’ta, ligler başlayacak. Hangi kulüp, ne zaman hangi parayı alacak da transfer yapacak? Bu delegelerin konaklamaları için yatırılan bu kadar paraya ne olacak? Milletin parası çarçur edilmiştir.”
+   <br/>
+   <br/>
+   Ne kadar da birbirinin kopyası bir seçim maratonu değil mi? Türk futbolu hâlâ demokratik, çağdaş bir seçim yapamıyor. Bunun sebeplerini sorduğumuzda yetkililer, Federasyon Başkanı’nın makam için taviz üstüne taviz verdiğini, futbolda yaşanan kaosun ana sebebinin bu olduğunu söylüyorlar. Bunun yanı sıra, adı ‘birlik’ olan ama bir türlü Türk futbolunun geleceği için ortak karar alamayan kulüpler birliğinin de kendi çıkarlarını düşünerek hareket etmesi bir diğer faktör olarak öne çıkıyor. “Toplumlar layık oldukları insanlar tarafından yönetilirler” diyen Abdullah Kiğılı, 7 yıl önce havuz sistemini bozmak isteyen kulüpler olduğunu; ancak kendilerinin buna müsaade etmediklerini hatırlatıyor: “Doğru hareket ettiğimiz şimdi çok daha iyi anlaşılıyor. Bugün Türk futbolunu yönetenler maalesef günün koşullarına uyan, çağı yakalayacak kişilerden seçilmiyor. Türk futbolunu daha da kötü günler bekliyor.”
+   <br/>
+   <br/>
+   Yılmaz: Özerkliği çıkarttığıma pişmanım
+   <br/>
+   <br/>
+   Futbolumuzdaki özerkliğin mimarlarından, iki kere futbol federasyonu başkanlığına talip Mehmet Ali Yılmaz ise biraz sitemkâr. “Eskiden siyasetçilerden torpili ağır basan federasyon başkanı yapılırdı. Ben özerklik yasasını çıkartarak bunun önüne geçtim. Ancak bugün özerklik yasasını çıkarttığıma pişmanım” diyen Yılmaz’a göre, başkan seçiminde yeterlilik aranmıyor. Delegeler kendi yaşamları sürsün diye federasyona mahkum duruma geldi. Sorumlu konuşma özelliklerini yitirdiler. Habire suçluyorlar, sonra da suçladıklarını seçiyorlar. Federasyon Başkanı veya adayı ise seçilmek için taviz üstüne taviz veriyor. Hatta hiç yapmaması gereken şeyi yaparak siyasetçilerden icazet alıyor.
+   <br/>
+   <br/>
+   Trabzonspor Onursal Başkanı Yılmaz, kulüpler birliğinin yapısını ise “Onlar adı gibi ‘birlik’ olabilseydiler, futboldaki bu kaoslar hiç yaşanmazdı. Şimdi ihale yapıldı. Bence artık kulüpler bundan sonra federasyon başkanının adıyla da çok ilgilenmez. Alacakları paraya bakarlar. Bu yapı içerisinde paradan önemli olan değerler ihmal edilmeye devam edecek” sözleriyle eleştiriyor.
+   <br/>
+   <br/>
+   Kaosun altında, verilen tavizler var
+   <br/>
+   <br/>
+   Şenes Erzik yönetiminde asbaşkanlık yapan, bugünkü havuz ihalesinin temellerinin atılmasında katkıları olan Özkan Olcay da 7 yıl önce yaşanan kaosun ortasındaki isimlerdendi. Ona göre bugün futbolda hâlâ yaşanan kaosun sorumlusu, Futbol Federasyonu Başkanı’nın bir kez daha seçilmek uğruna verdiği tavizler. 3813 sayılı yasanın kazandırmış olduğu özerklikle futbol federasyonu makamının prestijli hale geldiğini dile getiren Olcay, “Bu özerklik çerçevesinde havuz sistemi oluşturuldu. Bugün televizyon yayınlarından elde edilen yaklaşık 200 milyon dolarlık gelir var. Bu rakamın yaklaşık 20 milyon doları federasyonun kasasına giriyor. Söz konusu ekonomik rahatlık bir sürü imkanlarını da beraberinde getirdi. Ancak başkan, makamdan uzaklaşmak istemediği için yasanın özerkliğini zedelemeye başladı” diye konuşuyor.
+   <br/>
+   <br/>
+   Yayın ilkelerini federasyonun belirlediğini anlatan Olcay, “TRT ve Digitürk haftada 4 maç yayınlama kararı aldı. Bu futbol adına korkunç bir cinayettir” değerlendirmesini yapıyor. Olcay’a göre, televizyon kanalları ‘parayı biz veriyoruz, yayını da biz idare ederiz’ diyerek bildiğini okuyor. Bu durumda federasyonun ‘ben özerkim’ demesi mümkün değil.
+   <br/>
+   <br/>
+   Ali Şen: Bıçakçı Fenerbahçe düşmanı
+   <br/>
+   <br/>
+   Kimilerine göre 7 yıl önceki kaosun baş mimarı Ali Şen’di. Dönemin F.Bahçe Başkanı Şen, havuz ihalesini tanımamış, kulübünün haklarını daha yüksek bir fiyat karşılığında BİMAŞ’a satmak için federasyonu mahkemeye vermişti. Ali Şen, futbol iyi yönetilirse para kazanır, kötü yönetilirse para kaybeder görüşünde. Geçen yıl dünya futbolunda 250 milyar dolar para döndü. Bu kadar ilginin ve paranın olduğu yerde güç de vardı. Türkiye için de aynı durum geçerliydi. Dolayısıyla yaşanan sıkıntılar normaldi. Ali Şen, Haluk Ulusoy’u başarılı buluyor. Hatta diğer aday Levent Bıçakçı’yı F.Bahçe düşmanı olarak görüyor. Bilindiği gibi F.Bahçe yönetimi seçimlerde Bıçakçı’yı destekleme kararı aldı. Şen, 7 yıl evvel Erzik’i 4 yabancı hakkını çıkartmadığı için koltuğundan ettiğini söylüyor. “Sözünde dursaydı 1996’da Şampiyonlar Ligi şampiyonu olurduk. O da hâlâ koltuğunda otururdu. Onca kaos da yaşanmazdı.”
+   <br/>
+   <br/>
+   7 yıl önce yaşanan kaosun mimarlarının görüşleri ve düşünceleri böyle. Umarız bundan sonra Türk futbolu saygın bir zemine oturur.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12620&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040930043907/http://www.aksiyon.com.tr:80/detay.php?id=12620&yorum_id=1)

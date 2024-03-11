@@ -1,0 +1,119 @@
+# "Mutlu son kolaycılıktır"
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040222183812im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040222183812im_/http://www.aksiyon.com.tr/resim/472/66.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Yel” gelip küllerimizi savurmadan önce gerçeklerle yüzleşmemiz gerekir. Fakat bilinmez; yangının, külün ve yelin ne zaman geleceği... Müge İplikçi... Bazen kendisini, bazen de kendinin çok ötesini aksettiren, hüzne yasladığı kalemiyle, hiç bitmeyen öyküleriyle “hayatın tam merkezinde bir kadın” olmanın özelliğini ve ağırlığını hissedip ‘kadın’ın penceresinden bakmayı başarmış bir yazar. İplikçi şimdilerde, “Kül ve Yel” ile okuyucularının korktukları gerçeklere doğru açılacak bir kapı ve anahtarla geri döndü.
+  <br/>
+ </font>
+ <p>
+  <font class="content">
+   —Kül ve Yel, ilk romanınız. Perende’den bu yana neler değişti?
+   <br/>
+   <br/>
+   Sayısı belirsiz derecede değişiklik var. Dünkü Müge’den, bugünkü Müge’nin çok farklı olduğunu tüm gerçekliğimle söyleyebilirim.
+   <br/>
+   <br/>
+   —Romanınızda kül ve yelden sıkça bahsediyorsunuz...
+   <br/>
+   <br/>
+   Romanda ara ara bunu vermeye çalıştım. Kül; yangından sonra (yangın sıra sında travmalar yaşayan) insanların unutkanlıklarının ve unutma politikalarının devreye girdiği bir süreç. Ve sonrasında çıkan yel de, bu unutturmayı güçlendiren, pekiştiren bambaşka bir araç.
+   <br/>
+   <br/>
+   —Kitapta diyaloglar dikkat çekecek kadar sınırlı. Bunun özel bir nedeni var mı?
+   <br/>
+   <br/>
+   Diyaloglara çok paye vermek istemedim. Ama yadsınamayacak kadar iç diyalog var. Hatta bir çoğu monolog halinde karşımıza çıkıyor. Anlatıcılar arasında da sürekli bir atlama var. Oradaki amacım; belleğin atlamalarını şeklen de vermekti. Aslını isterseniz diyaloğu bu kitaba yakıştıramadım.
+   <br/>
+   <br/>
+   —Kahramanların betimlemelerinden kaçınılmış, derinlikli karakterler oluşmamış Neden?
+   <br/>
+   <br/>
+   Kül ve Yel, farklı bir roman. Romanın veya öykünün değil, yazınsallığının sorgulanması. Belki de bu yüzden diyaloglar bu kadar az. Ve karakterlerin okurla konuşup aktifleşmesini istedim. İstiyorum ki okur kendisi görsün. Kül ve Yel zahmetli bir yolculuk olabilir ama ipin ucunu yakalayınca çok da keyif alınacaktır.
+   <br/>
+   <br/>
+   —Romanda dikkat çekecek sıklıkta “dehliz” kelimesi geçiyor. Karekterlerin de yoğun dehlizlere girdiğini görüyoruz. Sizce hayatta dehlizlerle mi dolu?
+   <br/>
+   <br/>
+   Hayat giremediğimiz, yüzleşemediğimiz dehlizlerle dolu. Hepimizin kaçtığı dehliz, o yüzleşme anı; kendi kendimizle, kendi yasaklarımızla, kendi sakındığımız duruşlarımızla... Fehime dehlize girmeyi yani yüzmeyi reddetti, tıpkı Bedia gibi. Bedia için de elli yaş bir dehlizdi. Ama o da göze alamadı. Dehlizler, yüzleşemediğimiz sürece yanımızdan öylece akıp gider.
+   <br/>
+   <br/>
+   Düşlerimiz maniple ediliyor
+   <br/>
+   <br/>
+   —Manolya ağacının  karakterler ve kurgu üzerinde özel bir yeri var. Neden manolya ağacı?
+   <br/>
+   <br/>
+   Manolyalar koklandığı anda solarlar. Kırılgan bir yanları vardır. Hayallerimiz hayal edildiğinde güzeldir. Ele geçirdiğimizde işe yaramaz. Ama romanda, hayallerimiz maniple ediliyor. Yani, düşlerimizi bize dayatılan politikalar, gündelik yaşamlar adı altında kuruyoruz. Sokaktaki insanlara “Neyi hayal ediyorsunuz?” deseniz pek çoğu birbirine benzer cevaplar verecektir. Manolya onlardan biri, yani ortak hayal.
+   <br/>
+   <br/>
+   —Müge İplikçi’nin öykü kitaplarında ezilmiş  ve sindirilmiş kadınlar var. Romanda da “Meryem” var ve o da silik bir figür...
+   <br/>
+   <br/>
+   Özellikle silik bırakmayı tercih ettim. Meryem’i ya da Meryem’in uzantılarını ileriki çalışmalarıma bıraktım. Ben, kitap boyunca Fehime’yi anlamaya çalıştım. Meryem, Fehime’nin antagonisti (tezadı) olup, onu ortaya çıkarmak adına var. Fehime’nin kırılganlığını, sevincini bir ayna gibi Meryem’de görüyoruz.
+   <br/>
+   <br/>
+   —Öykülerinizde ve romanınızda hep bir “zamanla oynama” var. Şimdiki zamandan geçmiş zamana, oradan geniş zamana devinip giden bir kurgu var. Bu sizin tarzınız mı?
+   <br/>
+   <br/>
+   Tarzım olduğunu söyleyebilirim. İlk öykü kitabım Perende’den beri bu hep var. Zamanla oynamayı seviyorum. Bana çok ciddi olanaklar sağlayan bir buluş. Bu tarzı kullanan çok yazar var. Zamanlarla oynamasam “ben olarak” yazamam.
+   <br/>
+   <br/>
+   —Romanda en çok sevdiğiniz ve kendinize yakın hissettiğiniz karakter kimdi?
+   <br/>
+   <br/>
+   Kendimle bütünleştirdiğim karakter, Şerif. Onun dik kafalılığı, inadının hiç bir zaman işe yaramayışı, buna rağmen birçok yolu açmaya çalışışı, ailedeki en büyük başkaldırışı gerçekleştirişi ve sonunda çaresiz kalışı...
+   <br/>
+   <br/>
+   —Arkası Yarın’da başkahramanı kadın olan bir futbol öyküsü yazdınız. Bunun nedeni futbolun erkeklere özel olarak algılanmasına bir tepki miydi, yoksa sizin için özel bir alan mı futbol?
+   <br/>
+   <br/>
+   Tam tersine, ilgisiz bir konumda olduğumu da söyleyebilirim. Erkeklerin futbola düşkünlükleri ortada. Tabii bir erkek oyunu olarak algılanması da önemli. Fakat, benim öykümün çeken yanı “Bir kadının futbolu nasıl gördüğü”. Benimkisi bir eleştiri değildi.
+   <br/>
+   <br/>
+   —İlk öykünüz Şakayıklar’ın sizdeki yeri nedir?
+   <br/>
+   <br/>
+   Şakayıklar’ı bir senaryo olarak düşünmüştüm. Bir yarışmaya katılmıştım. Benden, bir yaz gününü anlatmamı istemişlerdi. Ben de Şakayıklar üzerinden anlatmıştım. Jüridekiler bana “Böyle bir yaz tasviri olamaz” demişlerdi. Çok sinirlenmiştim ve bunun üzerine bir öykü yazdım. Ve sonra da ödül kazandım. Böylece yazın hayatım başlamış oldu.
+   <br/>
+   <br/>
+   Mutlu son bana kolaycılık gibi geliyor
+   <br/>
+   <br/>
+   —Sadece Şerif ile Ayla arasında bir aşk var o da mutlu sonla bitmiyor. Ve “Aşkı bulmak yüzyıl sürer” diyorsunuz. Siz aşkı nasıl algılıyorsunuz?
+   <br/>
+   <br/>
+   İlla da bir mutlu son olsun diye düşünmedim. Sevgi, benim kafamda çok boyutludur. Bu karakterler arasında aşktan önce her kula nasip olmayan bir iletişim var. Her şekilde birbirlerini anlıyorlar, birbirine benziyorlar. Amaç; illa da aşkı yaşamak ve kavuşmak değil. Bizler sevginin boyutlarını anlayıp, sırlarını çözmeliyiz. Ki, kitaplarımda mutlu son hiç yoktur. Bu bana kolaycılık gibi geliyor.
+   <br/>
+   <br/>
+   —Romanda “Yangından sonraki, yelden önceki küller, doğruyu söyler” diyorsunuz. Bu sözü romana genel bakış olarak nasıl değerlendirebiliriz?
+   <br/>
+   <br/>
+   Fehime’nin iki dehliz serüveni var. İlki Şerbetçi’de çıkan yangın, ikincisi; Şerif’in babasını arabayla öldürmesi. O anlar gerçekleştiğinde Fehime kendi öz benliğiyle karşılaşıyor. Ev duygusunun anlamsızlığı, göç duygusunun insanlara ne kadar abartılarak anlatıldığı, eşitlik prensibinin nasıl palavra bir şey olduğunu, hayatın güzel olduğu fikrinin sadece romanlarda olduğunu görüyor... Dehlizlere giriyor. Yaşanılan yelle tekrar unutma başlıyor. Tekrar hayatın içine girme, hiçbir şey olmamışçasına devam etme hali...
+   <br/>
+   <br/>
+   —Romanda belli bir bitiş noktası yok. Bunu devamı gelecek olarak algılayabilir miyiz?
+   <br/>
+   <br/>
+   Zaten romanın bitiş noktası, başlangıç noktası. Bir daire şeklinde. Bu kurguyu yine hatırlama ve unutmalara denk düşsün diye yaptım. Ve kitapta sürekli bir şimdiki zaman var. Yani, aslında geçmiş diye bildiğimiz ve geçmiş tanımına uyan her şeyi bir şimdiki zaman içerisinde hatırlıyoruz. Bizim adına “geçmiş” dediğimiz “şimdiki zamanlarımız “var.
+   <br/>
+   <br/>
+   —Sizce Kül ve Yel nasıl bir roman?
+   <br/>
+   <br/>
+   Kül ve Yel, sadece kadınları anlatan bir kitap değil. Daha çok toplumsal cinsiyet rollerini, kadın ve erkek olmanın getiri ve götürülerini sorguluyor. “Kadın olmanın zor, erkek olmanın ise daha da zor olduğunu anlatıyorum. Bu yaklaşımımla feminist bir yazar olarak eleştirilebileceğimi de düşünüyorum.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3296&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040222183812/http://www.aksiyon.com.tr:80/detay.php?id=3296&yorum_id=1)

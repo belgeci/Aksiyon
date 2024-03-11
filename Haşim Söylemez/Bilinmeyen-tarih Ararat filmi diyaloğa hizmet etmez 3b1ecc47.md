@@ -1,0 +1,90 @@
+# "Ararat filmi diyaloğa hizmet etmez"
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119040352im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119040352im_/http://www.aksiyon.com.tr/resim/474/62.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  "Filmi yüzde yüz Türkiye aleyhine olan bir film olarak görmüyorum. Ancak şu da bir gerçek, film bu haliyle Türkler ve Ermeniler arasındaki bu sorunun rahat ve olağan bir şekilde konuşulmasına hizmet etmekten uzak. Bir Ermeni olarak bazı sahnelere bakamadım" Ermeni asıllı Kanadalı yönetmen Atom Agoyan"ın tartışmalı filmi Ararat 16 Ocak"ta Türkiye"de gösterime girecek. Kültür ve Turizm Bakanı Erkan Mumcu, filmin oynatılmasında bir sorun olmadığını söylediği saatlerde toplumun değişik kesimlerinden aykırı sesler çıkmaya başladı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Filmin Türkiye"de nasıl bir tepki alacağı merak ediliyor. Ararat, Türkler ve Ermeniler için ne anlama geliyor sorusu da cevabını arıyor. Ancak her yıl bir yabancı senatodan "Ermeni soykırım" tasarısını geçirten diasporadaki Ermenilerin Türkiye"de yaşayanlardan farklı düşündüğü de göz ardı edilmemeli.
+   <br>
+    <br>
+     Türkiye"deki Ermenilerin önde gelen isimlerinden biri olan Agos gazetesi Genel Yayın Yönetmeni Hrant Dink"le Ararat filmini konuştuk. Dink filmin Türkiye"de gösterilmesinin bir devrim olduğunu belirtiyor; "Ancak bu haliyle Türk Ermeni diyaloğuna hizmet etmez" diyor.
+     <br>
+      <br>
+       Ermeni sorunu doğal alanında tartışılmalı
+       <br/>
+       <br/>
+       -Cannes Film Festivali"nde tartışmalara yol açan Ararat filmi 16 Ocak"ta Türkiye"de gösterime girecek. Siz hâlâ sürmekte olan tartışma ve tepkiler çerçevesinde kararı nasıl değerlendiriyorsunuz?
+       <br/>
+       <br/>
+       Eğer haber gerçekleşirse Türkiye"nin politik zihniyeti en önemli devrimlerinden birini gerçekleştirmiş olacak. Çünkü bugüne kadar Türkiye"nin takındığı tutum Ermeni tarafının söylediklerini açık ve net bir şekilde yasaklamak şeklinde idi. Konu tabu haline getirilmişti. Türkiye"nin kendi iradesinin dışındaki koşullar da süreci pekiştirdi. Söz gelimi ASALA başladığında bir Ermeni sorunu ile karşılaştı. ASALA konusu bittikten sonra Ermenistan"ın bir miktar bağımsızlaşması ve komşu Ermenistan gerçeği önemli bir neden oldu. Ayrıca uluslararası parlamentolarda "Ermeni soykırımı" konusunun geçmesi de gerilimde etkili oldu. Ermeni konusu son yıllarda artık sürekli konuşulan bir mesele halini aldı. Soykırımı iddia edenlerin hangi argümanları kullandıkları Türkiye içinde konuşulmadı. Ararat filmi Ermeniler gözü ile meseleye bakan bir film gibi lanse edildi. Şimdi Türkiye"de gösterime girmesinin bir zihniyet devrimi olarak görmek gerekir. Artık biz korkmuyoruz, kim ne konuşacaksa gelin bu ülkede konuşalım deniliyor.
+       <br/>
+       <br/>
+       -Yani size göre Ararat bu zamana kadar gelen gerilim sürecinin yumuşamasının ilk adımı mı olacak?
+       <br/>
+       <br/>
+       Bence bir kırılma noktası olabilir. Türkiye Ermeni soykırımı meselesine karşı sürdürdüğü politikada ciddi bir değişim sürecine geldiğini gösterdi. Dediğim gibi, gelin konuyu konuşalım denilecek bir hal aldı. Ermeni sorunu bu bölgedeki halklar arasında yaşanmış bir sorun. Ermeniler, Türkler ve Kürtler arasında yaşanmış. Ama olayın esas konuşulduğu yer dünya arenası. Bu bizi doğru bir sonuca ulaştırmaz. Konuyu dünyanın elinden alıp kendi asli alanına çekmek lazım. Bu bölgede, bu topraklarda özgürce ve rahatça konuşulmasını sağlamak gerekir.
+       <br/>
+       <br/>
+       -Ermeni konusu, diasporada yaşayanların sorunu değil mi demek istiyorsunuz?
+       <br/>
+       <br/>
+       Ermeni konusu, dünyadaki Ermenilerin sorunu ve konuşma alanıdır. Onlar konuşmasın demiyorum. Anlatmak istediğim; sorunun, tarihsel problematiğin tarafları bu bölgede yaşayan halklardır. Ve olayın olduğu alan da burası. Dolayısıyla çözecek olan da buradaki halklardır. Diyalog da burada ve onların arasında sağlanır. Amerikan ve Fransa senatoları üzerinden, şuradan buradan değil.
+       <br/>
+       <br/>
+       -Sorunun çözüm alanı olarak bu toprakları gösteriyorsunuz, o zaman neden senatolardan medet umuluyor?
+       <br/>
+       <br/>
+       Bu benim görüşüm. Hrant Dink"in görüşü. Sorunun kesinlikle içeride çözülmesi gerekir. Senatolarda değil. Fransa"daki ve Amerika"daki bir senatonun aldığı karar benim için o kadar önemli değil. Onların meseleyi yeni öğrendiklerini düşünmüyorum. Baştan beri biliyorlardı ve sürekli kendileri için uluslararası politika malzemesi haline getirdiler. Benim için asıl olan bu topraklarda yaşayan tarafların empatiyle birbirlerini anlamaya çalışmaları.
+       <br/>
+       <br/>
+       -Filmle ilgili olarak ilk başlarda sizin Atom Agoyan"a bir çıkışınız vardı; "Nasıl böyle bir film yaparsınız?" diye.
+       <br/>
+       <br/>
+       Ben ona nasıl böyle bir film yaparsın diye bir şey söylemedim. Filmi için Cannes"a gittim ve kendisiyle gazetem için bir söyleşi randevusu almıştım. O bana "Filmi nasıl gördünüz?" diye sordu. Ben de üzgün olduğumu söyledim. "Niçin?" deyince ben de "Filmi alıp Türkiye"ye götürmek için gelmiştim" dedim. "Ama içinde bir iki sahne var, eğer götürürsem varmak istediğimin tersi bir amaca hizmet eder, o yüzden ne yazık ki, böyle bir filmi götüremem" dedim.
+       <br/>
+       <br/>
+       -Şimdi de aynı film Türkiye"ye geliyor. Bir şeyler mi değişti?
+       <br/>
+       <br/>
+       Filmdeki bazı sahneler Türkiye"deki insanların hiç de görmediği sahneler değil. Ben bir Ermeni olduğum halde böyle bir sahneye bakamadım. Şiddet içeren sahnelerden istisnasız nefret ediyorum. Nitekim aynı şiddeti Türk filmlerinde de çok görüyoruz. Malkoçoğlu filmlerinde de var. Sahneler savaşlarda yaşanan sahneler. Agoyan, filmi Cannes"a gelmeden önce "Ben filmi Türk-Ermeni diyaloğunun sağlanması için yapıyorum" demişti. Ben bu diyalog üslubunu filmde görmedim. Benim üzüntüm bundandı. Atom"a şunu söylemiştim; bir-iki sahne olmasaydı filmin Türkiye"ye götürülmesinde hiçbir sıkıntı duymazdım. Sorgulamaya çalışan bir filmdi. Türkiye"de bu sahnelerin kesilerek gösterileceğini zannediyorum. Ben kesilsin de demiyorum. Belki şu olabilir; o bir-iki sahneyi gözümü kapatıp seyrettiğim gibi izleyenler de öyle seyretsinler.
+       <br/>
+       <br/>
+       - Ararat filminin gösterim hakkını satın alan Belge Filmin sahibi Sebahattin Çetin "Filmin Ermeni tezini savunduğunun ve Türkiye"ye karşı bir film olduğunun farkındayız" diyor. Siz bu görüşü nasıl değerlendiriyorsunuz?
+       <br/>
+       <br/>
+       Baktığınız noktayla ilgili bir şey. Agoyan"ın kendi ifadesine önem veriyorum. Hem Türklere, hem de Ermenilere sorgulama seansları sunuyor. Türkiye karşıtlığı olarak görmüyorum. Yüzde yüz Türkiye aleyhine bir film olarak da görmüyorum. Ancak film bu haliyle Türkler ve Ermeniler arasındaki bu sorunun rahat ve olağan bir şekilde konuşulmasına hizmet etmekten uzak.
+       <br/>
+       <br/>
+       ERMENİ RADYOSU KURULUYOR
+       <br/>
+       <br/>
+       Radyo için resmi bir başvurumuz olmadı. TRT"ye yönelik çıkan yerel diller konusundan hareketle Ankara"ya başvuruda bulunduk. "Biz Ermeni topluluğu olarak bu olanaktan yararlanabilecek miyiz?" diye sorduk. Hayır dediler siz yerel dil ve lehçe değilsiniz, ulusal bir devletin dilisiniz, dolayısıyla sizin bu yönetmelikle bir ilginiz yok. Lozan"dan gelen hakların sözkonusu olduğu söylendi. Okullarımız var, gazetlerimiz var, radyo hakkımız varmış da biz kullanmamışız. Şimdi biz radyo hakkını kullanmak istiyoruz. 60 bin Ermeni"ye büyük bir fayda sağlayacaktır. Bu yıl içinde konuyu çözeceğiz. Bir program yapılıyor, netleştikten sonra Ankara"ya resmi başvurumuz olacak. Türkiye Avrupa Birliği için müzakere tarihini almadan önce biz o radyodan kendi dilimizle Avrupalılara müzakare tarihini alışını aktaracağız. Maddi birtakım sıkıntılarımız olacak ama biz kendi topluluğumuz içinde haledeceğiz. 3-4 ay içinde herşey bitmiş olacak.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### osman aydın, 23-Şubat-2004
+> ararata dair...: 
+> bu filme cevap verecek bir türk filmi yokmudur. Erzurumda Karsta yaptıkları katliamı Türklere mi maletmeye çalışıyorlar. Biz ki 600 yıl boyunca her dinden ve ırktan milyonlarca insanı adaletle yönetmişiz. Lütfen biri çıkıp bunları tüm dünyaya haykırsın
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=10006&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119040352/http://www.aksiyon.com.tr:80/detay.php?id=10006&yorum_id=1)

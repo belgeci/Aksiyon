@@ -1,0 +1,110 @@
+# Ceketimi alıp çıktım
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050219184709im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050219184709im_/http://www.aksiyon.com.tr/resim/504/62.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Büyükşehir Belediyesi'nin kültür işlerinin yeni patronu. Divan şiiriyle özdeşleşen Pala, yeni projelerini ve bütün kitaplarını basmak için bir yayınevi kurma uğraşını, L&amp;M'den ayrılma hikayesini ilk defa Aksiyon'a anlattı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İskender Pala, sadece divan şiiriyle anılmayacak artık. Bundan böyle İstanbul'la ilgili pek çok kültürel faaliyetin içinde onun ismini görmeye alışacağız. Son iki daire başkanının Hilmi Yavuz ve Şenol Demiröz olduğu düşünüldüğünde, İstanbul Büyükşehir Belediyesi Kültürel ve Sosyal İşler Daire Başkanlığı'na İskerder Pala'nın getirilmiş olmasının önemi daha iyi anlaşılabilir.
+   <br>
+    <br>
+     Cemal Reşit Rey, Şehir Tiyatroları, Kent Orkestrası, Harbiye Açıkhava Tiyatrosu, Basın Yayın Müdürlüğü ve Tarık Zafer Tunaya Kültür Merkezi, Pala'ya bağlı olan kuruluşların önde gelenleri. Konferanslarına ve iki haftalık periyotlarla yıllarca sürdürdüğü divan şiiri semirenlerine atfen "Daha önce masanın ön tarafındaydık, şimdi arkasındayız" diyor.
+     <br>
+      <br>
+       Aman yazılarınızı bırakmayın
+       <br/>
+       <br/>
+       Ön taraftan arkaya geçmenin farkı yavaş yavaş ortaya çıkmaya başlamış. Koltuğunun altına eklediği yeni büyük 'karpuz', eskilerinin bazılarını diskalifiye etmiş. Dostlarından, “Hocam herşeyi bırakabilirsiniz ama şunu bırakmayın" türünden birçok telkin almış. Sözgelimi, "dergi yazılarını bırakmayın" diyenler dergi editörüymüş. Herşeyi bırakın ama gazete yazılarını bırakmayın diyenler de gazete editörü.
+       <br/>
+       <br/>
+       TRT Radyosu'ndaki programı, divan şiiri seminerleri, üniversitedeki hocalığı sebebiyle de aynı telkinle karşılaşmış. Son durumunu şöyle anlatıyor; "Dergi yazıları askıya alınıyor. Zaman gazetesindeki yazılarıma önümüzdeki haftalarda başlayacağım"
+       <br/>
+       <br/>
+       "Asli görevim hocalık. Ben hoca olmak için yaratılmışım" diyor İskender Pala. Haftada bir Kültür Üniversitesi'ndeki derslerini sürdürecekmiş. Vaktinin çoğunu, "Bir ülke kendi evladına kırk yılda bir böyle önemli bir görev teklif eder" dediği daire başkanlığı için harcayacağı ortada. Ama akademik kimliğinden soyunmaya hiç niyeti yok. "Tarih beni daire başkanlığı ile anar ya da anmaz ama şimdiden divan edebiyatıyla birlikte anacağı kesin" diyor. Pala, sevdiği işi yapıyor olmanın bahtiyarlığını yaşadığını, divan şiirinin kendisi için bir tarz—ı hayat olduğunu ilave ediyor.
+       <br/>
+       <br/>
+       Daha iyisi neden olmasın
+       <br/>
+       <br/>
+       Kültür işleri dairesinin geçen dönemlerden farklı neler ortaya koyacağını sorduğumuzda önceki yıllarda yapılanların bir gömlek üstüne çıkma gayreti içinde olacağını, "Daha iyisi niye olmasın" sorusunu hep gündemde tutacağını söylüyor. Bugüne kadar yapılanların bunu hak ettiğini düşünüyor. Ancak 'ön' tarafta bizzat şahit olduğu bir eksikliği öncelikle gidermekten yana. Aynı mekanda 4 yıl önce gerçekleştirdiği divan şiiri sohbetlerinde insanlar yerde otururken geçen yılki programda boş sandalyelerin oluşu ve etraftan "Hocam eskiden ne güzel program yapıyordunuz" serzenişleri alması üzerine Kültür İşleri Daire Başkanlığı hangi etkinliği yaparsa yapsın öncelikle bunu duyurmak zorunda olduğu inancına ulaşmış. "İstanbulluların kültürel etkinliklerin içine daha çok çekilebilmesi için gerekli zemini hazırlama yanlısıyım" diyor.
+       <br/>
+       <br/>
+       Üzerinde durduğu ikinci konu, İstanbul merkezli geleceğe dönük projeler. Yatırımı uzun zamanlara bağlı, rutin yıllık işlerin dışında acaba İstanbul'u kültür olarak nereye taşıyabiliriz sorusu üzerinde duruyor. Böyle bir şeyin ancak devletin bütün imkanlarıyla yapılabileceğini; dolayısıyla sürekli Milli Eğitim Bakanlığı, Kültür Bakanlığı ve Vakıflar Genel Müdürlüğü ile dirsek teması halinde hayata geçirilebilecek pek çok proje olduğunu söylüyor. Milli Eğitim Bakanlığı'nın İstanbul'da açacağı okulların yanına kültür merkezlerinin inşa edilmesi bunlardan sadece birkaçı.
+       <br/>
+       <br/>
+       Bedava kardeşlik yok!
+       <br/>
+       <br/>
+       İskender Pala'nın önem verdiği iki projesi var. Birinci proje kardeş kentlerle ilgili. İstanbul'un 40 kardeş kenti var. Bunlardan 28'i tam kardeş şehir. Diğerleriyle protokol imzalanmış. Kardeş şehirler 'kardeş' kalmasın, buna işlerlik kazandıralım niyetinde Pala. Projesini şöyle açıklıyor: "Önce 28 kardeş şehrin yöneticilerine bir yazı gönderilecek. Bu yazıda, İstanbul Büyükşehir Belediyesi olarak İstanbul merkezli eser veren bir sanatçımızı size göndereceğiz denilecek. Bu bir ressam, fotoğraf sanatçısı, senarist ya da yazar olabilir. Siz sanatçımızı iki yıl boyunca orada misafir edeceksiniz. Karşılığında siz de bize kendi kentinizi merkez alan bir sanatçınızı göndereceksiniz. Bir kişi bizden size gidecek, bir kişi sizden bize gelecek. Bize gelen sanatçının bütün iaşesi, konaklaması bize ait olacak ve ülke standartlarının biraz üzerinde de maaş verilecek. Size giden sanatçımız da aynı şartlarda ağırlanacak. Bu çerçevede 28 kişi İstanbul'da ağırlanacak."
+       <br/>
+       <br/>
+       İstanbul'a gelen sanatçılardan bir şeyler yapmaları istenmeyeceğini söyleyen İskender Pala, "Sadece İstanbul'da yaşasınlar, burada dostlar edinsinler. Dünyanın çeşitli yerlerinden gelen sanatçılarla tanışsınlar. İstanbul'a âşık olsunlar" diye konuşuyor. Program şartnamesine göre her sanatçı kendi projesiyle bu dönüşüm programına katılacağı için dosyaları iki yıl sonra oluşacak. Bu bir roman, araştırma, senaryo, fotoğraf albümü olabilir. Gidenlerden de gelenlerden de toplam 56 dosya ortaya çıkacak.
+       <br/>
+       <br/>
+       İskender Pala, bunların yarısının hatta dörtte birinin bile hayata geçmesinin çok büyük entelektüel birikime yol açacağı kanaatinde. Peki, beklentiler sonuçsuz kalabilir mi? Pala'ya göre, bir yazar İstanbul'da mehtabın doğuşunu anlatsa, bir senarist bunu senaryoya dönüştürse, bir başkası kamerasını alıp güneşin batışını çekse ve kendi ülkesinde bunu bir spot filmde kullansa, bir romancı kitabında bir İstanbul güzelini tasvir etse yeter. Pala, "İstanbul güzelinden kastım bir insan, bir tarihi konak ya da bir manzara olabilir. İstanbul başlı başına bir 'güzel' zaten" diye konuşuyor.
+       <br/>
+       <br/>
+       Bedava şerbet var!
+       <br/>
+       <br/>
+       İkinci olarak İstanbul merkezde Vakıflar Genel Müdürlüğü'nden 10 tane sebil ve muvakkithane restore edilmek üzere devralınacak. Sponsorlar yoluyla restorasyonu tamamlandıktan sonra tıpkı iftar çadırlarında olduğu gibi belli sponsorlarla sebillerde yazın şerbet ve limonata, kışın süt, salep ve boza ücretsiz olarak dağıtılacak. Böylece, tarihi eser kurtarılırken şehrin güzelleşen çehresi ve şehre yansıyan töre 'artılar' hanesine yazılmış olacak.
+       <br/>
+       <br/>
+       Şenol Demiröz'ün TRT'ye geçmesi, araya giren seçimler Kültür İşleri Daire Başkanlığı'nda haziranda bitmesi gereken işlerin sarkmasına yol açmış. Pala, "Bizim miladımız 1 Ocak 2005 olacak" diyor. Haziran 2005'te Harbiye Açıkhava Tiyatrosu'nda geniş kapsamlı mistik müzik festivali düzenlenecek. Ayrıca, İstanbul Konferansları'na da hız veriliyor. Da Vinci Şifresi ile Melekler ve Şeytanlar'ın yazarı Dan Brown gibi dünyada fırtına estiren bir yazarı İstanbul'a getirmeyi ve müzakereci olarak karşısına bir ilahiyat profesörünü çıkartmayı amaçlıyor.
+       <br/>
+       <br/>
+       Önem verdiği Doğu Kadınları projesinden bahsederden, Doğu'dan adam çağırırken davetlinin Doğudan gelip gelmediğine dikkat edeceklerini söylüyor. Yani Paris'te yaşayan bir Mısırlı değil de Mısır'da yaşayan Mısırlı çağrılacak. Hint müziği grubu denildiğinde bu Londra'da müzik yapan bir grup değil, Hindistan'dan gelen bir grup olacak.
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       KENDİMİ ‘SOL’CU HİSSEDİYORUM
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       İskender Pala, bir süredir kitaplarını yayınlayan bir yayınevi projesiyle gündeme geliyor. Önce Timaş'ın yan kuruluşu L&amp;M'i kurdu. Şimdilerde bütün kitaplarını Alfa'ya bağlı Kapı Yayınları'ndan çıkartıyor. L&amp;M'den ayrılış nedenlerini ilk defa anlatıyor.
+       <br/>
+       <br/>
+       Divan şiiriyle ilgileniyorsunuz, toplumun nazarında divan şiirinin bir yeri var. Karizması çizilmiş, gündemden dışarıda tutuluyor. Okuyucusunun az olduğu bir alan. Divan şiiriyle ilişkili bir yayınevine bir kitap götürdüğünüz zaman o da aynı şekilde, "Ticari olmayan bir kitap daha geldi. Onun için ucuz bir kapakla geçiştirelim" diyor. Birinci amacım bunu düzeltmekti. Bir yayınevini kendim kurayım ve kendi kitaplarımı çok kaliteli basayım dedim. Kendim için çok iyi şeyler yapayım değil, divan edebiyatı için çok iyi şeyler yapayım gayretiydi bu.
+       <br/>
+       <br/>
+       İkinci hedefim de şuydu; çok açık yüreklilikle söyleyeceğim. Uzun yıllardır sol entelijansyanın dediği bir şey var: "Sağ kitap basmayı beceremez. Bu sağın kitapları ucuz olur, hatta köylüce olur." Dedim ki öyle kitaplar basayım ki katıksız fikirlere sahip bir solcu bile bunu eline aldığında desin ki, "Allah Allah sağdan böyle bir kitap çıktı. Hayret, demek ki bir şeyler değişiyor" desin. L&amp;M yayıncılığı bunun için kurdum. Yüzde 52 ortağı olmanın gücüyle 'şu mutlaka şu kalitede yapılacak' diye ısrarcı oldum, çok mücadele de verdim bu konuda.
+       <br/>
+       <br/>
+       Gerçekten solcular haklıydı. Sağda kitap yayıncılığı hakikaten solun vardığı noktaya varamıyordu bir türlü. Bunun mücadelesini kitaplar yayınlanırken ben de yaşadım; kitabın kapağı hazırlanırken, mizanpajı yapılırken, kağıdı seçilirken. Renk ayrımında iyi iş çıkaralım diye pahalı çalıştım. Okuyucularımız, hocam kitaplarınız çok güzel, her şeyiyle mükemmel ama pahalı diyorlar. Elbette pahalı olacak, mükemmel ve çok güzel olmanın bir bedeli var. Buna rağmen o kadar çok tuttu ki hiç bir zaman satılmadığı kadar divan edebiyatı kitabı satıldı.
+       <br/>
+       <br/>
+       İyi kitapların basılabildiğini göstermek için L&amp;M'i kurmuştum. Maksat hasıl olmuştu. O saatten sonra yayıncı olmak sadece sancı çoğaltmaktı. O yüzden yayınevinden ceketimi alıp çıktım. Bir sitemimi vurgulayayım. L&amp;M yayıncılık benim adımla özdeşleşti. Yayınevi sahiplerine şunu söyledim: Sizin yazarınızım. Kitaplarım yine sizin tarafınızdan neşredilsin. Ama bir şartım var. Kitapların basımında bugünkü kaliteden aşağıda bir iş yaparsanız sözleşmeyi bozarız. Böylece ortaklığımız bitti. Yazar olarak bastıkları ilk kitapta kalite düştü. Perişan Güzeller'di galiba. Kapağında gerekli özen yoktu. İkaz ettim. "Bakın anlaşmamız bu çıtayı korumaktı." Sonraki kitapta tekrarlandı bu; kağıdın kalitesi düşüyordu. Neden? Artık ben ortak değilim. Böyle olunca ben o arkadaşlara dedim ki sizinle yolum ayrıldı. Bundan sonra siz L&amp;M olarak ne yaparsanız yapın, beni hiç ilgilendirmiyor. Nisan ayı itibariyle sözleşmemiz zaten bitiyordu, ben sözleşmeyi yenilemedim. 'Kitaplarımı sizden alıyorum' dedim.
+       <br/>
+       <br/>
+       L&amp;M yayıncılığın sitesinde hâlâ kitaplarımın tanıtımları devam ediyor, fotoğrafım bile orada duruyor. Kitaplardan bitenleri de var. Onlardan bir liste de aldım. "Deponuzda hangi kitaptan ne kadar var, o bittikçe bana bildirin, yeni yayın dönemini ona göre yapayım" dedim. Yoksa kırk kitabın kırkı da hazırdı ve kırk kitabı bir günde piyasaya çıkarmak üzere de bir teklif aldım. Bunu ahlaki bulmadım. L&amp;M'in deposunda 5 tane dahi olsa kitap var ise o kitabı bitirecek imkanı ona tanıyayım. Yoksa 40 kitabın hem L&amp;M yayıncılıktan hem X kitapçılıktan çıkartılması durumunda L&amp;M'e haksızlık yapmış olurduk.
+       <br/>
+       <br/>
+       Ben o haksızlığı yapmamak için elimden gelen gayreti gösterdim. O arkadaşlardan liste aldım. Şubatta sözleşmeyi yenilemeyeceğimi, artık basmamaları gerektiğini kendilerine noter kanalıyla bildirdim. Ama onlar 15 Nisan'da sözleşmenin son günü depolarına benim kitaplardan doldurdular. Ama yine de anlayışla karşıladım. Onlar bitinceye kadar da o kitapları yeniden basmayacağım. Yani para işleri bizi bozar derken bunu söylüyordum.
+       <br/>
+       <br/>
+       Divan edebiyatının yol haritası hep sağın içinde dolaştı. Neden divan şiiriyle ilgili kitapları sağcı yayınevleri basıyordu, bu şiirle ilgilenenlerin çoğu sağcı oluyordu. Ama ben bu ülkenin solcu gençlerinin de divan şiirinden mahrum kalmasına razı değilim. Çok net ve açık söylüyorum. Şu anda kendimi 'sol'cu hissediyorum. Yayıncılık açısından, yayınevi açısından. Çünkü divan şiirinin yeni bir hedef kitlesi var. Zemin hazır. Türkiye'de sağ, divan şiiriyle yeterince dostluk kurdu. Şimdi sol'un da öğrenme zamanı. Kapı Yayıncılık'tan girildiğinde beni yeni keşfedecek birçok insan var. Yani hedef kitlem değişti. Misyonumun son aşamasındayım. Önce kendim öğrendim. Sonra çevreme öğrettim. Daha sonra geniş kitlelere ulaştım. Şimdi divan şiirinin hinterlandını geliştirme amacındayım.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13576), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050219184709/http://www.aksiyon.com.tr:80/detay.php?id=13576)

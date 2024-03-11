@@ -1,0 +1,85 @@
+# Karanlık dünyanın bilinmeyen mücadelesi
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041011214517im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20041011214517im_/http://www.aksiyon.com.tr/resim/414/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Görme özürlüler, çözülemeyen problemleriyle homojen bir topluluk oluştururken, siyasi fikirleriyle birbirlerinden ayrılıyorlar. Görme özürlüler hayır kurumu yerine sivil toplum örgütü olmayı tercih ettiler ve muhafazakarlar ve solcular olarak iki kutba ayrıldılar. Amerikan yanlısı” ya da “cuntacı” olarak birbirlerini suçlayan kör dernekleri liberal düşünceye şimdilik uzaklar.
+ </font>
+ <p>
+  <font class="content">
+   Görme özürlü vatandaşların problemlerini hemen herkes biliyor. Bilinmeyense görme özürlü kişilerin iç dünyaları... Türkiye’de yaklaşık 700 bin görme özürlü yaşıyor ve iç dünyaları biraz deşildiğinde karşımıza politik kimliği belirginleşmiş ve aralarında ciddi entelektüel tartışmalara girişmiş bir kitle çıkıyor.
+   <br/>
+   <br/>
+   Görme özürlüler günlük yaşamdaki problemleri ve gözlerine inen siyah perdeyle homojen bir kitle oluştururken, beyinleriyle oluşturdukları, kalpleriyle hissettikler dünya görüşleriyle birbirlerinden kesin çizgilerle ayrılıyorlar.
+   <br/>
+   <br/>
+   Görme özürlü derneklerin bir kısmı “gerici”, “faşist” hatta “Amerikan yanlısı” olarak suçlanırken bir kısım dernekler de “Rus yanlısı komünist”, “cuntacı”, “Vatikan yanlısı” gibi suçlamalarla karşılaşıyorlar; ancak polemikleri daha çok entelektüel boyutta gerçekleşiyor. “Yöneten erk ideolojisinin satanistleşmesi” ya da “Neo liberal politikalar insanı mutlu edebilir mi?” türünden polemikler görme özürlülerin hiç de yabancısı değil. Üzerinde anlaşabildikleri tek konu ise “IMF’nin bir an önce kovulması gerektiği”. Görme özürlülerin derneklerinin kendi aralarında başlattıkları siyasi polemikler, zaman zaman “yolsuzluk” ve “Vatikan yandaşlığı” suçlamalarına dönüşebiliyor. “Karanlık dünyalarda” yaşanan ideolojik polemiklere siyasetçiler de yabancı değil. Muhafazakar belediyeler ile sol partili belediyelerin çalıştığı âmâ dernekleri farklı oluyor; sağcı bir belediyenin sınırlarındaki çukuru solcu bir dernek kamuoyuna duyuruveriyor! 3 Kasım seçimleri de âmâlar arasında yoğun bir mücadeleyle geçti.
+   <br/>
+   <br/>
+   “Hayır kurumu değil sivil toplum kuruluşuyuz”
+   <br/>
+   <br/>
+   Görme özürlülerin aralarındaki derin siyasi görüş farkının en büyük sebebi eğitimli bir kitle olmalarında yatıyor. Bedensel engelliler arasında en çok üniversite okuyan kesimi görme özürlüler oluşturuyor. Yine birkaç yıl önce birçok kör derneğinin aldığı “biz hayır kurumu değil, sivil toplum kuruluşuyuz” kararıyla safları iyice belirginleşti.
+   <br/>
+   <br/>
+   3 yıl öncesine kadar verdikleri konserlerle gelir elde eden âmâ derneklerinin yıllık gelirleri bugünkü rakamla 500 milyarı bulabiliyordu. Bugünse konserlere her yerde vize verilmemesinden dolayı bu gelir oldukça düştü. Müzik konserlerini tasvip etmeyen derneklerle, müzikten yeteri kadar para kazanamamaya başlayan derneklerin aldığı “etkili sivil toplum” olma kararıyla âmâ dernekleri arasında ateşli polemikler başladı.  Bugünün âmâ dernekleri solcu, muhafazakar olarak ikiye ayrılıyor; liberal bir âmâ derneği yok! Sayıları az olan bazı dernekler de sadece konser organizasyonlarıyla uğraşıyor.
+   <br/>
+   <br/>
+   Görme özürlülerin eylemlerini ve fikirlerini büyük ölçüde yönlendiren Türkiye Görmezleri Eğitim ve Himaye Derneği, Milli Özürlüler Platformu ve Beyaz Ay gibi dernekler muhafazakar kimlikleriyle tanınırken Altı Nokta Körler Derneği, Görmeyenleri Kültür ve Birleştirme Derneği, Çağdaş Görmeyenler Derneği, Uygar Görme Engelliler Derneği ise sol fikirleriyle tanınıyor.  Sol ve sağ olarak ikiye ayrılan bu dernekler kendi içinde de ayrılabiliyorlar. Örneğin Altı Nokta Körler Derneği’nin İstanbul şubesi oldukça militan sol görüşleriyle bilinirken aynı derneğin Ankara yöneticileri ılımlı sol görüşü benimsiyorlar. Yine Beyaz Ay Derneği AK Partiye yakınlığıyla bilinirken, Türkiye Görmezleri Eğitim ve Himaye Derneği siyasi partilere biraz daha uzak duruyor.
+   <br/>
+   <br/>
+   Körlüğün tanımı solcu mudur, sağcı mı?
+   <br/>
+   <br/>
+   Sol ya da sağ fikri mücadelelere girişmeden evvel Türkiye’deki görme özürlülerin üzerinde anlaşamadıkları temel mesele “körlüğün tanımı”. Muhafazakar Beyaz Ay Derneği körlüğün bir kader olduğunu ve görme duyusundaki eksikliğin Allah’ın bir imtihanı olduğunu belirtirken; Altı Nokta Körler Derneği ve diğer sol görüşlü dernekler körlüğün sosyolojik bir problem olduğunu iddia ediyorlar.
+   <br/>
+   <br/>
+   Beyaz Ay Derneği’nin başkanı Mustafa Bügelik âmâ olmalarından dolayı toplumu suçlayamayacaklarını belirterek tanımını şöyle yapıyor: “Varlığa yönelik şikayetimiz yok. Toplumu da körlüğümüzden dolayı suçlamıyoruz, ancak toplumun bize olan bakış açısına ve bize çektirdiği zorluklara kızıyoruz. Körlük bizim dünya imtihanımız derken, batıl bir kadercilik de yapmıyoruz. Bazı şeyler elimizde; örneğin uğraşarak bilgisayar öğreniyoruz, üyelerimizin hemen hepsini işe yerleştirmeyi hedefliyoruz. Bir köşeye çekilip kaderimiz bu deyip, mücadeleyi bırakmıyoruz” diyor.
+   <br/>
+   <br/>
+   Altı Nokta Körler Derneği’nin İstanbul Şube Başkanı Ramazan Yücel ise körlüğün sosyolojik bir problem olduğunu ve bu problemin oluşmasında da toplumun büyük katkısı olduğunu belirtiyor. Yine Altı Nokta Körler Derneği’nin İstanbul Şubesi yöneticilerinden Çağrı Doğan da “Körlük toplumsal düzenin kusurudur” diyor ve ekliyor: “Toplumsal düzendeki bozukluk sağlık yatırımlarına ve sağlığa büyük darbe vuruyor. Tedaviye gidecek paralar başka ellerde toplanıyor. Körlüğe yüzde yüz oranında kader diyemeyeceğimiz gibi toplumun suçu da diyemeyiz. Doğuştan kör olanlar belki de kendi kaderlerini yaşıyorlar. Ancak biz doğuşu ya da başka duyguları değil, rasyonel verileri ele alıyoruz” diyor.
+   <br/>
+   <br/>
+   3 Kasım seçimleri siyasi mücadeleye dönüştü
+   <br/>
+   <br/>
+   Görme özürlülerin aralarındaki derin siyasi farkın en büyük delili 3 Kasım seçimleri oldu. Görme özürlülerin aralarında yaşadığı siyasi polemikleri bilen İşçi Partisi ve Saadet Partisi bizzat körler federasyonundan aday istediler. Sol fikirleriyle bilinen Altı Nokta Körler Derneği’nin eski başkanlarından Turan İçli İşçi Partisi’nden aday olurken, dini duygulara hassasiyetiyle tanınan Beyaz Ay Körler Derneği’nin eski başkanı Lokman Ayva AK Parti’den milletvekili seçildi.
+   <br/>
+   <br/>
+   Görme özürlülerin siyasete olan ilgisi İşçi Partisi ve AK Parti’yle sınırlı değil. Sol görüşlü körlerin oy verebilecekleri adaylar arasında ÖDP’den Ramazan Yücel, Bilal Duran bulunurken dini hassasiyetleri olan görme özürlüler de Saadet Partisi’nden Ali Ferhan’ı ve Mehmet Marsat’ı desteklediler. Yine Körler Federasyonu’nun yönetim kurulu üyelerinin hemen hepsi birer siyasi partide etkin görevde bulunuyorlar. Siyasi parti yelpazesi BBP’den ÖDP’ye kadar uzanıyor.
+   <br/>
+   <br/>
+   Belirgin bir siyasi kimliği olmayan Metin Şentürk ve partisi ise görme özürlülerden kitlesel bir oy alamadı. Metin Şentürk’ün görme özürlü olmasına rağmen özürlülerin düşüncelerini belirleyen derneklerle ilişkisi yok. Yine Şentürk’ün yaşadığı renkli magazinsel hayat, ona oy verecek olan görme özürlülerin dünya görüşüne oldukça ters... Körler Federasyonu Başkanı Ahmet Cantürk, Metin Şentürk’ün milletvekilliğine “Örgütsüz adayları desteklemiyoruz” diyerek karşı çıkmıştı.
+   <br/>
+   “Demokrasiye katkıda bulunacağız”
+   <br/>
+   <br/>
+   Toplumun en iyi örgütlenen kesimini oluşturan körlerin yaklaşık 20 tane derneği var; ancak bu derneklerin bir kısmı fikri ayrılıklardan dolayı federasyon çatısı altına gelmiyor. Yine geçtiğimiz günlerde Görmeyenleri Kültür ve Birleştirme Derneği federasyondan ihraç edildi.
+   <br/>
+   <br/>
+   Basın toplantısı yaparken bir önceki federasyon başkanı olan Ömer İnal Durmuş ve 10 görme özürlünün fiziki saldırısına uğrayan bugünün Körler Federasyonu Başkanı Ahmet Cantürk, herşeye rağmen yaşanan polemiklerin hiçbir zaman klasik bir sağ-sol mücadelesi olmadığını söylüyor. Körler Federasyonu Başkanı Ahmet Cantürk’ü Altı Nokta Körler Derneği yöneticilerinden Çağrı Doğan da destekliyor. Çağrı Doğan “Dünyada egemen olan neoliberal anlayıştan kaynaklı olarak siyasetin siyasetsizleşmesi, siyasi partilerin de, yığınlar lehine değil de, mevcut politik, ekonomik yapıya egemen olan unsurlara dayanarak politika üretiyor olmaları sivil toplum kuruluşlarını önemli kılıyor. Biz bu anlamda muhalif bir ses olacağız” diyor.
+   <br/>
+   <br/>
+   Beyaz Ay Derneği Başkanı Mustafa Bügelik ve Körler Federasyonu Başkanı Ahmet Cantürk, kör derneklerinin daha çok demokrasiye ve fikir gelişimine katkı yapmaları gerektiğini belirtiyorlar. Ahmet Cantürk hayır işleri yapmanın kendilerinin öncelikli işleri olmadığını belirterek; “Geçmişte kör dernekleri odun kömür yardımı, iş bulma gibi faaliyetler yapıyordu. Bugünse meselelere daha global bakıyoruz. Hayır yardımları yerine topluma özürlü bilincini ve fikrimizi yansıtmaya çalışıyoruz. Bu tür çalışmaların daha yararlı olacağına inanıyoruz” diyor.
+   <br/>
+   <br/>
+   Siyasi görüş farklılıklarının “ayrımcılığa” dönüşüp dönüşmediğini sorduğumuzda ise görüştüğümüz 4 farklı dernek kendilerine gelen üyelik ve yardım isteklerinin kesinlikle görüş sorulmaksızın işleme konulduğunu belirtiyorlar. Ancak üyeleri arasında ayrımcılık yapmadığını söyleyen dernek yöneticileri, rakip derneklerin farklı düşüncedeki insanları üye yapmadığını uzun uzun anlatıyorlar.
+   <br/>
+   <br/>
+   Görme özürlülerin siyasi görüşlerini belirtmelerinin demokrasiye bir katkı olacağını belirten ilk görme özürlü milletvekili Lokman Ayva, Mecliste yapacağı çalışmalarda ideolojik ayrımı aklına bile getirmeyeceğini söylüyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2098), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041011214517/http://www.aksiyon.com.tr:80/detay.php?id=2098)

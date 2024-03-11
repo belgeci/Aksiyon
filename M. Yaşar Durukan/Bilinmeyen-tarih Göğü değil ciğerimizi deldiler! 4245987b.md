@@ -1,0 +1,76 @@
+# Göğü değil ciğerimizi deldiler!
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302181558im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302181558im_/http://www.aksiyon.com.tr/resim/303/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İlk bin yılda saraylar vardı İstanbul’da. Üçüncü bin yılda gökdelenler olacak. İslâmi inanışa göre, çok katlı binalar kıyamet alâmetlerinden.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ne gariptir ki, bugün şehir plancıları bu inanışın işaret ettiği noktada buluşuyor! Onlar da mantar gibi biten çok katlı yapıları İstanbul için kıyamet habercisi olarak yorumluyor. Özellikle hesapsızca yükselen ‘Sekizinci Tepe’, yarın ‘Yedi tepeli şehri’ iyice yaşanmaz hâle getirecek.
+   <br>
+    <br>
+     Uzmanlara bakılırsa kent planları yapılırken şehircilik ilkeleri yerine ekonomik ve siyasi tercihlerin daha etkin olmasının bedelini ağır ödeyeceğiz. Aslında ödemeye başladık bile. İnanılmaz bir hızla devam eden çarpık yapılaşma bu kenti alttan fethetti. Bugün altyapı adına birşey kalmadı sayılır. Yüzeyi tamamen betonla kaplanan İstanbul’da yağan yağmurun yüzde 95’i anında akışa geçiyor. Uydudan gelen son fotoğraflar, kentin doğal tahliye kanalları olan derelerin tamamen yapılarla dolduğunu haber veriyor. Zincirlikuyu—Maslak—Levent hattındaki gökdelenler tamamlandığında, sifonlarını aynı anda çekmeleri halinde Şişli’nin kanalizasyon seline gömülmesi an meselesi olacak. Trafikten hiç bahsetmiyoruz. Geçtiğimiz 17 Ağustos’ta kıyametin provası yapıldı adeta.
+     <br>
+      <br>
+       Hava koridorları kapanıyor
+       <br/>
+       <br/>
+       Tüm bunlar yetmiyormuş gibi uzmanlar kötü bir haber daha veriyor: İstanbul’a hayat veren “Hava Koridorları”, bilinçsiz kat artışları ve plansız yükselen gökdelenler nedeniyle kapanma tehlikesiyle karşı karşıya kalmış. Oysa yerleşim yerlerinin planlanmasında belli disiplinlerarası çalışmalar içinde meteorolojik parametrelerin de değerlendirmesi ciddi bir şekilde yapılmalıymış. Bugünkü manzara bunun yapılmadığını gösteriyor.
+       <br/>
+       <br/>
+       Boğaziçi Üniversitesi Kandilli Rasathanesi ve Deprem Araştırma Enstitüsü Meteoroloji Bölümü’nden Meteoroloji Yüksek Mühendisi Gökhan Abur’un tesbitlerine göre, yanlış yapılanma ve yerleşim; kentin ekolojik ve klimatolojik (iklimsel) dengelerini bozmuş. İstanbul bu hatalı yerleşimin faturasını ödemeye başlamış bile. Meteoroloji Yüksek Mühendisi Abur, “İstanbul’un hakim yönü poyraz, fırtına yönü ise lodostur. Üçüncü derecede önemli yön, karayel. Yapılaşmanın özellikle bu üç ana yönde sirkülasyonu bozmayacak şekilde düzenlenmesi, bina yükseklikleri ve gökdelenlerin buna göre yapılması gereklidir” diyor. Bugün bu bilimsel kurala uyulmuyor. Buna örnek olarak gökdelenlerin hızla yükseldiği Levent taraflarını gösteriyor. Meğer bu bölge poyraza doğru İstanbul’un havasını temizleyen bir koridormuş. Burada çok hızlı bir gelişme olursa hava sirkülasyonunun bozulabileceği hatta rüzgarların yön bile değiştirebileceği uyarısında bulunuyor Gökhan Abur.
+       <br/>
+       <br/>
+       Gökhan Abur’a göre diğer bir tehlike İstanbul’a hayat veren hava akımlarını yönlendiren tabii koridor olan İstanbul Boğazı’ndaki yapılaşma. Abur, özellikle boğaz tepelerinin bilinçsizce imara açılmasının dengeyi bozduğuna, çarpık yapılaşmanın hava akımlarını önemli ölçüde etkilediğine dikkat çekiyor. Boğazda bütün koridorların henüz kapanmadığını ama çok dikkatli olunmasını istiyor. Çünkü boğaz, suyla havanın teması sonucu havanın akışına yardımcı oluyor ve havayı daha çabuk temizliyor.
+       <br/>
+       <br/>
+       Bundan birkaç yıl önce hava kirliliğinin korkunç boyutlarda yaşandığı günlerde bir lodos ya da poyraz eser havayı temizler denmiş, ancak hava koridorları kapalı olduğu için sirkülasyon sağlanamayınca binlerce astım ve akciğer hastası hastanelerin acil servislerine koşmuştu. Yüksek basınç etkisi olduğu zamanlarda hava, içindeki zararlı partiküllerle aşağıya doğru çöküyor. Abur, o günleri anlatırken “Doğalgaz olmasaydı çok büyük facialar yaşanabilirdi” diyor. O dönemde toplu ölümler olduğu iddiası bu bilgiler ışığında daha da anlam kazanıyor sanırız.
+       <br/>
+       <br/>
+       Bir de ısı adacıkları konusu var. Meteoroloji Yüksek Mühendisi Gökhan Abur, İstanbul açısından çok ciddi bir sorun olan bu global mesele hakkında şunları söylüyor: “Türkiye hızlı gelişmeler neticesinde birtakım disiplinleri gözardı ediyor. İstanbul’u gökdelenler kapladı bunu doğru mu yaptık tartışılır? Yeni yapılan en ufak bir birim ısı kaynağıdır. Kullanılan ısı kaynakları da havaya karbondioksit veriyor. Havadaki karbondioksit miktarını artırıyor. Şayet o bölgede aşırı miktardaki karbondioksiti absorbe etmek için yeteri kadar bitki örtüsü yoksa, bu karbondioksit o bölgedeki havanın ısınmasını sağlıyor.” Şehirlerin kırsala göre 2—3 derece daha sıcak olması da buradan kaynaklanıyor. Her gece İstanbul'da 250 gecekondu yapıldığı düşünülürse global ısınmaya bizim de bir nevi katkımız olmuş yani.
+       <br/>
+       <br/>
+       İlkellik abideleri
+       <br/>
+       <br/>
+       Aslında evlerin ve sokakların yönü bile meteorolojik verilere göre yapılmalıymış. Gökhan Abur, rüzgar dağılımına bakılarak yerleşim yerlerinde hava dolaşımını sağlayacak koridorların yani sokakların bırakılması gerektiğini söylüyor. Bu düzenlemeler, bina ısı kayıplarının, hava kirliliğinin önlenmesi ve konfor bakımından oldukça önemliymiş. Tüm bu bilimsel gerçekler, yerleşim merkezlerinin kuruluş aşamasında zemin çalışmalarının yanında meteorolojik çalışmaların da gözönüne alınması gerektiğini açıkça ortaya koyuyor. Ne var ki, İstanbul’un bir tepesine çıkıp şöyle bir baktığınızda bu bilimsel gerçeklerden söz etmek mümkün değil. Ne yazık ki yine bu kentte bundan bir kaç yüzyıl önce yaşayan atalarımız sözkonusu bilimsel gerçeklerin farkındaydı. Bu nedenle yerleşim birimlerini o günkü şartlarda bizden çok daha akıllıca yapmışlar, bizden de konforlu yaşamışlar. O döneme ait yerleşim birimleri üzerindeki araştırmalarıyla tanınan REM Restorasyon Merkezi Genel Koordinatörü İnşaat Mühendisi Abdülkadir Akpınar, yerleştikleri yerlerdeki hava şartlarını, yapılaşmanın coğrafi şartlarla bir uyum içinde olmasını mutlak surette düşündüklerini söylüyor.
+       <br/>
+       <br/>
+       İnşaat mühendisi Akpınar, Osmanlı döneminde çevre konusunda gösterilen duyarlılık ve kullanılan teknikler hakkında ilginç bilgiler veriyor: “Eğer önemli bir yapı yapılacaksa o bölgenin muhtelif yerlerine koyun ciğerleri asılırmış. Daha sonra kokuşmanın hangi süre içinde oluştuğu gözlenirmiş. Eğer uzun süre kokuşmuyorsa orada hava sirkülasyonunun yoğun olduğu sonucuna varılırmış. Bu yöntem sayesinde yapılar için insan sağlığına elverişli oksijenin bol olduğu bölgeler seçilmiş. Mesela yedi tepe olarak anılan İstanbul’un en istisnai, en muhteşem, stratejik noktalarına aynı zamanda hava sirkülasyonunun ve oksijenin bol olduğu noktalara yapılar inşâ edilmiş. Bir Süleymaniye’nin, bir Şehzadebaşı’nın, Sultanahmet’in, Fatih Camii’nin, bir Yavuz Selim Camii’nin bulunduğu yerlerin hepsi muhteşem. İstanbul’a hakim, hava sirkülasyonunun uygun olduğu yerler seçilmiş”.
+       <br/>
+       <br/>
+       Tüm bu veriler o günün insanlarının temiz havanın kıymetini bildiklerinin, bizden bu konuda daha duyarlı olduklarının açık belgeleri. Bir sokak inşâ edilirken bile rüzgarın esiş istikameti, yaz—kış noktasında mutlak sûrette düşünülmüş.
+       <br/>
+       <br/>
+       Akpınar, “Osmanlı arşivlerini incelediğimizde yerleşim konusunda çok büyük bir duyarlılık gösterdiklerini görüyoruz. Büyük bir ızdırapla kendi açımızdan şunu kabul etmemiz lazım. Osmanlı kendi dönemi içindeki yapılaşmasında bugün gördüğümüz titizlikten çok daha fazla titiz ve duyarlı, devlet olarak da vatandaşın yaptığı yapılaşmada üzerine düşen görevi dikkatle yaptığı bir gerçek. Şehirleşmede rastgele düzensiz, yolsuz evlerin yapıldığı sözkonusu değil” diyor.
+       <br/>
+       <br/>
+       Peki biz bugünkü konforu (!) uzay çağında olmamıza mı borçluyuz? Hayır. Çünkü dünyanın hiçbir yerinde mimarlar ya da şehir plancıları oturup da bir şehri planlamazlar. Tek bir uzmanlıkla bu işin olmayacağını biliyorlar. Bu nedenle bir yerleşim birimi yapılırken jeofizikçisi, mimarı ve meteoroloğu ekip çalışması yapıyor. Gökhan Abur, Türkiye’de de meteoroloji mühendislerinden yararlanılmasını, görüşlerinin alınıp imza yetkileri verilmesi çağrısında bulunuyor. Umarız aklımızın başımıza gelmesi için yeni bir afet yaşamamız gerekmez.
+       <br/>
+       <br/>
+       Görünen o ki, birileri bu aziz şehre karşı büyük bir cinayet işliyor. Biz de susarak bu cinayete ortak oluyoruz. Ancak katlettiğimiz bu şehrin kanı yerde kalmayacak. İstanbul’un intikamı acı olacak. Buraya yazıyoruz işte!
+       <br/>
+       <br/>
+       e—mail: mydurukan@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13921), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302181558/http://www.aksiyon.com.tr:80/detay.php?id=13921)

@@ -1,0 +1,103 @@
+# “Demirel Müzesi” hazır
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175901im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175901im_/http://www.aksiyon.com.tr/resim/304/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Merkez sağın yeniden yapılanması, ombudsmanlık (devletle halk arasındaki meselelerde hakemlik), Birleşmiş Milletler Genel Sekreterliği...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bunlar bir süredir, dokuzuncu Cumhurbaşkanı Süleyman Demirel’e biçilen görevler. Bunlardan hangisinin gerçek olacağı belirsiz. Ancak, Demirel yaklaşık olarak 35 yıldır siyasette, bu yılların büyük bölümünü de politikada etkin ve iş yapar konumda geçirmiş bir şahsiyet. Politikaya girmeden önce Devlet Su İşleri’nde görevliyken kendi memleketi için çok şeyler düşündüğü biliniyor. Hatta bir keresinde İslamköy’de çevre gezisi yaparken, birgün dağın delinerek bu ovaya mutlaka suyun geleceğini köylülere söylemiş. Ve gelmiş de.
+   <br>
+    <br>
+     Her yer Demirel’e çıkıyor
+     <br>
+      <br>
+       Demirel’in tavsiyesiyle kardeşi Şevket Demirel tarafından memleketi İslamköy’de yaptırılan Demirel Külliyesi, Köşk yılları sonrası Süleyman Demirel’in neler yapmak istediğinin ipuçlarını vermekte.
+       <br/>
+       <br/>
+       Hem Demirel Külliyesi hakkında detaylı bilgi edinmek hem de Demirel’in doğup büyüdüğü yerleri yakından görmek için Sezai Kalaycı’yla birlikte yola koyulduk, Isparta’nın İslamköy Beldesi’ne gittik. Daha Isparta’ya kilometreler varken o havayı hissediyorsunuz; Süleyman Demirel adını taşıyan havaalanı, üniversite, eğitim kompleksi, orman, bulvar... Isparta’da soyadı Demirel ve Şener olan birçok işyeri, kompleks bulunuyor. Yöreyi bütünüyle kapsamı içerisine almış, Demirel ailesi. Ancak bundan Isparta, Ispartalı son derece memnun. Bir bakıma yatırım, iş imkanı bunlar. Isparta deyince ilk akla gelen motiflerden, uzun, upuzun su kanalları, Süleyman Demirel’in neredeyse siyasi hayatını sembolize ediyor gibi. Isparta’nın tam merkezi yerinde Süleyman Demirel’in heykelinin bulunması da Ispartalı’nın bir vefa borcunu yansıtıyor sanki.
+       <br/>
+       <br/>
+       İslamköy...
+       <br/>
+       <br/>
+       İslamköy’deyiz... Isparta merkeze oldukça yakın. Ulaşım sorunu yok. Yolcu otobüsleri sık sık gidip geliyor. Birçok belediyeye nasip olmayan gidiş—dönüş çift yol İslamköy’e ayrı bir özellik katıyor. Yolun iki tarafı büyükşehirlerde olduğu gibi ışıklandırılmış. Aynı zamanda yolun kenarları kavak ağaçlarıyla süslenmiş. Bizim Sezai hemen objektifine sarılıyor ve Demirel Bulvarı’nı görüntülüyor. Beldenin merkezi yerindeki kahvehaneye gidiyoruz doğruca. Kahvehanenin bahçesinde çay içen İslamköylülere rastlıyoruz. Ankara’dan geldiğimizi söyleyince hemen buyur ediyorlar. Ne de olsa Türkiye Cumhuriyeti’nin 76 yıllık hayatının neredeyse yarısında Türkiye yönetiminde etkili olmuş bir hemşerilerinin bulunduğu ilden geliyoruz.
+       <br/>
+       <br/>
+       Demirel hep kumandan olurdu...
+       <br/>
+       <br/>
+       Nuri Akdeniz 78 yaşında bir İslamköylü. Süleyman Demirel’in ilkokuldan sınıf arkadaşı. Demirel’den bir yaş büyük olmasına karşılık çok daha yaşlı gösteriyor. Akdeniz ‘Tabii onun bakımı daha iyidir’ diyerek kendini savunuyor. Demirel’le birlikte yılları geçmiş. ‘Ne farkınız vardı sizin Demirel’den?’ sorusunu yöneltiyoruz, kendisine. Akdeniz, yıllar öncesine gidiyor; “Hesap hendesesi iyi idi. Benim tarih coğrafyam iyi idi. Babası rahmetli, Demirel’i küçükken kepeneğe sarar, tarlaya kadar onu uyutarak götürürdü. Demirel çocukken de geçimsiz bir çocuk değildi. O zaman Şakir bey isimli bir öğretmenimiz vardı. Oyun oynattığı zamanlar Demirel’i hep kumandan yapardı. Bir dönem okulun kantininin işletilmesi gündeme geldi. Okul öğretmeni bu iş için biçilmiş kaftan olarak Demirel’i düşündü, çünkü para işlerinden iyi anlardı. Ama babası böyle birşeyi istemedi. Demirel’in babası rahmetli zeki bir insandı. ‘Demirel bu iş dolayısıyla köyde kalmasın’ diye teklife karşı çıktı. Bizim dönemde pek kimse okumadı, babası Paşa Dayı ileriyi gördü ve oğlunu okuttu. Köyde de 30 sene muhtarlık yaptı. İslamköy’ün ilk belediye reisi de odur. Süleyman, kimseyle kavga etmezdi. Halk arasında da ailesi soylu aile olarak bilinir. Babası o zamanlar köyün zahire alış verişini yapıyordu, bir bakıma köyün tüccarı idi. Demirel, ilkokulda iken öğretmen daha bir matematik sorusunu sormadan bilirdi.”
+       <br/>
+       <br/>
+       Demirel’ın ilkokuldan sınıf arkadaşı Nuri Akdeniz, Demirel’in Devlet Su İşleri Genel Müdürlüğü’nde iken İslamköy’e geldiğini, bir çevre gezisi esnasında İslamköy Ovası’na bakarak ‘Dağı delip, Eğirdir’den su getirelim’ dediğini ve bu sözünü başbakan olduğu dönemde gerçekleştirdiğini belirtiyor. “Yıllar önce Isparta’ya üniversite gelsin diye bir hacı abinin Demirel’den ricası olmuştu. Demirel o zaman da başbakandı. ‘Buranın ahlakını bozmayalım’ diye bu teklife karşı çıkmıştı. Yıllar sonra kendi adını taşıyan bir üniversite açıldı Isparta’da. Demirel’in o zamanlar söylediği doğru çıktı, şimdi” sözleri de yine Nuri amcaya ait.
+       <br/>
+       <br/>
+       Rahatsız etmeyiz...
+       <br/>
+       <br/>
+       Ziyaret etmek istediğimiz teyzesini ağır hasta bulduk. Demirel’in teyzesi yerine teyzesinin eşi, eniştesi Ragıp Turgut’la görüşme imkanı bulduk. Ragıp Turgut da Demirel’den sitayişle sözediyor; “Küçükken elinde hem kitap vardı hem de çobanları tarlalara zarar verdiriyorlar mı diye gözetirdi”. Ragıp amca, Demirel’in o aileden hiçbirine benzemediğini de vurguluyor; “Demirel ne Şevket’e, ne de Hacı Ali’ye benzer. Ben zamanında çok para kazandım ama hep başkaları yedi. Demirel’in babası da yedi...” Ragıp Turgut’un yaşlı haliyle söyledikleri bunlar, ne kadarı gerçeği yansıtıyor bilinmez. Ama birşey var ki hiç unutamıyor. Demirel’in 12 Eylül öncesi Başbakanlık yılları. Turgut, bir çocuğunun Almanya’ya işçi olarak gitmesi için görüşmelerde bulunmak üzere Ankara’ya gelir. Demirel’le görüşmek ister. Evine gittiğini söylerler, Başbakanlık’tan. Turgut da vazgeçer, geri döner. Bundan sonra da bir kere daha Ankara’ya bir iş için gitmez.
+       <br/>
+       <br/>
+       Konuştuğumuz Demirel’in hemşehrilerinin hemen hemen hepsinin ortak özelliği; Demirel’i zor durumda bırakmak istememeleri. Kendi memleketinizden, üstüne üstlük köyünüzden bir Başbakan/Cumhurbaşkanı çıkmış, normal şartlarda bundan yeteri kadar istifa etmek dururken... Hele hele Türkiye şartlarında. Ama hayır. İslamköylüler sözbirliği etmişçesine Demirel’e bir yerden bir zarar gelmesin diye kılı kırk yarıyorlar. Onun hakkında konuşurken kelimeleri özellikle dikkat ve özenle seçiyorlar ve mümkün mertebe az konuşuyorlar. Sınırların dışına çıkmak isteyen olursa da çeşitli hareketlerle bunu engellemeye çalışıyorlar. Söyledikleri tek şey; iyi biliriz.
+       <br/>
+       <br/>
+       Anıt mezar istiyor mu?
+       <br/>
+       <br/>
+       Süleyman Demirel, öldükten sonra nereye gömülmek istiyor? Bir anıt mezar istiyor mu? Ankara’ya mı gömülmek istiyor yoksa memleketi olan Isparta/İslamköy’e mi? İşte bu sorunun cevabı ilk kez Aksiyon sayfalarında yeralıyor. Cumhurbaşkanı Süleyman Demirel yakınlarının ifadesine göre; anıt mezarının İslamköy’de Çalcatepe Mevkii’nde bulunan bir tepelik mekana yapılmasını istiyor. Demirel Külliyesi’ni çaprazdan gören ve İslamköy Ovası’na hakim mevkide ilk çalışmalar da başlamış. Şevket Demirel’in yetiştirdiği ve tanesi yaklaşık 250 milyona malolan çam ağaçları getirilip bu alana dikilmeye başlanmış bile.
+       <br/>
+       <br/>
+       Demirel külliyesi...
+       <br/>
+       <br/>
+       İslamköy’de bugünlerde hummalı bir faaliyet var; yıllardır çalışması süren Demirel Külliyesi çalışmaları artık son aşamasına gelmiş. Demirel’in özel eşyalarının, aldığı ödüllerin, hediye edilen eşyaların, fotoğraflarının, sözlerinin, hakkında yazılmış ve kendi yazdığı kitapların sergileneceği Külliye, Demokrasi Müzesi adı verilen bir büyük bölüm, bir kütüphane, cami ve yan unsurlarından oluşan büyük bir kompleksten oluşuyor. Demirel ailesinden Şevket Demirel tarafından yapımı üstlenilen ve yaklaşık 11 yıldır devam eden faaliyetler tamamlanmak üzere. İnşaatın taşları Isparta’nın Yalvaç ilçesine bağlı bir köyünden, pencere kenarları ise Sav kasabasından getirildi. Demokrasi Müzesi’nin giriş kapısı, Şevket Demirel’in yurtdışından özel olarak getirttiği bir deriyle kaplanmış. Demirel’in eşyalarının sergilenebilmesi için gerekli standtlar da yerleştirilmiş. Müze’nin geniş bölümünün tavan kısmına yerleştirilen elektronik sayaçtan ise Süleyman Demirel’en siyasi yaşamının çeşitli dönemlerinde söylediği ünlü vecizeleri akıyor; “Sene 1935; Bizim kavgamızda medeniyeti bulma, arama, ona mutlaka ulaşma gayesi vardır.”, “Sene 1935; Ben kurumuş bir buğday başağının peşinden giden adamım”. “Bizim mücadelemizde aydınlığın karanlıkla, yeşilin bozkırla, varlığın yoklukla, refahın sefaletle, ilim irfanın cehaletle, imar ve umranın harabiyetle kavgası vardır”, “Çatlamış toprakla mavi gök arasında kavgalarını sürdüren, hazırda hiçbirşeyleri olmayan insanlardık”. “Demokrasilerde çareler tükenmez”. Bunlar, burada yeralması düşünülen Demirel’in ünlü sözlerinden sadece birkaçı.
+       <br/>
+       <br/>
+       Demokrasi Müzesi’nin hemen yanında yeralan ve Cumhurbaşkanının kitaplarının yeralacağı kütüphane ise iki katlı olarak inşa edilmiş. Havalandırma dahil tüm teşmilatı tamam gibi. Geniş salonlar ve odalar dikkat çekiyor.
+       <br/>
+       <br/>
+       Külliye içinde, bir de cami bulunuyor; Şehriban Demirel Camii. 1990 yılında açılmış. Külliye kapsamında görevlilerin ikamet edebilecekleri bir lojman da inşa edilmiş.
+       <br/>
+       <br/>
+       Demirel’in evi
+       <br/>
+       <br/>
+       İslamköy’e gelmişken bir merakımızı da giderdik. Demirel’in doğup, büyüdüğü evi de gezip, ziyaret ettik. Demirel’in anne, babasının yaşadığı ve doğduğu ev de ‘Demirel Evi’ olarak biliniyor. Hane numarası 14, su numarası 2, elektrik no’su ise 4. Külliye ile aynı sokağı paylaşıyorlar. 1920’lerde inşa edildiği belirtilen ev, kerpiçten yapılmış, zemin ise taş. Evin anahtarı Şehriban Demirel Camii İmamı Zeki Hoca’ya teslim edilmiş. İçeri giriyoruz. Eski elektrik aksamı aynen duruyor. Girişte taş zemin bir avlu bulunuyor. Avlunun çeşitli yerlerinde yıllarca öncesinden kalma olduğu hemen anlaşılan bakır bakraçlar görülüyor. Eski marka, büyük ekran siyah—beyaz bir televizyon ile Philips marka eski bir radyo dikkat çekiyor. Yer minderleri sanki hiç yerlerinden kaldırılmamış gibi. Çeşitli aile fotoğrafları, zemin kattaki girişin hemen karşısındaki rafta gelişigüzel duruyor. Kiminin üzerinden yağmur suları akmış, tozlanmış, sarı renk almışlar. Demirel’in gençliği dönemindeki bazı büyük fotoğrafları, torun Yahya Demirel’in evlilik fotoğrafları, baba Yahya Demirel’in büyütülmüş bir fotoğrafı öylesine konulmuş, fotoğrafların arasına. Bir fotoğraf daha var; merhum Adnan Menderes. Menderes’in fotoğrafı küçük ama hiç olmazsa o çerçeveletilmiş. Ahşap iç merdivenden yukarı çıkıyoruz. Genel bir bakımsızlık havası hakim eve. Üst katta baba Yahya Demirel’in yağlı boya bir büyük resmi var, merhum Yahya Demirel ağzında sigarasıyla poz vermiş sanatçıya. Kireçli duvardan damın akmasıyla sarılaşmış zeminde tarihe serzenişte bulunan bir bakışla ve vefasızlığın göstergesiyle Yahya Bey’in tablosu. Bazı odalar kilitli. Fakat açık olan mekanların mutlaka elden geçmesi gerekli görülüyor. Hemen avluya açılan bahçe de bakımsız bir görünüme sahip.
+       <br/>
+       <br/>
+       İki fotoğraf; yıllardır Isparta ovalarını sulayan ve Demirel’in tüm izlerini taşıyan sulama kanalları... Onun hemen yanında Demirel’in doğduğu ev. Bir türlü yanyana getiremediğimiz iki ayrı fotoğraf.
+       <br/>
+       <br/>
+       Beldenin ilk belediye reisi
+       <br/>
+       <br/>
+       İslamköy’le ilgili son notlar Demirel aile kabristanına ilişkin. Demirel’in birinci dereceden yakınlarının kabirlerinin bulunduğu mezarlıkta iki mezar taşı diğerlerinden hemen ayrılıyor. Birincisi Süleyman Demirel’in annesi Ümmühan Demirel’e ait. Aynen aktarıyoruz; “(1979) Hayatta kararların, çalışmaların bir anayasa gibi idi. Kimse değiştiremezdi yapacağını. Sanki ilahi bir emir gibi. Evlatlar yetiştirdin. Afife, Süleyman, Şevket, Ali. Şan ve şöhreti severdin fakat satmazdın. Başbakan annesiyim diye kimseye farklı bakmazdın. Bu ovada, bu köyde, bu evde, bu harmanda. Çalışırken işine herkes maşallah derdi. Yüzünü gören nurdan yapılmış ana derdi. İnşallah ruhun cennete erdi.”
+       <br/>
+       <br/>
+       Demirel’in babası Yahya Demirel’in mezar taşında da şunlar kaydedilmiş (1972); “Ömrünü 16 sene harbedip vatana verdi. Geri kalan ömrü de az derdi. Beldenin ilk belediye reisi. Hafızası kitapların ötesi. Sohbetleri hayran bırakırdı herkesi. Ölümünde bir dağ devrildi dedi köylüsü. Evlatlar yetiştirdi. Afife, Süleyman, Şevket, Ali. Başbakan oldu Süleyman. Gururlanmadı hiçbir zaman. Ruhun Allahın rahmetiyle dost ola. Ruzi mahşerde buluşma arzun hakikat ola”.
+       <br/>
+       <br/>
+       e—mail: adnan@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13902), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175901/http://www.aksiyon.com.tr:80/detay.php?id=13902)

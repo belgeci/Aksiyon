@@ -1,0 +1,33 @@
+# Bizim coğrafyanın sesleri
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143255im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050117143255im_/http://www.aksiyon.com.tr/resim/512/69.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İslam coğrafyasının bütün seslerini tanıyabilmek mümkün mü? Değilse bile isteyenler Altaylar’dan Endülüs’e müzik külliyatı ile meraklarını giderebilirler.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Yakın zamanda çıkan bir diğer müzik külliyatı Sera Prodüksiyon etiketiyle piyasada. Müzik araştırmacısı Jean-Claude Cobal ve Abdel Halim Makkawi'nin girişimleri ve külliyatta eserlerine yer verilen ülkelerin kültür kuruluşlarının işbirliği sonucu ortaya çıkan 15 albümlük "Altaylardan Endülüs'e, Asya'dan Kuzey Afrika'ya" 2000 yıllık müzik serüvenini sunuyor. Binlerce yıl önce, Orta Asya'dan yankılanan yürek tınılarının Hindistan'da sitarda, Bağdat'ta udda, Halep'in dar sokaklarındaki ezanlarda vücut bulan şekillenişine yer veren bu eserler udun gitara, kanunun piyanoya dönüşümünün de bir hikâyesi aynı zamanda.
+   <br>
+    <br>
+     Altay müziğinin 'kömiş' adlı özgün ve büyüleyici gırtlak ve nazal (genizden gelen) sesleri ve ıslıkla söylenen dokunaklı yöresel ezgilerinden, sitar ustalarından Fadeh Shan'ın, geniş bir coğrafyaya yayılan Hindistan'ın binlerce yıllık büyüleyici geleneksel müziğinin en seçkin örneklerine, Cengiz Han'dan kaçan din âlimleri ve aydınların ortaya koyduğu hayat tarzını yansıtan Kavali müziğinin, insan olmanın hakikatini işleyen eserlerine uzanıyor. Bu şiirsel kendinden geçiş, Özbekistan, Afganistan ve Azerbaycan'da zenginleşip eşsiz bir tarih ve kültürü bünyesinde toplayan Irak ve Suriye'de yeni bir boyut kazanıyor. Ardından Lübnan'ın ve yaklaşık 5 bin yıllık tarihiyle Mısır'ın birikiminden nasibini alıyor. İslam ordularının fethi ile kültürel anlamda yeşeren Cezayir'den, Osmanlı dönemi medeniyet ve birikiminin de yansıdığı Fas ve Tunus'tan alacağını aldıktan sonra Batılı bilim tarihi araştırmacılarının dahi yıkılışına hayıflandığı Endülüs'e ulaşıyor. Ardından ağıtlar yakılan Endülüs medeniyetini yansıtan bu musikinin, Avrupa müziğinin de temelini oluşturduğu ortaya konuluyor. Külliyat konseptine diyecek bir şey yok; dinlerken acaba daha iyi olabilir miydi demeden edemiyorsunuz.
+     <br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16174&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143255/http://www.aksiyon.com.tr:80/detay.php?id=16174&yorum_id=1)

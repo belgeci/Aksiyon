@@ -1,0 +1,83 @@
+# Kemerinizi bağlayın; otobüsünüz uçuşa geçiyor
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050118065202im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050118065202im_/http://www.aksiyon.com.tr/resim/470/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Otobüs fiyatına uçak seferleri düzenleme fikri otobüsçülerden çıktı. 1970"li yıllarda kurulan hayal, bugünlere ertelendi. Onur Air ve Fly Air"in ardından Ulusoy, Varan, Metro havalanıyor. THY"ye talip olan bir holdingle bir medya grubu da uçuşa hazırlanıyor.
+  <br>
+   <br>
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Anayurdu 1940"a kadar demir ağlarla ördük dört baştan. 1950"lerden itibaren Amerika"nın da desteklediği "karayolu" şebekesi tercih edildi. Marshall Yardımları bile karayollarının yapımına harcandı. Bu sefer anayurdu duble yollarla ördük. Aynı yıllarda şehirlerarası sosyo-ekonomik ilişkilerin artmasıyla ortaya çıkan taşıma talebini devlet karşılayamadı. Hür teşebbüs durumdan vazife çıkarınca; otobüsle insan taşımacılığı sektörü doğdu. 1960"lardan sonra otobüsçülük hızla büyüdü. Cumhuriyetin onuncu yılında milli gurur vesilesi olan demiryolları ise, 12 Eylül sonrası "komünist işi" olarak görüldü ve tamamen ihmal edildi. Ulaşımdaki bütün yük karayoluna bindi. Seçim meydanlarında kilometre cinsinden vaatlerde bulunan siyasiler, iktidara geldiklerinde durmadan yol yaptılar. 1980"lerden itibaren nemur ve öğrenci sayısının artması, göç  dalgası derken, şehirlerarası yolcu harereti yılda 150 milyon, birbirine yakın iller arası dolaşım da dahil edildiğinde 500 milyon kişiye ulaştı. Kırk yıl önce 2 bin olan otobüs sayısı, dünyada eşi benzeri olmayan büyüklüğe erişti. Şu anda 569 firmanın 10 bin otobüsü yollarda can taşıyor.
+   <br>
+    <br>
+     Hemen herkes bir yakınını trafik kazasında yitirmiş olsa da otobüsçülük bir gelenek oldu Türkiye"de. Ulaşımda yüzde 2"lik payı bulunan havayolu şirketleri, 1.5 milyon kişinin ekmek yediği 7.5 milyar dolarlık geleneği bozmayı düşünüyor. Fly Air"den sonra Onur Air, bu haftadan itibaren 79 milyon liraya Adana, Antalya, Diyarbakır, Erzurum, İzmir, Kayseri, Samsun ve Trabzon"a uçuyor. Türk Hava Yolları (THY) 1 Aralık"tan itibaren erken rezervasyonlarda yüzde 30 indirime başladı. Açılan hava koridorundan, çok sayıda firma Türkiye"ye girmeye hazırlanıyor.
+     <br/>
+     <br/>
+     Varan iç ve dış hat kuruyor
+     <br/>
+     <br/>
+     Otobüs bileti fiyatına uçakla yolculuk hayalini havayolu şirketleri gerçekleştirse de projenin asıl fikir babası otobüsçüler. 57 yıldan beri faaliyet gösteren Varan Turizm, 1970"li yıllarda uçmayı planladı. Bugün pek bilinmese de Varan, uçak kiralama yöntemiyle uçmaya başladı. Üzerinde Varan Air yazan uçaklar, daha çok Almanya"dan Türkiye"ye yolcu taşıdı. Yolcuların çoğunluğunu gurbetçiler oluşturuyordu. Ekonomik olmadığı için Varan tekrar yere indi.
+     <br/>
+     <br/>
+     Yıllar sonra THY eski Genel Müdürü Yusuf Bolayırlı, sektör değiştirerek Varan"a Genel Müdür olduğunda bu durum bazı çevrelerce garip karşılanmıştı. Bolayırlı, Varan"ı tekrar uçurmak için gelmişti. Bolayırlı, 1994"te gökyüzünde belirecek şirketleri izleyip 2005 yılı başında Varan"ı uçurmayı planlıyor. Sektöre girmeye hazırlanan öteki firmaların aksine Varan, müşteri profilini de göz önüne alarak yurtdışına uçacak. Aynı anda iç hat seferleri de başlayacak. Buradan Varan"ın sadece yerel değil, uluslararası bir hayali hayata geçirmeyi planladığı anlaşılıyor. Bolayırlı, "Değişikliklere uyacağız. Biz uymazsak piyasa uydurur. Sermaye gücü ve kalitesi yeterli olan havada ve karada devam edecek" diyor.
+     <br/>
+     <br/>
+     Karadeniz Airlines geliyor
+     <br/>
+     <br/>
+     Sivil Havacılık Kanunu"nun çıktığı 1983 yılından önce özel şirketlere uçuş izni olmamasına rağmen Ulusoy, 1978 yılında uçak alarak bir havayolu şirketi kurmayı planladı. Şirketin adı "Karadeniz Airlines" olacaktı. Yaptırılan fizibilite çalışmalarında risk, sigorta ve bakım giderlerinin çok yüksek çıkması nedeniyle uçma fikri askıya alındı. Ama bir gün mutlaka gerçekleşecek bir proje olarak bugüne kadar bir kenarda bekletildi. Havacılığa olan ilgisini kesmeyen Ulusoy, İstanbul Havayolları"nın ana satış acenteliğini yaptı. Ulusoy, otobüs fiyatına uçak bileti satarak yolcularını çalmayı planlayan Onur Air"ın ana satış acenteliğini de aldı. Havadaki son gelişmelerle birlikte Ulusoy, yeniden uçma heyecanına kapıldı. 25 yıllık proje raflardan indirildi.
+     <br/>
+     <br/>
+     "İstikbal göklerdedir" diyen Ulusoy Otobüs Grubu Genel Müdürü Mustafa Yıldırım, projeyle ilgili çalışmalar hakkında pek sır vermek istemiyor. Fakat, jet motorlu uçaklarla kısa mesafelere uçmanın kârlı olmadığını, para kazanılamayacağını, Amerika"daki gibi 50-70 kişilik "hava otobüsü"nün daha uygun olduğunu söylüyor. Yıldırım, hava otobüsleriyle İstanbul"dan Bursa, Edirne, Ankara, Çanakkale, İzmir hatta Trabzon"a uçaklara göre daha ekonomik seferler düzenlenebileceğine dikkati çekiyor. Yıldırım"ın bahsettiği yarı helikopter yarı uçak özelliğine sahip modeller, dünyadaki gibi Türkiye"de de sivil havacılık sektöründe büyük değişikliklere neden olacağa benziyor. Çünkü bu tür uçakların motorları kalkış ve iniş sırasında 90 derece döndürülerek helikopter pervanesi gibi kullanılıyor. Bu özellik sayesinde havaalanı pistlerine ihtiyaç duymadan havalanabiliyor. Bu özellik sayesinde havaalanı olmayan yerleşim birimlerine de seferler düzenlenebilecek.
+     <br/>
+     <br/>
+     Gözü yükseklerde olan öteki süpriz otobüs firması Metro Turizm. Havacılık sektörüne girmek için ciddi hazırlıklar yapan Metro, ekonomik krizden ve 11 Eylül saldırısından sonra sigorta vb. maliyetlerin artması sebebiyle planlarını askıya aldı. Yurt çapında geniş bir ağa sahip olan firma, uçak alımı için çeşitli temaslarda bulunuyor.
+     <br/>
+     <br/>
+     11 Eylül uçakları geliyor
+     <br/>
+     <br/>
+     Havacılık ciddi bir sermaye birikimi gerektirdiği için yakında ikili, üçlü şirket evlilikleri de gündeme gelecek. Ulusoy Otobüs Grubu Genel Müdürü Mustafa Yılmaz, "Yarın belki de sermayemizi birleştirip uçak, tren veya gemi satın alacağız. Ben yapamam diyenler taşımanın dışında kalacak" diyor. Yeterli sermayesi olmayan ama geniş bir ağı bulunan otobüs firmalarının ise, yabancı havayolu şirketleriyle evlenme şansı bulunuyor. Amerikan havayolu şirketlerinden birinin üst düzey yetkilisi, bugünlerde Esenler Otogarı"nda firmalarla görüşüp, evlilik teklif ediyor. Çünkü kurulacak şirketin yüzde 51"inin Türk vatandaşına ait olması gerekiyor. Yabancı havayolu şirketleri, ortaklık karşılığında, uçakları getirecek. Yurt içinde uçabilmek için sivil Havacılık Genel Müdürlüğü"nün istediği teknik kriterleri sağlayacak. Otobüs firması ise, belli miktarlarda sermaye koyacak ve servis ağını kuracak. Yolcular, alandan Türk ortağın otobüsleriyle, yakın illere taşınacak. Hem yolcular hem de karayolundaki pazar payı kaybedilmemiş olacak. Yabancılar, böyle bir ortaklık için en az 100-200 otobüsü olan firmaları tercih ediyor. Fakat şu andaki mevcut yapı buna müsait değil. Bugüne kadar ulaştırma kanunu çıkarılmadığı için, üç otobüsü olan bile firma kurmuş. Firmaların yüzde 80"inin otobüsleri değişik şahıslara ait. Hatta eroin ticareti trafiği karadan denize kaymadan önce, muavinler bile "bir kilo toz bi otoboz" formülüyle otobüs satın alıp şirket kurmuşlardı. Yeni kanunla şehirler arası yolcu taşıma belgesi 250 milyon liradan 75 milyara çıkartıldı. Şartların ağırlaşması, sektör içindeki evliliği hızlandıracak. Bu da otobüs şirketleriyle evlilik düşünen yabancı havayolu şirketlerine yarayacak.
+     <br/>
+     <br/>
+     Çeşitli gruplara havacılık konusunda danışmanlık yapan Ulaştırma Bakanlığı"ndan emekli üst düzey bir yetkili, önümüzdeki günlerde yabancıların ilgisinin daha da artacağını söylüyor ve nedenini şöyle açıklıyor: "11 Eylül saldırısından sonra dünya devleri bile battı. Uluslararası havayolu şirketlerine ait çok sayıda uçak atıl duruma düştü. Şimdi bu atıl kapasitenin değerlendirilmesi için Türkiye"deki gelişme onlara çok iyi bir alternatif oldu." Yani 11 Eylül"ün faturası dolaylı yoldan bizim otobüsçülere kesilecek.
+     <br/>
+     <br/>
+     Uçmayı kafasına koyan otobüs şirketleri, uçakların satın mı alınacağı yoksa kiralanacağı mı konusunda karar vermeye çalışıyor. Fakat leasing ücretlerinin çok yüksek olması nedeniyle kiralama yöntemi akılcı bulunmuyor. Yasa, uçmak için 5 uçak alımını şart koşuyor. Uçaklar da dahil olmak üzere 30 milyon doları bastıran herkes uçurabilecek. İlk etapta bu paranın 10 milyon doları harcanacak.
+     <br/>
+     <br/>
+     Medyanın gözü yükseklerde
+     <br/>
+     <br/>
+     Ulaşım sektörünün dışındaki gruplar da uçmaya hazırlanıyor. Türkiye"nin en büyük gruplarından biri, 2000 yılından bu yana çalışmalarını sürdürüyor. THY"ye de talip olan grup, bir İngiliz gruba fizibilite çalışması yaptırdı. Söz konusu grup, çalışmalarını Sabiha Gökçen Havaalanı üzerinde yoğunlaştırıyor. Öteki sürpriz isim ise, bir medya grubu. Havacılık çevresindekiler, medya patronunun uçmaya ilgi duyduğunu ama yaptırdığı çalışmaların bir fikir jimnastiği mi yoksa ileriye mi dönük olduğunun zamanla anlaşılacağını söylüyor. Her şey yolunda giderse otobüs firmaları, en geç nisan ve mayıs aylarından itibaren gökyüzünü renklendirecek. Demir ve beton ağlardan sonra, bu sefer hava koridorlarıyla öreceğiz anayurdu dört baştan!
+     <br/>
+     <br/>
+     Uçakların otobüs güzergahında uçmaya başlamasıyla birlikte, yüzde 94,9"luk paya sahip otobüsle yolcu taşımacılığı sektörünün geleceği merak ediliyor. Uluslararası Anadolu ve Trakya Otobüsçüler Derneği (UATOD) yetkilileri, uçakların ancak 2.5 milyonluk yolcu çalabileceğini, 150-170 milyonluk yolcu hareketi içinde bunun önemli bir rakam olmadığını düşünüyor. Aynı yetkililer, İstanbul-Trabzon ve İstanbul-Kayseri hattının daha şimdiden etkilenmeye başladığını belirtmeden geçemiyor. Varan Turizm Genel Müdürü Yusuf Bolayırlı da karayolunun payının kısa vadede yüzde 50"ye düşeceğini öngörmüyor. Tüm Otobüsçüler Derneği (TODER) Başkanı Mustafa Yıldırım ise, uzun ya da kısa vadede uçakların otobüs taşımacılığından büyük pay alacağını söylüyor.
+     <br/>
+     <br/>
+     Aslında otobüsçülere en büyük darbeyi havayolu şirketi kuracak olan seyahat şirketleri vuracak. İç hatlarda uçan firmaların kapasitesi ve çalabilecekleri otobüs yolcusu belirli. Asıl tehlike, otobüs şirketlerinin uçmaya başlaması. Çünkü bu şirketler İstanbul-Ankara, İstanbul-İzmir, İstanbul-Antalya, İstanbul-Samsun, İstanbul-Erzurum, İstanbul-Adana, İstanbul-Van gibi ana arterleri hedefleyecek. Bu hedef gerçekleşirse karayoluyla yolcu taşımacılığı geleneği neredeyse bitmiş olacak. Ulusoy ve Varan gibi şirketlerin acele etmelerinin diğer bir nedeni de uçak yolcusunun bir alt sınıfındaki kitleyi taşıyor olmaları. Bugüne kadar daha fazla para ödeyerek bu firmaların lüks otobüsleriyle seyahat etmeyi tercih eden kitle, fiyat farkının kapanmasıyla uçağa kayacak.
+     <br/>
+     <br/>
+     Otobüsleri yoldan çıkartacak bir teklif de demiryollarından geldi. TCDD, sürpriz bir çıkış yaparak, "Lokomotifini alan demiryoluna gelsin" dedi. Otobüsçüler, yolcu taşımacılığı için öncelikle ana arterlerinin sağlam bir alt yapıya kavusturulmasını bekliyor. Belki de yakında İstanbul-Ankara hattında mavi trenin arkasında,  otobüs firmalarına ait iki, üç tane farklı renkte,  daha konforlu vagonlar görebilirsiniz. Fakat Türkiye"nin yol hikayeleri burada bitmez.
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3257&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050118065202/http://www.aksiyon.com.tr:80/detay.php?id=3257&yorum_id=1)

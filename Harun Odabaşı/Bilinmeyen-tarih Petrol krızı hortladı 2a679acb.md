@@ -1,0 +1,109 @@
+# Petrol krızı hortladı
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302224258im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302224258im_/http://www.aksiyon.com.tr/resim/300/56.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ham petrolün varil fiyatının 33 dolar seviyesine çıkması uzun zamandan beri unuttuğumuz bir gerçeği yeniden hatırlamamıza neden oldu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Yeni ekonomi o kadar gözlerimizi kamaştırmış ki nerede ise geleneksel ekonomi verilerini rafa kaldıracakken, OPEC ülkelerinin aldığı üretimi kısma ve fiyatları yükseltme kararı ‘dünyanın efendisi’nin hâlâ petrol olduğunu tüm dehşeti ile gözler önüne serdi. ABD ve Japonya başta olmak üzere tüm gelişmiş sanayi ülkeleri alarmda ve petrol üreten ülkeleri ikna için ABD Başkanı Bill Clinton turlara başladı bile.
+   <br>
+    <br>
+     Petrole ait stratejiler o kadar derinlerde ve uzun vadeli hazırlanıyor ki şu andaki fiyat artışı ile belki 25 sene sonrası için adımlar atılıyor. Ancak planlar açıktan ifade edilmediği için kimin hangi hesabın peşinde olduğunu çözümlemek o kadar kolay değil.
+     <br>
+      <br>
+       Petrol fiyatlarındaki artışın basit bir nedeni var; üretimin azalması. OPEC ülkeleri bazı kuyuları kapatarak, bazılarının da üretim seviyesini düşürerek bir arz daralması meydana getirdiler ve dolayısı ile birkaç sene önce 8 dolarları gören petrolün varil fiyatı 30 doların üstüne taşındı. OPEC’in (Petrol İhraç Eden Ülkeler Örgütü) içinde ‘şahinler’ diye isimlendirilen ülkelerin önderliğinde yürütülen bu politikanın kısa sürede çözüme kavuşturulması zor gibi görünüyor. Çünkü daha önce ABD’ye bağımlılığı nedeni ile OPEC’in koyduğu kotaları dinlemeyerek Suudi Arabistan ile birlikte ucuz petrol satışı yapan Venezüella’nın petrol politikasında ciddi sertleşmeler oldu. Venezüella’nın solcu Devlet Başkanı Hugo Chaves, ülkesinin ekonomisini çeşitlendirip güçlendirene dek petrol gelirlerine bağımlı kalacağını, OPEC’in belirlediği 22—28 doların uygun olduğunu söylemesi meselenin ciddiyetini ortaya koyuyor. Konuyu biraz daha açarsak; ABD kendisine sıkı sıkıya bağımlı Venezüella ve Suudi Arabistan’ı Truva atı gibi kullanarak OPEC’in sert saldırılarını karşılıyordu. Ama şimdilik Venezüella kartını kaybetmesi OPEC’in elini kuvvetlendirdi.
+       <br/>
+       <br/>
+       Kimin ne hesabı var?
+       <br/>
+       <br/>
+       Peki bu noktada kim hangi hesabı yapıyor? Petrol üretiminde bir süredir büyük bir bolluk vardı ve fiyatlar da çok düşük seviyelerde idi. 10 doların altına düşen fiyat ile OPEC dünyada petrol arama ve çıkarma çalışmalarının cazibesini yoketmek istiyordu. Çünkü özellikle Kafkaslar ve Hazar çevresinde bulunacak yeni petrol yatakları OPEC’in kartel yapısını ortadan kaldırabilirdi. Bu taktik bir süre tuttu Hazar çevresinde büyük petrol rezervlerinin ortaya çıkması ile OPEC, bu bölge aktif hale gelmeden fiyatları yukarılara çıkartarak kısa zamanda büyük kârlar elde etme hevesine kapılmış olabilir.
+       <br/>
+       <br/>
+       Bir önemli hesap da alternatif enerji kaynakları ile ilgili. Petrole alternatif enerji kaynaklarının gittikçe ekonomide ağırlığını hissettirmesi OPEC’i geleceğe ait karamsar bir düşünceye itiyor. Rezervlerin azalmasına bağlı olarak bir de yeni enerji kaynakları bulunursa fiyatlar o zaman daha da aşağılara düşecek ve en önemli geliri petrolden elde eden ülkeler daha zor şartlarda kalacak. İşte bu sebeple OPEC, güçlü olduğu bu dönemde fiyatları çekerek elde edeceği yüksek gelirle gelir çeşitliliği için yatırımlar yapmayı planlıyor.
+       <br/>
+       <br/>
+       Bir diğer hesap belki de en masum olanı. OPEC’in Ortadoğulu üyeleri petrolün fiyatının 1990’lı yıllarda oldukça düşük seyretmesi ve üretimin fazlalaşması nedeni ile büyük zararlara uğramışlardı. Fiyatları artırarak bu zararları telafi etmek, ekonomilerini rahatlatmak istiyorlar.
+       <br/>
+       <br/>
+       ‘Kriz olacağını sanmıyorum’
+       <br/>
+       <br/>
+       TPAO eski çalışanlarından petrol mühendisi Ahmet Hüsamettin Doğramacı, savaşlar çıkaran, hükümetler deviren petrolün fiyatının artmasının dünyadaki siyasi gelişmeleri doğal olarak etkileyeceğini ancak bunun 1974 yılındakine benzer bir krize neden olabileceğini sanmadığını bilirtiyor. Doğramacı’ya göre 1974 Petrol Bunalımı spontane bir hareket. Arapların biraraya gelerek böyle bir karar alabileceğini kimse beklemiyordu. OPEC bu hadiseden sonra eski gücüne hiçbir zaman gelemedi ve gelişmiş ülkelerde artık buna izin vermez.
+       <br/>
+       <br/>
+       Fiyat artışının üretimin azalmasına bağlı olduğuna dikkat çeken Doğramacı, bir süre sonra fiyatların normal seviyesine ineceği görüşünde. Petrolün hâlâ alternatifi olmadığına işaret eden Doğramacı, krizin çözümlenmemesi halinde ABD başta olmak üzere gelişmiş ülkelerin şok tedbirlere yönelebileceğini belirtiyor. Doğramacı, “Petrole dayalı politikalar uzun vadeli ve çok gizlidir. Onun için petrol üreten ülkelerin hangi hesabı yaptığını kestirmek için doğru verileri toplamak gerekir” diyor.
+       <br/>
+       <br/>
+       ‘ABD blöf yapıyor, Türkiye sadece dua ediyor’
+       <br/>
+       <br/>
+       Saben A.Ş. Yönetim Kurulu Üyesi Fevzi Apaydın ise ABD’nin elindeki rezervleri kullanacağını söylemesinin blöf olduğunu iddia ediyor. Apaydın, ABD’nin petrol rezervlerini kullanmasının milli çıkarları ile çatıştığını, bir savaş halinde bu rezervlere ihtiyacı olduğunu, konvansiyonel silahların petrol ile çalıştığını anlatıyor.
+       <br/>
+       <br/>
+       Türkiye’nin mevcut gelişmeleri sadece takip ettiğine ve hiçbir tedbir almadığına değinen Apaydın, “Türkiye dua etmekten başka birşey yapmıyor. Siyasiler bu konuda bu zamana değin hiçbirşey yapamamıştır. Dünyadaki gidişin iyi olduğu bir zamanda başa gelen hükümet tesadüfen kârlı bir dönem geçirmiş. Fiyatların yükseldiği dönemdeki hükümet ise başarısız görünmüştür. Tamamı ile edilgen bir yapı mevcut” diyor.
+       <br/>
+       <br/>
+       Venezüella ve Suudi Arabistan’ın ABD güdümünde olmasından dolayı OPEC’in radikal ülkelerinin planlarının bu zamana kadar tutmadığını belirten Apaydın, yeni sürecin nedenlerini şöyle açıklıyor: “Petrol artık esas kârı arama ve çıkartmada bırakıyor. Dağıtımın cazibesi kalmadı. OPEC ülkeleri fiyatların 8 dolarlara indiği dönemde büyük zarara uğradı ve şimdi bu zararı telafi etmek istiyor. Bir de alternatif enerji kaynakları gündemde. Petrol sıkıntısı devam ederse bu, alternatif enerji kaynaklarının gelişmesini hızlandırır. Petroldeki fiyat artışının bu seviyede devam edeceğini sanmıyorum. Krize dönüşmeden duracaktır” diyor.
+       <br/>
+       <br/>
+       1974 krizi nasıl çıktı?
+       <br/>
+       <br/>
+       Petrol fiyatının her artışında 1974 yılına gönderme yapılması boşuna değil. 1974 yılında neler olduğunu hatırlayalım: Bilindiği gibi OPEC, üye ülkelerin petrol politikaları arasında eşgüdüm sağlamak ve üye ülkelere teknik ve ekonomik yardımlarda bulunmak amacıyla kurulan çok uluslu bir örgüt. Ocak 1961’de İran, Irak, Kuveyt, Suudi Arabistan ve Venezüella tarafından kuruldu. Sonradan üye sayısı arttı. 1973 yılında Viyana’daki konferansta alınan kararla petrol fiyatlarının yüzde 70 oranında artırılmasıyla OPEC’in kararları dünya petrol piyasalarında önemli rol oynamaya başladı. Örgüt içinde ağırlığı oluşturan Ortadoğu ülkeleri birbirini izleyen fiyat artışlarını Ekim 1973’teki Arap—İsrail Savaşı’nda İsrail’i destekleyen Batılı devletlere karşı siyasal bir silah olarak kullandılar. Aynı amaçla Tahran’da toplanan konferansta petrol fiyatları Aralık 1973’te yüzde 130 artırıldı ve ABD ve Hollanda’ya petrol sevkiyatı bir süre durduruldu.
+       <br/>
+       <br/>
+       Paralar Batı’ya!
+       <br/>
+       <br/>
+       Petrol fiyatlarının yükselişi OPEC ülkelerinin bütçe gelirlerinde büyük artış yarattı. Üye ülkeler bu gelirlerinin bir bölümünü kalkınma projelerine harcarken önemli bir bölümüyle de sanayileşmiş ülkelerde, özellikle ABD’de büyük yatırımlara giriştiler ABD bankalarına yatırılan ‘petrodolarlar’ın büyük bölümü, bu bankalarca gelişmiş ve gelişmekte olan ülkelere verilen borçların finansmanında kullanıldı. Ayrıca Avrupa para piyasalarına bir miktar para aktarıldı ve gelişmekte olan ülkelere yardım amacı ile OPEC Uluslararası Kalkınma Fonu kuruldu.
+       <br/>
+       <br/>
+       1980’lerin başında OPEC’in dünya petrol fiyatları üzerindeki etkisi azalmaya başladı. Batılı sanayileşmiş ülkeler fiyat artışı karşısında başta kömür ve nükleer enerji olmak üzere farklı enerji kaynaklarına yöneldiler. Kendi ülkelerindeki petrol arama ve çıkarma çalışmalarına ağırlık verdiler. Petrol ihtiyaçlarını Meksika ve SSCB gibi OPEC dışı ülkelerden karşılamaya başladılar. Bu politikalar sonucu Batılı ülkelerin OPEC’e olan bağımlılığı azaldı. Bunun üzerine OPEC 1982 yılında fiyatları düşürmek ve üretimi kısmak zorunda kaldı. 1980 yılında başlayan İran—Irak Savaşı nedeni ile zaten zayıflamış olan iç bütünlüğü daha da sarsıldı ve o günden bu yana ciddi bir varlık gösteremedi. Suudi Arabistan örgüt içinde etkinliği az olmasına rağmen rezervi en yüksek ülke olarak uzun yıllar petrol fiyatlarının tesbitinde belirleyici rol oynadı.
+       <br/>
+       <br/>
+       Petrol fiyatları ABD
+       <br/>
+       <br/>
+       seçimlerini de vurdu
+       <br/>
+       <br/>
+       Bu arada petroldeki sıcak gelişmeler ABD’deki başkanlık seçimlerine de yansıdı. ABD’li seçmenler yeni devlet başkanlarını seçmek üzere oy verecekleri 7 Kasım’da, benzin ve diğer akaryakıt fiyatlarına, otomobillerinin deposunu kaça dolduracaklarına, evlerini ne kadar maliyetle ısıtabileceklerine de bakarak karar verecekler. Bu yılki başkanlık seçimi kampanyasında, Amerikan seçmenleri, adayların enerji politikalarını da değerlendirerek oy kullanacaklarından, bu konu, 1980 sonrasında ilk kez önemli bir rol oynayacak. Hatırlanacağı üzere 1980 yılındaki devlet başkanlığı seçimlerinde, petrol fiyatlarının ikiye katlanıp, akaryakıt maliyetlerinin tırmanması, Ronald Reagan’ın Jimmy Carter’ı yenmesine yardım etmişti.
+       <br/>
+       <br/>
+       ABD’nin hampetrol stoklarının son 24 yılın en düşük düzeyine, 279.7 milyon varile, sadece 19 günlük ihtiyaca yetecek düzeye inmesi, kuzey yarıküresindeki ülkelerin bu kış fuel—oil sıkıntısı çekecekleri endişesini ortaya çıkardı. Fransa’nın liman kenti Sete’de geçen dört günde üçüncü kez akaryakıt fiyatlarındaki artışları protesto eden 200 balıkçı, tekneleriyle limanı bloke ederek, arabalı vapurların ulaşımını engelledi.
+       <br/>
+       <br/>
+       Fransız hükümeti, global petrol fiyatlarındaki yükselişin tüketiciler üzerindeki baskısını gidermek için akaryakıt vergilerinde indirimi görüştü. Bu ülkede, benzin fiyatlarının yaklaşık yüzde 70’i vergilerden oluşuyor. Akaryakıt fiyatları 1998 yılı sonundan beri yüzde 25 arttı.
+       <br/>
+       <br/>
+       Clinton yollarda!
+       <br/>
+       <br/>
+       Amerika Birleşik Devletleri Başkanı Bill Clinton, ham petrol fiyatlarındaki hızlı tırmanışın frenlenmesi amacıyla harekete geçti ve başta Nijerya olmak üzere Petrol İhraç Eden Ülkeler Birliği’ne üye ülkelere petrol üretim kotalarının artırılması için görüşmelerde bulundu. Ziyaretlerin sonuçları önümüzdeki haftalarda kendisini gösterecek.
+       <br/>
+       <br/>
+       OPEC’in Ortadoğu kökenli üye ülkelerinde ekonomik sıkıntılar devam ettikçe, gelecekte bu tip çıkıntılıkların olması da kaçınılmaz. Kriz çıkmaz diyenler ise çok iyimser. Zira 1974 yılında da kimse Araplardan böylesine sert bir çıkış beklemiyordu. Hazırlıklı olmakta fayda var. Ama Türkiye elindeki kozları kullanmayı bilirse çıkışı bulabilir. Ne demek istediğimizi Demirel’in su benzetmesini hatırlayarak anlayabilirsiniz!
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14023), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302224258/http://www.aksiyon.com.tr:80/detay.php?id=14023)

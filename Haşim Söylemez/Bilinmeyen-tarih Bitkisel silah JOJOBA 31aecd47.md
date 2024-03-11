@@ -1,0 +1,86 @@
+# Bitkisel silah: JOJOBA
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226005614im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226005614im_/http://www.aksiyon.com.tr/resim/394/kapak.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Amerika’da 1985 yılında ‘stratejik’ bitki ilan edilen jojoba üzerine, 1980-90 yılları arasında TÜBİTAK ile Çukurova Üniversitesi ortak bir deneme ve araştırma çalışması yürüttü. Proje yürütücüsü Prof. Dr. Ergenoğlu devletin konuyla ilgilenmediğini, Genelkurmay’ın ise kendisinden sadece bilgi almakla yetindiğini söylüyor. M.Ö 6. yüzyılın başlarında Asyalılar savaş silahlarının uç kısımlarını çavdara batırırlardı. Aynı şekilde Kızılderililer de düşmanlarına karşı, uçlarına zehirli bitkiler sürülmüş mızrak ve ok kullanırlardı. Zehirli bitkiler o dönem için stratejik önem taşıyordu; az bulunuyordu ve henüz topluluklar tarafından keşfedilmemişti. Savaşta bitkilerin bir silah olarak kullanılması yönteminde aynı zamanda bulaşıcı hastalıkların yayılması da hedefleniyordu. Bitkilerin, insanoğlunun varlığından beri bir savaş silahı olarak kullanılageldiğini tarih bize aktarıyor. Bitkilerden ilkel faydalanma yöntemi geride kaldı. Günümüzde artık askeri kamuflajlarda, ilaç, sentetik, hatta savunma sanayiinde faydalanılıyor bitkilerden.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İlk bakışta hiçbir anlam veremediğimiz bitkiler, kıymeti bakımından ‘stratejik’ bir hal alıyor. Artık okun ucuna sürülerek düşmanı zehirlemek yerine, ne kadar alanda faydalanılır ölçüsü o bitkinin değerini ortaya koyuyor. Buğday ya da mısır insan yaşamı için önemli olabilir ama faydalanıldığı alan sayılıdır. Az yetişen ama sayısız alanda kullanılan bitkiler uluslararası alanda daha çok değer buluyor. Tabir yerindeyse her derde deva bitkilerin sayısı parmakla gösterilecek kadar az. Nicelik az olunca bazı bitkilerde piyasa ve tekelleşme devreye giriyor. Bir ülke bir bitkiden faydalandığı alanları diğer bir ülkeden saklıyor, çalışmalarını gizli tutuyor. İşte böylesine stratejik öneme sahip bitkilerden birisi de jojoba. Yüzden fazla alanda kullanılan bu bitki uluslararası stratejik özeliği olan bir ürün hüviyetinde.
+   <br/>
+   <br/>
+   Jojoba nedir?
+   <br/>
+   <br/>
+   Anavatanı ABD’nin Arizona ve Kaliforniya eyaletleri ile Meksika’nın Sonora Çölü olan jojoba her daim yeşil, 100 ila 200 yıllık ömre sahip çalı formunda bir çöl bitkisidir. İngilizce’de hoboba, Fransızca’da yoyoba diye okunan, Latince’de simmondsia ehinonsis (link) diye adlandırılan bu bitki bizde keçifındığı olarak biliniyor.  İlk olarak İtalyan rahip Clavijero tarafından 1789 yılında tanımlandı. Clavijero bu bitkinin, Kaliforniya ve Sonora Çölü yerlileri tarafından derin kanser veya yaraların tedavisinde, saç çıkartılmasında, doğum ağrılarının başlatılmasında kullanıldığını bildiriyor. Ancak 1993 yılında, tohumundaki mum tabiatında yağın diğer bitkilerdeki  yağlardan farklı ve kaşalot adlı sperm balinanın yağına denk olduğunun keşfedilmesiyle dikkatleri üzerine çekti. 2. Dünya Savaşı ile birlikte önemini artıran jojoba 1972 yılında deniz memelilerinin korunması yasası ile birlikte önemini iyiden iyiye artırdı. Yüksek sıcaklıkta ve basınç altında bile kararlı olan viskozitesini kaybetmediği için temas ettiği yüzeye gayet iyi yapışan balina yağı gibi jojoba da endüstriyel alanda kullanılmaya başlandı. Zeytin, soya, mısır, pamuk tohum yağları gliserol ile yağ asitlerinin bir esteri olmasına karşın jojoba tohumlarında bulunan yağ sıvı bir mum gibi, gliserol yerine uzun zincirli dallanmış bir alkol grubu ile yağ asitlerinden oluşuyor. Yağı açık sarı renkte, doymamış, çok fazla stabil ve büyük oranda saf; yüksek hız ve sıcaklıkta çalışan makineler için yağlayıcı madde olarak rafine edilmeksizin kullanım özelliğine de sahip. Saatlerin yağlanmasında  kullanılabilecek kadar ince ve saf; füze, roket ve ağır sanayi makinelerinin yağlanmasında kullanılabilecek kadar da yüksek basınç ve sıcaklığa dayanıklı. Hidrojene edildiğinde ise oldukça sert bir mum halini alabilecek özellikte.
+   <br/>
+   <br/>
+   Ekiminden 3-4 yıl sonra faydalanılan jojoba tohumunda yüzde 50 oranında yağ bulunuyor. 5 yaşındaki bir bitkiden 500 gram, 12 yaşındakinden 2.5 kilogram, 25 yaşındakinden ise 14 kilogram tohum elde edilebiliyor. Jojoba yağının kaynama sıcaklığı oldukça yüksek. Aynı şekilde termal dengesi de kaynama derecesi kadar yüksek. Parçalanma sıcaklığı 315 derece. Donma sıcaklığı da yüksek sayılabilecek derecede; 7 ila 10 derece arasındaki bir sıcaklık yağı dondurmaya yetiyor. Bu sebepten jojoba yağı ile dondurulmuş bir ürünü ilkbahar, sonbahar ve kış aylarında buzdolabına koymaya gerek yok. Hem tohumu hem de yağı uzun yıllar hiçbir şey olmadan saklanabiliyor. Ancak ne kadar bir süre saklanacağı konusunda kesin bir veri yok. Konuyla ilgilenen bazı uzmanlara göre bu yağ yüzyıllar boyu bozulmadan saklanabilir. Deneme aşamalarında, 25 yaşındaki tohumdan elde edilen yağın hiçbir özelliğini yitirmediği tespit edilmiş durumda.
+   <br/>
+   <br/>
+   Kullanılmadığı alan yok ki
+   <br/>
+   <br/>
+   Zeytinyağı elde eder gibi mekanik pres ve çözücü ekstraksiyon yöntemleri ile veya iki yöntemin kombinasyonu ile elde edilen jojoba yağının kullanım alanı oldukça geniş. Nerdeyse hayatımıza yansıyan her alanda jojobayı görmek mümkün. Ancak bu bitkiyi keşfedip kullanmak önemli. Yüzlerce üründe kullanılabileceği uzmanlar tarafından belirtiliyor. Yüksek sıcaklık ve basınçta çalışan makinelerin yağlanmasında rafine edilmeksizin kullanılıyor. Uçak motorlarında kullanılan bu yağ, otomobillerde motor yağı olarak kullanıldığında 200 bin kilometre yapılabilecek özelliğe sahip. Motor yağına katılan bir miktar jojoba yağı sayesinde aynı yakıtla alınan yolu 3.5 misli artırmak mümkün. Aynı şekilde bu yağ füze ve roketlerde de kullanılıyor. Sabun, şampuan, kozmetik ürünleri, saç besleyici, deterjan, krem ve ilaç yapımında kullanılan jojoba yağı; mum, reçine, koruyucu kaplama ve çürümeyi engelleyici maddelerin yapımında, ayakkabı, araba, karton ve kağıtların cilalanmasında hem ekonomik tasarruf, hem de sağlamlık bakımından tercih ediliyor. Jojoba bitkisi, yağı alındıktan sonra içerdiği yüzde 35 oranındaki protein sayesinde hayvan yemi olarak da kullanılıyor.
+   <br/>
+   <br/>
+   Kozmetik yeni keşfediyor, ilaç sanayii şaşkın
+   <br/>
+   <br/>
+   Zeytinyağı, balmumu ve diğer yağlar geleneksel kozmetik sanayiinin temelini oluşturuyor. Ancak jojoba kalitesi nedeniyle hızla temel kozmetik maddesi haline geliyor. Kozmetik konusundaki araştırmalar, rafine edilmemiş jojoba yağının rakiplerinden çok önde olduğunu gösteriyor. Reçine, katran, gliserid, alkolid ve glikozid içermiyor. Ayrıca acılaşmaya, bozulmaya karşı dayanıklı olması nedeniyle deri üzerinde hoş bir his uyandırıyor. Bu nedenle kozmetik endüstrisinin standart temel ürünü haline gelmiş durumda. Tabii her yerde değil. Yalnızca ABD pazarında yaklaşık 300 üründe kullanılıyor.  Temel madde olarak jojoba kullanılmış şampuan, saç besleyicileri, saç spreyleri, yüz ve vücüt yağları, banyo yağları, el losyonları, nemlendiriciler, güneşten koruma losyonları, makyaj temizleyicileri, traş kremleri, rujlar ve dudak koruyucuları, parlatıcı kremler, temizleme kremleri ve diğer besleyiciler gibi birçok ürün Amerika ve Avrupa ülkelerinde satılıyor. Hem Japonya hem de Amerika’da yapılan deneyler sonucunda jojoba yağının insana hiçbir şekilde zarar vermediği, hatta bünyeyi güçlendirdiği sonucuna varılmış.
+   <br/>
+   <br/>
+   Jojoba sadece kozmetikte değil ilaç sanayiinde de bir dönüm noktasını oluşturuyor. Jojoba yağının kullanılmasıyla penisilin üretiminde yüzde 20 oranında bir artışın olduğu uzmanları tarafından tespit edilmiş. Jojoba, Kızılderililer tarafından cilt hastalıklarında kullanılmış. Aynı şekilde  İsrail’deki Ben—Gurion Üniversitesi Hastanesi’nde yapılan denemede ileri derecede sivilceye sahip hastalarda jojoba yağı içeren kremlerin kullanılmasından sonra sivilcelerin tamamen yok edildiği görülmüş. Güneş yanıkları ve el çatlaklarına da iyi geldiği görülmüş. Jojoba yağı diyette de el üstünde tutuluyor. Jojoba yağında kızartılan maddenin yağı emme oranı diğer yağlara göre yarı yarıya. Nestle’nin İsviçre’deki laboratuvarlarında yapılan denemede böyle bir sonuca varılmış; ancak yeteri jojoba bulunamadığından ürünlere dahil edilememiş.
+   <br/>
+   <br/>
+   Nükleer atıklara karşı birebir
+   <br/>
+   <br/>
+   Jojoba yağı yüksek oranda acılaşmaya karşı mukavimdir. Bitkisel yağlarda aranan bu stabil olma özelliği nedeniyle önemli pazar imkanları ortaya çıkarmaktadır. Örneğin tarım ilaçları, bitki hormonları, su buharlaşmasını engelleyicilerin taşınmasında; suya dirençli ürünlerin üretiminde; deri, boya ve yapıştırıcıların yumuşatılmasında kullanılabiliyor. Diğer yandan bazı plastiklere katkı maddesi olabilecek önemli potansiyele sahiptir. Polictilon sıcak jojoba yağında kolayca eriyebiliyor ve değişik özellikler kazanıyor. Jojoba yağının klor ve brom ile reaksiyonundan elde edilen sıvı ürünler solvent veya polimerlerin plastikleştirilmesi için faydalı. Brom katkılı maddeler ateşe dayanıklılık özelliği kazanıyor. İsrail’de yapılan çalışmalarda nükleer atığı sularda bulunan radyoaktif metal ve endüstriyel atığı sularda bulunan zehirli ağır metallerin uzaklaştırılmasında jojobanın başarılı bir şekilde kullanılabildiği tespit edildi.
+   <br/>
+   <br/>
+   DEVAMI DERGİMİZİN 36-42. SAYFALARINDA...
+   <br/>
+   Piyasa Amerika’dan soruluyor
+   <br/>
+   Pek fazla bakım ve uğraş gerektirmeyen tohumundan elde edilen yağ ile yüzlerce alanda kullanılan jojobanın dünyadaki piyasasını Amerika elinde tutuyor......
+   <br/>
+   <br/>
+   Türkiye ilgilenmiyor
+   <br/>
+   Amerika’da 1985 yılında yayımlanan Tarım Yıllığı’nda ‘stratejik’ bitki ilan edilen jojobanın Türkiye’ye girmesi aslında çok eskilere dayanıyor. 1980-90 yılları arasında TÜBİTAK ile Çukurova Üniversitesi ortak bir deneme ve araştırma çalışması yürütüyor.......
+   <br/>
+   <br/>
+   GÜNSİAD işi takip ediyor
+   <br/>
+   Jojoba yetiştirmek isteyen ancak tohum bulamayan kurumlar da var. Türkiye’de jojoba ile ilgilenenlerin ilgi görmediği, bu yüzden kimsenin kimseden haberder olmadığı bir ortamda GÜNSİAD’ın (Güneydoğu Anadolu Sanayici ve İşadamları Derneği) yöneticileri jojoba ekmek istemişler ancak tohum bulamamışlar.........
+   <br/>
+   <br/>
+   Başka stratejik bitkiler de var
+   <br/>
+   Soya fasulyesi de birden fazla alanda kullanıldığı için stratejik öneme sahip bir bitki; ancak soya üretiminde ve tohumunu bulmada bir problem yaşanmıyor. Chlorella adı verilen özel bir yosunsu bitki de stratejik bitkiler sınıfına giriyor.........
+   <br/>
+   <br/>
+   Kamuflaj bitkileri
+   <br/>
+   Stratejik bitkiler dışında özellikle askeri hava sahalarının ve askeri alanların kamuflajında kullanılan özel öneme sahip bitkiler de bulunuyor. Bu bitkilerin yararlılığı özellikle 2. Dünya Savaşı’nda denenmiş ve başarılı bulunmuş. Punis halepensis ve schlerochloa bu tür bitkilerin başını çekiyor......
+   <br/>
+   <br/>
+   ...ve JOJOBA’NIN YETİŞME ŞARTLARI..
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1409), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226005614/http://www.aksiyon.com.tr:80/detay.php?id=1409)

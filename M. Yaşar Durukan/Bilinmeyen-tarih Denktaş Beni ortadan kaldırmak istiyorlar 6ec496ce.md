@@ -1,0 +1,106 @@
+# Denktaş: Beni ortadan kaldırmak istiyorlar
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050116193906im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050116193906im_/http://www.aksiyon.com.tr/resim/491/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  LEFKOŞA
+  <br>
+   Evetçilerin Cumhurbaşkanlığı Köşkü"ne yürüdükleri gece Denktaş "Bu gece burada kalsanız iyi olur"" diye uyarıldı. Güvenliğinden sorumlu birimler, cumhurbaşkanının evetçiler arasından geçerek Girne"ye gitmesini engelledi.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Rauf Denktaş, Avrupa"yı kastederek "Çıkarlarına boyun eğmeyen liderleri ortadan kaldırma önlemleri var"" diyor.
+   <br>
+    Referandum, önce Ada"yı sonra Türkleri böldü. Rumlar, Annan Planı"nda değişiklik yapılırsa planı kabul edeceklerinin işaretini verirken, Kıbrıslı Türkler "derin"" bir sessizliğe gömüldü. Ardından "evet"çilerle "hayır"cılar kamplaşmaya başladı. AB"den beklenen somut adımların henüz atılmamış olması, ABD"nin de KKTC"yi tanıma seviyesine gelmediği açıklaması, iki kesim arasındaki çizgilerin daha da belirginleşmesine neden oldu.
+    <br>
+     <br>
+      "Evet"çiler, Cumhurbaşkanı Rauf Denktaş"ı gazete ilanlarıyla koltuğunu bırakmaya davet ederken, "hayır"cıların bir kısmı Denktaş"a bağlılıklarını bildiriyor. Henüz sokaklara taşınmayan kamplaşmanın ilk işareti, aslında referandumun yapıldığı gün, sandıklar açıldıktan sonra verildi. İnönü Meydanı"nda gösteri yapan evetçiler, gecenin ilerleyen saatlerinde Denktaş aleyhinde sloganlar atıp, Cumhurbaşkanlığı Köşkü"ne doğru yürüyünce yola kurulan dikenli tel barikatlarıyla karşılaştılar. Köşk"e giden bütün yollar polis tarafından kesildi. Her ne kadar dışarıya yansımasa da barikatların arkasında kalan Köşk"te ise sıcak saatler yaşanıyordu. O akşam gazetecilerin görüşme istekleri reddedilmiş, Denktaş"ın akşam saatlerinde Girne"ye gittiği açıklanmıştı. Denktaşlar hemen her hafta sonunu Girne"de geçirdikleri için, bu açıklama gazeteciler gibi sokaktaki insanlara da inandırıcı gelmişti. Oysa Denktaş, sandıklar kapandıktan sonra Girne"ye gitmemiş, daha doğrusu gidememişti. Denktaş"ın güvenliğinden sorumlu olan birimler, referandum sonrası sıcak saatlerde dışarıya çıkmasını uygun bulmadı. Geceyi evinde değil de köşkte geçiren Denktaş, dışarıdaki hadiselerden haberinin olmadığını söylüyor. Olayları ertesi gün kendisini ziyarete gelerek "Akşamki olaylar neydi öyle..." diyen Türk büyükelçisinden öğrendiğini belirten Denktaş, o gece içeride olanları şöyle anlatıyor: ""Misafirlerimle bu odada televizyon seyrediyordum. Polislerim, amirlerim bizi rahatsız etmemek için bir şey söylemedi. Daha sonra Girne"ye gitmek üzere kalktık. O zaman bize "Efendim yol çok kalabalıktır. Bu gece gitmeseniz, burada kalsanız iyi olur" dediler. Ben de niye diye sormadım. Saat 12"yi bulmuştu. Burada kaldık.""
+      <br/>
+      <br/>
+      O gece olanlarla ilgili değerlendirme yapmaktan kaçınan Denktaş, söyleşinin ilerleyen bölümlerinde, ortadan kaldırılabileceğini ima ediyor. Kıbrıs üzerinde uluslararası mega plan olduğunun, AB"nin jeopolitik çıkarlarıyla Türkiye"nin jeopolitik çıkarlarının çatıştığının altını çizen Denktaş, "Çıkarlarına boyun eğmeyen liderleri ortadan kaldırma önlemleri vardır. Bunu uygulamışlardır. Uygulamaya devam ediyorlar. Daha da devam edeceklerdir. Bunları bilerek yaşamamız lazım"" diyor. Denktaş, kendisine yönelik somut bir girişim olup olmadığı yönündeki sorumuza şu yanıtı veriyor: "Bu gazetede çıkan ilanları ne zannediyorsunuz? Onlar kimin parasıyla çıkıyor? Kim bunları dürtüklüyor? Karen Fog, gazetecilere, Denktaş"ın prestijini sıfırlayın, faturayı gönderin diyor.""
+      <br/>
+      <br/>
+      Referandum öncesi yapılan bir söyleşide Denktaş, referandumu bekleyeceğini belirterek, "Halkım topyekün intiharı göze almışsa ben de kendimi ona göre ayarlayacağım"" demişti. Sandıklardan ezici oranda evet çıktı. Peki şimdi Türk halkı topyekün intiharı mı seçti? "Hayır. Eğer Rum tarafı evet demiş olsa topyekün intihar olacaktı. Rum tarafının hayırı bizi kurtarmıştır. Allah acımıştır..."" Yani Türklerin intihar planı teşebbüs aşamasında kalmış oluyor. Denktaş"a göre, evetçilerin yüzde 99 buçuğu Annan Planı"nın ne getirip ne götüreceğini bilmiyor. Birçok TMT"cinin (Türk Mukavemet Timleri) de evetçiler safında yer aldığını hatırlatınca Denktaş, "TMT Türkiye"ye bağlı bir kuruluş. Kimisi Türkiye ağırlığını koyduğu için evet demiş, vicdanı rahattır; kimi de özel bir çıkarı olabilir onu elde edeceği zannıyla bunu yapmıştır"" diyor. KKTC lideri, bütün baskılara rağmen istifayı düşünmüyor ama yaklaşan Cumhurbaşkanlığı seçimlerine ilişkin yorum da yapmıyor. Evetçilere değil ama yüzde 35"lik hayırcılara daha çok güveniyor. Çünkü yüzde 35"in çok büyük başarı olduğu düşünüyor; "Egemenliğine, bayrağına, Türkiye"nin garantisine sahip çıkan bu halkın esas belkemiğini teşkil eden bu yüzde 35"tir.""
+      <br/>
+      <br/>
+      KKTC BAŞBAKANI MEHMET ALİ TALAT:
+      <br/>
+      ULUSALCILARI DİKKATE ALMIYORUM
+      <br/>
+      (KKTC Başbakanı Mehmet Ali Talat sorularımızı cevapladı)
+      <br/>
+      <br/>
+      - Denktaş kahraman mı?
+      <br/>
+      Kahramanlar böyle yenilir mi? Yenilmez herhalde... Denktaş Bey sanıyorum ki kendi halkını kaybetti.
+      <br/>
+      <br/>
+      - AKEL sizi şaşırttı mı?
+      <br/>
+      Çok... Çok... Şaşırttı beni, çünkü en çok işbirliği yapmak isteyen onlardı. Beklemediğimiz bir şeydi.
+      <br/>
+      <br/>
+      - Türkiye"den bakınca Rumlara yakın gözüküyorsunuz. Ulasalcılar tarafından da pek sevilmiyorsunuz. Bunu nasıl yorumluyorsunuz?
+      <br/>
+      Nasıl yorumlayalım ki... Benim düşüncelere saygım var ama "ulusalcılar" dediğiniz grup karma bir grup. Ülkücülerden tutun, Türk ordusu işgal ordusudur, çekilsin diyen Perinçek vs. ekibine varıncaya kadar bir sürü franksiyonu barındırıyor. Bunları eskiden beri tanıyorum. Ankara"da ODTÜ"de öğrenciydim. Dünya nasıl ki yuvarlaktır, politika da yuvarlak. Uçlar hep birleşir. Faşist gruplarla Perinçek grubu böyle birleşti. Çok fazla dikkate almıyorum. Benim ne yaptığım bellidir...
+      <br/>
+      <br/>
+      - O yıllarda Perinçek ile görüşür müydünüz?
+      <br/>
+      Hayır, hayır. Hiçbir görüşmemiz olmadı.
+      <br/>
+      <br/>
+      - Rumlara yakın olduğunuz doğru mu?
+      <br/>
+      Ben insanlara yakınım. Barış istiyorum, çözüm istiyorum. İki toplumun birlikte yaşayabileceğine inanıyorum.
+      <br/>
+      <br/>
+      - Denktaş ile Papadopulos işbirliği yaptı mı sizce?
+      <br/>
+      Dolaylı ya da ruhani oldu gibi. Öyle görünüyor. Zafer kazanan "hayır", Papadopulos"un hayırıydı.
+      <br/>
+      <br/>
+      - Denktaş yeni bir mücahit hareketinin başlayabileceğinden bahsediyor..
+      <br/>
+      50 yıl öncesinin mantalitesiyle yaşıyor. Denktaş Bey"in en büyük zaafı bu zaten. Gençleşemedi, yaşı ilerledi. Politik yaklaşımları yenilenemedi, eskide kaldı. Yadırgamıyorum, değişmesi de çok kolay değil.
+      <br/>
+      <br/>
+      - Allah göstermesin ama o katliam günlerine dönülse siz elinize silah alıp mücahit olarak sahneye çıkar mısınız?
+      <br/>
+      Bu biraz şeş bir soru...
+      <br/>
+      <br/>
+      - Cevabı ne?
+      <br/>
+      Vermem. Çünkü geçmiş geleceğin göstergesidir diyelim. Onun için isteyen biri varsa geçmişi inceler.
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### cihan özütürk, 08-Mayıs-2004
+> nasıl olur: 
+> şahıslar ve olaylar geçicidir.Baki olan kurumlardır.Şuan kıbrıs mevzuuna müslüman türk penceresinden bakarsak rumların enosis hayali sayesinde bağımsız K.K.T.C devleti varlığını korumuştur.Halen iktidarlarda bulunan m.ali talat ve tayyip erdoğan gibi tamamen zıt kutupların ab uğruna giriştikleri birlikteliği esef ve hayretle izliyorum.Hadi büyük bir kısmı milli ve manevi değerlerden yoksun kıbrıs halkını anlıyorum ama tayyip erdoğan ve bir kısım muhafazakar çevrelerin duruşunu anlayamıyorum.Doğu bloğunun eski komünist ülkelerinin şuan ab üyesi olup bizim kapıda bekletilmemiz 70 milyonluk t.c nin ab ye alınmayacağının en büyük göstergesidir.Alınmayacağımız ab uğruna stratejik önemi tartışılamayacak kıbrıs ı vermenin devleti ve milleti uğruna kellesini ortaya koyan denktaş ı kırmanın ne gereği var.ab,bm,abd 30 yıldır kan dökülmeyen kıbrıs a çözüm üreteceğine filistin e ,ırak a afganistan a çeçenya ya çözüm üretsin
+
+### Mustafa IZMIRLI, 05-Mayıs-2004
+> Denktas iyi bilirki: 
+> Şu anda Kıbrıs'ta emperyalist ABD ve AB'nin arzu ettikleri bir ortam kuruluyor.Bu yüzdendirki "Birleşik Kıbrıs'ı herkes tanıyacak ","Kuzey Kıbrıs yatırım alacak","Türkçe AB'de resmi dil olacak" vaatleri ile insanlar,kendilerini büyük bir kaosa sürükleyecek, sözde"çözüm"lere ısındırılmaya çalışılıyor.Onun için insanlar medya yönlendirmesi, dezenformasyon, baskı ve tehditle güya özgür iradelerini yansıtacaklarını bir referanduma sürüklendi.Öyle bir dayatma var ki, kimse böyle bir ortamda insanların özgür iradeleri oluşmaz, demokrasi böyle olmaz diyemiyor.Onun için Sayın Denktaş'a sansür konmaya, lider ile halkı arasındaki iletişim koparılmaya çalışılıyor.Şimdiye kadar iktidarı, devleti ve halkı ile Türkiye'nin manevi desteğini alarak ruhen ayakta kalan Mücahit Kıbrıs Türkü,büyük bir infiale,yalnızlığa ve şaşkınlığa itiliyor.Sırf belki de Denktaş birtakım doğruları söyledi diye.Kimbilir...Denktaş şunu iyi biliyor."Anlaşma ve pazarlık daha önceden yapılmıştır.Şimdi oynanan,senaryosubu anla
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11423&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050116193906/http://www.aksiyon.com.tr:80/detay.php?id=11423&yorum_id=1)

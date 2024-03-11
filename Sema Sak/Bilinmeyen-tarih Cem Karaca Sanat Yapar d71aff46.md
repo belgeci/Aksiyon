@@ -1,0 +1,123 @@
+# Cem Karaca: Sanat Yapar
+
+*Sema Sak Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041226003031im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041226003031im_/http://www.aksiyon.com.tr/resim/480/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Cem Karaca için ölüm, özlem ve korku gelgitlerindeki bir yabancıydı. Geçtiğimiz hafta, merhaba diyerek bu yabancıya, yüzlerini hiç görmediği büyüklerine kavuştu tekbir sesleri eşliğinde. “İnsanlar fikr-i takip olursa yenilenme sürecini yaşarlar” dedi ve fikr-i sabit olanları bırakıldığı yerde otlayan koyunlara benzetti. Çalkantılı yaşamı boyunca ‘dönek’ yaftasına aldırmadan doğru bildiğini yaptı. Manevi ikliminde yaşanan değişimleri eleştirenlere, cevabı hazırdı:  “Ben koyu solcuyken de Allah’a inanırdım.”
+ </font>
+ <p>
+  <font class="content">
+   Müzik çizgisini hiç bozmadı. 59 yaşında, Ermeni bir anne ve Azeri bir babanın ‘Bektaşi meşrep’ mü’min çocuğu, bir CHP üyesi olarak alkışlar yerine tekbir sesleri eşliğinde son yolculuğuna uğurlandı.
+   <br/>
+   <br/>
+   Ölüm bana sırıtarak gel, ölümü öp ne olur
+   <br/>
+   Yüzünde o tanıdık riyakârlık
+   <br/>
+   Çünkü nice dost dediklerim sarılıp öptüklerim
+   <br/>
+   Suratlarında aynı eda ve sahtekârlık (Cem Karaca)
+   <br/>
+   <br/>
+   “… Ölüm gelecek, geldiği zaman da mutlu olacağım, çünkü onları göreceğim... Ölümden kim korkmaz Allah’ını seversen. Kurbağa bile korkar yahu! Öbür dünyaya gittiğimde yüzlerini bile görmediğim anneannem, babaannem, dedem… hepsini göreceğim.”
+   <br/>
+   <br/>
+   <br/>
+   <br/>
+   <b>
+    Sanatçı ailenin tek çocuğu…
+   </b>
+   <br/>
+   <br/>
+   Tiyatrocu Toto-Mehmet Karaca’nın tek çocuğu olan 1945 doğumlu Cem Karaca, kulis havasını soluyarak büyür. İlk şarkılarını 12 yaşındayken sevdiği kızı etkilemek için besteler. Kendisini ilk keşfeden annesi Toto Karaca’dır. 12 yaşındayken annesi onu Erol Büyükburç’un yanına götürür ve 40 yıl sürecek hikaye böyle başlar.
+   <br/>
+   <br/>
+   Sanatçının ergenliğine rastlayan 60’lı yıllarda pop müzik birkaç grup tarafından temsil edilmektedir. Yani gerçek anlamda bir pop müzik kültürü henüz yoktur. İlk kez 1962 yılında Fecri Ebcioğlu’nun araladığı aranjman müzik kapısı da yabancı müzikleri Türkçe sözlerle tanıştırır. O yıllarda müzikal bir üretkenlikten söz etmek de mümkün değildir. Cem Karaca’nın içinde bulunduğu müzik türü de bu döneme bir tepki olarak ortaya çıkar. O ve arkadaşları, dışarıdan ithal etmek yerine, sözlerini kendilerinin yazdığı ve toplumsal sorunlara uzak durmayan bir müzik oluştururlar. Müzikal anlamda Batı müziğine göz kırpsalar da beste ve şarkı sözleri memleket kokar. Kendini müzikal anlamda sürekli yenileyen sanatçı hem fikirlerinde hem de sanat yaşamında hep ‘arayış’ içindedir.
+   <br/>
+   <br/>
+   Amatör müzik yaşamına ilk olarak Dinamikler ve Jaguarlar adlı müzik gruplarıyla merhaba der. Profesyonel müzik dünyasında boy göstermesi 1967 senesine rastlar. Mehmet Soyaslan, Ahmet Tuzcuoğlu, Timur Fildişi ve Tümay Yalçınkaya ile birlikte kurduğu Apaşlar grubuyla Altın Mikrofon Yarışması’nda ikincilik ödülü kazanır. Karaca, bu ödülü askerde sazdan etkilenerek bestelediği Emrah türküsüne borçludur. Bu ödül Türkiye’de tanınmasını sağlar. Bu dönemde pop müziğinin evrensel formlarına güzel şarkı sözleriyle eşlik eden Resimdeki Gözyaşları gibi hit parçalar çıkar ortaya. Bunun yanında Emrah gibi Anadolu ezgileri pop ve rock müzikle aynı potada buluşur. Böylece şarkılar; sadece aşk, hasret, acı gibi duygulara değil, toplumsal sorunlara da ayna olan bir kılığa bürünür. İnsanoğlunun baskıya karşı verdiği tepkiler şarkılarda hayat bulur. Bu dönemde Karacaoğlan ve Dadaloğlu gibi toplumsal sorunlara eserlerinde yer veren ozanların müzikleri, farklı müzikal yorumlar eklenerek kentteki müzikseverlerle tanıştırılır.
+   <br/>
+   <br/>
+   Müzikal arayışları hep devam etti
+   <br/>
+   <br/>
+   Apaşlar’ın bir konseri esnasında Cem Karaca seyircilerin arasına girerek şarkısına devam etmek ister. Ancak sıra Mehmet Soyaslan’ın gitar solosundadır. Cem Karaca sinirlenir ve grupla yollarını ayırır. Yıllar sonra Pop Müzik Tarihi kitabının yazarı Naim Dilmener kendisine bu öyküyü sorduğunda olayı doğrular ve Mehmet Soyaslan’a çok büyük haksızlık yaptığını kabul eder. 1969’da basçı Seyhan Karabay ile Kardaşlar grubunu kurar. Anadolu Rock tarzının oluşması da bu döneme rastlar. Artık müzikte sadece şekilsel kaygılar yoktur. Müzik, şekilden ödün vermeden isyanı ve başkaldırıyı anlatmak için kullanılır o dönem. Cem Karaca baskıcı 12 Mart döneminde de bu isyanı sürdüren tek isimdir.
+   <br/>
+   <br/>
+   Kardaşlar grubuyla 1972 yılında yolunu ayıran sanatçı, bu sefer de Anadolu Rock’un bir diğer önemli ismi Moğollar’la buluşur. Sanatçı bu dönemde kırsaldan kente göçün yarattığı değerler çatışmasını işleyen parçalar yazar. Moğollar ile çıkardığı Namus Belası adlı albüm çok beğenilir. Albüme adını veren parçada hâlâ işlenen namus cinayetlerini anlatarak önemli bir toplumsal yaranın altını çizer.
+   <br/>
+   <br/>
+   Moğollar’dan da ayrılan Karaca müzik yolculuğuna Dervişan adlı grupla devam eder. Tamirci Çırağı, Beni Siz Delirttiniz, Bir Mayıs ve Kavga gibi parçalar bu dönemin sosyal ve politik havasından beslenerek yapılır. Sanatçı her çalışmasında dinleyenlerine bu bozuk düzene karşı durmayı haykırır. Elbette bu dönemde aynı politik çizgiyi sürdüren başka isimler de vardır ama şüphesiz Cem Karaca içlerinde müzikal açıdan en önemli misyonu üstlenir.
+   <br/>
+   <br/>
+   Karaca, Dervişan’dan sonra aynı çizgisini, Edirdahan grubuyla da devam ettirir. Grubun tek albümüne adını veren Safinaz isimli parça düzenin ve değer yargılarının insanı layık olmadığı şekilde yargıladığını anlatır. Parça aynı zamanda Türkiye’nin ilk rock operasıdır ve tamamen epik temalarla bezelidir.
+   <br/>
+   <br/>
+   Hep Kahır, Yeter Be!!!
+   <br/>
+   <br/>
+   1979 yılında yoğun baskılar yüzünden Almanya’ya gider ve sekiz yıl sürecek gurbet yaşamı başlar. 1 Mayıs şarkısından dolayı hakkında açılan dava sanatçıya vatanından uzak sekiz yıla mal olacaktır. Almanya’da sanatçı dostlarıyla Türkiye aleyhine faaliyette bulunduğu iddia edilir ve vatandaşlıktan çıkarılır. Sanatçı Almanya’da da boş durmaz. Almanca öğrenerek derdini, davasını oralarda da anlatır. Almanya’da yaşadıkları şarkılarına da yansır. Hep Kahır, Yarım Porsiyon Aydınlık, Canım Benim, İşte Geldik Gidiyoruz, Almancılar... hep bu dönemin ürünleri. Sanatçı siyasi nedenlerle Almanya’dadır ama kendini ekonomik nedenlerle orada yaşayanlardan farklı görmez. Almanya’da devam eden mücadele günlerini şöyle anlatır: “Onların Türk, Kürt, Çerkez, Laz olup olmadıkları hiç umurumda değildi. Sadece cebinde T.C. pasaportu taşıyan kişilere Almanlar tarafından ikinci sınıf vatandaş muamelesi gösterilmesine karşı tavrımı koydum.” Karaca birkaç tiyatro oyununda Türkçe danışmanlık yapar. Hatta Nezihe Araz’ın yazdığı, Dilek Türker’in oynadığı Sevdican adlı oyunun müziklerini de yapar. Afişlere Cem Karaca yazılamayacağı için, adı Muhtar Cemalettin olarak yazılır. Gurbette yaşamak Karaca’ya çok ağır gelir. Türkiye’den gelen dostlarıyla sürekli görüşür, eğlenceler tertip eder ama bunlar ona yetmemektedir. Günün birinde bir camiye gider. Ezan sesinden ve camideki atmosferden çok fazla etkilenir ve uhrevi duyguları yoğunlaşır.
+   <br/>
+   <br/>
+   Gorbaçov’la mı görüşecektim!
+   <br/>
+   <br/>
+   1987 yılında dönemin başbakanı Turgut Özal’ın Almanya ziyareti sırasında kendisiyle görüşerek yurda dönmek konusunda yardım ister. Özal’ın yardımıyla 27 Haziran 1987’de bu arzusu gerçekleşir ve vatandaşlığa kabul edilir. Bu görüşmeden sonra kulaktan kulağa Karaca’nın Özal’ın ve eşi Semra Hanım’ın elini öperek af dilediği konuşulur. Fakat Cem Karaca’nın anlatımı farklıdır. “Ben Turgut Özal ile tanıştım ve tokalaştım. Gözlerindeki samimiyeti gördüm. Beni Türkiye’ye döndürmek konusundaki inancına yürekten inandım. Yoksa ben onun elini öptüğüm için Türkiye’ye dönmedim.” Bazıları ise Özal’la görüşmesinden bile rahatsız olur. Yanıtı nettir: “Ben Türkiye’ye gelmek istiyordum. Gorbaçov ile mi görüşecektim.”
+   <br/>
+   <br/>
+   Bu dönüşün ardından Cem Karaca’daki değişimler bazı tartışmaları da doğurur. Aslında pratik anlamda hayatında fazla bir şey değişmese bile nasılsın sorusuna verdiği, ‘Hamdolsun, iyiyim’ cevabı bile tepki çeker. Bu, sanatçıyı 1979’da Almanya’ya uğurlayanları rahatsız eder ve Karaca döneklikle suçlanır. En yakın arkadaşları tarafından ikaz edilir. Ondan beklenen Sosyal Halkçı Parti iktidara gelene kadar Almanya’da kalmasıdır ama sanatçı bunu reddetmiştir: “Sanki onlar orada kaldı. Özlemi onlar çekti. Ateş düştüğü yeri yakar.” Bu yeni döneminde eski kucaklayanlarından eleştiri alan sanatçı, kendisine dönek diyenlere en güzel cevabı en etkili silahı olan şarkılarıyla verir: “Ben döneksem döndüm diye memlekete / Döndüm baba, döndüm işte, oh be!”
+   <br/>
+   <br/>
+   Fethullah Gülen’in ‘nikah şahidi’ olmasını istedi...
+   <br/>
+   <br/>
+   Karaca, 8 yıllık hasretin ardından eski çevresinde müzik yaşamını sürdürür. Almanya’da ruhunda oluşan kıvılcımları paylaşabileceği kimseler yoktur etrafında. 29 Haziran 1994’te Gazeteciler ve Yazarlar Vakfı’nın düzenlediği Diyalog Gecesine katılarak Fethullah Gülen ile tanışır. Bu tanışma anıyla ilgili sarf ettiği “El sıkıştığım insanların biftek gibi ellerini elimin içine bırakmasından hiç hoşlanmam. Ama Hocaefendi’nin ellerimi sımsıkı tutması beni çok etkiledi. Konuşurken gözlerini benden hiç kaçırmadı ve böyle bir insan geçmişinde utanılacak bir şey yapmış olamaz diye düşündüm ” sözleri hâlâ hafızalarda.
+   <br/>
+   <br/>
+   Ölümünden bir hafta önce Aktüel Dergisi’ne verdiği son röportajında Fethullah Gülen için “Türk kültürüne milli eğitim bakanlığından daha fazla katkıda bulunan kişi” nitelemesinde bulunuyor. Sağlığına dikkat etmediğini de bu söyleşiden öğreniyoruz.
+   <br/>
+   <br/>
+   Fon Müzik Yapım Müdürü Gürkan Vural’a göre Karaca’yı asıl etkileyen, isminin sonunda hoca lakabı olan ve dini çok iyi yaşadığına inandığı birinin Cem Karaca gibi kendini solda tanımlayan bir isme bu kadar samimi davranmasıydı. Hocaefendi ile birkaç yıl sonra Hakan Şükür’ün düğününde tekrar karşılaşırlar. Protokole doğru ilerleyen Gülen, Cem Karaca’yı görünce geri dönerek ‘Dostum nasılsınız?’ der ve onu kolundan tutarak protokole götürür, yanına oturtur. Bu olaydan sonra Karaca, vakfın her organizasyonuna katılır. Arkadaşlarından gelen tepkiler de devam eder. Üyesi olduğu Nazım Hikmet Vakfı’nın Nazım’ın mezarına düzenlediği geziye davet edilmez. Bunun üzerine “Ben de Nazımımın mezarına Gazeteciler ve Yazarlar Vakfı ile gideceğim” der. Bir defasında da bir cenaze namazında duaya iştirak ettiği için Nazım Hikmet’i anma gecesine çağrılmaz. Arkadaşlarına kırılsa bile yine de onları anlamaya çalışır. ‘Onların geçtiği yollardan ben de geçtim. Onların, yaşadıklarımı yaşamadan beni anlamalarını beklemiyorum.”
+   <br/>
+   <br/>
+   İnançlı solcu olamaz mı?
+   <br/>
+   <br/>
+   Vural, Cem Karaca’nın yaşadıkları için değişim kelimesinin doğru bir ifade olmayacağını belirtiyor ve ekliyor: “O hep Allah’a inanan bir insandı. Sadece son 6-7 yılda manevi hayatında bazı değişiklikler oldu ama bunlar gereğinden fazla abartıldı. ‘İyiyim hamdolsun’ dediği için hayatını ibadet-ü taat ile geçiren bir insan olduğu düşünüldü. Halbuki o sol çizgisinden asla vazgeçmedi. Fakat arkadaşları sol düşünceli bir CHP’linin elinde tespih görmeye dayanamadılar.”
+   <br/>
+   <br/>
+   Cem Karaca’nın tespihe özel bir ilgisi vardı. Dilinde bir zikir olmasa bile elinden tespihi bırakmazdı. Özellikle sahneye çıkmadan evvel belli sayıda Besmele ve Allah zikri çekerdi. Boynunda gümüş bir zincire takılı Hz. Ali’nin portresini ve kılıcını taşırdı. Sanatçının çok renkli hayatını ve hoşgörüsünü evinde de hissetmek mümkündü. Vural’a göre sanatçının hayatındaki en önemli değişim son eşi İlkim Karaca’dır. Sanatçı, eşi için “O benim hem eşim, hem annem, hem sevgilim hem de kardeşim” diyor. Annesi Ermeni, babası Azeri olan Karaca’nın eşi de Sünni bir anne ve Alevi bir babanın kızı. Ama evlerinde bu farklılıklar asla sorun olmamış. Küçüklüğünde umreye giden eşi İlkim’in anlattıklarından etkilenen sanatçı umreye gitmek ister ancak nasip olmaz. Evinin duvarında Atatürk, İnönü ve Ruhi Su’nun fotoğraflarıyla birlikte Şeyh Şamil biblosunu ve Fethullah Gülen ile çektirdiği fotoğrafı görmek mümkün. Şüphesiz farklı iklimleri yüreğinde barındırmasıyla bir solcunun da inançlı olabileceğini gösterir. Özellikle ‘Bindik Bir Alâmete Gidiyoruz Kıyamete’ adlı albümünden sonra halk konserlerine sağcı kesimler de ilgi göstermeye başlar. Gurbette olan Hocaefendi ile gönül bağları aradaki mesafelere rağmen devam eder. Birbirlerine mektup ve hediye gönderirler. Bu hediyeler arasında Cem Karaca’nın babasının ölürken bile elinden bırakmadığı tesbih tesbih de vardır. Gelemeyeceğini bilmesine rağmen Hocaefendi’den nikah şahidi olmasını ister: “Gelemeyeceğini biliyorum ama ben teklif etmiş olayım. O da beni reddetsin. Yoksa ruhumda bir eksiklik hissederim”
+   <br/>
+   <br/>
+   Özellikle Hep Kahır albümünden sonraki Anadolu turnelerinde Karaca ile vakit geçirme imkanı bulan Varol, Karaca için, “Tam bir deniz âşığıydı. 40 ton yük taşıtın, 20 konsere çıksın, yorgunluktan ölse bile 20 dakika deniz kenarına bırakın, bir 20 konser daha yapardı. Bulutların şekline göre hava tahmini yapardı. Rüzgara göre denizdeki balıkları tahmin ederdi” diyor. Ve ekliyor: “Turnelere otobüsle giderdik. Yol boyunca asla uyumaz, sürekli sohbet ederdi. Gerçekten çok kültürlü bir insandı. Bünyemiz uykusuzluğa yenik düştüğü zamanlarda diğer sanatçı arkadaşlarımızla paslaşarak onunla sabahlardık.”
+   <br/>
+   <br/>
+   <br/>
+   NE DEDİLER?
+   <br/>
+   <br/>
+   Naim Dilmener: Müzik dünyası için sadece şarkılarla mücadele vermedi. Prodüktörlerin her dediğini dinlemeyerek piyasada yapıcı bir rol de üstlendi. Hep doğru bildiğini yaptı. Piyasaya ilk çıktığı yıllarda halkın sorunlarını işleyen şarkılar dinleniyordu. Ama o aynı geleneği bugün de sürdürüyorsa bu onun samimiyetini gösterir. Kendi içinde tutarlı olan ender müzisyenlerden biriydi.  Bence politik olarak da başından sonuna kadar tutarlı bir insandı. Ama dini inançlarını değişmesi çok insanî bir durum.
+   <br/>
+   <br/>
+   Haluk Levent: 1970’lerde Türkiye’de aranjman müzikleri öndeydi. Her şeyden kendimizi sakınırdık. Özellikle de kendimize olan güvenimizden. Cem Karaca adı da tam bu noktada ortaya çıkıyor. Kendimizden ve kendi müziğimizden utanmamamız gerektiğini bize öğretti. Bizim şarkılarımızı ve ritmlerimizi en güzel şekilde kullandı. Bugün Tarkan ve Sertap başarılıysalar bu biraz da geçmişe ve kendimize olan güvenimizden kaynaklanıyor.
+   <br/>
+   <br/>
+   Erol Büyükburç: Cem Karaca ile bir kader birliğimiz oldu. Benim Robert Koleji’ndeki bir konserimde kulise annesiyle birlikte geldi ve bir takım tavsiyelerim oldu. Cem bunun da ötesine geçti. O Türkiye’de konuşan insan profilinin en güzel örneklerinden biri oldu. Başkaldırı olarak nitelendiriliyor ama bu kaba bir ifade. Her doğrunun başkaldırı olarak adlandırılması kabul edilemez. Bugün onun yolundan gitmek isteyenler önce Cem Karaca’yı bir doktora tezi gibi incelemeli.
+   <br/>
+   <br/>
+   Özdemir Erdoğan: 1980’den sonra yeni bir pop kültürü yaratmak için, entelektüel, bu ülke için çalışan, sadece şarkılarıyla değil duruşuyla da bu memlekete katkıda bulunan bir kuşağın ipi çekildi. Yeni bir pop kültür yaratılmaya çalışılıyor.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11171&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041226003031/http://www.aksiyon.com.tr:80/detay.php?id=11171&yorum_id=1)

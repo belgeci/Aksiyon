@@ -1,0 +1,189 @@
+# Şirkette casus var
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031721im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031721im_/http://www.aksiyon.com.tr/resim/360/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye’de 100’ün üzerinde danışman firma olmasına rağmen sektör 5 büyük denetim ve danışmanlık şirketinin elinde. Sadece Türkiye’de değil, Brezilya, Arjantin, Rusya hatta Mısır’da bile durum aynı. Uluslararası sermaye piyasaları şirket ve ülke ilişkilerini bu 5 firmanın vereceği raporlar ışığında yönlendiriyorlar. Piyasanın canını sıkan, içine kurt düşüren gelişmeler de bundan sonra başlıyor zaten
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bünyesinde uluslararası tecrübesi olan çok kaliteli bir denetim firması, GSM’si ve muhteşem gökdeleni ile ünlü bir bankaya bir iş teklifi götürür. Bankanın bağımsız denetimini kendileri yapmak istemektedir. İhalede kadrosunu ve istediği fiyatı bankanın yönetimine sunar. Rakipleri ile kendilerini kıyasladıklarında çok şanslı olduklarını düşünmektedirler. Fakat banka kadro kalitesi yerli firmanın yarısı kadar bile olmayan bildik bir yabancı denetleme firmasına ihaleyi verir. Hem de yerli firmanın verdiği teklifin tam 5 katı fiyata.
+   <br>
+    <br>
+     Bir ilginç hadise daha. Yabancı bir şirketin üst düzey yöneticisi Ortadoğu finans piyasasını çok iyi bilen bir akademisyenle konuşuyor. Türkiye’de faaliyet gösteren denetim ve danışmanlık veren uluslararası şirketler bahsinde yabancı şirket yöneticisi şu uyarıyı yapar: ‘Siz neden yerli denetim firmaları ile çalışmıyorsunuz. Yabancı denetim firmaları ile çalışarak hem çok yüksek ücretler ödüyorsunuz, hem de karşı tarafa geçen sır niteliğindeki bilgilerin kimlerin eline geçtiğini bilemiyorsunuz.’
+     <br>
+      <br>
+       Küreselleşen piyasanın kompleks ve değişken yapısı özellikle gelişmiş ülkelerde denetim danışmanlık şirketlerini tabir—i diğerle “şirket doktorluğu sistemini” yükselen bir trend haline getirdi.
+       <br/>
+       <br/>
+       Belli büyüklükteki bir firmanın mutlaka bir ya da birkaç tane çalıştığı bağımsız denetim ve danışman şirketi var. Bu şirketler, yılda en az bir kere kurumun check—up’ını çekerek hastalıklı bölümleri tespit ediyor ve bir reçete yazarak uygulanmasını istiyor. Aile doktorluğunu hatırlatan bu sistem Türkiye’de henüz yerleşiyor. Özellikle 1990’lı yılların başından itibaren yerli ve yabancı denetim ve danışmanlık şirketleri piyasada arz—ı endam etmeye başladı. Yönetim Danışmanlığı Derneği’ne göre şu anda faaliyet gösteren 100’ün üzerinde danışmanlık firması var. ABD’de bu rakam 2000’in üzerinde ve bunların önemli bir kısmı uluslararası hizmet veren ve yıllık ciroları 2—5 milyar dolar arasında olan danışman firmaları. Aralarında dünyayı bir ağ gibi saran 5 tane şirket var ki ciro ve kapasite büyüklükleri açısından çok farklı bir yerde duruyorlar. Arthur Andersen, Deloitte&amp;Touche, JP Morgan, Ironman Consulting Danışmanlık, MERILL LYNCH, McKensey danışmanlık 100’e yakın ülkede oluşturdukları sistemle denetim ve danışmanlık sektörünü kontrolleri altında tutuyorlar. Ölçü olması açısından; Big Five (Beş Büyük) şeklinde anılan firmaların en büyüğü görünümündeki Arthur Andersen, üye firmalarıyla 5 kıtada, 84 ülkede, 385 ofiste, 72,000’i aşkın profesyonel kadrosuyla mali danışmanlık ve denetim, vergi danışmanlığı, yönetim danışmanlığı, kurumsal finansman, insan kaynakları hizmetleri, risk danışmanlığı, e—ticaret ve outsourcing alanlarında hizmet veriyor.
+       <br/>
+       <br/>
+       Türkiye’de şirketlerin henüz danışmanlık kurumları ile çalışma kültürünün yerleşmemesi özellikle yerli denetim ve danışmanlık firmalarının ayakta kalmasını zorlaştırıyor. Danışmanlık firmalarının bir açıdan soyut hizmetler vermesi şirket sahiplerine pek cazip gelmiyor. Şu anda danışmanlık sektöründe hizmet veren üç farklı firma oluşumu mevcut: İnsan kaynakları hizmeti verenler, uluslararası denetim ve danışmanlık şirketleri, bir de ikisinin arasında kalan, küçük iş yapamayan ve kurumsal değil kişisel tecrübeleri ile iş yapan firmalar. Bu üçüncü gruba genelde ‘Abi’ ya da ‘duayen’ unvanını almış, şirketlerde uzun süre çalışıp gelebileceği en iyi yere geldikten sonra kariyerini danışmanlık yaparak sürdürenler giriyor. Bu tip örnekler yabancı ülkelerde de var. Örneğin ünlü guru Lee Iokka, Renault firmasının danışmanı.
+       <br/>
+       <br/>
+       Beş Büyükler dünya tekeli oluşturuyor
+       <br/>
+       <br/>
+       Türkiye’de 100’ün üzerinde danışman firma olmasına rağmen sektör yine bu 5 büyük denetim ve danışmanlık şirketinin elinde. Sadece Türkiye’de değil, Brezilya, Arjantin, Rusya hatta Mısır’da bile durum aynı. Uluslararası sermaye piyasaları şirket ve ülke ilişkilerini bu 5 firmanın vereceği raporlar ışığında yönlendiriyorlar. Piyasanın canını sıkan, içine kurt düşüren gelişmeler de bundan sonra başlıyor zaten.
+       <br/>
+       <br/>
+       Hazine Müsteşarlığı’nın şirketlerle alâkalı hazırladığı raporlara yabancı kuruluşlar itibar etmiyor. Herhangi bir Türk şirketi uluslararası piyasaya kote olmak, sendikasyon kredisi almak ya da hisselerini satmak istediğinde piyasa hemen yabancı bir danışmanlık firmasına yönlendiriyor. ‘Yerli kuruluşlardan aldığın raporlar güvenilir değil’ diyorlar.  Böyle bir dayatmanın Türkiye’nin milli egemenliğine indirilmiş bir darbe olduğu ifade ediliyor. Danışmanlık firmalarına verilen aşırı yetkinin sebebini anlamak zor değil. Dışarıdan borç almak zorunda kalan hükümet ve şirketler 5 Büyükler’in canını sıkmak istemiyor.
+       <br/>
+       <br/>
+       Kalite açısından yabancı firmalar yerlilerden iyi olmamasına rağmen haksız rekabet ortamında ve yüksek fiyata çalışıyorlar. Bu noktada Prof. Dr. Haşmet Başer ilginç bir noktaya dikkat çekiyor. “Bu yabancı danışmanlık firmalarında çalışanların tamamı Türk. Adları dünyaca ünlü ve prestijli olmalarına rağmen, şirketlerle alâkalı raporlar deneyimsiz, üniversiteden yeni mezun olmuş, uzmanlaşmamış kişilere yaptırılıyor. Çok düşük fiyatlara çalıştırdıkları bu gençler bir iki sene sonra çok önemli noktalara gelebiliyor.”
+       <br/>
+       <br/>
+       Beş Büyükleri lobisi var
+       <br/>
+       <br/>
+       Bağımsız denetim şirketleri uluslararası güç merkezlerinin lobisini de arkasına aldığı için rakipsiz konumdalar ve verdikleri hizmetten ötürü aldıkları ücretler de normalin çok çok üstünde. ‘Nasıl olsa Dünya Kalkınma Bankası, IMF, İslam Kalkınma Bankası gibi uluslararası kurumlar bizim verdiğimiz raporları geçerli sayıyor. Bize gelmek zorundalar diyerek’ çok rahat hareket ediyorlar.
+       <br/>
+       <br/>
+       Halbuki Türkiye’de sergiledikleri laubali tutumu Batı ülkelerinde göstermeleri imkansız. Gelişmiş piyasalarda danışmanlık ya da denetim yapmak çok sıkı prosedürlere bağlı. Bir kişiye uluslararası standartlarda ve çok zor imtihanlardan geçirildikten sonra bir raporun altına imza atma yetkisi veriliyor. En ufak ihlalleri hemen dikkate alınır ve cezai yaptırımları çok serttir.
+       <br/>
+       <br/>
+       Bankacılık sektörünün duayen bir isminin 5 Büyükler ile ilgili korkunç bir iddası daha var. Bankacılık sektöründe denetleme yapan bu firmalar iki rapor hazırlıyor. Birincisi sahte, diğeri gerçek. Sahte rapor Türkiye’de ilgili çevrelere iletilirken gerçek rapor gelişmiş ülkelerde yüksek fiyatlara başka şirketlere satılıyor.
+       <br/>
+       <br/>
+       Danışmanlık ya da denetim firmasının şirketin saklamak istediği ‘sırları’ aralarındaki anlaşma gereği üçüncü bir kuruma vermesi yasak. Bu sırrın başkasına avantaj sağlamak gayesi ile satılması etik açıdan ve kanuni açıdan suç. Peki ne yapılabilir? Böyle durumlara imkan tanınmaması için yerli denetim firmalarının güçlendirilmesi gerektiği vurgulanıyor. Haşmet Başer bir adım öteye giderek “İngilizcede ‘Battaniyenin altında neler olduğu bilinmez’ şeklinde tercüme edilebilen bir deyim var. Yeminli Mali Müşavirler kaliteli, ahlaklı ve özellikle dindar olmalı. Orada bir hakim kadar saygın bir yerdeler. Çok sıkı denetimden geçiyorlar. ABD’de benzer raporları hazırlayanlar raporun altına Allah adına imza atıyorlar. Denetim firmaları iki rapor hazırlıyorsa, hasta olan kuruma sağlam raporu verip gerçek raporu memleketine gönderiyorsa bu durumu düzeltmek en başta devletin ilgili organlarına düşer. Denetim firmalarını sıkıştırarak, ağır cezalar verekek yola getirilmesi sağlanabilir. Bunun arkasından diğer sorunlar da kendiliğinden hallolabilir.”
+       <br/>
+       <br/>
+       Amerikan, Fransız ve Alman denetleme firmaları bankaların yüzde 80’ini denetliyor. Hele bunlardan bir tanesinin 25 tane bankaya tek başına baktığı biliniyor. Batık bankaların bu firmaların denetiminde olması ve raporlarında bu bankaların ‘sağlam’ görünmesi başta Kemal Derviş olmak üzere herkesin çok ciddi şekilde üzerinde durması gereken soru işareti? İki ihtimal var, bu şirketler ya denetlemeyi yanlış yapıyor ya da makyajlanmış raporları piyasaya sürüyorlar. İkinci ihtimalin olması durumunda kanunen de sorumlu olması gerekiyor. Piyasada dolaşan bir iddia ise hepsinden daha korkunç; bu denetim kurumları gerçek raporları bağlı bulundukları ülkelerin servislerine ve finans kurumlarına veriyor. Bu sebeple ABD, Fransa ve Almanya gibi ülkeler Türkiye’nin finans yapısı hakkında herkesten önce sağlıklı bilgiye sahip olmuş oluyor.
+       <br/>
+       <br/>
+       Danışmanlık şirketleri ile alâkalı aleyhte bu kadar ciddi yüklenmelere karşın danışmanlık şirketlerine duyulan ihtiyacı inkar etmek mümkün değil. Dosyanın amacı da böyle bir reddiye manifestosu ortaya koymak değil. Eşyanın girift bir şekilde iç içe girmesi karşısında hadiseleri doğru okumanın ancak doğru bilgi ve değerlendirmelerden geçtiği görünüyor. Birçok ülkede ekonomiden sorumlu bakanların, kamu kuruluşlarının, devlet organlarının, yerel yönetimlerin, özel sektör temsilcilerinin ve sivil toplum kuruluşlarının zor duruma düşmesi halinde ya da geleceğe yönelik kritik kararlar alma aşamasında danışmanlık şirketlerinden yararlanması kaçınılmaz bir hale geldi. Danışmanlık şirketleri, günümüzde sadece finansal ve ekonomik konulara el atmakla kalmamakta, firmaların ve devletlerin daha olumlu bir görünüme sahip olmasına da yardımcı oluyor. Ayrıca, ulusal veya uluslararası etkinliğin arttırılmasında, finansal planların hazırlanmasında, sermaye akımlarının düzenlenmesinde, yatırım kararlarının alınmasında sanayileşmiş ülkelerdeki yöneticiler, danışmanlık şirketlerinden büyük ölçüde yararlanmakta. Günümüzde gelişmekte olan ülkelerdeki sorumlular da danışmanlık kuruluşlarının hizmetlerinden yararlanma zorunluluğunu fazlasıyla duyuyor.
+       <br/>
+       <br/>
+       Genç gurular iş başında
+       <br/>
+       <br/>
+       Yabancı denetim ve danışmanlık şirketleri sunum ve incelemelerini 25—30 yaşlarında şirket deneyimi olmamasına rağmen iyi eğitim almış, tipolojisi düzgün kişilere yaptırıyorlar. Normal şartlarda ‘acemi’ denilen bu gençler kendi birikimlerini değil şirketin birikimlerini temsil ederler. Boğaziçi Üniversitesi öğretim görevlisi ve birçok şirkete danışmanlık yapan Prof. Dr. İbrahim Kavrakoğlu, şirketlere 40 yıllık kişisel tecrübesini aktardığını, beynelmilel firmaların ise 50 yıllık birikimlerini genç isimler vasıtası ile sattığını ifade ediyor. Uluslararası yapancı danışmanlık şirketlerinde büyük bir bilgi birikimi olduğunu kabul eden Prof. Dr. Kavrakoğlu, “Şirket olarak bazen proje bazında danışmanlık yaparken bazen de kendi elemanlarımızla projeyi baştan sona yürütüyoruz. Müşterinin isteğine ve kadro yapısına bağlı bir durum bu” diyor.
+       <br/>
+       <br/>
+       Gençlerin arkasında görünmeyenler var
+       <br/>
+       <br/>
+       23 yaşındayken bir yabancı danışmanlık firması adına PETKİM’i denetleyen Nurhan Kılıç, kurumsallaşmış danışmanlık firmalarında kurumu iyi eğitim almış, kuvvetli gençlerin temsil ettiğini, ancak gençlerin arkasında karar alıcı ve yönlendirici olarak sahalarının uzmanı yetişmiş isimlerin olduğunu belirtiyor. Bu isimlerin ön planda görünmediğine ama operasyonun her safhasında haberdar ve müdahil konumda olduğuna dikkat çeken Kılıç, Petkim ile ilgili şu ilginç hatırasını anlatıyor: “23 yaşında PETKİM’i incelerken daha okuldan yeni mezun olmuştum. Defter tutma konusunda bile sorunlarım vardı. Fakat temsil ettiğim danışmanlık şirketinin birikimi öylesine fazla ve üstümdeki amirlerim öylesine yetenekli idi ki onların yönlendirmesi ile firmayı didik didik ettim. Hatta PETKİM’in 25 yıllık muhasebecisi bana ‘Muhasebe bilgimi yetersiz mi buldunuz?’ diye sordu. Bu aslında benim değil, arkamdaki şirketin bilgeliği idi.”
+       <br/>
+       <br/>
+       Türkleri anlayamıyorlar
+       <br/>
+       <br/>
+       İnka Danışmanlık Genel Müdürü Necdet Conger ise yerli yabancı mukayesesinde ilginç bir saptama yapıyor. Yabancı firmaların arkasında markaları ve ciddi birikimleri olduğunu ama Türk kültürünü ve Türk yönetim arızalarını bilemediklerini dile getiren Conger, “Bu sebeple insan kaynakları ve yönetim hizmetlerinde çok başarılı olamıyorlar. Teorik planda işleri yürüttükleri için yerel özelliklere adapte olamıyorlar” diyor.
+       <br/>
+       <br/>
+       Yabancılar henüz tam gelmedi
+       <br/>
+       <br/>
+       Türkiye’de şu anda Ironman Consulting Danışmanlık, Pricewaterhouse Coopers, Deloitte&amp;Touche Danışmanlık, Mckensey, FED, Arthur Andersen, Arend Endüstriyel Danışmanlık, Profil International gibi dünyaca ünlü danışmanlık şirketleri faaliyet gösteriyor. Ciddi bir kısmı da henüz Türk pazarını inceleme safhasındalar. Yabancı firmalar tüm güçleri ile Türkiye’ye geldiklerinde yerlilerin durumu ne olacak? Maistro Danışmanlık’tan Nurhan Kılıç, kesin bir dille “Kepenkleri indiririz” diyor. Kendi yapılarında yılda bir iki iş yaparak hizmet gören danışmanlık firmalarının büyükler geldiğinde yaşama şanslarının kalmayacağını savunan Kılıç, “Yabancıların birkaç sene içerisinde pazara yerleşeceği muhakkak. Ciddi kurumsallaşma yaşayamayan ve marka olamayan firmaların kapanması kaçınılmaz olur” diyor.
+       <br/>
+       <br/>
+       Gösteriş için gidenler var
+       <br/>
+       <br/>
+       Yabancı danışmanlık firmaları ile çalışanların bir kısmının gösteriş olsun diye bu firmalara gittiğini iddia eden Prof. Dr. Kavrakoğlu’na göre; bu tip yaldızlı danışmanlık şirketi ile ilişkiye giren firmalar birşeyler almak için değil hava atmak için anlaşıyorlar. ‘Vakko mağazasından giyiniyorum’ der gibi ‘Falanca danışmanlık şirketi ile çalışıyorum’ diyebilme lüksü elde ediyorlar. Bilgi değerlidir alsınlar ama kazıklanmasınlar. Beynelmilel firmalar markaları ile Türkiye’ye geldiler ve ücretleri de bu markaları üzerinden belirleniyor. İçeriğine bakmadan sırf isimlerine ücret vermek yanlış.
+       <br/>
+       <br/>
+       Yabancılar çok yüksek rakamlara çalışıyor
+       <br/>
+       <br/>
+       Yabancı firmaların çok yüksek rakamlarla çalıştıklarına değinen Kavrakoğlu, “Bir fiyatlandırma yapıyorlar; ayda 250 bin dolar. 3 uzman geliyor toplam 100 bin dolara inceliyor. Bu tip firmalar özellikle acıtıcı rakamlarla çalışıyorlar ve böyle bir firmada çalışan bir yönetici bunun sebebini şöyle izah ediyor: Biz acıtıcı rakamlarla çalışırız. Firmanın ödeyeceği rakamdan dolayı canı yanmalı. Böyle olunca varılan sonuçları uygulamakta daha kararlı ve istekli oluyorlar. Gözden çıkaracağı küçük bir meblağ istersek, sonuçları uygulamakta tembel davranabiliyor. Bizi ciddiye almıyorlar. Türk danışmanlık şirketleri böylesine büyük rakamlarla çalışmazlar. Çalışmak isteseler bile uluslararası şirketler gibi marka olamadıkları için müşteri bulamazlar.”
+       <br/>
+       <br/>
+       Son bir kaç yıldır danışmanlık şirketlerinin sayısındaki artış ve pazardaki gelişmelerin yansıması olarak iş dünyası dergilerinde ve gazetelerde danışmanlık ekleri yayınlanıyor. Sektörel gelişimin gerek danışman firmalar gerekse müşteri firmalar tarafından izlenebilmesi ve bilginin paylaşılması açısından bu yayınların çok büyük desteği oluyor.
+       <br/>
+       <br/>
+       Danışmanlık, bilgi yoğun ve metodik bir çalışma gerektirir. Şirketler ise, bir vizyon ile kuruluyor. Bu vizyonun başarılı olması için çalışılıyor. Farklı yaklaşımı ve ürünü olan başarılı oluyor. Türkiye’de henüz tüm danışmanlık firmalarına yetecek kadar iş potansiyeli yok. Bunun için bir süre daha beklenmek zorunda Global krizin danışmanlık sektörüne katkı sağlayacağı pazarda önemli boyutta bir büyümenin olacağı düşünülebilir. Çünkü, şirketler kriz dönemlerinden sonra danışmanlık alma eğilimi gösteriyor. Genel ekonomik krizin olduğu yıllarda, sadece büyük firmalar danışmanlık hizmeti almaya devam ediyor.
+       <br/>
+       <br/>
+       e—mail: harunodabasi@hotmail.com
+       <br/>
+       <br/>
+       Şirketler hangi danışmanlık firmaları ile çalışıyor?
+       <br/>
+       <br/>
+       Koç Grubu: Büyük bir grup olduğu için kendi içinde kurduğu İDEA Danışmanlık ile ihtiyaçlarını gidermeye çalışıyor. Bunun dışında MERILL LYNCH’den yatırım bankacılığı ve Deloitte&amp;Touche Danışmanlık’tan hizmet alıyor.
+       <br/>
+       <br/>
+       Sabancı Grubu: Dünyaca ünlü Mckensey danışmanlık şirketi, Sabancı grubunun hangi sektörlere ağırlık vermesi ve hangi sektörlerden çıkması gerektiği konusunda danışmanlık verdi. Deloitte&amp;Touche de Sabancı’nın çalıştığı firmalar arasında.
+       <br/>
+       <br/>
+       Turkcell: İşe adam alma, eleman çıkartma ve eleman eğitme işlerini tamamı ile dışarıya verdi. Birçok yabancı danışman firması ile değişik alanlarda çalışıyor.
+       <br/>
+       <br/>
+       İstikbal Grubu: Arthur Andersen.
+       <br/>
+       Marchal: Ironman Consulting Danışmanlık.
+       <br/>
+       Bosch: Deloitte&amp;Touche Danışmanlık.
+       <br/>
+       Telsim: Deloitte&amp;Touche Danışmanlık.
+       <br/>
+       Türkiye İş Bankası: Deloitte &amp;Touche Danışmanlık. Türkiye İş Bankası’nın elinde bulundurduğu iştirakleri de aynı danışmanlık firmasından hizmet alıyor.
+       <br/>
+       Türkiye Vakıflar Bankası: Deloitte &amp;Touche danışmanlık.
+       <br/>
+       Türk Hava Yolları: Deloitte &amp;Touche Danışmanlık.
+       <br/>
+       Oracle: Profil International.
+       <br/>
+       DIA: Profil International.
+       <br/>
+       Nissan Otomotiv A.S.: Ironman Consulting.
+       <br/>
+       Garanti Bankası: Arge Danışmanlık, Deloitte&amp;Touche.
+       <br/>
+       Ekspres Yatırım A.Ş.: CFS Danışmanlık.
+       <br/>
+       Korkmaz Yiğit Gayrimenkul Yatırım Ortaklığı A.Ş.: CFS Danışmanlık.
+       <br/>
+       Bank Ekspres Yatırım Bankacılığı: CFS Danışmanlık.
+       <br/>
+       EGS Gayrimenkul Yatırım Ortaklığı A.Ş.: CFS Danışmanlık.
+       <br/>
+       Goldaş: CFS Danışmanlık.
+       <br/>
+       Enerji ve Tabi Kaynaklar Bakanlığı: Deloitte&amp;Touche Danışmanlık.
+       <br/>
+       Toprakbank: Arthur Andersen.
+       <br/>
+       Sümerbank: Arthur Andersen.
+       <br/>
+       Demirbank: Arthur Andersen.
+       <br/>
+       <br/>
+       Niçin danışmanlık firması
+       <br/>
+       <br/>
+       Şirketler sınırların ortadan kalktığı, rekabetin ön plana çıktığı değişen dünya koşullarında sürekli daha iyi olmak zorunda. Müşterinin seçenek imkanları ve teknolojik beklentileri artarken hatalara karşı hoşgörüsü de giderek azalmakta. Müşteriler artık standartlara uygun, beklentilerini aşan, ürün ve hizmetleri topluma, çevreye saygılı, müşteri için en iyisini yapmaya hazır, satış sonrasında rahat bir diyalog kurabileceği, kendi çalışanını tatmin etmiş, güleryüzlü kuruluşlarla çalışmak istiyor.
+       <br/>
+       <br/>
+       Şirketleri zorlayan ikinci unsur ise acımasız rekabet şartları. Gümrük duvarlarının ve korumacılığın kalkması sonucu müşterilerin alternatifleri çoğalmakta ve uluslararası kuruluşlar küreselleşen dünyanın her tarafında rakip olarak karşımıza çıkmakta.
+       <br/>
+       <br/>
+       Üçüncü zorlayıcı etken maliyetler. Memnun olmayan müsteriler yüzünden kaybedilen satışlar, garanti giderleri, hataların sonradan giderilmesi için ayrılan fonlar, verimsiz ve uzun süreçlerin getirdiği gecikme ve maliyet artışları, işi bizzat yapan kişilerin pratik önerilerinin dikkate alınmaması gibi konular şirketleri sürekli farklı arayışlar içerisinde olmaya zorluyor.
+       <br/>
+       <br/>
+       Peki kendi işine odaklanmış şirketler dış dünyadaki bilgi birikimini ve tecrübeleri nasıl takip edecek? Şirketinin yapısının düzgünlüğünü içeriden nasıl görebilecek. İşte bu noktada danışmanlık şirketleri devreye giriyor. İşi bizzat bilgi toplamak olan, yenilikleri ilk elden izleyen danışmanlık şirketleri hizmet verdiği kurumların röntgenini çekerek zayıf ve güçlü yanlarını ortaya koyarak bir yeniden yapılanma projesi ortaya koyuyorlar.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12427), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031721/http://www.aksiyon.com.tr:80/detay.php?id=12427)

@@ -1,0 +1,49 @@
+# Modern savaş modern iletişim
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Şu anda Arap sularının herhangi bir yerindeki herhangi bir Amerikan savaş gemisinden günde en az 30 bin tane mail gönderiliyor. Gönderenler ise, kaptandan güverte paspasçısına kadar tüm gemi mürettebatı.
+   <br/>
+   <br/>
+   Savaşta aktif görev almaktan çekinen Amerikan askerleri, gönderildikleri görevde işte bu iletişim nimetinden faydalandırılarak ikna ediliyor. Son derece gelişmiş uydu sistemleri ile iletişim sağlayan gemilerdeki her bir nefer, yine sunulan bilgisayar imkanları ile ailelerine hergün sağlık durumlarıyla ilgili haber gönderebiliyor.
+   <br>
+    <br>
+     Gemide bulunan mürettebat, öncelikle bir eğitimden geçirilmiş. Hem bilgisayar ve internet kullanımı ile ilgili, hem de gönderdikleri mesajlarda nelerle ilgili bilgi veremeyecekleri ile ilgili. İstediği sayıda mesaj gönderme imkanı tanınan personel, operasyonlar ve gemilerin yerlerine dair herhangi bir bilgi gönderemiyor.
+     <br>
+      <br>
+       Gemilerde şu an kullanılan bilgisayar sistemleri tam bir yıl önce yenilenmiş. Bir gemideki bilgisayar ağı için 150 km uzunluğunda network kablosu, 40 km uzunluğunda fiber optik kablo ve 16 ana bilgisayar kullanılmış.
+       <br>
+        <br>
+         Gemilerde kurulan bilgisayar sistemleri personelin sadece mail göndermesi için kullanılmıyor. İnternet üzerinden alışveriş, yeni üniforma siparişi ve daha önemlisi fatura ödemeleri gibi işlemlerini düzenli olarak takip etmeleri sağlanıyor. Yani Amerika’daki günlük yaşamlarına aynen devam ediyor gibi.
+         <br/>
+         <br/>
+         Asıl dikkat çekeceğim şey Amerikan ordusunun kullandığı teknolojik donanımlı gemilerden çok görev yapan personelin tümünün teknoloji ile barıştırılmış ve eğitilmiş olması. Şu an savaş tedirginliği altındaki birçok ülkede ise, silah kullanma görevini taşıyan tüm kadro teknolojiden kopuk. İletişim onların hayatlarında belki de hiçbir anlam ifade etmiyor. Çünkü alıştıkları yaşam tarzı, dağlardaki antrenmanları onlar için günlük normal hayat olmuş.
+         <br/>
+         <br/>
+         Bu yaşam standardı altında kaybolan onca kapasiteli insan ise, aslında tüm dünyanın kaybı. İnkişaf edemeyen, daha keşfedilememiş birçok zihin, birçok deha, tüm dünyanın içiçe bulunduğu gelişmeleri bugüne dek hiç görememiş hiç duyamamış.
+         <br/>
+         <br/>
+         Umarım yarınlar, bu insanların kazanıldığı ve dünyaya çok şey kazandırdığı günler olur. Umarım bizim ordumuzda görev yapanlar da Amerikan ordusundakiler gibi eğitim fırsatına sahip olur...
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12414), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043756/http://www.aksiyon.com.tr:80/yazdir.php?id=12414)

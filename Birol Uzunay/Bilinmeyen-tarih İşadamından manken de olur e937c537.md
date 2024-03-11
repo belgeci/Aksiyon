@@ -1,0 +1,76 @@
+# İşadamından manken de olur
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050128023323im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050128023323im_/http://www.aksiyon.com.tr/resim/515/76.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Murat Akdoğan sadece Baymak ürünleriyle değil sosyal yaşantısıyla da kendisinden bahsettiren bir işadamı. Akademisyenliğinin yanısıra sivil toplum kuruluşları ve podyumlardaki başarısıyla Akdoğan, işadamının sadece para makinası olmadığını da gösterdi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Murat Akdoğan bir koltukta birkaç karpuzu taşıyabilen insanlardan biri. Akademisyen ve işveren gibi iki “özelliğinin yanında üçüncü kimliği var; manken. Sivil toplum çalışmalarına yaptığı katkı ile tanınan Murat Akdoğan, Faruk Saraç’ın 2005 koleksiyonu için fotomodellik yaparak,  iş dünyasına bir yenilik daha kazandırdı.
+   <br>
+    <br>
+     Bilbordlardaki pozlarıyla İtalyan mankenleri çağrıştıran Akdoğan, Urfalı bir öğretmen ailesinin çocuğu. Henüz 24 yaşında iken bir mühendis adayıdır ve gazete ilanlarıyla iş aramaya başlar. Gazetede bulduğu “mühendis aranıyor” ilânını kesip günlerce saklar. Günler sonra Murat Akdoğan’ı arayan şirketin ismi, İngilizlerin büyük hissedarı olduğu Baymak’tan başkası değildir.
+     <br>
+      <br>
+       Yüzlerce iş başvurusunun arasından mülâkat için çağıran Baymak yöneticilerini “Benim bu şirketi büyütecek olağanüstü modellerim var” cümlesi etkiler.
+       <br/>
+       <br/>
+       “Henüz mühendis bile olmayan birinin nasıl olağanüstü modelleri olabilir?” diyerek bu heyecanlı genci işe alır. Baymak’ın İngiliz yöneticileri Türkiye’de eşine zor rastlanır bir risk alarak, henüz 26 yaşına yeni basan Murat Akdoğan’ı genel müdür yapar.
+       <br/>
+       <br/>
+       İdealist genel müdür kolları sıvar ve işe koyulur. Ancak, kendisini küçük bir sürpriz bekliyordur: Körfez krizi. Şirketin İngiliz ve Türk sahipleri, “Baymak artık miadını tamamlamıştır” dedikleri anda Murat Akdoğan, krizle ilk imtihanına başlar.
+       <br/>
+       <br/>
+       Gündüz termosifon üretiyor, gece pazarlama kitabı okuyor
+       <br/>
+       <br/>
+       Bankaların elindeki 14 bin metrekarelik Baymak’ın karşısına 90 metrekarelik yeni bir iş yeri açan Murat Akdoğan, 5 fedakâr çalışanıyla Körfez krizinin tüm olumsuzluklarına karşı direnişe geçer. Gündüzleri termosifon üretimi yapar, geceleri de geç saatlere kadar “geleceğin şirketi” için pazarlama kitapları okuyup notlar çıkarır.
+       <br/>
+       <br/>
+       Rekabet derslerini içselleştirir. Firmaların birbirleriyle fiyat ve teknoloji rekabeti yaptığını; bunun da yanlış bir uygulama olduğunu fark eder. Asıl rekabetin iş yapma modellerinde yattığının anlar. Başarı için anahtar kelimenin çalışmak ya da hile yapmak değil, yeni bilgi olduğunu tespit eder. Öğrendiklerini uygulamaya koyduğunda Murat Akdoğan’ın 90 metrekarelik iş yeri, kısa sürede sipariş yetiştiremeyen bir işletme haline gelir.
+       <br/>
+       <br/>
+       Körfez krizi sırasında edindiği tecrübeyi 1994 ekonomik krizinde de uygular. Artık iyi bir kriz uzmanı olmuştur. Baymak’ı bankaların elinden kurtarmış; mütevazı hissesiyle her ay yeni bir yenilik deneyerek şirketini büyütüp derin bir nefes almıştır.
+       <br/>
+       <br/>
+       “Farklı olma” ve “denetleme” formülleriyle sektöründe büyüyen Baymak, kombi sektörünün büyümesiyle de bir anda 2000’li yıllara doğru bir dev olma yolunda ilerler. Bir dönemin genç genel müdürü ise geceleri okuduğu pazarlama kitaplarını üniversite sıralarında anlatan bir işletme doktoru unvanını alır.
+       <br/>
+       <br/>
+       İş hayatı boyunca krizlerle boğuşan Akdoğan, ekonomik bunalımlar sırasında uyguladığı “B” planıyla kimsenin hayal bile edemediği oranlarda büyüme gerçekleştirdi. Krizler için geliştirdiği sihirli B planını sorduğumuzda Akdoğan’ın cevabı oldukça ilginç: “Herkes aynı şeyi düşünüyor. Bence farklı düşünebilmek önemli; çünkü başarıya ancak az sayıdaki insan ulaşabiliyor. Para konusunda hep B planını devreye sokarım. Herkesin dolara koştuğu bir dönemde benim dolarla pek işim olmaz. Herkes doları yerden yere vurur ben dolar yatırımı yaparım. B planının kesin cümleleri yok. Tecrübeyle birlikte oluşan farklılık bu planın özetidir.”
+       <br/>
+       <br/>
+       Bankalara kriz danışmanlığı
+       <br/>
+       <br/>
+       Bir dönem bankaların elinden şirketini kurtarmaya çalışan Murat Akdoğan bugün aynı bankalara kriz danışmanlığı yapıyor. Bankaların üst düzey yöneticilerinin sık sık “Kriz çıkar mı?” sorusunu cevaplayan Akdoğan’ın 2005 yorumu ise şöyle: “Bugünkü hükümetin performansı mükemmel. Ancak kimse kriz çıkmaz da diyemez. Ben kendi şirketlerimde tedbirimi alıyorum. Kriz çıksa da ben bu krizden kârlı çıkarım. Ayakta kalmanın formülü budur. Hükümetin performansı önümüzdeki yıl belli olacak. Çünkü kredileri vardı ve Türkiye’de rakamlar yerli yerinde değildi. İşte şimdi mücadele ve artı puanlar için dönem başladı. Hükümetin 2005’te gerçek notunu alabileceğini iddia ediyorum. Neden bir kriz çıkmasın diyenlere, kriz çıksa da 2001 gibi olmaz diyorum. Belki çok kötü şartlarda devalüasyon olur. Ancak işler toparlanır; çünkü şu an tek partili hükümet var; dalgalı kur var. Piyasa kendisini kısa sürede toparlar.”
+       <br/>
+       <br/>
+       Halen İngiliz ortaklı bir şirket olan Baymak bugün Almanya’ya teknoloji ihraç ediyor. Şirketin önümüzdeki döneme ait hedefi ise uzman çalışan yetiştirmek! Aradıkları teknik elemanların yeterince uzman kişiler olmadıklarını söyleyen Murat Akdoğan, çok yakın bir gelecekte butik üniversite kurup, “uzman çalışanlar” yetiştirmek istiyor.
+       <br/>
+       <br/>
+       Faruk Saraç’ın kendisine yaptığı fotomodellik teklifini başlangıçta şaka olarak yorumlayan Akdoğan, Saraç’ın ısrarları karşısında dayanamaz ve stüdyonun yolunu tutar. “Faruk Saraç’tan başka kimse beni manken yapamazdı” diyen Akdoğan, çevresinden oldukça olumlu tepkiler almış.
+       <br/>
+       <br/>
+       Faruk Saraç koleksiyonu için kameralar karşısına geçen Akdoğan’ın “Bizim için de profesyonel manken olur musunuz?” teklifine vereceği cevap hazır. “Kriz uzmanıyım; evde de bir kriz çıkartmak istemiyorum.”
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16900&yorum=2138), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050128023323/http://www.aksiyon.com.tr:80/detay.php?id=16900&yorum=2138)

@@ -1,0 +1,64 @@
+# Sükûnetin derin sularında
+
+*Sevinç Özarslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143245im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050117143245im_/http://www.aksiyon.com.tr/resim/512/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Enstrümantal müziğin Türkiye'deki öncülerinden Yansımalar grubu, yeni albümü "Pervane" ile hayat gailesinden yorulanlara bir demlik sükût sunuyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   "Ey bülbül! Sen aşkı pervaneden öğren. O, âşık olduğu mumun nuru etrafında, döne döne yandı, tutuştu. Canı çıktı. Fakat sesi çıkmadı" diye seslenir bülbüle, Sadi-i Şirazi. Mumun nurundan dağılan ışıklar, sesi çıkmadan can veren pervanenin soluğunu kesse de, meyvelerini her dönem başka şekillerde veriyor insanlara. Pervanenin varlık olarak anlamı, aşkı ve bu aşkın uğruna kendini feda edişi ya da var oluşu, kapanmayan kapılardan, daha ne kapılar açıyor bilmediğimiz.
+   <br>
+    <br>
+     Müziğiyle, insanları oldukları mekanlardan ve zamanlardan alıp, başka diyarlara götürmeyi bir nebze başaran Yansımalar grubu, 'pervane'nin aşkından etkilenerek yaptığı yeni albümüyle dört sene sonra dinleyicilerinin karşısına çıkıyor. Ekim ayının ortasında enstrümantal müzik hayranlarına sunulacak olan albümün adı Pervane. "Yansımalar", "Serzeniş", "Bab-ı Esrar", "Vuslat" albümlerini dinleyenler, grubun, modern hayatın karmaşasına huzur ve sadelik sunan bir müzik yaptığını biliyorlardır. Ney ve gitarın başaktör olduğu bu müzik, grubun ifadesiyle, kendilerini etkilediğinden daha çok dinleyicileri etkisi altına almayı başarıyor. Yaptıkları müzik, öyle bir anlatımla kendilerine geri dönüyor ki onlar bile gerçek anlamda çok etkilendiklerini ifade etmekten çekinmiyorlar. O derinlikte bir ifadeyi belki kendileri bile düşünmüyorlar.
+     <br>
+      <br>
+       Pervane'de soft ve lirik parçaların yanı sıra insanın içsel haline daha yakın duyguları ifade eden parçalar bekliyor bu kez dinleyicileri. Beyhude, bu eserlerinden biri. Yansımalar çizgisinin genel karakterini taşıyan albümün, grubun diğer dört albümünden elbette ki farkı var. Birol Yayla ve Şenol Filiz’in konservatuvardan arkadaşı olan Erkan Oğur da dahil bu çalışmaya.
+       <br/>
+       <br/>
+       Belirli bir tema ve form üzerine yapılan eserlerin ağırlıkta olduğu diğer albümlerinin aksine 'Pervane'de neyzen Şenol Filiz ve Samim Karaca'nın doğaçlamalarının yer alması, insan sesinin enstrüman olarak kullanılması albümün yapısal olarak en temel farklılıklarını oluşturuyor. Bundan sonraki albümlerini bir buçuk, iki sene gibi çok daha kısa periyotlarla çıkarmayı düşünen grubun konuyla ilgili açıklaması, "Biraz yaşlanıyoruz galiba. Geçen zaman bizi daha çok ürün vermeye tetikliyor" şeklinde.
+       <br/>
+       <br/>
+       Oyun havası olsaydı
+       <br/>
+       <br/>
+       Grubun ilk albümü "Yansımalar" 1992 yılında çıktığında, müzik dağıtım şirketleri ve perakendeciler albümü hangi rafa koyacaklarını bilemezler. Çünkü o dönemlerde sadece enstrümantal olarak oyun havaları ve folk müzik vardır. Herhangi bir satış beklentileri yoktur. Hatta konser sonrasında, "Albümünüz var mı? diye soran dinleyenleri geri çevirmemek için yapılan bir albümdür. Ama şimdi, 1992 yılında çıkardıkları bu albümün sadece Nisan-Haziran 2004 arasındaki satış rakamı 10 bin.
+       <br/>
+       <br/>
+       Yıllar sonra bile bir albümün bu kadar talep edilmesi herkes açısından sevindirici bir durum. Dinleyici kitlelerini “kâmil insanlar” olarak tanımlayan grubun üyeleri, "Bizi dinleyen ve bu müziği paylaşan insanlar bizden ne kadar eminse biz de o kadar onlardan eminiz. Hiçbir zaman geri adım atmayan, gerektiğinde yüzümüze karşı bizi eleştiren; ama asla kaybetmek istemeyen bir kitleyle beraberiz. Yansımalar dinleyicisi gerçekten farklı bir kitle. Hayran tanımının dışındalar. Her birinin özgün düşünceleri, duruşu, farklı çıkış ve tercihleri var. Ortalamanın çok üstünde bir doluluğa sahipler" diyorlar.
+       <br/>
+       <br/>
+       Yaz başlangıcında hareketlenmeye başlayan müzik piyasasının beklentileriyle çok fazla ilgilenmeyen Yansımalar grubu, albümlerini, ortalığın durulduğu, karışıklığın bittiği sonbaharda çıkarmayı tercih ediyor her zaman. Aslında bu onların bilinçli yaptığı bir şey değil: "Duygularımızın bizi sürüklediği bir mevsim, sonbahar. Tamamen içsel olarak hissettiğimiz bir şey bu."
+       <br/>
+       <br/>
+       Bizi en iyi ifade eden enstrümanlardan biri olan 'ney'e karşı ilginin son yıllarda birdenbire arttığı bilinen bir gerçek. Yansımalar grubu, böyle bir zeminin oluşmasında kendilerinin çok büyük katkısı olduğunu düşünüyor. Ama 'ney'in, toplum tarafından yeniden keşfedilmesini de eleştiren grup, ney geleneğinin tarihsel sürecini hiç bilmeden, daha Niyazi Sayın gibi bir ney ustasını tanımadan, birtakım isimler üzerinde spekülasyonlar yapılmasını doğru bulmuyor. Aslında eleştirileri, sunulan ürünlere ya da kişilere değil, bunun değerlendirmesini yapan insanların sığ görüşlerine.
+       <br/>
+       <br/>
+       24 yıllık bir arkadaşlığın son 14 senesinde bir müzik grubu olarak önemli bir kitleyi etkileyen Yansımalar, gereksiz hırslardan, tamahlardan "Başkasından eksilen bizim mertebemize eklenmez" sözünü kendine rehber ediniyor. Yani başkasının mertebesinden eksilenin onların müziğine olumlu değil, olumsuz etkileri olduğunun farkındalar. Üreten bir insan için en büyük enerji kaybı; her işte olduğu gibi sanatta da aynı eylemlerden ortaya çıkıyor: Birilerini karalamak ya da kötülemek.
+       <br/>
+       <br/>
+       PHASELİS’TE İLK KONSER
+       <br/>
+       <br/>
+       Bu yılın ilk konserini, Kemer Tanıtım Vakfı'nın öncülüğünde geçen ay Antalya'da 7-14 Eylül arasında ikincisi düzenlenen Phaselis Kültür Sanat Etkinlikleri'nde veren Yansımalar, hem yeni albümünden hem de eski albümlerinden çaldığı parçalarla dinleyicileri tarihi bir mekanın atmosferiyle buluşturdu. Phaselis atik kentinin tiyatrosunda gerçekleştirilen konserde grup, geleneksel Türk Müziği'nden yola çıkarak oluşturduğu kendi bestelerinin yanı sıra ağırlıklı olarak doğaçlamaya dayanan bir repertuar seslendirdi. Büyük İskender'in uzun zaman kaldığı Phaselis, Kemer'in Tekirova beldesine bağlı küçük bir sit alanı. Açılışını Rengim Gökmen'in şefliğinde Antalya Senfoni Orkestrası'nın yaptığı etkinliklerde, Kuzey Osetya'da yaşanan teröre kurban giden insanlar da unutulmadı. 9 Eylül'de sahne alan Moskova Balalayka Dörtlüsü, konser öncesi dinleyicileri, hayatını kaybedenler için saygı duruşuna davet etti. Kapanışı Cem Mansur şefliğinde Akbank Oda Orkestrası'nın yaptığı festivalde, Çağdaş Mevlana Âşıkları Topluluğu'nun sunduğu gösteri ise hem yerli halkın hem de turistlerin yoğun ilgisiyle karşılaştı. Phaselis Festivali daha ikinci yılında profesyonel organizasyonuyla göz doldurdu.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16173&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143245/http://www.aksiyon.com.tr:80/detay.php?id=16173&yorum_id=1)

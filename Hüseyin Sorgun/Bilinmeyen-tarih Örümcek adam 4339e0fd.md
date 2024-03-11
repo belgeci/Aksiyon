@@ -1,0 +1,56 @@
+# Örümcek adam
+
+*Hüseyin Sorgun Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040911042541im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040911042541im_/http://www.aksiyon.com.tr/resim/500/100.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir kahraman olmanın dayanılmaz ağırlığından kendini azat edip, herhangi biri olma gibi cazip bir lükse kapılan Peter Parker’in (Tobey Maguire) yaşadığı gelgitlerle başlayan Spider Man 2 (Örümcek Adam 2), sıradan bir insanın kahramanlık düşünün fantastik öyküsü.
+ </font>
+ <p>
+  <font class="content">
+   Örümcek Adam fotoğrafı çekmekle ünlenen bir foto muhabiri iken, işsiz kaldığı günlerde hayatına kaldığı yerden başlayan, bir yandan üniversiteye adapte olmaya çabalarken öte yandan çalıştığı pizzacıda zamanla yarışan Parker, yoğun bir ikilemin odağında günlerini geçirmektedir. Uzatmalı aşkı Mary Jane Watson’ın varlığı onu zor bir kararın eşiğinde bırakır. Peter Parker olarak hayatına rutin bir devam çizgisi katmakta ya da bir kahraman olarak kalmakta özgürdür. Yönetmen Sam Raimi’nin Örümcek Adam 2’deki başarısı, fantastik değilse de sıradan bir insanın kahramanlık düşünü, iç çatışmalarıyla beyaz perdeye yansıtabilmesinde.
+   <br/>
+   <br/>
+   Sıradan olmanın dayanılmaz hafifliği...
+   <br/>
+   <br/>
+   Sıradan bir hayatın sularında hayatın rutinine karışmak ya da yorulmak pahasına bir düşün tepelerine tırmanmak insanın tercih skalasında yer alıyor. Ancak her tercih, bir vazgeçişi de içinde barındırıyor. Üniversiteye kaldığı yerden devam edip kendisinden beklenen başarıyı yakalamak; uzatmalı aşkı Mary Jane Watson ile yollarını birleştirmek ve tehlikeli bir anayoldan sapıp hayatın tali yollarında kaybolmak. Örümcek Adam için de bir düştür. Herkesin gıpta ile baktığı, alkış tuttuğu bir süper kahraman olmak, yalnızlığın amansız acıtıcılığını da beraberinde getirmektedir. Bu gelgitlerin yoğunluğunda, Parker’in kararsızlığı, yetilerinde bir kayba da neden olur. Parker’in tekrar Örümcek Adam’lığa soyunması (giyinmesi), bir karar sürecini de beraberinde getirecektir. Bu kavşakta, her düş yorgunu gibi Parker’e de bir tercih düşmektedir. Ya sıradanlığı seçecek ya da kahramanlığın risklerini göze alıp yürüyecektir.
+   <br/>
+   <br/>
+   Parker’in yaşadığı gelgit sürecini, Örümcek Adam’ın en popüler kötü karakteri Dr. Octopus / Doc Ock’ta da (Alfred Molina) görmek mümkün. Füzyon denemeleriyle adını duyurmuş bir bilim adamı olan Octopus; sekiz kollu çılgın ve şeytani bir karaktere dönüşürken, yaptığı deneyin kontrolünde kontrolsüz bir “kötü” haline gelir. Örümcek Adam’ın fantastik düşmanı olan Octopus, mutlak bir kötü olmaktan öte, iyi/kötü sarkacında yoğun gelgitler yaşayan bir “iyikötü” olmakla yazgılanır. Octopus’u sıradan bir yaşamın koynundan çıkarıp bir canavara dönüştüren de; Parker’i bir kahramana dönüştüren de düşleridir aslında.
+   <br/>
+   <br/>
+   Gerçekliğin içinde fantastik bir düş...
+   <br/>
+   <br/>
+   Örümcek Adam, verili gerçekliği sorgulamaktan öte, bu gerçekliğe eklemlenmiş bir fantastik ögedir. Suç oranının yüzde yetmiş beşlere vardığı bir toplum; bu yükü yüklenen bir “kahraman”; bu kahramana savaş açan acımasız bir medya patronu J.Jonah Jameson (J.K.Simmons); Örümcek Adam’la kişisel bir hesabı olan, Parker’in yakın dostu Harry Osborn (James Franco) ve bir suç makinesine dönüşen Dr. Octopus. Kötünün kümelendiği ve anonimleştiği bir ortamda, bütün kötülere savaş açmış bir fantastik kahraman olan Örümcek Adam, gerçekliğin bir kenarına iliştirilen düşsel bir öykü.
+   <br/>
+   <br/>
+   Toplumun tembelliğini ve bir kahramanın gölgesinde serin zamanlara uzanmışlığını da imlemesi açısından çarpıcı ayrıntılar besliyor. Ve haliyle, her kahramanın biraz insan biraz insanüstü kimliğinin detaylarındaki yalnızlığın altını çizmesiyle de...
+   <br/>
+   <br/>
+   Bol aksiyon; dozunda mizah...
+   <br/>
+   <br/>
+   Örümcek Adam 2, her ne kadar fantastik ögeler taşıyorsa da, insani durumdan uzaklaşmayan bir film. Parker’in sıradan insanlığa soyunduğundaki komik durumları kadar, Dr. Octopus’un kötücüllüğündeki insanilik de bir o kadar insandan ve insana ait. Pizzacıda çalışan ve  siparişleri adrese sürekli geç teslim eden Parker, kız arkadaşıyla sorunlu, üniversitede kendisini gösteremeyen ve aile hayatında yalnız ve acıklı hikayenin odağında bir kişidir. Böylesi bir insanın Örümcek Adam’a dönüşüp, toplumdaki aksaklıklarla ve kötü insanlarla mücadele ediyor olması, kuşkusuz örnek bir fenomen oluşturuyor.
+   <br/>
+   <br/>
+   Örümcek Adam 2’de Sam Raimi, yalnız, düşkün ve tutunamayan yanımıza yaslanan Peter Parker’den, olumlu bir figür olan Örümcek Adam’ı çıkarmayı deniyor. Ve düş dünyasından devşirdiği Örümcek Adam’ı fantastik durumunu bozmadan ama insani özelliklerini de kaybettirmeden beyaz perdeye taşımayı biliyor. İlk filminde Örümcek Adam’lığını yeni keşfeden Peter Parker’in ikinci filmde yaşadığı insani ve duygusal çelişkiyi, etkileyici bir görsellikle seyretmek isteyenler kaçırmamalı.
+   <br/>
+   <br/>
+   KÜNYE: Spider-Man 2/Örümcek Adam 2  Yön: Sam Raimi  Oyn: Tobey Maguire, Kirsten Dunst, James Franco, Alfred Molina, Rosemary Harris  Sen: Alvin Sargent, Stan Lee ve Steve Ditko (Marvel Comic Çizgi Romanları'nın yaratıcıları), Hikaye; Alfred Gough &amp; Miles Millar ve Michael Chabon
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11934&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040911042541/http://www.aksiyon.com.tr:80/detay.php?id=11934&yorum_id=1)

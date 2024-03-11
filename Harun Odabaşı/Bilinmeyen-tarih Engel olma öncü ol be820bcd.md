@@ -1,0 +1,106 @@
+# Engel olma öncü ol
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175527im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175527im_/http://www.aksiyon.com.tr/resim/304/48.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye eskisi gibi birkaç sermaye grubunun ekonomiyi ve siyaseti yönlendirdiği dönemi aşmış görünüyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   ‘Anadolu Kaplanları’ markası ile deşifre edilen ‘Yeni Sermaye’ ve globalleşme süreci ekonominin yapısını kökünden değiştiriyor. Ancak değişenlerle değişime direnenler arasındaki bildik rekabet, değişimin sancılı tarafını oluşturuyor. Büyük sermaye eski alışkanlıklarını devam ettirmek isterken, filiz veren ve omurgasını yeni yeni sağlamlaştıran ‘yeni sermaye’ ise ‘Böyle gelmiş olsa bile böyle gidemez’ diyor.
+   <br>
+    <br>
+     Gerçekten iki sermaye birbirinin aleyhine bir büyüme trendine mi sahip, yani biri büyüyünce diğeri küçülecek mi? Yoksa ortada bir halüsinasyon var ve birbirine et ve kemik gibi geçmiş iki dost sermaye ‘kardeş kavgası’ mı yapıyor?
+     <br>
+      <br>
+       Aksiyon dergisi Anadolu’da filizlenen yeni sermayeyi sizlere daha yakından tanıtmak istiyor. Bunun için önemli çıkışlar yakalamış, önüne büyük hedefler koymuş Anadolu şirketlerini belli aralıklarla karşınıza getireceğiz. Sermayenin köklerindeki kültürü anlamaya ve anlatmaya çalışacağız. Bu süreçte ilk karşımıza çıkan Kayseri’nin en köklü şirketlerinden Silver Şirketler Topluluğu oldu.
+       <br/>
+       <br/>
+       Soba sektörünün duayeni olarak anılan Silver Şirketler Topluluğu Yönetim Kurulu Başkanı Abdurrahman Haskahraman ile yukarıdaki çetrefilli sorunun cevabını ve grubun geleceğe dönük vizyonunu konuştuk. Abdurrahman Haskahraman Anadolu ruhunu hücrelerine kadar sindirmiş ve 15.03.2000 tarihinde topluluğun başına geçer geçmez köklü bir yapılanma süreci başlatmış. Bu süreç şu anda tüm hızı ile devam ediyor.
+       <br/>
+       <br/>
+       44 yıllık bir maziden gelen Silver Grubu içerisinde Silver markalı soba üreten Dökümiş Ltd. Şt., Pazarlama işlerine bakan Silver Ticaret A.Ş., Kayseri Döküm Sanayi ve Ticaret A.Ş., iplik üretimi yapan Silteks Tekstil Sanayi ve Ticaret A.Ş. var. Kayseri’nin sanayileşmesi ile ilgili bir kitap yazıldığında mutlaka isminden bahsedilmesi gereken bir firma Silver. Abdurrahman Haskahraman sanayiciliği baba mesleği olarak seçmiş. Kendisi ile yaptığımız uzun röportajda kendisinde derin bir meslek kültürü ve global bakış olduğunu farkettim. Abarttığımı zannedeceksiniz ama ticareti asla ticaret için yapmayanlardan. Onu memlekete hizmet etmenin bir aracı haline getirmiş. Zannediyorum Abdurrrahman Haskahraman’ı kodlayan en güzel cümle şu: “Bizim milletimizin evladı çok büyük işler yapmaya müsait. Benim en zirvedeki insan ile en aşağıdaki insan arasında konuşmamda hiçbir farklılığım yoktur. Hatta konumu daha aşağıda insanlara karşı daha merhametli bir hal alırım. Her zaman insanlara sempatik olmaya çalışırım. Ama konumu itibarı ile güçlü kimselerde biraz gurur sezdiysem onlarla mücadele etmeyi severim.”
+       <br/>
+       <br/>
+       Ekonomi’de ‘sevgi’ eksik!
+       <br/>
+       <br/>
+       Büyük sermaye ile Anadolu sermayesi arasındaki mücadelenin çok yanlış temellere oturtulduğuna işaret eden Abdurrahman Haskahraman sermayeleri renklere bölmek yerine dayanışma içerisine sokulması halinde DPT’nin ortaya koyduğu 2020 yılı hedefinin 3—4 sene içerisinde tutturulabileceğini savunuyor. Türkiye’deki ekonomik sorunların temelini sevgi eksikliğine dayandıran Haskahraman, “ En global sorunumuzu birbirimizi sevmememizde görüyorum. Dialog ve hoşgörü ortamında, insanı insan olduğu için değerli kabul ederek bir ilişki kurmalıyız. Devletimiz ayrım yapmadan insanına yardımcı olmalı. Özel sektör de kendi içerisinde dayanışma içerisinde olmalı. Millet olarak herkesin tek tip bir yapı içerisinde olmasını istemek doğru değil. İnançlılarla inançsızlar birlikte kucaklanabilmeli. Amerikan toplumu gibi çok kavimli bir yapıyı kaynaştırmalıyız. Alevi—Sünni ayrımı, Kürt—Türk, Çerkez—Laz ayrımı olmamalı” diyor.
+       <br/>
+       <br/>
+       Büyükler küçüklerin önünü açsın
+       <br/>
+       <br/>
+       “Büyük sermaye küçük sermayeden çekinmemeli” diyen Abdurrahman Haskahraman’a göre, tam tersine büyük sermaye küçük sermayeye yardımcı olup büyümesini sağlamalı. Hedef Türkiye’yi bir sanayi devi haline getirmek olmalı. Küreselleşmeyle beraber, dünya bir köy oldu. Türk şirketleri dünyanın her köşesine ulaşmak için çırpınmalı. Dünyadaki ekonomi artık siyaseti sarsıyor ve şekillendiriyor. Türkiye’nin AB’a hazırlanırken çok büyük ve istikrarlı sanayii ve dev sanayi şirketleri olması lazım. Pazar artık tüm dünya. Ama bu Türkiye’yi ve Türk firmalarını büyütmeden nasıl olacak? Türkiye’de Anadolu Kaplanları denilen kesim aslında Türkiye’nin kaplanıdır. Anadolu’da büyüyen sermaye farklı bir sermaye değil ki veya başka bir ülkeye hizmet etmiyor ki.
+       <br/>
+       <br/>
+       Anadolu sermayesinin büyük sermayeden beklentisini ‘ağabeylik’ ve ‘öncülük’ yapmak şeklinde ortaya koyan Haskahraman şöyle konuşuyor: “Büyük sermayenin hatırı bizim için yüksektir. Türkiye’de sanayinin olmadığı dönemde onlar Türkiye’yi temsil etmişler. Onlar biz küçüklerin ulaşamadığı yerlerdeki tıkanıklıkları gidersinler. Büyük sermaye gruplarının Türkiye ekonomisinde, siyasetinde, istikrarında çok önemli misyonları olmuş. İhracatımız 26 milyar dolar civarında. Şu anki sermaye grupları kadar bir sermaye grubumuz daha olsa ve ihracat 50 —100 milyar dolara çıksa kim zarar görür bu durumdan. Türkiye’de birkaç bin ile ifade edilen büyük şirket ABD’de 36 binler mertebesinde.”
+       <br/>
+       <br/>
+       Finansal imkanlar adilce bölüştürülsün
+       <br/>
+       <br/>
+       “Türkiye’nin imkanlarından istifade etmek varken istifade edememek, fırsatlar varken onları kullanamamak köstek olmaktır ve küçük sermayeyi tazyik altında tutmaktır. Biz büyüklerin aldığı payın hepsini istemiyoruz, ama onlar da bizim paylarımıza göz dikmesinler. Yurtdışından gelen finansal imkanlar adilce ve ihtiyaç sahibine verilsin” diye konuşan Abdurrahman Haskahraman’a göre; Türkiye’nin belli miktarda tahsisatları var. Dünya Bankası’ndan ve benzeri finans kurumlarından Türkiye’deki sanayicilere dağıtılmak üzere tahsil edilmiş krediler var. Bu krediler ile KOBİ’ler arasına girilmemeli. Rekabetten korkmamaları lazım. Rakibi olmayan firma atalete düşer. Nasıl ki dışarıda Türkiye ile uğraşan ülkeler var ise aynı şekilde Türk şirketleri ile uğraşan uluslararası firmalar var. Biz içeride istikrarlı olursak dışarıda daha güçlü oluruz. Ayrı ayrı çubukları kırmak mümkün ama çubuklar bir araya geldiğinde kırmak imkansız hale gelir.
+       <br/>
+       <br/>
+       1950’li yılların başına bir ahırda başlayan döküm işi daha sonra Abdurrahman Haskahraman’ın babası Mustafa Haskahraman’ın öncülüğünde, kardeşi ve kayınbiraderini de yanına alarak 1958’de şirketleşiyor. Abdurrahman Haskahraman bu üçlüyü birinci kuşak olarak nitelendiriyor. İlk üretimleri fırın tesisatı ve wc boruları üzerine yoğunlaşıyor. Daha sonra Türkiye’de ilk dökümlü düdüklü tencere üretimini gerçekleştiriyorlar. Tencere, Silver Star adı ile satılıyor.
+       <br/>
+       <br/>
+       Beko Silver’i hızla büyüttü
+       <br/>
+       <br/>
+       Silver için dönüm noktası sayılabilecek çıkış 1965—66 yılında başlayan soba üretimi ile oluyor. Koç Topluluğu’na ait Beko Ticaret A.Ş. o sıralar bir pazarlama firması ve satmak için bir soba arıyor. Baba Mustafa Haskahraman’ın ısrarı üzerine Beko bu işi Silver’e veriyor. Koç Topluluğu ile olan ilişkilerinin kendilerine her açıdan büyük faydalar sağladığını anlatan Abdurrahman Haskahraman, “Bir insan kendinden büyüklerin yanına giderse onlardan büyüklüğün ne demek olduğunu, büyük işleri öğrenir. Beko Ticaret A.Ş.’nin tecrübelerinden azami ölçüde istifade etmeye çalıştık. Onlar bize istikamet kazandırmaya ve yenilikleri öğretmeye çalıştılar. Şirketimiz o dönemde Kayseri’nin birkaç firmasından biri idi. Biz canlı ve aktif isek Beko Ticaret’in bunun üzerinde çok büyük hakkı var. Koç’un yöneticileri hep dünya standardında insanlar. Ufku geniş insanlarla konuşunca sizin standardınız da birden bire yükseliyor”diyor.
+       <br/>
+       <br/>
+       Beko ile yollar ayrılıyor: Yıl 1981
+       <br/>
+       <br/>
+       Beko, dürüst bir çizgi takip eden Silver ile uzun sayılabilecek bir süre, 15 sene çalışıyor. Ürünleri Silver markası ile satması ve hiçbir zaman Beko ismini telaffuz etmemesi güvenlerinin bir işareti olarak değerlendiriliyor. Ancak araya giren 12 Eylül 1980 ihtilali bütün planları bozuyor. Silver’in üretimi 1980’in başında yıllık 100 bini bulmuştu. İhtilal ile beraber Türkiye’nin ekonomik yapısında da bir ara devre yaşanıyor. Beko Ticaret soba sayısında azalmaya gidilmesini istiyor. Silver grubu büyük rakamlara alıştığı için küçülmeyi hazmedemiyor. Aralarındaki kontrat başka işler yapmalarına imkan tanımayınca Silver, Beko Ticaret’e ayrılmak istediğini söylüyor. Beko bu durumu anlayışla karşılıyor ve kontrat karşılıklı olarak iptal ediliyor.
+       <br/>
+       <br/>
+       Silver’de değişim zamanı
+       <br/>
+       <br/>
+       Silver Grubu’ndaki yeni yapılanmanın ayrıntılarına gelince Abdurrahman Haskahraman istihbarat ve servis hizmetleri ve özellikle de pazarlama biriminde köklü değişikliklere gidiyor. Malın satılmasının arkasından verilecek servis hizmetinin önemi farkediliyor. Yeni ilkeler ortaya konuluyor: İlkeler, mevcut müşterilerin korunması, küskünlerin barıştırılması ve pörtföye yeni müşteriler kazandırılması. Grup, dünyada gelinen nokta ne ise onu yakalama ve geçme stratejisini izliyor. Bu amaçla Çin’deki fuara katılacak, Tayvan’a gidilecek. Elemanlar yurtdışına gönderilip, bazı mamüller hakkında malumat elde etmeleri istenecek. Yeni çalışmalar önce pilot bölgede denenecek, başarılı olunması halinde genelleştirilecek. Fuar çalışmalarına özel bir önem verilecek ve şirket Van, Kahramanmaraş, Trabzon ve Samsun Fuarı’na katılacak.
+       <br/>
+       <br/>
+       Doğalgaz pazar yapısını değiştiriyor
+       <br/>
+       <br/>
+       Soba sektöründe ciddi bir daralma trendine girildiğine dikkat çeken Abdurrahman Haskahraman, “İyi niyetli ilişkilerimiz sebebi ile pazar daralması henüz bizim rakamlara yansımadı. Ancak er ya da geç Silver’i de etkileyeceği kesin” diyor. Haskahraman’a göre pazarda teknolojik yenilikleri takip etme zorunluluğu var. Türkiye bir doğalgaz pazarı olacak. Türkmen, İran, Rusya doğalgazı Türkiye’ye gelecek. Merkez illerden başlayarak, ilçelerde, köylerde de bu sisteme geçilecek. Hava kirliliği ve ekonomik açıdan bir gereklilik doğalgaz.
+       <br/>
+       <br/>
+       Kombi ithal edecek
+       <br/>
+       <br/>
+       Peki Silver ne yapıyor? Birinci planda kombi üzerine pazar araştırması yapıldı. İlk aşamada yurtdışından kombi ithalatı düşünülüyor. Kombi’nin geleceğini önce satışta test etmek istiyorlar. Yani uygulamada satış imalatı yönlendirecek. Üretim oldukça gelişmiş bir teknoloji gerektiriyor. Satış başarılı olursa en iyi teknoloji ile daha düşük maliyetle nasıl üretebiliriz sorusunun cevabı aranacak. “Psikolojik olarak insanlar doğalgaza hazırlanıyor. Elindeki eski sobayı değiştirmiyor” diye konuşan Abdurrahman Haskahraman kombinin teknoloji, mühendislik hizmeti ve servis hizmeti istediğini, Türkiye’de servis ağını bir yıl içerisinde beş misline çıkartacaklarını, Türkiye distribütörü olacaklarını, bu işi başaracaklarının görülmesi ile daha başka firmaların da kendilerine müracaat edeceklerini kaydediyor.
+       <br/>
+       <br/>
+       Soba sektörünün geleceğinde olumsuz bir tablo gözlenirken Silver çok önemli bir trent keşfediyor; şömineli soba. Haskahraman, “ Dünyada her ne kadar doğalgaz yaygınlaşsa da Avrupa’da gördüğümüz itibarı ile, yeni yapılan binanın içerisinde şömineli soba oranın vazgeçilmez bir aksesuarı olarak devreye sokuluyor. Şömine sobası gelişecek Türkiye’de. Ayrıca yabancı bir firma bu tür sobayı pazarlayacağı garantisini verdi. Bizim teknolojimiz buna müsait. Görüşmelerimiz devam ediyor” diyor.
+       <br/>
+       <br/>
+       Kayseri sanayicisi şimdiden global oyunu kurallarına göre oynuyor. Ve Kayseri devletten kredi ve teşvik almadan sanayileşmeyi başarmış tek ilimiz. İnsanın aklına o zaman şu geliyor; peki ya düzenli bir devlet desteği alınabilse o zaman Kayseri ne olurdu?
+       <br/>
+       <br/>
+       e—mail:harunodabasi@usa.net
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13895), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175527/http://www.aksiyon.com.tr:80/detay.php?id=13895)

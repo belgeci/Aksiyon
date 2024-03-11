@@ -1,0 +1,82 @@
+# Son siyasi gelişmeler ne anlama geliyor?
+
+*İbrahim Kıbrızlı Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bazılarının siyaseti karıştırma ve oyları daha da dağıtarak bölme girişimleri beklenen neticeyi vermekten her geçen gün biraz daha uzaklaşıyor. Ama, geleceklerini tehlikede gören parti veya kişiler yine de bu tek taraflı girişimlerindeki ısrarcı tutumlarından vazgeçme yanlısı görünmüyorlar
+   <br/>
+   <br/>
+   ir baskın erken seçime hazırlıksız yakalanmama düşüncesinden hareketle, TBMM'de temsil edilen veya edilmeyen tüm partilerin seçim çalışmalarına start verdiği gözleniyor.
+   <br>
+    <br>
+     CHP, DYP, MHP ve AK Parti’nin özellikle DSP ve ANAP’a kıyasla bu çalışmalarda ciddi mesafe kat ettikleri söylenebilir. Dolayısıyla da, ilk bakışta haklı olarak bu partilerin oyları ülke genel barajının üzerinde görünüyor.
+     <br>
+      <br>
+       CHP ve AK Parti’nin yükselişi, DYP’nin konumunu güçlendirerek koruyor olması, özellikle MHP dışındaki koalisyon ortağı diğer iktidar partilerini gelecekleri adına tedirginliğe sürüklüyor.
+       <br>
+        <br>
+         Gerek koalisyon içi uyum ve dinamizmin kaybolması gerekse uygulanan ekonomik ve sosyal politikaların ülkenin sorunlarını çözme noktasında yetersiz kalması, iktidar partilerinin gözle görünür bir biçimde oy kaybetmesinin başlıca nedenlerini teşkil ediyor.
+         <br/>
+         <br/>
+         Bu yapı, doğal olarak hiç bir şey yapmasalar dahi muhalefetin oylarının yükselmesi sonucunu veriyor. İktidar partilerince istenmeyen bu durumun önü siyaset içi ve dışı çeşitli yöntemlerle kesilmeye çalışılıyor. Burada, kuşkusuz böl ve yönet stratejisi en etkili yöntem oluyor.
+         <br/>
+         <br/>
+         Oyların tek bir çatı altında toplanmasını önleme doğrultusunda, oyu yükselen partilerin yönetim kadrolarının dışında kalan kişi ve gruplara yeni partiler kurdurma uygulaması işte bu stratejinin uzantısı olarak devreye sokulmaya çalışılıyor.
+         <br/>
+         <br/>
+         Murat Karayalçın, Mümtaz Soysal, Ercan Karakaş, Aydın Güven Gürkan, Fikri Sağlar gibi isimler, merkez solda birbirinden kopuk veya birlikte siyasi parti kurma çalışmaları yürütüyor. Erdal İnönü ise kendini tüm bu çalışmaların dışında tutmaya özen gösteriyor.
+         <br/>
+         <br/>
+         Merkez soldaki bu arayışlar tamamen kendi klasik seçmen kitlesi dışında kalan kitleleri de içerecek şekilde, yeni siyasal açılımları bünyesine katan ve kendini yenileme yolunda önemli mesafe kat eden CHP’nin çıkışının önünün kesilmesine yöneliktir. Ancak, görünen o ki, Deniz Baykal’lı CHP kendine çizmiş olduğu bu yeni yolda emin adımlarla her şeye rağmen yürümeye devam ediyor.
+         <br/>
+         <br/>
+         Merkez sağda da seçmenin, Ak Parti ve DYP’ye yönelişinin önünün kesilmesi düşüncesinden hareketle benzer yönde çalışmalar yapılıyor. Hüsnü Doğan, Sadettin Tantan gibi isimlerin yeni parti kurma arayışları içinde olduğu biliniyor.
+         <br/>
+         <br/>
+         Ancak, geçmiş deneyimlerden çıkarılan derslere bağlı olarak, yeni siyasal oluşumların kısa zamanda beklenen sonucu vermesinin çok zor olduğu açık. Hatta, daha çok emek ve zaman kaybından başka bir işe yaramayacağı bir gerçek. Zaten, Merkez Sağ yelpazede yeterinden fazla siyasal oluşum bulunuyor. Öyle ise, ‘eski oluşuma yeni lider yaratma’ formülü bu kesimi karıştırmak için daha etkili bir yöntem.
+         <br/>
+         <br/>
+         Melih Gökçek’in DP’nin başına geçme arayışı bu düşüncenin bir ürünü. Bir büyük medya grubunun ismi etrafında fırtınalar kopartma özel gayretleri içerisinde olduğu M. Ali Bayar’ın DTP’nin başına getirilmesi girişimleri de bu noktada merkez sağda gözlenen bir başka gelişme. Merkez sol için aynı anlayış çerçevesinde bulunan isim ise kuşkusuz Kemal Derviş oluyor.
+         <br/>
+         <br/>
+         Gerek Bayar gerekse Derviş isimleri dağınık olduğu iddia edilen merkez sağ ve sol siyasetin toparlanması adına suni bir biçimde ortaya atılıyor. Bir başka ifade ile, isimleri hiç duyulmamış, hiç bilinmeyen bu kişiler ‘lidermiş gibi’ lanse edilmeye çalışılıyor.
+         <br/>
+         <br/>
+         Birini Süleyman Demirel’in, diğerini ise Bülent Ecevit’in yetiştirdiği kişilerin öne çıkartılması için çaba sarf ediliyor. Bu yöntemle kitlelerin etki altına alınması hedefleniyor. Gerçek durumun böyle olup olmadığı tartışmaya açık...
+         <br/>
+         <br/>
+         Mevcut DTP kadrolarının ciddi muhalefetine rağmen, DTP’nin başına geçmesi kesin gibi görünen M. Ali Bayar’ın, ‘halk nezdinde eski itibarını yitirdiği gerekçesi ile isminin, sayın Demirel ile birlikte anılmaktan rahatsızlık duyduğu’ kulislerde ifade ediliyor. Sayın Demirel’in de, ‘siyaset üstü kimliği’ dolayısıyla, ismini bu gibi spekülasyonların dışında tutmaya çalıştığı ve bu konuda fikir beyan etmekten özellikle kaçındığına şüphe yok.
+         <br/>
+         <br/>
+         Anlaşılan bazılarının siyaseti karıştırma ve oyları daha da dağıtarak bölme girişimleri beklenen neticeyi vermekten her geçen gün biraz daha uzaklaşıyor. Ama, geleceklerini tehlikede gören veya siyasi ömürlerini bir dönem daha uzatabilme gayretleri içinde olan bu gibi parti veya kişiler yine de bu tek taraflı girişimlerindeki ısrarcı tutumlarından vazgeçme yanlısı görünmüyorlar.
+         <br/>
+         <br/>
+         Tüm bu masa başında en ince ayrıntısına kadar düşünerek oluşturdukları planları tutmadığında yedekte tuttukları bir başka formülü uygulamaya koymaktan geri kalmıyorlar. Hiç birinin tutmaması durumunda da, son çare olarak buz dolabında ‘seçim ittifakı’ kozunu bekletiyorlar.
+         <br/>
+         <br/>
+         Hatta, zamanında yaka paça TBMM’den attıkları bir siyasi partinin temsilcilerini bu uğurda kendi listelerinden göstermek gibi planlar yaptıkları da biliniyor.
+         <br/>
+         <br/>
+         Siyasetçilerimizin unuttuğu siyasetin kendi mecrasında ilerleyeceği gerçeğidir. Evdeki hesaplar her zaman seçmende karşılığını bulamaz....
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 11 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11992), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022815/http://www.aksiyon.com.tr:80/yazdir.php?id=11992)

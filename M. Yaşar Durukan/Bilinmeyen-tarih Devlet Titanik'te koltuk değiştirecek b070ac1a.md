@@ -1,0 +1,78 @@
+# Devlet Titanik'te koltuk değiştirecek
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050130073141im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050130073141im_/http://www.aksiyon.com.tr/resim/483/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Eroin bağımlıları, krize girdiklerinde "tedavi olmak" için "torbacı"ya değil kliniklere gidecek. Devlet eliyle eroinmanlara tedavi amaçlı "yasal" uyuşturucu verilecek. Beyaz zehir tacirlerine indirdiği darbelerle Doğu"dan Batı"ya akan uyuşturucu trafiğini darbe vuran Türkiye, özellikle son yirmi yılda binlerce Batılı genci zehirlenmekten kurtardı. Ancak kendi gençliğini unuttu. Türkiye"de 1980 yılına kadar kullanılan esrar, yerini eroine bıraktı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fakat devlet, bugüne kadar uyuşturucu problemi karşısında duyarsız kaldı. Çözüm aramakta gecikti. Hatasını telafi etme çabası içine giren devlet ilk kez uyuşturucu sorununa ciddi anlamda el attı. Yeni yasal düzenlemeler, uyuşturucu kullanma nedenleri ne olursa olsun, bağımlılara modern yöntemlere göre tedavi olma" imkanı sunuyor.
+   <br>
+    <br>
+     Resmi Gazete"de yayımlanarak yürürlüğe giren "Madde Bağımlılığı Tedavi Merkezleri Yönetmeliği", Avrupa gençliğini 1970"li yıllardan itibaren düştüğü eroin bataklığından kurtarmak için hazırlanan yasal düzenlemelerle benzerlik gösteriyor. O zamanlar Avrupalıların buldukları ve halen uyguladıkları en etkili çözüm, bağımlılara kontrollü olarak uyuşturucuyu kendilerinin vermesiydi. Şimdi aynı yöntemi Türkiye benimsedi. Narkotik çevrelerinde "devrim" olarak nitelendirilen yönetmelik aslında 1995 yılında Yüksek Sağlık Şûrası kararıyla hazırlandı. Ancak bugüne kadar hiçbir hükümet çıkarmaya cesaret edemedi. Çünkü bağımlılara verilmesi gereken "yasal" uyuşturucunun piyasaya sızmasından korkuluyordu.
+     <br>
+      <br>
+       Narkotik üst kurulu!
+       <br/>
+       <br/>
+       Yönetmelik, tedavi merkezlerine bir standart getirmek amacıyla çıkarılmış gibi gözükse de aslında eroin niyetine kullanılabilen yasaklı ilaç "Methadon"un yurda girişine zemin hazırlandı. Methadon"la birlikte bugüne kadar yasadışı uyuşturucu maddeler sınıfında yer alan LAAM, Naltrekson, Naloksan, Bupronorfin ve benzeri maddeler de Türkiye"ye girebilecek. Sağlık Bakanlığı, özellikle Methadon"un uyuşturucu piyasasına ve toplumun sağlıklı kesimine sızmasını önlemek amacıyla, uygulamanın sadece kamu kurum ve kuruluşlarına bağlı hastanelerde kurulan merkezlerde yapılabilmesine izin veriyor. Bakanlık, bu amaçla bir tür narkotik üst kurulu mantığıyla çalışacak olan Madde Bağımlılığı Tedavi Usûlleri Bilim Komisyonunu kurdu. Bu alandaki her şeye müsteşar başkanlığındaki 15 kişilik tecrübeli bir ekip karar verecek.
+       <br/>
+       <br/>
+       Yasal uyuşturucu Methadon"un nasıl kullanılacağı henüz açıklanmadı ancak edindiğimiz bilgilere göre, Avrupa ülkeleri ve ABD"deki uygulamalar esas alınacak. Eroin bağımlısına birinci basamak denilen psikososyal, rehabilitasyon, uğraşı tedavileri, grup terapileri uygulanacak. Her yol denendikten sonra tedavilere cevap alınamazsa bağımlıya eroinin yerine geçecek olan Methadon devlet eliyle verilecek. ABD"de yalnızca bir yıldan fazla damardan eroin kullanan ve tedavilere karşılık alınamayanlara Methadon veriliyor. Yani devlet, bağımlıyı yasal uyuşturucuya alıştırarak eroinden vazgeçiriyor. Günde on gram eroin almak zorunda olan bir bağımlı, gramı 25 milyon lira olan eroini satın alabilmek için her gün 250 milyon lira bulmak zorunda. Eroinmanlar bu parayı elde etmek için gasp, hırsızlık yapıyor ya da gayriahlakî yollara başvurmak zorunda kalıyor. Bağımlı, ihtiyaç duyduğunda eroin almak için torbacıların değil devletin kapısını çalabilecek artık. Kliniklerden ihtiyacı kadar sentetik uyuşturucusu alacak. Üstelik karşılığında da hiçbir ücret ödemeyecek.
+       <br/>
+       <br/>
+       Yasal uyuşturucu dağıtım noktaları
+       <br/>
+       <br/>
+       Methadon"un en önemli özelliği, eroin gibi bağımlıyı sosyal hayattan koparmaması. Bağımlı eroini aldıktan sonra en az birkaç saat  sızıyor. Kendine geldikten sonra da sadece birkaç saat ayakta kalabiliyor. Altı saatte bir yeniden eroin alması gerekiyor. Bu nedenle eroin kullanıcılarının aile ve iş hayatı yok oluyor. Kendilerine yeni bir hayat kuramıyorlar. Methadon ise, eroin gibi kişiyi kendinden geçirmiyor. Etkisi daha uzun sürüyor. Eroin yerine Methadon alan bir bağımlı, işine gidip çalışabiliyor, aile kurabiliyor. Etrafındaki insanlar o kişinin uyuşturucu bağımlısı olduğunu bile anlamıyor. Ancak saati geldiğinde, kliniğe gidip bir hemşire gözetiminde, ihtiyacı kadar Methadon"u alması gerekiyor.
+       <br/>
+       <br/>
+       Bu uygulamanın da bazı zorlukları var. Mesela İstanbul-Levent"te çalışan bir bağımlının gün ortasında ihtiyaç duyduğu uyuşturucuyu alabilmek için Bakırköy"e gelmesi imkansız. Bu nedenle Sağlık Bakanlığı"nın yurt genelinde bankamatik ağı gibi Methadon erişim noktaları kurması gerekiyor. Bakanlık bu konuda şimdilik net bir cevap vermiyor, kamu kurum ve kuruluşlarını adres gösteriyor. İstanbul Tıp Fakültesi Psikiyatri Ana Bilim Dalı, Uyuşturucu ve Bağımlılık Tedavisi Ünitesi Başkanı Doç. Dr. İlhan Yargıç, programın başarılı olabilmesi için İstanbul genelinde en az 10-20 tane erişim noktası açılması gerektiğini söylüyor. Doç. Dr. Yargıç, "Methadon programına aldığınız bir kişi örneğin Malatya"ya iş gezisine, Antalya"ya tatile gittiğinde ihtiyaç duyacağı bu maddeyi temin edebilmeli" diyor. Bu durumda Sağlık Bakanlığı, ciddi bir sorunla karşı karşıya. Çünkü Türkiye"de ne kadar bağımlı olduğu, kaç tanesinin uyuşturucuyu damardan kullandığı gibi bilgiler yok. Uzmanlar, 200 bin bağımlı olduğunu tahmin ediyor. Bunların illere göre dağılımı bilinmiyor. Hangi verilere göre Methadon klinikleri inşa edileceği şimdilik belli değil. Çünkü bu işin faturası hayli yüksek olacak. Methadon erişim noktaları Avrupa ve ABD"deki gibi yaygın olmazsa programın anlamı kalmıyor. Bağımlının Methadon"a eroinden daha hızlı ve zahmetsiz ulaşabilmesi gerekiyor.
+       <br/>
+       <br/>
+       "Hiç eroinman görmeyenlere yetki"
+       <br/>
+       <br/>
+       Bu aşamada özel tedavi merkezleri birer çözüm olabilse de devlet, çok tehlikeli sentetik uyuşturucuların kontrolünü elinden bırakmak istemiyor. Özel klinikler bu düzenlemeye tepkili. Balıklı Rum Hastanesi"nden Yrd. Doç. Dr. Ayhan Kalyoncu, bağımlıların "illa devlet hastanesinde tedavi olacaksın" diye zorlanamayacağına, bunun Türkiye"nin de imzaladığı Lizbon ve Amsterdam sözleşmelerine aykırı olduğuna dikkati çekiyor. Methadon kliniklerinin dünyanın diğer ülkelerinde özel işletmeler tarafından da kurulduğunu, devletin görevinin sızmaları önlemek için denetlemek olduğunu belirten Kalyoncu, eleştirilerini şöyle sıralıyor: "Komünist düzende bile artık kabul görmeyen çok devletçi bir anlayış. Ben on sene AMATEM"de çalıştım, hasta tedavi ettim; ayrılınca ehliyetim mi gitti elimden? Böyle bir saçmalık olamaz. Mesela devletin ruhsat verdiği Balıklı Rum Hastanesi Anatolya Bağımlılık Kliniği on senedir hasta tedavi etmektedir. İstanbul AMATEM dışında, eroinman tedavi eden tek kurumdur. Devletin yetki verdiği kurumlardaki doktorlar eroinman hasta görmemişlerdir. Ellerindeki sayı yılda 2-3"tür ve bu sayılar Sağlık Bakanlığı"ndaki istatistiklerde mevcuttur. Yılda üç tane hasta gelen kurumlar eroin tedavisinde yetkili olacak, yılda bin tane hasta tedavi eden Anatolya Kliniği hasta tedavi edemeyecek. Bu insan haklarına aykırıdır. Böyle bir uygulama olduğu zaman karşı çıkılacaktır. Bu karşı çıkış her türlü mercie kadar, Avrupa İnsan Hakları Mahkemesi'ne kadar gider. Biz zaten Methadon kliniği açmayı da düşünmüyoruz. Ama o listedeki Naltrekson isimli ilacı kullanmayı düşünüyoruz ve kullanacağız."
+       <br/>
+       <br/>
+       Yrd. Doç. Dr. Kalyoncu, her şeye rağmen aceleye getirilen yönetmeliğin hiç yoktan iyi olduğunu, Sağlık Bakanlığı"nın da yanlışlarını zamanla düzelteceğine inandığını söylüyor.
+       <br/>
+       <br/>
+       Yeni bağımlılar ortaya çıkabilir
+       <br/>
+       <br/>
+       Minesota Üniversitesi"nde Bağımlılık Üst İhtisası yapan ve Methadon kliniklerinde çalışan Doç. Dr. İlhan Yargıç ise, yeni uygulamanın rehabilitasyondan çok bir ilaç tedavisine dönüşmesinden endişe ediyor. Yargıç, "Bir merkezde 10 hasta başına 1 psikiyatrist, 4 hemşire, tüm merkez çapında 1 psikolog öngörülmüş. Bu durum beni çok rahatsız etti. Bağımlılık hastalığının tedavisi öncelikle psikososyal tedavidir. Ancak yönetmelik birinci basamak tedaviyi yapacak kadroyu vermiyor. Besbelli ki, ilaç vermenin dışında hiçbir yardımın yapılamadığı yerler kurulacak. Üç-beş defa eroin kullanmış insana bile doğrudan Methadon vermek, o kişinin geri dönüşü olmayan bir yolda olduğunu kabul etmektir. Bu işin yeni bağımlılar üretme riski var" diyor. Yargıç, bu riski önlemek için ABD"deki uygulamanın aynısının örnek alınması gerektiğini söylüyor ve şu bilgileri veriyor: "ABD"de tedaviyi kabul eden kişiye bilinmeyen bir zamanda idrar tahlili yapılıyor.  Methadon programına devam edebilmek için her türlü uyuşturucu maddeden arınmış olmak gerekiyor. Kokain de çıksa alkol de çıksa program dışı tutuluyor. Psikolojik hizmetlerden yararlanma, grup terapilerine devam etme zorunluluğu da var. Üç gün üst üste gelmeyen program dışı kalıyor. Gerçekten arınmak, hayat kurmak isteyenler bu kurallara uyuyor."
+       <br/>
+       <br/>
+       Methadon uygulaması, eyaletlere, ülkelere göre farklılıklar gösteriyor. Uyuşturucu kullanımının yüksek düzeyde olduğu New York"ta vali birkaç yıl önce bütün Methadon kliniklerini, halka uyuşturucu dağıttıkları gerekçesiyle kapatmış. Hollanda"nın bazı kliniklerinde "Bana Methadon verin, yoksa gidip eroin alacağım" diyen herkes bu ilacı alabiliyor. Buradaki mantık şu: "O gün eroin parası için soygun yapacağına, birine zarar vereceğine gelsin Methadon alsın."
+       <br/>
+       <br/>
+       Titanik"te koltuk değiştirmek!
+       <br/>
+       <br/>
+       Eroin bağımlıları, her yıl yeni kurbanlar vere vere bu düzenlemeyi yaptırabildi. Esrar ve hapçılar cephesinde ise değişen bir şey yok. Oysa uzmanlara göre, esrar ve extacy gibi hap bağımlıları daha büyük sorun. "Bunlar eroinmanlar gibi ölmüyor, o zaman sorun yok" mantığıyla bakıldığı için onların durumu daha kötü. Doç. Dr. Yargıç, "Biz bu duruma "Titanik"te koltuk değiştirmek" diyoruz. Eroin, kısa sürede fiziksel hayatı öldürüyor, diğerleri daha uzun zamanda sosyal, psikolojik hayatı öldürüyor. Sonuçta gemi batıyor. Esrarın, hapların topluma verdiği zarar, eroinin kat kat kat üzerinde. Ne yazık ki, burada bir rant olmadığı için tehlike gözden kaçıyor. Yüzlerce eroinman varsa, bunlardan binlercesi var" diyor.
+       <br/>
+       <br/>
+       N... isimli yabancı bir ilaç firmasının toplumu sarsan eroin kurbanlarından sonra yaptığı lobi çalışmasının sonucunda sentetik uyuşturuculara vize verildiği iddia ediliyor. İthalatçı firmanın bu işten bol sıfırlı cirolar yapacağı kesin. Bu ilaçları yasadışı yollardan ülkeye sokarak dudak uçuklatacak rakamlarla hastalara satanların kazancı kesilecek. Kamuoyunda daha uzun süre tartışılacak olan yeni düzenlemelerle ilgili iddialar muhtelif. Şimdilik bildiğimiz tek bir gerçek var. İki tarafı keskin bir kılıca benzeyen yasal uyuşturucuların kontrolü kaybedilirse, hem toplum hem de iyi niyetle böyle bir uygulamaya imza atanlar zarar görecek.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11241&yorum=1381), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050130073141/http://www.aksiyon.com.tr:80/detay.php?id=11241&yorum=1381)

@@ -1,0 +1,59 @@
+# Edward Said o taşı kime attı?
+
+*Ahmet Doğru Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041225001834im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041225001834im_/http://www.aksiyon.com.tr/resim/460/28.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Edward Said’in vefatı üzerine gencecik komşum Nazlı Çakıroğlu’na, “Filistinlilerin başı sağolsun!” diye telefon açan kendisi kadar genç arkadaşının taziye sözleri, müteveffa düşünürün ülkemizdeki indirgemeci imajının herhalde en veciz ifadesiydi: “Filistinlilerin dünya çapındaki avukatı!”
+ </font>
+ <p>
+  <font class="content">
+   Edward Said, 1935’te Küdüs’te doğdu. Protestan Hıristiyan Filistinli. İsrail’in kurulmasından sonra ülkesinden göçmek zorunda kalan ailesi, Kahire’ye taşındı. Anglo-Sakson eğitim sisteminde yetişti. Lisans derecesini Princeton’dan, lisans üstü ve doktora derecelerini Harvard’dan aldı. Vefatına kadar Columbia Üniversitesinde İngiliz dili ve Kıyaslamalı Dünya Edebiyatı profesörüydü. Bir ara da dekanlık yaptı.
+   <br/>
+   <br/>
+   Tunus’ta sürgün Filistin Parlamentosunda on dört yıl görev yapan, Filistin’in facia niteliğindeki varoluş mücadelesine binlerce sayfa yazarak destek veren, Oslo barış görüşmelerine kadar Yaser Arafat’ın yanında yer alan bir adamı Filistin’den soyutlamak elbette ki mümkün değil. Ancak, Türkiye’deki imajının saygın olmakla birlikte “Filistinlilerin dünya çapındaki avukatı” olmaktan pek de öteye gitmemiş olduğunu biliyorum ve bu bana acı veriyor. Edward Said, ne mazlum halklar için adalet talep eden bir Bernard Lewis’tır, ne de bir Justin McCarthy. Namuslu bir entelektüel olmanın çok ötesinde, Edward Said, Batının akademik paradigmalarını sorgulayan ve kadim felsefeciler geleneğinde “düşünce ekolü” yaratmış olan bir dehadır. Bu düşünce ekolü, “Amerikalılardan farklı olarak, Fransız ve İngilizlerin -bir dereceye kadar da Almanların, Rusların, İspanyolların, Portekizlilerin, İtalyanların ve İsviçrelilerin- Batı Avrupa Tecrübesinde özel bir yeri olan ‘Orient’le halleşmek üzere uzun yıllar içinde geliştirdikleri bir gelenek var ki, ben bu geleneğe ‘Oriyantalizm’ adını vereceğim” cümlesiyle başlar, “Orient, Avrupa ile hemsınır olmasının ötesinde, en büyük, en zengin ve en eski sömürgesi, medeniyetlerinin ve dillerinin kaynağı, kültürel rakibi ve ‘Öteki’nin en derin ve sık tekrarlanan imajıdır. Dahası, Orient, Avrupa’yı (ya da Batı’yı) kendisinden farklı bir imaj, düşünce, kişilik ve tecrübe olarak tanımlamasına yardımcı olmuştur” diye devam eder. “Öteki”ne ilişkin Oriyantalist düşünceler binlerce sayfada örneklenir. Aralarında şairlerin, romancıların, felsefecilerin, siyaset teorisyenlerinin, ekonomistlerin, imparatorluk yöneticilerinin olduğu devasa yazarlar ordusunun, Orient’in halklarına, adetlerine, ‘zihniyeti’ne, geleceğine dair çalışmalarındaki ortak önkabuller irdelenir. “Doğu” diye aslında namevcut bir mekânın nasıl oluşturulduğu gözler önüne serilir.
+   <br/>
+   <br/>
+   Oriyantalizm birşey ile izah edilmiyor
+   <br/>
+   <br/>
+   “Orient, Avrupa ile hemsınır olmasının ötesinde, en büyük, en zengin ve en eski sömürgesi, medeniyetlerinin ve dillerinin kaynağı, kültürel rakibi ve ‘Öteki’nin en derin ve sık tekrarlanan imajıdır. Dahası, Orient, Avrupa’yı (ya da Batı’yı) kendisinden farklı bir imaj, düşünce, kişilik ve tecrübe olarak tanımlamasına yardımcı olmuştur. Ne ki, bu Orient’e ilişkin hiçbir şey kurgusal değildir. Orient, Avrupa’nın maddesel medeniyetinin ve kültürünün tamamlayıcı parçasıdır. Oriyantalizm, bu tamamlayıcı parçayı, dil, imaj, akademik çalışmalar, doktrinler, birtakım kurumlar ve hatta sömürge bürokratları ve sömürge tarzları geliştirmek suretiyle kültürel hatta ideolojik olarak ifade ve temsil eder. Okurun açıkça göreceği gibi, Oriyantalizm derken ben birbiriyle bağlantılı birden fazla birşeyden bahsediyorum. Bir unvan olarak Oriyantalizmin en iyi kabul gördüğü yer akademik kurumlardır. İster antropolog, ister sosyolog, tarihçi ya da dilbilimci olsun, Orient hakkında yazan, ders veren, araştırma yapan herkes Oriyantalisttir ve söyledikleri ya da yaptıkları Oriyantalizmdir. Bu akademik geleneğin mali kaynakları, birbirlerinden beslenen ruhları, uzmanlıkları ve aktarımları, Oriyantalizmin esasını teşkil eder. Oriyantalizm, ‘Orient’i ‘Oksident’den dünya görüşü (ontoloji) ve bilginin sınırları (epistomoloji) temelinde ayıran bir düşünce tarzıdır. Hal böyle olunca, aralarında şairlerin, romancıların, felsefecilerin, siyaset teorisyenlerinin, ekonomistlerin ve imparatorluk yöneticilerinin olduğu devasa bir yazarlar ordusu, Orient’in halklarına, adetlerine, ‘zihniyeti’ne, geleceğine dair çalışmalarına Doğu ile Batı arasında bir fark olduğu önkabulü ile başlarlar... Benim burada tetkik ettiğim Oriyantalizm fenomeni, Oriyantalizmin Orient’i doğru yansıtıp yansıtmadığından öte, Oriyantalizmin iç tutarlılığı ve Orient’e ilişkin fikirleridir... Ve bu fikirlerin ‘sahici’ Orient’le hemen hiç ilgisi yoktur.”
+   <br/>
+   <br/>
+   Hıristiyan ve Yahudi akademisyenler Said’i kabul etmedi
+   <br/>
+   <br/>
+   Yıllanmış akademik gelenekleri eleştirmek, yerleşik düzenin tepkisini çekmek demektir. Nitekim, Said’in Oriyantalizm ve ona ilişkin diğer düşünceleri, bölgeye ilişkin yazılar yazan Hıristiyan ve Yahudi akademisyenler tarafından kabul edilmedi. Bunların arasında Bernard Lewis’ın da dahil olduğu grup, Avrupa sömürgeciliğinin Doğu’da yarattığını söylediği etkinin abartılmış olduğunu ileri sürdüler. Hillel Halkin, Said’i, “Batı’daki Arap araştırmaları geleneğinin bütününe kaba ve siyasi bir saldırı”da bulunmakla suçladı. Bir de bunlara, 2000 yılında Lübnan’a giden yazarın İsrailli askere taş atması eklendi. Bu hareketi sadece Batı basınını değil, “ılımlı” denilen Arap gazetecileri de kızdırdı, “Arapların saldırgan insanlar olmadıklarını isbat etmek için onca uğraş veren bir akademisyenin bunu yapmaması lâzımdı” şeklinde yazılar çıktı.
+   <br/>
+   <br/>
+   Gördüğüm o’dur ki, Said’i eleştiren akademisyenler, “‘Doğulu olmanın’ bitmez tükenmez ‘reformlar’ın saldırısına maruz kalmak, hükümsüzleştirilmeyi göze almak demek” olduğunu anlamak istemiyorlar. “Aydınlanma’nın kibiri” diye bir olgu olduğunun bilincinde değiller. Tek kelime ile ifade etmek durumunda kalsam, “hükümsüzleştirmek” olarak tanımlayacağım, “Aydınlanma’nın kibri”ni görmüyorlar. İnsanları, yaşananları, idealleri, bilgi birikimini, inançları hükümsüzleştirmek, hiç olmamışlar gibi yapmak; teknolojik üstünlüğün revaç verdiği çok bilmişlik, kabalık, yüzeysellik, hafifmeşreplik. Kısacası, Filistin’in karşısındaki İsrail. Ve şimdi, Irak’ın karşısındaki ABD.
+   <br/>
+   <br/>
+   Liberal entelektüelin taktiği
+   <br/>
+   <br/>
+   Said’in attığı o taşın, Filistin sorununda ahlâki sorumluluklarını üstlenmeyen entelektüellere atılan bir taş olduğunu biliyorum. “Liberal entelektüellerin hemen her zaman yaptıkları gibi, her iki tarafın da doğruları ve yanlışları olduğunu ileri sürmek ya da her durumun kendine özgü koşulları olduğunu söylemek, meseleyi sümen altı etmek demektir” demişti, “Çünkü, Filistin-İsrail meselesinin temelinde asimetri vardır. Toprakları işgal edilmiş, savunmasız bir halkın karşısında, dev bir yüksek-teknoloji ordusu. İsraillilerin Filistinlilere verdikleri zararla karşılaştırıldığında, Filistinlilerin İsraillilere verdiği zarar marjinaldir.”
+   <br/>
+   <br/>
+   Said, Türklerden uzak durdu
+   <br/>
+   <br/>
+   Öte yandan, Said’in incelemelerinde Türkiye ve Türkler yoktur. Afganlılar, İranlılar vardır ama Oriyantalizm’in belki de en mağdur edilmiş muhatapları, Türkler, yoktur! Bunu müteveffa düşünürün Türkçe bilmediği için bizden uzak durmuş olmasıyla açıklayabiliriz belki. Ama bence esas olan, Edward Said’in eserlerinin kendi kendisine karşı ‘Oriyantalist’ bir bakış geliştirmiş olan yerleşik eski solcu/yeni liberal Türk entelijansiyasını delememiş olmasıdır. Rahmetli Cemil Meriç’in, “Bu kitabı biz yazmalıydık!” demesi vardır. “Oriyantalizm” isimli kitabın “Sömürgeciliğin Keşif Kolu” şeklindeki üst başlığını koyan da Cemil Meriç’tir. İktidarım olsa, liselere zorunlu ders kitabı olarak yerleştireceğim Oriyantalizm ve Kültürel Emperyalizm, “bilgi”nin nasıl “yaratıldığı”nı, nasıl “manipule edilebildiğini” gözler önüne sermesi bakımından bir dehanın eseridir.
+   <br/>
+   <br/>
+   Neticeyi kelâm, dünya, eşsiz bir entelektüelini kaybetti. Hocaydı. Tek umudum, geride, kendisini anlayan, erdemlerine sahip çıkabilecek bir iki öğrenci bırakmış olması ihtimali. Mekânı cennet olsun.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3028&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041225001834/http://www.aksiyon.com.tr:80/detay.php?id=3028&yorum_id=1)

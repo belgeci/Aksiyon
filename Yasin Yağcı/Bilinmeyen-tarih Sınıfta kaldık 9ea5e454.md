@@ -1,0 +1,91 @@
+# Sınıfta kaldık
+
+*Yasin Yağcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214841im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214841im_/http://www.aksiyon.com.tr/resim/331/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye kendine has özellikleriyle bir özgünlükler manzumesi olduğu kadar aynı zamanda bir tezatlar ülkesi de. Onlarca örneği var tezatlarının.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bir yandan ülkenin öncelikli tehdit değerlendirmesinde birinci sıraya irtica oturtulur ama bir hafta geçmeden ekonomik kriz patlar ve tehdidin rengi bir anda değişir. Devletin en önemli kurumlarının başında bulunan yetkili kişiler çıkıp kesinlikle yeni vergi yok derler, bir gün sonra yeni vergiler yürürlüğe girer. Türkiye’de alt yapısı sağlıklı olmayan banka kalmadı denilir ama iki gün geçmeden yeni bankalar batar... Bu ve benzeri örnekler nicedir gündemimizi işgal ediyor. Örnekleri çoğaltmak mümkün. Bunları anlatmamızın sebebi ne ülkenin şu an içinde bulunduğu finansal sorunlar ile ilgili, ne de bu sorunlarla nasıl başa çıkacağımızla...
+   <br>
+    <br>
+     Tüm bu anlattıklarımızın sebebi Milli Eğitim Bakanlığı’nın düzenlediği Din Öğretiminde Yeni Yöntem Arayışları konulu sempozyum. Sempozyumu önemli kılan Türkiye pratik gerçekleri ile teorik anlatımlarının arasındaki derin uçurum. Yani kısacası ülke tezatlıklarına bir başka örnek. Sempozyumda konuşan herkes dini eğitimin gereğinden bahsetti oysa ülke yaşanılan pratik gerçeklik bunun tam tersi.
+     <br>
+      <br>
+       Öyle ya ülkenin üniversitelerinde haketmelerine rağmen derslerine alınmayan öğrenciler varken, tüm yasal düzenlemelere göre faaliyet göstermesine rağmen kapatılma ile yüz yüze kalan üniversiteler varken bu sempozyomu gözden kaçırmak olamazdı. Üstelik ülkenin içinde bulunduğu siyasal ve psikolojik ortamda bizzat devletin bir kurumunun böylesi bir sempozyumu düzenlemesi bile bunu haber yapmamıza yeter de artardı.
+       <br/>
+       <br/>
+       İstanbul’da üç gün süren sempozyuma Almanya, İngiltere, Norveç, Cezayir, Hollanda ve Türkiye’den 70’i aşkın din ve bilim adamı katıldı. Sempozyumun adı Din Öğretiminde Yeni Yöntem Arayışları’ydı ama konuşmacıların dile getirdikleri, dinin insan hayatı için ne kadar önemli ve vazgeçilmez olduğu gerçeğiydi. Üstelik öylesine bir vazgeçilmez ki zaman ve mekan tanımadan hayat sürüyor; evde, işyerinde, sokakta veya okulda... Bu tespit kuşkusuz sempozyumun sonlarına doğru daha iyi anlaşıldı. Oysa Türkiye gerçekleri ile hiç de örtüşmeyen bir tespitti. Belki resmi ağızlar bunu önceden tahmin etmiş olacaklar ki zorda kalmamak için daha toplantının ilk gününde bir muhalefet şerhi koymayı gerekli gördüler. İlk günkü açılış oturumda söz alan tüm resmi ağızların söylediklerinin ortak bir noktası vardı ve özellikle de bu ortak noktanın altı çizildi: Türkiye’nin kendine has pratik gerçekleri ile burada konuşulacakların mukayese edilemeyeceği. Gerekçe ise çok bildikti: Bizim kendimize has özelliklerimiz var.
+       <br/>
+       <br/>
+       Özellikle ilk gün gerek Milli Eğitim Bakanı Metin Bostancıoğlu’nun gerekse daha sonraki oturumda müsteşar Bener Cordan’ın bu minvalde uyarı niteliğindeki açıklamaları dikkat çekiciydi. Herşeye rağmen dolu dolu geçen ve Türkiye’nin bu umutsuz ortamında takdire şayan bir faaliyetti.
+       <br/>
+       <br/>
+       Ulusal programa denk gelmesi tesadüf mü?
+       <br/>
+       <br/>
+       Sempozyumda konuşulanlar ve tartışılanları detaylı bir şekilde irdelemeden önce tesadüf gibi görünen bir noktaya temas etmek yerinde olacaktır. O da, milli eğitimin bu konferansın ulusal programın hemen sonrasında gerçekleştirilmiş olmasıdır. İlk etapta belki tesadüf gibi gözüküyor. Oysa olaya değişik bir perspektiften bakılınca ulusal programın doğal bir uzantısı gibi görmek pek de komplocu bir yaklaşım olmasa gerek. Sempozyuma katılan ve özgün yorumlarıyla dikkat çeken Dr. Talip Küçükcan olaya bu pencereden bakanlardan. Dr. Küçükcan’a göre sempozyumun Avrupa Birliğine doğru yol alışın hızlandığı ve Ulusal Programın hazırlandığı bir dönemde gerçekleştirilmiş olması çok önemli: “Yanlış hatırlamıyorsam bundan bir kaç ay önce tüm kurumlarda Avrupa Birliğine uyum çalışmaları için start verilmişti. Bu minvalde kimi uyum yasaları hazırlıkları da yapıldı. Bundan önce de Diyanetin yaptığı büyük bir şûrâ vardı. Tüm bunların kuşkusuz Avrupa Birlği ile ilgisi var. Benim kendi kanaatim. Bu son sempozyumda da bana göre iki konu gözetildi. Birincisi Avrupa Birliğine girmek üzere olan Türkiye, Avrupa’nın deneyimlerini görmek, onları öğrenmek istedi. İkincisinde ise kendi uyguladığı sistemi irdelemek, bu sistemin Avrupa ile ne kadar uyuştuğunu ve çatıştığını görmek istedi.”
+       <br/>
+       <br/>
+       Avrupa daha esnek
+       <br/>
+       <br/>
+       Aslında Küçükcan’ın tezine dayanak teşkil edecek çok ibare vardı. Bir kere katılımcılar yoğun olarak Avrupa Birliği ülkelerinden seçilmişti ve çoğunlukla Avrupa’daki sistem ile Türki sistemi karşılaştırıldı. Ve Türkiye’nin bu Avrupa modelinden nasıl istifade edeceği konusu sıklıkla gündeme geldi. Tüm bunlardan sonra akla hemen bu karşılaştırmalardan nasıl bir tablo ortaya çıktı sorusu takılıyor. İlk etapta buna kabaca verilecek cevap, Avrupa’nın daha esnek, yerel ve özgün kimliklere daha yer veren, Türkiye’nin ise daha merkezi ve daha yeknesak bir model benimsediği şeklindeydi. Dr. Talip Küçükcan’a göre Avrupa Birliği ülkelerini de homojen olarak algılamamak lazım: “Her ülke kendi iç dinamiklerine göre bir model seçmesine rağmen benzerlikleri de az değil. Bir kere orada kilise resmi bir kurum olarak kabul görmekte. Bizdeki gibi milli eğitimdeki din dersi müfredatını devlet değil de yerel yönetimler, cemaatler ve kiliseler belirliyor. Bizde ise tek söz sahibi devlet. Avrupa’ya göre bu konuda geriyiz tabii. Orada ders verecek öğretmeni devlet değil kilise veya okul aile birliği seçerken bizde yine tek söz sahibi devlet. Oradaki yerellik tabii ki farklı dinlerin ve farklı kimliklerin de müfredata dahil olması sonucunu getiriyor.”
+       <br/>
+       <br/>
+       Peki gerek Avrupa Birliği’ne girme sürecinde gerekse birliğe alındığı takdirde birlik içindeki bir Türkiye’nin sahip olduğu dini anlayış sorun çıkarabilir mi? Bu kuşkusuz herkesin dilinde olan ama cevabı çok da net verilemeyen bir soru. Sempozyumun renkli simalarından Alman Prof. Dr. Johannes Lahneman bu soruya çok açık dille şu cevabı veriyor: “Bu konu çok zor bir konu, dolayısıyla cevap vermek de çok zor. Benim için önemli olan dinlerarası diyalogdur. Avrupa Birliğine girmiş bir Türkiye’nin dini açıdan bir sorun çıkarmayacağına inanıyorum.” Prof. Lahneman, çok zor bir konu olarak açıkladığı Türkiye Avrupa Birliği meselesinin çözümünün de aslında çok basit olduğunu vurguluyor sonradan: “Bana göre dinlerarası barış sağlanmadan dünya barışı gerçekleştirilemez. Diyalog olmadan da dinlerarası barışı sağlayamazsınız. Onun için diyaloga büyük önem veriyorum. Buna çok ihtiyacımız var. Bu diyaloğu esasında tüm alanlara yaymamız lazım. Ben Almanya’nın Nünberg kentinde Dünya Dinlerarası Barış Konferansını kurdum ve onun başkanlığını yürütüyorum. Her ay mutlaka bir diyalog çalışmamız olur. Farklı dinlerden insanları bir araya getiriyoruz. Aynı zamanda dünyadaki barış konferansının eğitim bölümü başkanıyım. Bizim diyalog çalışmalarımız içinde Türkiye’nin de önemli bir yeri var. Bu konuya gereken dikkati herkesin vermesi lazım bana göre.”
+       <br/>
+       <br/>
+       Avrupa İslamı
+       <br/>
+       <br/>
+       Toplantının katılımcıları arasında yoğun olarak bulunan Avrupalı bilim adamlarının özellikle vurguladıkları konu farklı dinî kimliklerdi. Hepsi de bu farklı kimliklerin özgür bir ortamda ve her şartta kendilerini ifade etmeleri gerektiğinin altını ısrarla çizdiler. Alman Prof. Dr. Reinhold Mokrosch ise diğer Alman meslekdaşından biraz farklı düşünüyor. Mokrosch’a göre Türkiye’de yaşanan İslam ile Avrupalı Türklerin yaşadıkları İslam arasında önemli farklılıklar mevcut: “Biz bir Avrupa İslamına sahibiz. Almanya’daki İslam ile Türkiye’deki İslam arasında farklılıklar var. Bizde Türk gençleri yani üçüncü nesil çok farklı bir İslam yaşıyorlar.  Mesela bazıları Hz. Muhammedin Allah’ın oğlu olduğuna inanıyorlar. Birçok dindar var ama dindarlığı Türkiye’deki İslam ile aynı dindarlık değil. Bundan on sene önce İslamın yaşanması daha yüksekti ama giderek azalıyor. Daha önce yüzde yetmişlerde seyrediyordu ama bu oran bugün yüzde otuzlara kadar düşmüş durumda.” Alman Prof. devamında ileride Avrupa’ya özgü bir müslümanlık olacağını söylüyor: “Farklı bir İslamiyet ortaya çıkabilir. Gelecekte müslüman Türkler için önemli olacak soru Allah’a inanıyor muyum inanmıyor muyum olacak. Gerçekten Kuran–ı Kerimi bilen insanlar Avrupa’ya gelirse gerçek İslam kök salabilir.”
+       <br/>
+       <br/>
+       Dini eğitimi kaçınılmaz bir gerçekliktir
+       <br/>
+       <br/>
+       Sempozyumun ortaya koyduğu başka gerçekler de vardı kuşkusuz. Bunlardan iki tanesi çok önemliydi. Bir tanesi hangi sistem ile olursa olsun mutlaka dinî eğitimin verilmesi zorunluluğuydu, ikincisi ise Türkiye’nin  çok sınırlı bir eğitim verdiğiydi. Türkiye’deki sınırlı eğitimi Prof. Dr. S. Hayri Bolay’ın bir oturumda sarfettiği şu sözler çok güzel gözler önüne seriyor: “Türkiye’de dinî eğitim bilgilendirmeye dayalıdır. Oysa din eğitimi sadece bilgilendirmeye değil eğitime dayalı olmalıdır.”
+       <br/>
+       <br/>
+       Devletin böylesi bir sınırlama getirmiş olmasının aslında özel anlamları da yok değil. Bizdeki durum yönetici elitlerin kendilerine göre geliştirdikleri kopseptlerin doğal bir sonucundan başka bir şey değil nihayetinde. Oysa tüm gelişmiş ülkelerde dinî eğitim küçük yaşlarda ve bizzat devletin teşvikiyle yapılıyor. Yerli veya yabancı tüm konuşmacıların belki de hiç teredütsüz fikir birliği ettikleri en önemli nokta buydu. Prof. S. Hayri Bolay’ın yine bir başka oturumda söylediği “Eğitimsiz birini serbest bıraktığınız zaman hiç şüpheniz olmasın ki o kişi büyük oranda ateist olacaktır” şeklindeki yorumu eğitimin erken yaşlarda başlamasının önemini çok güzel anlatıyordu.
+       <br/>
+       <br/>
+       Prof. Dr. Johannes Lahneman’a göre de dinî eğitim mutlaka küçük yaşlarda verilmeli çocuğa. Dinin esasında Allah ile insan arasındaki davranışları belirlediğini ve bu ilişkinin de ahlaki ve yetkin olması için bireyin mutlaka bir dini eğitimden geçmesinin zorunluluğuna dikkat çeken Prof. Lahneman bu eğitimin süresi ve şekli hakkında şunları anlatıyor: “Ben eğitimde dinin yerinin ne kadar olması gerektiği sorusuna cevap verirken çoğunlukla Alman Anayasasındaki ibareyi referans olarak alıyorum. Bu ibare bana çok doyurucu geliyor çünkü. Buna göre ilkokul birinci sınıftan lise sona kadar din dersi mecburidir ve haftada iki saat olarak verilir. Yani her sınıfa en az iki saat din dersi verilir. Bu bana göre örnek bir uygulama. Bütün resmi uygulamalarda din dersi karnede de geçen bir derstir. Bizim anayasamızda yer alan bu olayı dine karışıyor veya onu sınırlıyor anlamında algılamamak lazım. Bunun anlamı devlet dine imkan veriyor demektir. Ama din ve devletin birbirinden bağımsız olmasını da çok önemli buluyorum.”
+       <br/>
+       <br/>
+       Dün yanlış mı yaptık?
+       <br/>
+       <br/>
+       Kısa dönemli geleceği görmekten uzak yönetimlerin Türkiye’yi getirip bıraktığı çıkmaz sokak her alanda kendisini hisettiriyor. Bu, dar sokağa din eğitiminin de hapsedildiği toplantının bize gösterdikleri arasındaydı. Önce fazla denilerek, mürteci yetişiyor denilerek Kur’an kurslarının, sonra irticanın kaynağı olarak lanse edilen imam hatiplerin, en sonda ilahiyatların kapılarına kilit vuran zihniyetin yaptığının yanlış olduğu sempozyomun sonuç bildirisinde yayınlanan şu madde ile adeta tespit ediliyordu: “İHL’nin yeterli olduğu 1980’li yıllarda isteğe bağlı Kur’an–ı Kerim dersi pek gündeme gelmedi. Oysa şimdi İHL’lerdeki öğrenci sayısı azaldı. Bu konu tekrar gündeme alınmalı. İHL’lerdeki öğrenci kaybı için gerekli tedbirler alınmalı. Bunun için ilk planda İHL mezunlarının üniversiteye giriş sınavları için daha kapsamlı çalışmalar yapılmalı.”
+       <br/>
+       <br/>
+       Psikolojik ve ruhi olarak karamsarlığın arttığı, ekonomik olarak gelir gider dengesinin alt üst olduğu bir dönemde eksik yanları olmasına rağmen böylesi bir organizasyonun gerçekleştirilmiş olmasını bir kazanç olarak kaydetmek lazım. Umulur ki yöneticilerimizin dinledikleri ve bizzat iştirak ettikleri güzel öneriler sadece dinlemekle kalınmaz uygulamaya da geçirilir.
+       <br/>
+       <br/>
+       Not: Alman bilim adamlarıyla yaptığımız röportajlarda bize tercümanlık yapma lütfunda bulunan değerli yazar Ali Erkan Kavaklı’ya teşekkür ederiz.
+       <br/>
+       <br/>
+       e-mail: yasin2003@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13183), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214841/http://www.aksiyon.com.tr:80/detay.php?id=13183)

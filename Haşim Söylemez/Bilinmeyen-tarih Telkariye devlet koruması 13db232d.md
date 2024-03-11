@@ -1,0 +1,63 @@
+# Telkariye devlet koruması
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040629064137im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040629064137im_/http://www.aksiyon.com.tr/resim/494/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Her geçen gün yok olmaya sürüklenen telkari sanatına “devlet baba” sahip çıktı. Genç ustalar tarafından işlenen telkariler Avrupa’daki moda evlerine kadar götürülecek. Süryanilerle bütünleşen bu sanata artık Müslümanlar da ilgi gösteriyor.
+ </font>
+ <p>
+  <font class="content">
+   “Kumaşın ve altının sihirbazı derler Süryaniler için, oysaki ben Mardin’de telkariyim. En eski kelebek kanadı, yiğitlerin asası... Benim göz zevkim, el emeğim, maharetle nakış olur gümüş üzerinde dansla. Ben Mardin’im. En güzel gümüş işlemeciliğin yurdu yani. Mezopotamya ilhamım, medeniyetler benim desen kaynağım. Ben, tel halindeki gümüşü diriltir, altını şahlandırırım. Basit bir el çekiciyle ve ayak körüğüyle sevda yakısını gümüşe yansıtırım. Ben en güzel kol düğmesiyim. Taşlara nakşetmiş atalarımla, gümüşü yonttum. Ben bir zevk tüneliyim. Bir çocuğun gelecek düşü, Mardin’de bir sevgi motifiyim. Ben telkariyim, dünden bugüne incecik zevkleri bulutlara işleyen, çiçeklere kazıyan...”
+   <br>
+    <br/>
+    Kısaca gümüş tel işleme sanatı anlamına gelen telkari için Mardinlilerin yüreğinden çıkan yukarıdaki mısralar bu sanatın kadim kent için ne kadar anlamlı olduğunu ifade etmeye yetiyor. Sevginin ve gelecekteki düşün içine yoğrulmuş telkari doğup büyüdüğü şehirde can çekişirken, “devlet baba” imdadına yetişti; artık ne pahasına olursa olsun yaşatılacak.
+    <br/>
+    <br/>
+    Teknolojinin ve zamanın acımasızlığı karşısında eriyip giden bu sanatı kurtarmak için Mardin Valiliği her şeye yeniden başladı. Zor ve incelik gerektirdiği için gençler tarafından ilgi görmeyen ve yıllardır ihmal edilen telkari, geliştirilen bir projeyle hem yaşatılacak hem de Avrupa’ya taşınacak. Valilik, geleneksel el sanatını ayakta tutmak için telkarinin son ustalarından biri olan Süryani asıllı Suphi Hindi Yerli’yi görevlendirdi. Halk Eğitim Merkezi bünyesinde oluşturulan atölyede genç öğrenciler eğitim alıyor. Devletin ısrarla yaşatmaya çalıştığı bu sanata yönelik projeler kursla sınırlı değil. Önümüzdeki dönemlerde merkeze yakın köylere de telkari atölyeleri açılması planlanıyor. Bu atölyelerde gençler hem geleneksel sanatı yaşatacak hem de iş sahibi olacak. Ama kapsamlı projenin en önemli ayağı telkariyi Avrupalının beğenisine sunmak. Bu amaçla broşür basılıp, uluslararası fuarlarda standlar açılacak. Dünyada bir benzeri olmayan bu sanatın kuru tanıtımından ziyade, yeni bir pazar alanı oluşturmak da projenin ana hedefleri arasında.
+    <br/>
+    <br/>
+    Süryanilerden sonra Müslümanlar
+    <br/>
+    <br/>
+    Arkeolojik buluntulara göre gümüş telkarinin geçmişi millattan önce 3 bin yılına kadar uzanıyor. Bu sanat, bir gelenek olarak Mezopotamya coğrafyasında yaşayan Süryaniler tarafından günümüze kadar ulaştırıldı. Osmanlılar zamanında büyük ilgi gören telkari o tarihlerde de Süryanilerle özdeşleşen bir sanat dalı kabul ediliyordu. Yakın zamana kadar da aynı durum geçerliydi. Ancak son yıllarda Süryanilerle birlikte Müslümanlar da bu sanatla ilgilenmeye başlamış. Mardin’de açılan kursa Süryanilerden çok Müslüman gençler ilgi gösteriyor. Kursun şu anda belirli bir aşamayı katetmiş on öğrencisi bulunuyor.
+    <br/>
+    <br/>
+    Mardin’de telkari dersi veren ve geleneksel yöntemle bu sanatı yaşatmaya çalışan Suphi Hindi Yerli, önemli olan geleneğin yaşatılması diyor; “Benim öğrencilerim kim olmuş, nereden olmuş önemli değil. Ölmeden önce arkamda benden sonra bu işi devam ettirecek iyi birkaç usta bırakırsam bu bana yeter. Ama hâlâ gençlerin ilgisi beklediğim düzeyde değil. İnşaallah bu yeni projeyle çok fazla kişiye bu sanatı öğretiriz.”
+    <br/>
+    <br/>
+    57 yaşındaki Suphi Yerli, telkariyi yaşatmak için 1974 yılında terk ettiği Mardin’e 6 yıl önce geri dönmüş. Valilik kendisini görevlendirince de beklediği fırsatın ayağına geldiğini düşünmeye başlamış ve işe koyulmuş. Yerli’ye göre telkari aşama aşama eski günlerine geri dönecek ama Türkiye’den çok Avrupalı tanıyıp bilecek; “Ben sadece atalarımdan aldığım görevi ölmeden önce benden sonraki kuşaklara devretmek için Mardin’e döndüm. Geleneksel telkariyi bitirdiler, artık turistik eşya olarak fabrikasyon yapıyorlar. Bu sanat maharet ve incelik ister. Açılan kursla Avrupa’ya yeni bir sanat dalı olarak açılmayı hedefliyoruz. Mardin’i telkarisiyle dünyaya tanıtmak ve yeni bir pazar oluşturmak istiyoruz. Yavaş yavaş ilgi uyanıyor, talepler geliyor. Devlet bu işe çok para harcadı ama bu zamana kadar başarılı olamamıştı. Şimdi telkarinin yurdunda devletin desteğiyle tekrar bir hamle yapıyoruz.”
+    <br/>
+    <br/>
+    Telkarinin Avrupa macerası, fuarların ardından moda merkezlerine girmek şeklinde olacak. Yüzük, kolye gibi takıların yanı sıra telkari işi elbise düğmesiyle kadınların gönlü fethedilecek. Suphi Yerli, Paris’te çalışan önemli bir moda evinden elbise düğmesi siparişi aldıklarını ancak şimdilik talebe cevap veremedikleri için bu teklifi kabul etmediklerini söylüyor.
+    <br/>
+    <br/>
+    “Çift” veya “vav” da olabilir
+    <br/>
+    <br/>
+    Tel ile yapıldığı için telkari adını alan bu sanata aynı zamanda “vav işi” de deniyor. Bu isim Osmanlıca vav harfinin uygulamada motif olarak sıkça kullanılmasından geliyor. Ayrıca bu sanata “çift işi” diyenler de var. Bu ad, işin yapımı sırasında parçaların teker teker bir araya getirilmesinde kullanılan cımbız benzeri aletten geliyor. Ama sanatkarlar arasında en çok “telkari” ve “çift” isimleri kullanılıyor.
+    <br/>
+    <br/>
+    Telkaride, sanatkâr, işinde kullanacağı her türlü malzemeyi kendisi yapar. Kullanılacak teller atölyede günler öncesinde işin erbabı olan usta tarafından istenilen ölçüde hazırlanır. Ocakta pota içinde eritilen gümüş, çubuk haline getirilmek için kalıba dökülür. Yapılacak işin şekline göre çubuk döküm, üzerinde genişten dara doğru delikleri olan çelikten yapılmış haddeden geçirilir. Haddeden geçirme hem zor hem de zaman istiyor. Bu işlem, kalınlığı aşağı yukarı 0.5 santim olan gümüş çubuk 1 milimetrelik ince bir tel haline gelinceye kadar devam ediyor. Mardin’de Suphi Usta, 950 ayar gümüş kullanıyor. Ki bu ayar dünyadaki en saf gümüşün ayarı ve sadece Türkiye’de kullanılıyor. Telkari işinin tamamı gümüşle başlayıp gümüşle sona eriyor.
+    <br/>
+    <br/>
+    Her telkari işi iki ana kısımdan oluşur. Biri muntaç denilen ana iskelet diğeri ise muntaçın içine yerleştirilmiş vav, gül, kake, tırtıl, dudey gibi adlarla anılan ve her biri farklı biçimde olan motiflerdir. Çalışmaya muntaç yapımıyla başlanır ve muntaçın tel kalınlığı motiflerin tel kalınlığının iki katı olmak zorundadır. Daha sonra oluşan ara boşluklar büyük incelik ve titizlikle doldurulur. Tezgah olarak ceviz ağacından kesilmiş düz bir satıh kullanılıyor. Hazırlanan motiflerle ana gövdenin birleştirilmesi en zor işlem. Herhangi bir yanlışlıkta koca bir eserin ve malzemenin çöpe gitmesi işten bile değil. Birleşim işlemi için önce ayarı belli ölçüde düşürülen gümüş, eğelenerek küçük tanecikler halinde bir güderi parçası içinde toplanıyor. Daha sonra bir kaba koyulup içerisine toz boraks katılıyor. Suya daldırıldıktan sonra amyant üzerine yerleştirilen ana iskeletin her parçası bu gümüş boraks karışımı ile kaynak yapılarak birleştiriliyor. Motiflerin yerleştirilmesi de aynı şekilde kaynakla yapılıyor. Bütün işlemler bittikten sonra usta, tarihi ve kendi imzasını eserin önemli bir yerine atıyor. El kalemi ile parlatma işlemi de Mardinli ustaların bir geleneği olarak sürüp gidiyor.
+    <br/>
+    <br/>
+    Bazen küçük bir telkari eseri günler hatta haftalar sürebiliyor. Bu durum ustanın maharetinden çok, işin titizlik ve zorluk derecesine bağlı. Suphi Usta, istenilen her türlü nesneyi telkari sanatı ile yapabildiklerini söylüyor. Ancak yaygın olarak tütün kutusu, sigara ağızlıkları, aynalar, tepsiler, kemerler, küpeler, kolyeler, düğmeler ve yüzükler yapılıyor.
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11513&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040629064137/http://www.aksiyon.com.tr:80/detay.php?id=11513&yorum_id=1)

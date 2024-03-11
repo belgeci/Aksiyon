@@ -1,0 +1,340 @@
+# Besıncı elementı arıyor
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175633im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175633im_/http://www.aksiyon.com.tr/resim/307/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Randevu saatinden önce gelmiştim buluşacağımız yere. Kapıdan içeri girdiğimde bir çorba kaşığı içinde ısıttığı eroini, titreyen parmaklarıyla enjektöre çekiyordu. Her
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Her yerinden ter akıyordu. Kollarında iğneyi sokmadığı yer kalmadı. Sonra ayak parmaklarından denedi. Yine olmadı. Vücudunda delinmemiş bir damar bile bulamadı. Sonra bütün gücüyle masaya sapladı şırıngayı. Krizin şiddeti giderek artıyordu. Dizleri tutmuyordu. Çantasına uzandı. Küçük bir paket çıkardı. Kat kat naylonlara sarılmış paketi açıp içindeki tozu cam sehpanın üzerine döktü. Çakmağıyla iyice ezdi. Kredi kartıyla çizgi yaptı. Cüzdanından çıkardığı gıcır gıcır bir milyonluk banknotu boru yaptı. Bir ucunu burnuna soktu. Diğer ucuyla da her çizgiyi birer nefeste çekti. Beyaz zehir kana karıştıktan sonra normale döndü.
+   <br>
+    <br>
+     S.K. sokaklarda kıvranan onbinlerce gençten biri. 27 Ocak 1975’te Münih’te doğdu. Tıp eğitimi aldı. Doktor asistanı oldu. Psikolojik danışmanlık eğitimi aldı. Ünlü Busters Dans Grubu’nda oynadı. Tayland Boksu’nda Münih ikinciliği var. Türkiye’de rehberlik ve hosteslik yaptı. Sabah 06:00’da kalkıyor; yüzüyor, koşuyor, yazıyordu. Ay parçasıydı, zekiydi. Kafasında 127 telefon numarası tutabiliyordu. Hayat doluydu.
+     <br>
+      <br>
+       Bir gün ‘5. Element’i (sevgiyi) aramaya çıktı. Yolu İstanbul’a düştü. Sevgiyi bulamadı ama bencil bir sevgiliyle tanıştı. Öylesine bencildi ki, onu herkesten kopartıp aldı. Esiri yaptı. S.K. o çirkin sevgilinin uğruna Tarlabaşı’nda, Aksaray’da, Beyoğlu’nda... umutlarını, hayallerini sattı. Sonunda bir ilkbahar günü tanıştığı bu sevgiliyi terketmeye karar verdi. Çıkageldi işte. Sadece beş gün dayanabilecek. Beşinci günün sonunda iki seçeneği olacak S.K.’nin. Ya terkettiği sevgilisine geri dönecek ya da ölümcül krize girecek. Ama birincisini asla tercih etmeyecek.
+       <br/>
+       <br/>
+       S.K.’nin komaya girmemesi için ya eroin alması gerekiyor ya da hastaneye yatması. S.K. onu, terkettiği için asla almayacak. Gireceği kriz 2 saat 30 dakikayı aşarsa, muhtemelen ölecek. Son krizi 2 saat 32 dakika sürmüş. Eğer krizi hastanede karşılarsa S.K yeniden doğacak.
+       <br/>
+       <br/>
+       S.K.’nin bu derginin yeni sayısı çıkana kadar vakti var. Bu satırları okurken onun zamanının giderek azaldığını unutmayın. Onun cansız bedenini umumi bir tuvalette bulduğumuzda çok geç olacak. S.K. hayal ve gerçeğin arasındaki çirkin çizgide sizi bekliyor. İşte onun ibret verici hikayesi.
+       <br/>
+       <br/>
+       —Uyuşturucuyla tanışma sürecini anlatır mısın?
+       <br/>
+       <br/>
+       Eğitimimi tamamladıktan sonra Almanya’da T..... adında birini sevdim. İlk aşkımdı. O ise çocukluk arkadaşımla nişanlandı. Bu olay bana çok acı verdi. Henüz 18 yaşındaydım. Kırıldım... Aynı apartmanda oturuyorduk. Onu arabadan inip apartmana girene kadar sadece 5 saniye görebilmek için hergün 5 saat bekliyordum. Astım olmama rağmen sigaraya ve alkole başladım. Benim için dayanılmaz olan bu acıyı unutabilmek için memleket değiştirdim. Türkiye’ye geldim.
+       <br/>
+       <br/>
+       Geri dönüş hakkımı yaktım. Mutsuzum. Hayatımda sevgi yok. Bir köpeğe âşık oldum. Bütün sevgimi ona bağladım. Bana sadece babamın mektupları destek oluyordu.
+       <br/>
+       <br/>
+       —Nasıl geçiniyordun?
+       <br/>
+       <br/>
+       Ailemin gönderdikleri harçlıklar ve sigorta parasıyla. Sonra bir Alman firmasının İstanbul şubesinde müşteri temsilcisi olarak işe başladım. Yeni insanlarla tanıştım. O bar senin bu disko benim... Akşamları Regata’da bir süre şarkı söyledim. Etrafımda çok yakışıklı erkekler vardı ama onların aradığı başka şeydi. Arkadaşlarım 'Aradığını bulana kadar denersin' diyerek benim bu tavrımı eleştiriyorlardı. Bundan hoşlandım diyerek yatağa girmek bana ters geliyordu. Aradığım erkeği bulduğumda ona verecek bir şeylerim olmalıydı. Sadece beni bir gece göğsünde yatırıp, sabaha kadar hiçbirşey istemeyecek birini arıyordum. Böyle birini bulsaydım ertesi gün ona canımı, herşeyimi vermeye hazırdım. Ama en son istenecek şeyi ilk önce istiyorlardı.
+       <br/>
+       <br/>
+       Bir gün işyerinde hiç de tipim olmayan E.... beni sevdiğini söyledi. Onunla birlikte olabileceğim aklımın ucundan bile geçmiyordu. Israrını kıramadım, birkaç defa hep birlikte bir yerlere gittik. Dans ettik. Elimi tuttu. Yanağımdan öptü. İçim ‘cız’ etti. Birşeyler hissettim. O gece de rüyamda dans ettik, gözlerimizden sevgi akıyordu... Ertesi gün herşey farklıydı. Onu sevmeye başladım.
+       <br/>
+       <br/>
+       Zamanla onda aradığım sevgiyi, inceliği bulamıyordum. Küçücük bir ilgiyi bile esirgiyordu benden. Bir günaydın bile demiyordu. Yalvardım, ağladım olmadı, olmadı, olmadı... Artık çok geçti çünkü ben sevgimi ona bağlamıştım. O eğlenip, gezmek, yatmak, kalkmak istiyordu. Nişanlısından ayrılmış ve bir duygusal boşluktaymış. Yani bir kurban arıyordu, o kurban ben oldum. Benim işim bitti dedim. Çünkü ben doğuştan —sevgiye— bağımlı biriyim. İşte uyuşturucuya başlamamda en büyük etken E.... oldu.
+       <br/>
+       <br/>
+       —Eroinle nerede tanıştın?
+       <br/>
+       <br/>
+       Büyük bir bunalıma girmiştim. Bir ilkbahar günüydü. Almanya’da beraber büyüdüğüm kankardeşime gittim. Evde arkadaşları da vardı. Bunlar sırasıyla banyoya gidip geliyordu. Giren mutlu çıkıyordu! Ben de girdim. Çamaşır makinasının üstünde çizgiler vardı. Burunlarına çekiyorlardı. Bu şeyin uyuşturucu olduğunu tahmin ediyordum ama tam olarak ne olduğunu bilmiyordum. Ben de istiyorum diyerek atıldım. Bana da bir çizgi yaptılar. Çektim.
+       <br/>
+       <br/>
+       Önce biraz midem bulandı. Ama o kadar mutlu oldum ki, anlatamam. ‘Tamam! Aradığım bu işte’ dedim. O kadar mutsuzdum ki, onun verdiği acıyı taşıyamıyordum. Bana mutluluk veren tek şeyi bulmuştum artık! Uzanıyorum. Gözlerim kapanıyor. Daha önce bu kadar mutlu olduğumu hatırlamıyorum. Adını öğrendim; eroinmiş. ‘Ben bunu içmeliyim, bunu bulmalıyım’ dedim ve orada başladım işte.
+       <br/>
+       <br/>
+       —Kolay mal bulabiliyor musun?
+       <br/>
+       <br/>
+       Param vardı. Şirkette tercüme işlerine de ben bakıyordum. İyi para alıyordum. Parayı verip “Bulun diyordum” geliyordu. Önceleri ufak ufak almaya başladım. İki günde bir, haftada bir çekiyordum. İşyerine de götürmeye başladım.
+       <br/>
+       <br/>
+       —E....’ın haberi oldu mu?
+       <br/>
+       <br/>
+       Bir gün E...’ı karşıma alarak, bir çizginin tam üstündeyim. Yardımına ihtiyacım var, ben uyuşturucu batağına saplandım. Sonu ölümmüş ama sen şu an bırak de hemen bırakırım ve senin için ömür boyu el sürmem dedim. “Bana ne kızım! Ben mi verdim senin eline” dedi ve gitti. Yıkıldım... Onun umurunda bile değildim. Ben ona bütün sevgimi vermişim, ömrümü bitirmeye hazırdım. E... kapıdan çıkıp gittikten sonra artık benim hayatımda acılarım ve eroinim kaldı. İyice bağımlı olmaya başladım. 4—5 ay sonra krizler başladı.
+       <br/>
+       <br/>
+       Torbacının nasihati(!)
+       <br/>
+       <br/>
+       —Eroini hep arkadaşların mı temin ediyor yoksa belli mekanlardan mı alıyorsun?
+       <br/>
+       <br/>
+       Regatta’da şarkı söylerken konuşuluyordu. Birbirlerine ‘Peynir var mı?’ diye soruyorlardı. Ama orada hiç kimseden almadım.
+       <br/>
+       <br/>
+       Birgün Marmaris’teki dostlarım İstanbul’daki akrabalarıyla tanıştırdılar. Bu kişinin bir de kankardeşi vardı. Romen kız. Onun eroin kullandığını öğrendim. Samimi oldum. Bana mal bulmasını istedim. O da beni Aksaray’da torbacısıyla tanıştırdı. Bu benim ilk torbacım oldu. Çok iyi bir adam. Bana her mal getirdiğinde yarım saat nasihat veriyordu. “Bak kızım; bu pislikten ben neler gördüm, neler... Ölenler oldu. Sen daha yolun başındasın. Şu an zevkini yaşıyorsun ama ben dağları devirenleri gördüm. Ne yuvalar yıkıldı. Bak şimdi işin, paran var. Bunların hepsini kaybedersin. Bir gün fuhuş batağına kadar gireceksin. Gel yol yakınken dön” diyordu. Torbacı dediğin parayı alır, malı verir çeker gider. Bu diğerlerinden farklıydı.
+       <br/>
+       <br/>
+       —Torbacıya kaç günde bir gidiyorsun?
+       <br/>
+       <br/>
+       Haftada bir. Her defasında 5 gram satın alıyordum. Bu da bana 5 gün yetiyordu. Yani günde 1 gram içiyordum. Bugün 10 gram çekiyorum.
+       <br/>
+       <br/>
+       —Malı hep aynı torbacıdan mı alıyorsun?
+       <br/>
+       <br/>
+       O kadar çok torbacı girdi ki araya isimlerini bile hatırlayamıyorum.
+       <br/>
+       <br/>
+       —Ailen nasıl öğrendi?
+       <br/>
+       <br/>
+       İstanbul’daki ablam biliyordu. Ağabeyimin gençlik bunalımları için annem İstanbul’a gelip gidiyordu. Bir süre bende kaldı. Birgün işyerinde kriz gelmeye başladı. O gün de çok önemli müşteriler gelecekti. Tuvalete gittim ama çantamda malım yoktu. Anladım. Annem bulmuştu. Taksiye atlayıp eve gittim ve onu vermesini istedim. Bir daha içmeyeceğime ikna ederek geri aldım. Akşam eve gelmeden un ve karabiber karışımı bişey hazırladım ve annemin gözü önünde tuvalete döktüm. Zavallı anneciğimi kandırmıştım. Bana inanmış bir halde Almanya’ya döndü. Kahroldum. Ben ne yapıyorum, nereye gidiyorum bilmiyorum.... Bir tozla dost olmuş, bir toza bağımlı yaşıyorum.
+       <br/>
+       <br/>
+       —Günlük hayatın nasıl, normal mi?
+       <br/>
+       <br/>
+       Normal insanlar gibi sabahları kalkıp bir kahvaltı yapamıyorum. Kalkar kalkmaz eyvah yine bir gün başlıyor diyorum. Terlemeyle uyanıyorum, burnum akıyor, ışığa bakamıyorum, eklem yerlerim ağrıyor, midem bulanıyor. Sadece onu istiyorum. Yastığımın altında mal olmalıydı. Sabahları kalkamıyorum, sızıyorum, işe geç gidiyorum. E....’ın acısı da içimde. İşten ayrılmayı düşünüyorum. İstifa dilekçemi hazırlamıştım. Fakat onlar beni çağırıp 3—5 bin mark tazminat verip atıldığımı söylediler. O kadar çok sevinmiştim ki... Paranın hepsini mala yatırdım. Kasımpaşa’dan 500 paket mal aldım. Torbacımı bulamadığım için kazıklandım. Paramın olduğunu biliyorlardı. 1 milyonluk malı 100 marka sattılar.
+       <br/>
+       <br/>
+       Beton tedavisi!
+       <br/>
+       <br/>
+       —Baban ne diyor bu işe?
+       <br/>
+       <br/>
+       Marmaris’e dostlarımın yanına gittim. Onları çok seviyorum. Orada manevi dayım ve manevi yengem var. Bir süre kaldıktan sonra malım bitti. İstanbul’a döndüm. Mal alıp geri dönecektim. Evimin kapısını açtığımda karşımda babamı buldum. Benim durumumu öğrenince Türkiye’ye gelmişler. Tatile gittik. Beni karşısına aldı, karşılıklı sigara yaktık. “Almanya’da olduğu gibi şu anda ben senin baban değil arkadaşınım. Hadi anlat bana. Ne kullanıyorsun?” diye soruverdi. Anlattım. Babam kahrolmuştu. Tedavi olmamı istedi. Onu kıramadım. Birlikte AMATEM’e gittik. Orada çok aşağılandık. Babama, “Kızın bu kadar sene içerken kör müydün?” diye hakaret ettiler. Yerleri olmadığını, bir ay sonra gelmemizi söylediler. İnanılır gibi değil. Bir bağımlı gelmiş yardım istiyor ve bir ay sonraya gün veriyorlar. Zaten ben babamın hatırı için yatacaktım. Kurtulma isteğim çok azdı. Zaman kazanmak benim de işime geliyordu. Çünkü eroine daha doymamışım. Beynimden tam silmemişim. Hâlâ içimde acılarımı yaşıyorum. E....’ın acısını, yalnızlık acısını yaşıyorum. Pişmanlık var içimde. Yanımda babam olsaydı bunları yaşamazdım diye düşünüyorum.
+       <br/>
+       <br/>
+       —AMATEM’e yattın mı?
+       <br/>
+       <br/>
+       Yer açıldı, yatırdılar beni. Birinci gün malın etkisi vardı; kafam iyiydi. İkinci gün çok pis krize girdim. Eyvaaah! dedim. Olayı beyninden silip attığın zaman bedensel acı hafifler ve daha kolay kurtulursun. Babamın hatırına yattığım için bir an önce şu yataktan kalkıp canlansam da gitsem içsem düşüncesi var kafamda. Krizde ne bir doktor tedavisi vardır ne bir şey... Çırpınıyoruz, kendimizi yere atıyoruz. Biz buna ‘beton tedavisi!’ deriz. Betona yatıp tepiniriz. Evde de bunu yapardık. Çünkü kriz anında vücudun yanıyor, acılar çekiyorsun, betona atıyorsun kendini, betonda yatıyorsun. Serum filan yok orada. Takmadılar. Takılması gerekiyordu.
+       <br/>
+       <br/>
+       10. gündeyim, tam bırakmak üzereyim büyük krizi atlatmışım, kararlıyım. Birden yanıma biri geliyor, yeni yatış yapmış. “Oooh!” diyor. “Şimdi iğne yaptım kafam öyle güzel ki” diyor. Gel de delirme! 17. gündeyim titremelerim yüzünden odadan dışarı çıkamaz oldum. Utanıyorum. Kaşığı, bardağı bile ağzıma tutturamıyorum. Her yerim oynuyor. Serum yok. Vitamin istiyorum vermiyorlar. “Dışarıdan alacaksın, doğal besleneceksin” diyorlar. Akşamları bir Diyazem veriyorlar o kadar. Beton tedavisine devam. Taburcu olmak isitiyorum dedim. İmzamı attım çıktım. Bu titremeler bana oradan kaldı.
+       <br/>
+       <br/>
+       AMATEM’e eroin sokmuşlar
+       <br/>
+       <br/>
+       —Tedavi işe yaradı mı?
+       <br/>
+       <br/>
+       İyiniyetli arkadaşların yardımıyla yeniden yattım. Krizdeyim. 72 saat sürdü. Baktım yapamayacağım torbacımı arayıp mal istedim. “Hayır, sen tedavi oluyorsun mal veremem” dedi ve telefonu kapattı. Defalarca aradım, başka bir hastaneye yatacağım, yürüyebilmem için gerekiyor diyerek ikna ettim. O gün de çarşamba; ziyaret günü. O zaman kurallar farklıydı. Ziyaretine herkes gelebiliyordu.
+       <br/>
+       <br/>
+       Ziyaret saati geldiğinde annemi, babamı ve torbacımı kapıda gördüm. Torbacıyı görünce çekmiş kadar oldum, gözlerim parlıyor. Hayatım, aşkım gelmişti. Annemle babamı bir masaya oturtup malımı çaktırmadan aldım. Tuvalete koşup bir fırt çektim. Yüzüme, gözüme, dizlerime can geldi. Ailem de beni bu kadar mutlu gördükleri için seviniyordu.
+       <br/>
+       <br/>
+       İçicileri de ayaklandırdım. Adamlar hepsi kurtulmuşlar, kararlıydılar bir daha geri dönmeyeceklerdi. Hepsinin kanına girdim. Belki bu çektiklerim onların günahı. Ama ben çok az gördüm kurtulanı. Ne zaman mal gelecek diye hepsi peşimde fır dönüyor. Ben paraları topladım. Herkes bir çekimlik için bütün parasını veriyordu.
+       <br/>
+       <br/>
+       —Bir tedavi merkezine uyuşturucu sokmak bu kadar kolay mı?
+       <br/>
+       <br/>
+       Tespit ettikleri anda atıyorlar.
+       <br/>
+       <br/>
+       —Nasıl tespit ediyorlar?
+       <br/>
+       <br/>
+       Her sabah idrar tahlili var. Bu yüzden mal bekleyen arkadaşlar ellerinde malı çekmeden önce idrarlarını hazırlamışlar bile. Kimi bardağa, kimisi poşete doldurmuş. Onlar şeytan biz şeytan! Bunu öğrenince ben de idrar dilenmeye başladım. Herkes malı çektiği için de temiz idrar bulamadım. Sızmışım odamda. 48 saat sonra gözümü evde açtım.
+       <br/>
+       <br/>
+       —Ailenin tepkisi nasıl oldu?
+       <br/>
+       <br/>
+       Malımı istedim. Babam döktüğünü söyledi. Ben de işte şimdi beni kaybettin diyerek yerdeki halıyı tırnaklarımla parçaladım. O anda babam malı yuttum dese karnını yarıp yine alacak kadar vahşileştim. Öyle acılar çekiyorsun ki; tarifi yok. Damarlarımın içinde acı. Kemiklerimin içinde. Ruhumun içinde acı. Sonra pasaportumu ve annemin cüzdanını kaptığım gibi evi terkettim. Babam ağlayarak peşimde koşuyordu. “Kızım evde deneyelim” diye yalvarıyordu. Tozumu atmakla beni kaybettin baba diyerek bir korsan taksiye binip gözden kayboldum. (Daha sonra öğrendim ki, duraktaki diğer korsanlar, çalışmıyoruz diyerek babamın beni takip etmesini engellemişler.) O kadar acı çekiyordum ki, babamın acısı krizin acısını bile bastırıyordu. Çünkü babam benim herşeyimdi. Astımlı bir bebekken beni ayaklarında sallayarak uyuturdu. Aybaşımı, bulaşık yıkamayı ondan öğrendim.
+       <br/>
+       <br/>
+       Eroin paramı babam verdi!
+       <br/>
+       <br/>
+       —Babana duyduğun sevgi taksiyi durdurmaya yetmedi mi?
+       <br/>
+       <br/>
+       Duygusal tarafım dur diyor. Çünkü ben kişiliğimi eroine satmadım. Fakat içimdeki şeytan "Çabuk, krizdesin, yürü, iç kendine gel, içince nasıl olsa bu acıyı unutacaksın" diyor. Şeytanı dinledim ve doğruca torbacıma gittim. Kaleiçi’nde buluştuk. Malı çektim.
+       <br/>
+       <br/>
+       Kendime gelince babamı aradım. Dönmem için yalvardı. “Tedaviyi evde yaptırırız” dedi. Döndüm... Tedaviye ben hazır olduğumda başlanmasını istedim. Bir ay sonra hazır olurum dedim. Bu süre içinde gözlerinin önünde hep içtim. Sızıyor, sağımı solumu yakıyordum. Onlar için dayanılmaz bir acıydı bu. Babacığım bir ay boyunca sırf evde kalayım diye eroin paramı bile verdi. Annem benim kendi elleriyle zehirlenmeme dayanamıyordu. Hemen Babam Almanya’ya gidip 27 yıl çalıştığı BMW’deki işini bıraktı. Sigortalarını öldürdü ve kesin dönüş yaptı. Alman yasalarına göre 3 ay oroda oturup da dönüş yaparlarsa her ay 7 bin mark para alacaklardı. Babam “Belki o 3 ay içinde evladımı kaybedebilirim” diyerek bütün haklarını öldürdü.
+       <br/>
+       <br/>
+       —Bir ay sonra...
+       <br/>
+       <br/>
+       Bu bir aylık süre de zaman kazanmaktan başka birşey değildi benim için. Olay benim beynimde bitmemişti. Tek aşkım, tek sevgilim eroin. Ben buna aşığım. Ben hâlâ içiyorum. Evde huzur diye bir şey kalmadı. Tedavi olmaya razı oldum babamın hatırı için. Doktor geldi, serum bağlandı ve tedavi başladı.
+       <br/>
+       <br/>
+       Doktordan Rivotril istiyorum. Çünkü tarifsiz bir acı var. Canımdan can gidiyor. Üzerimde böcekler geziyor gibi. Terleyip üşümeyi aynı anda yaşıyorsun. Vücudunun heryerine dikenler batıyor. Dizlerinde, tarifsiz ağrılar var. Krizin ikinci gününde kusmalar başlıyor. Üçüncü gün ölecekmiş gibi zannediyorsun. Her nefes alışında boğazın kuruyor artık nefes alamıyorsun, ölüyorsun sanki. Kusmalar devam ediyor. Yemyeşil zehir kusuyorum. Öğürüyorum, duvarlarda yankılanıyor. Safra kesesinin, bağırsakların içindeki zehir öğürmeyle dışarı çıkıyor. Bu çıktıktan sonra rahatlıyorsun. 72 saat böyle geçiyor. Beşinci, altıncı gün derken 10 gün de serumlar devam etti.
+       <br/>
+       <br/>
+       Sonunda hayata döndüm. Babam “Dile benden ne dilersen” dedi. Bir dediğim iki edilmiyordu. Araba istedim; Kırmızı Ford Sierra. Garajım yapıldı, hemen arabam geldi. Yalnız kalmak istediğimi söyledim; harabe haline getirdiğim daireyi benim için yeniden düzenlemeye başladılar.
+       <br/>
+       <br/>
+       —Gerçekten kurtuldun mu?
+       <br/>
+       <br/>
+       İki ay aradan sonra sokağa çıkar çıkmaz çantamı aldığım gibi torbacının evinin yolunu tuttum. Babam ise arabayla hava aldığımı sanıyor. Şeytan damarlarımda dolaşıyor. Zaten beynimden çıkmamıştı. Eroinin verdiği hazla o zavallı insanları boş hayallere daldırdım. ‘Eroinsiz güzel günler yaşayacağız. Uyuşturucu bağımlısı bir kızınız olmayacak. Kendimi size adayacağım, hiç evlenmeyeceğim’ diyordum. İyice güvenlerini kazandım.
+       <br/>
+       <br/>
+       İstanbul bana tehlikeli, Marmaris turu yapayım dedim. İnandılar. 2—3 ay kaldım. Döndüğümde evim harika olmuştu. Onlar beni tertemiz sanıyor, verdiğim umutla ayakta duruyorlardı. Gene malım bitti. Bir çekimlik vardı çektim. Balkonda sızmışım. Vücudumun yarısı balkondan aşağı sarkmış. Ağzımdan salyalar akıyor. Yürek yakan bir manzara... Arkamdan babam geldi. Gözgöze geldik. O bir dakikalık bakışa neler sığdı neler. Beni yatağıma yatırırken konuşamıyordu, gözleri doldu. O batağa yeniden düştüğümü anladı.
+       <br/>
+       <br/>
+       Sabah mal almaya çıkıyorum. Babam hiç sitem etmedi “Hadi tekrar deneyelim, başarana kadar deneyelim, hata yapmış olabilirsin” diyordu. Baba önümden çekil dedim. Çünkü krizim geliyordu. Sekiz saatim dolmak üzereydi. Gittim ve çektim.
+       <br/>
+       <br/>
+       —Bu düş kırıklıkları ne kadar sürdü?
+       <br/>
+       <br/>
+       Defalarca. Başladık. Serumlar takıldı. Ama beynimdeki şeytanı atamıyorum. Annem sabahlara kadar iğne kaymasın diye başımı bekliyor, elimi tutuyor. İki gün serum yedim. Babamı meyva suyu almaya gönderdim. Sonra pasaportu alıp Marmaris’e gittim. Manevi dayıma, yengeme tedavi olmak istiyorum dedim. Onların da bana güvenleri kalmamıştı. Dört dörtlük bir tedavi uyguladılar. Dört gün serum yedim, bütün arkadaşlar seferber oldu. Ayağa kalkınca ben yapamayacağım, eroini özlüyorum dedim. Onları da çiğneyerek İstanbul’a geldim. Tekrar başladım. Bırakmak istediğinde gerçekten bırakıyorsun. Ama düşlere engel olamıyorsun.
+       <br/>
+       <br/>
+       Hollanda’da eroin krizi
+       <br/>
+       <br/>
+       Bir gün kankardeşimin abisi (kabin amiri) kafama girdi, hostes olmaya ikna etti. Konuyu babama açtım, tedavi olmak istiyorum dedim. O kadar çok sevindi ki... Hosteslik kursu boyunca tedavi sürdü. Krizdeyken sınava girdim ve kazandım. İki ay sonra uçuşa başlayacaksınız denildi. Marmaris’e gittim. Şirketle bağlantı içindeyim. Uçuş tarihi bekliyoruz. Yine içiyorum.
+       <br/>
+       <br/>
+       Beklenen telefon geldi: “İlk uçuş Hollanda’ya. Sabah 08:30’a kadar hazır ol.” Acilen İstanbul’a döndüm. Krizdeyim. Arkadaşın evine Şişli Etfal’den doktor çağırdık. Serumları taktırdık. Kriz geçmeden uçuşa geçtik. Binbir işkence ile 350 yolcuya servis yaptım.
+       <br/>
+       <br/>
+       —Uçuş sırasında eroin alıyor muydun?
+       <br/>
+       <br/>
+       Hayır. Evde alıyordum. Yine bir uçuş sonrasıydı. Uçak 4 saat rötar yaptı. Beş yıldızlı bir otele gittik. Herkes gününü gün ederken ben odamda krize girdim. Orada satışı serbest ama satılan yerlerin adını bile soramıyorum. Bir anlayan olur diye çekiniyorum. İstanbul’daki ofisi aradım, hemen işten ayrılmak istediğimi söyledim. İstanbul’a gelmemi istediler. İnanılmaz acılar içinde döndüm. Biri ispiyonlamış. Ben hemen eroin kullandığımı söyleyerek çıkışımı aldım.
+       <br/>
+       <br/>
+       —Sonra...
+       <br/>
+       <br/>
+       Marmaris’te ünlü bir tur firmasında rehber olarak işe başladım. Jiple turist gezdiriyordum. Ayrıca turistik mekanlardan da yüzde 25 komisyon alıyor, animatörlük yapıyordum. Bir günde 10 bin mark kazandığım oluyordu. İşimi çok iyi yapıyordum. Ay sonunda İstanbul’a gelip malı alıp dönüyorum. Bu arada yumurtalıklarımı üşüttüm. İltihap bağlamış. 3 milyara yakın parayla İstanbul’a tedavi olmaya geldim ama arkadaşlarla yedik.
+       <br/>
+       <br/>
+       —Paralar bitti. Şimdi nasıl mal bulacaksın?
+       <br/>
+       <br/>
+       İşte bugünden sonra ben nerelere sürüklendim. Camlı Kahve’de mal aradım. Beni kullanmak isteyenler oldu. Benimle yatmak isteyenler oldu. Torbacılar ortada yok. Mutlaka biri yüksek dozdan ölmüştür.
+       <br/>
+       <br/>
+       Kız arkadaşlarımın aracılığıyla Bayrampaşa’da oturan biriyle tanıştım. Zeytinburnu’nda bir yere gittik. Evlerinde kaldık. Bunlar gece tufaya çıkıyor (hırsızlığa), gecede 500 milyon kazanıyor ama bana eroinim için günde 3 milyoncuk veriyorlardı. Evinde kaldığımız çocuk bunun bedelini çok ağır ödememi istiyordu. Bir gece krize girdim. Ben kıvranırken o malı gözümün önünde sallıyor, onunla yatmamı istiyordu. Acılar içinde kıvrana kıvrana terk ettim orayı. İki kız arakadaşta tedavi oldum! Pasaportumu, hosteslik sertifikamı unuttuğum için aynı eve geri döndüm. Bana bira ikram etti. Birden şişeyi kırıp boğazıma dayadı. Boynumdan kanlar akmaya başladı. Zorla tecavüz etti. Ben işkence çekerken, dünyam yıkılırken o zevkinin derdindeydi. (Ağlıyor)
+       <br/>
+       <br/>
+       —Bu kötü olay için sonun başlangıcı diyebilir miyiz?
+       <br/>
+       <br/>
+       Belki de... Bu olay beni erkeklerden daha da uzaklaştırdı. Çünkü eroinmanlar zaten seksten hoşlanmaz.
+       <br/>
+       <br/>
+       Hırslandım, yeniden Marmaris’e gidip kendime tedavi programı hazırladım. Öyle güzel uyguladım ki 4., 5. günde yemek yiyebildim. 9. gün ayaktayım. Cin gibiyim. 10. gün yeni bir kriz bastı. İki saat titredim. Bilincim yok. Tek gözlü canavarlar görüyorum. Elinde şırınga yaklaşıyorlar. O anda birisi sakin ol diye dokunmaya kalksa gittim. Hemen öleceğim. Manevi dayımın bir tanıdığı bu krizleri biliyormuş. O evdekileri uyarmış; aman sifonu dahi çekmeyin, lambalara dokunmayın demiş. Onun yardımıyla mutlak bir ölümden döndüm.
+       <br/>
+       <br/>
+       —İğneye ne zaman başladın?
+       <br/>
+       <br/>
+       Eroinsizlikten bunalımdayım. Annemi arıyorum, onun sevgisine ihtiyacım var. Ama babam telefona çıkmaya hazır olmadığını söylüyordu. Annemin beni sevmediğini düşünüyordum. (Oysa zavallı annem benim yüzümden kalp hastası olmuş, bana söylemiyorlar.) 30 tane hap aldım. Sarhoş olup kendimi denize attım. İçmelerin oradaki tehlikeli bölgede girdaba doğru yüzdüm. Kurtarmışlar. Dostlarım yardım etti, moral verdiler. Artık eroin kullanmıyordum.
+       <br/>
+       <br/>
+       Manevi dayım ailemi arayarak müjdeli haberi verdi. Hep birlikte İstanbul’a geldik. Otogarda babam karşıladı. Hemen kızımı (köpeğimi) sordum. Ağlamaya başladı. Kızım, intihara kalkıştığım gün kendini iki kez arabanın altına atmış ve ölmüş. Babamın güllerle donattığı mezarının başında, sabahlara kadar ağladım. Bu acıyla damardan almaya başladım.
+       <br/>
+       <br/>
+       Dergâhta bir eroinman!
+       <br/>
+       <br/>
+       —Ruhsal durumun nasıl?
+       <br/>
+       <br/>
+       Beklenen yarınlar kaybolmuş dünden/Ümitler selamı kesmişler benden/Nasılsa hayır yok gelecek günden/Kadere rest çektim isyanlardayım...
+       <br/>
+       <br/>
+       —İsyan etmek neyi çözüyor?
+       <br/>
+       <br/>
+       Dua da ettim. Bazı tanıdıkların teşvikiyle ailemle birlikte Adıyaman’a Menzil Dergahı’na gittik. Türbede dua ederken gözyaşlarımı tutamadım. Çevremdeki insanlar “Ulan biz yıllardır geliyoruz gözyaşı dökemiyoruz, şu açık kıza bak” diyerek beni seyrediyorlardı. Bayan olduğum için şeyh ile görüşemedim. Babam benim adıma şeyhten tövbe aldı. Ben de Rabia Ana’dan tövbe aldım. Rabia Ana “İnşaallah kurtulacaksın” dedi. Dua ettik, sekiz şartı yapıp tövbe ettik. Menzilden dönerken beynim o kadar karışık ki... Bir tarafta köpeğim, ortada şeytan (eroin). Yolda şeytan uyandı. Bu sefer çok kararlıydım. Eroinsiz sekiz ay geçti. Ailem gerçekten inandı. Namaz bile kılmaya başladım. Doğum günümde bana sürpriz yaptılar. Tüm aile ablamlarda toplandı. Bana bir doğum günü pastası hazırlamışlar. Üzerine 24 yerine sıfır yazmışlar. Annem ilk kez orada sarıldı bana. (Ağlıyor).
+       <br/>
+       <br/>
+       —Mutlu son mu?
+       <br/>
+       <br/>
+       Keşke öyle olsaydı! Bir gün aniden hosteslik zamanından tanıdığım kız arkadaşım aradı. O...pu’nun tekidir... Beynimde şimşekler çaktı. Dayanamadım evine gittim. Kapıdan içeri girer girmez kokusunu aldım. Bu ısıtılan tam olarak iyi kaliteli bir maldı. Hemen çektik, kafayı bulduk. O lanet  şey yine kanıma girdi.
+       <br/>
+       <br/>
+       —Tünelin sonuna gelmişsin. Neden?..
+       <br/>
+       <br/>
+       Bu yaşadığım kötü bir düş gibiydi. Bu olaydan sonra ailemle olan tüm bağlarım koptu. Ailemi kaybettim. Üç kız arkadaşla Fatih’te yaşamaya başladık. Beyoğlu Şanzelize Bar’da konsomatrislik yaptık. Mal parası için sabaha kadar çalışıyor, sarhoşların kahrını çekiyoruz. Aramızda kötü olaylar oldu. Ayrıldık.
+       <br/>
+       <br/>
+       Yeniden hostesken tanıdığım kızın yanına döndüm. Birlikte yaşamaya başladım. Ben çok güzel olduğum için beni pis işlere zorladı. Sırtımdan geçinmeye başladı. Beni ezdi, dövdü, iftira attı, aşağıladı. Sırtımdan dünyaları kazandı. En sonunda ayrıldım onun yanından.
+       <br/>
+       <br/>
+       Param yok, gidecek yerim yok. Banklarda, kömürlüklerde yattım. Denize düşen yılana sarılırmış. Eskiden beni sevdiğini söyleyen erkek arkadaşın evine gittim, bir ay orada kaldım.
+       <br/>
+       <br/>
+       Altın vuruş yaptım
+       <br/>
+       <br/>
+       —Biraz da esiri olduğun aşkından bahsedelim istersen. Rekorun nedir, altın vuruşu denedin mi?
+       <br/>
+       <br/>
+       Altın vuruşu üç kere denedim. İkisinde kriz halindeydim, damar bulamadım. Biri başarıyla sonuçlandı. Öldüğümü gördüm. Mezara girdim. Ağladılar başımda. Beyin damarım çatlamış. 5 saat sürdü. Kulağımdan ve genzimden kan geldi. Ölmedim.
+       <br/>
+       <br/>
+       - Yanında hiç ölen oldu mu?
+       <br/>
+       <br/>
+       Birgün biri yüksek dozda almış, gidiyor. Hemen tuzlu su bastık, ölmedi. Yine biri şırıngaya mal çekerken pislik kaçırmış, fenalaştı. Pislik çok tehlikelidir. Bu yüzden malı çekerken sigara filitresinden çekeriz. Hemen temiz mal bastım. Temiz mal basınca kendine geldi.
+       <br/>
+       <br/>
+       —Aşkını nasıl terkettin. O günü anlatır mısın?
+       <br/>
+       <br/>
+       Birgün kuaförlük yapan biri bir torbacıyla tanıştırdı. Bu benim son torbacım oldu. Beni sevdiğini söylüyordu. Malı ondan alıyordum. Fakat beni dövüyor, aşağılıyordu. Mal uğruna nefreti, kini içime yazıyor, sabrediyordum. O gün yine bir kavga oldu. Bana ‘kaşarlanmış k..pe’, ‘namussuz’ dedi. Yüzüme tükürdü. İşte bu filmi koparttı. Çünkü eroin benim kişiliğimi asla yok edemedi. Ben kişiliğini kaybeden insanları gördüm. Anasını, babasını, bacısını satıyor. En önemli kavramlar onun için bitmiş. Var olan tek şey toz. Bulacak, içecek, uçacak.  Fakat hayat dolu olan bir insanı ezdiler, hırpaladılar, aşağıladılar, sırtımdan geçindiler, gururumu ayaklar altına aldılar. Hayata küstürdüler beni. Namus-eroin-kriz üçgeninde kaldığımda ben namusu seçiyordum. Ama... Bedelini ağır ödedim. Herşeyimi bırakıp çıktım o bataklıktan. Yanımda sadece beş günlük tozla. Bir dostumun “Bir gün kurtulmak istersen buraya gelebilirsin” dediğini hatırladım. Taksiye bindim. Tekerlekler döndükçe o bataklıktan gerçekten uzaklaştığımı hissettim.
+       <br/>
+       <br/>
+       -Ailenden haber alıyor musun?
+       <br/>
+       <br/>
+       Yıkılmışlar. Annem kalp hastası oldu. Babam aklını yitirmek üzereymiş. Hepsini bitirdim.
+       <br/>
+       <br/>
+       —Türkçen iyi olmadığı için sanırım bazı şeyleri yeterince anlatamadın. Kendini bir filmle, şarkıyla, ya da kitapla anlat desem hangisini seçersin?
+       <br/>
+       <br/>
+       Beşinci Element derim. Çünkü orada aranan beşinci element sevgiydi. Ben de hayatım boyunca hep beşinci elementi aradım aradım.
+       <br/>
+       <br/>
+       —Sen tıp eğitimi almış birisin. Eroinin içinde böyle bir element var mı?
+       <br/>
+       <br/>
+       Yok. (Ağlıyor) Yine de dünyanın bir yerinde benim için bir sevgi var. Buna inanıyorum.
+       <br/>
+       <br/>
+       —Elini uzatıp yardım etmek isteyen insanlar sana güvenebilir mi?
+       <br/>
+       <br/>
+       Başka şansımın olmadığını biliyorum. Öleceğimi biliyorum. Zamanımın daraldığını biliyorum. Ben inançları olan bir insanım, Allah’a kendimi affettirmeden ölmek istemiyorum. Beş günlük eroinim var. Beşinci günün sonunda büyük krize gireceğim. En son krizim 2 saat 32 dakika sürdü. Bu 3 saati aşacak. Buna da insan bedeni dayanmıyor. Torbacılar bunu bildikleri için durmadan beni arıyor. Mal vermek istiyorlar. Buna rağmen o bataklığa dönmeyeceğim. Kriz anında hastanede olursam yaşarım. Yoksa burada... Bana son bir şans verin. Lütfen... (Ağlıyor)
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13818), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175633/http://www.aksiyon.com.tr:80/detay.php?id=13818)

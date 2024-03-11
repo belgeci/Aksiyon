@@ -1,0 +1,58 @@
+# Tekirdağ’da gergin bekleyiş
+
+*Muhammet Katiboğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050301162104im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050301162104im_/http://www.aksiyon.com.tr/resim/413/56.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sedat Peker'in gözaltına alınmasıyla başlayan olaylar, birkaç yıl önceki Çakıcı-Nuriş hesaplaşmasının işaretlerini taşıyor. Kavga senaryosunu bir siyasetçi ve bir gazete sahibinin yazdığı söyleniyor. “Onu mermi manyağı yapacağım” sözüyle başlayan hesaplaşma, o alemin en kanlı hesaplaşmalarından biriydi; hesabı hâlâ kapatmış değiller.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Karagümrük Çetesi lideri Nuri Ergin (Nuriş), bu sözü, zamanın en büyüğü Alaattin Çakıcı için sarfettikten sonra karşılıklı hem laf, hem kurşun atma yarışı başlamıştı. “Anafor kolpacı, şerbeti posalanmış şambabası, voltajı düşük sihirli lamba, erozyona uğramış garip göçebegiller” gibi garip deyişler âlemin tarihine kanla ve kurşunla kazındı. Sonuçta Çakıcı belki mermi manyağı olmadı ama, âlemdeki tahtından olduğu kesin.  Nurişler’in küçüğü Vedat Ergin geçtiğimiz günlerde, ağabeyinin Çakıcı için söylediğiyle benzer mealde bir sözü, bu kez Sedat Peker için söyledi: “Onu travesti yapacağım”.
+   <br>
+    <br>
+     Raconun gerektirdiği “delikanlı terbiyesi”ni epey zorlayan bu ifadelere Peker, kamuoyunun kendisinden beklemediği derinlikte felsefî bir cevap verdi: “Bir Kızılderili atasözü vardır: ‘Tanrım, düşmanıma akıl, bilgelik, cesaret ve onur ver. Çünkü savaşım sonunda galip gelirsem, galibiyetimden dolayı utanmayayım’. Ben düşmanlarım için bile bu dilekleri Yüce Allah’tan dilerken, bazı güçler tarafından bana düşman edilmeye çalışılan kişilerin bu şekilde kelimeler kullanacaklarına inanmıyorum. Ölümler kutsaldır ama bu atasözünde olduğu gibi soyluca ve onurluca olmalıdır”. Bu sözlerin, meydan okumaya, daha üst düzeyden bir meydan okuma olduğu kesin.
+     <br>
+      <br>
+       Görünen olaylar, önceki hafta, Peker’in İbrahim Tatlıses’le birlikte İstanbul Akmerkez’de gözaltına alınmasıyla başlayıp, üç gün sonra da tutuklanmasıyla kapandı. Fakat perde arkasındaki gelişmelere bakılırsa asıl gelişmeler bundan sonra olacak gibi. Çakıcı ile Nuriş’in hangi güçlerce ve neden “dövüştürüldüğü” sorusu hâlâ net olarak aydınlanmamışken, bu kez aynı Nuriş, Peker’le arenaya sürülmeye çalışılıyor. Olası çatışma Nurişler’in yok olmasıyla mı, Peker’in tahtından inmesiyle mi sonuçlanır bilinmez ama kesin olan bir şey var ki, o da Türkiye’nin Çakıcı—Nurişler kanlı hesaplaşmasının ardından, ondan daha büyük çaplı bir çatışmanın eşiğinde olduğu.
+       <br/>
+       <br/>
+       Peker’in tutuklanması, kendisi için  rutin bir gelişmeydi; zira bu ilk alınışı değildi. Fakat bu seferkinde bir sıradışılık olduğuna dair ilk işaret, sanık/tanığın mahkemede ifade verdiği sırada düşüp bayılması oldu. Hemen akabindeki ikinci ilginç olaysa, Peker’in, Vedat Ergin’in tutulduğu Tekirdağ Cezaevi’ne konulmasıydı. Sümerbank Deri Kundura Fabrikası eski Müdürü Ali Osman Karar’ın öldürülmesi olayına karıştığı iddiasıyla kardeşi Soner Kuştemir’le (28) birlikte gözaltına alınan Ersin Kuştemir (30), Peker’in olayla ilgisi konusunda İstanbul DGM’de tanık olarak dinlendi. Günlerce süren ısrarımız sonunda Aksiyon’a konuşmaya razı olan Soner Kuştemir,  çok ilginç açıklamalarda bulundu.
+       <br/>
+       <br/>
+       Gözaltı sonunda kardeşlerden Ersin, garip bir şekilde, Nuri Ergin’in bulunduğu Edirne Cezaevi’ne gönderilirken, Soner serbest bırakıldı. Kuştemir, “Abime bir hap verildiği ya da vücuduna beyin kontrolünü yok eden, hatta onu kontrol altına alan bir şey enjekte edildiği kanaatindeyim” diyor. Nedenini sorduğumuzda verdiği cevap, Peker olayının sadece sıradan bir tutuklanma olmadığı yönünde ilginç ipuçları içeriyor: “Sedat Peker’le geçmişten kalan meselelerinden dolayı birileri plan kurmuş. Bizi de bu plana alet ettiler. Bilmediğimiz kişiler, bilmediğimiz hesapları için ailemizi arenaya attı. Hayatımızdan endişeliyim. Gözaltındayken abimi başka yere aldılar, sonra yanıma getirdiler; vücudu ve kafası balon gibi şişmişti. Şuuru bozuktu, sürekli sabit bir yere bakıyordu. Psikolojik bir problemi olduğunu anladım.”
+       <br/>
+       <br/>
+       Ağabeyinin ifade metninde Peker’i tanıdığı, okul arkadaşı olduğu şeklindeki beyanına da değinen Kuştemir, “Bu mümkün değil. Ne abim, ne ben, ne de ailemizden hiç kimse Peker’i hayatımızda bir kez görmüş, tanışmış değiliz.” şeklinde konuşuyor. Peker’in avukatı Bülent Kılıç, mahkemede bayılan Kuştemir için hem savcının, hem kendisinin kan tahlili istediğini, ancak bunun yapılmadığını belirtiyor: “Ersin’e şuur bozucu hap verildiği belliydi. İçerde ifade verirken düştü. Hemen tahlil istedik. Önce Şişli Etfal’e götürüldü. Koskoca hastanede ne hikmetse basit bir tahlil yapılamadı. Ardından savcı Adli Tıp’a götürülmesini istedi. Orada da tahlil yapılmadı. Biz DGM’ye döndük, Ersin iki saat bilinmeyen bir yere götürüldü ve ardından getirilip 8 sayfa ifadesi alındı. Vücudu balon gibiydi, şuuru bozuktu. Böyle birinden alınan ifadenin hukuken geçersiz olması gerekir”.
+       <br/>
+       <br/>
+       Garip hapishane eşleşmeleri, gelişen olayların en ilgi çekici yanlarından biri. Peker, Vedat Ergin’in yanında, Ersin Kuştemir’se Nuriş’in. Annesi, geçtiğimiz günlerde Edirne Cezaevi’ndeki Ersin Kuştemir’le görüştü. Kuştemir, annesine, “Nerede, ne ifade verdiğimi hatırlamıyorum. Beni burada öldürecekler” demiş. Tekirdağ polisi bugünlerde çok sıkıntılı. Çünkü kentte iki tarafın adamları tarafından “yığma” yapılıyor. Peker ve Ergin’in ziyaret günleri farklı zamanlara alındı, ama bu çatışmayı önlemek için yeterli değil. Zira, hapishane çevresinde ve kent içindeki herhangi bir karşılaşma, kanlı şekilde sonuçlanabilir.
+       <br/>
+       <br/>
+       Bütün bu şüpheli gelişmeler, hemen akla, “Niçin ve kim?” sorusunu doğal olarak getiriyor. Sorunun cevabına ilişkin ilk ipucu, Peker’in hapishaneden avukatı Kılıç aracılığıyla yaptığı açıklamada göze çarpıyor. Peker, kendisine bazı siyasilerin komplo kurduğunu ileri sürüp, “İlerleyen günlerin bu komployu kuran siyasetçilere neler getireceğini hep beraber göreceğiz” diyor. Bu cümledeki “ilerleyen günlerin siyasetçilere ne getireceği”nden Peker’in kastı, ya “3 Kasım’da sandığa gömüleceksiniz, yoksunuz” anlamına geliyor, ya da onlarla kendi yöntemlerince hesaplaşma hazırlığında.
+       <br/>
+       <br/>
+       Geçtiğimiz günlerde bazı basın organlarına geçen bir faks, yukardaki sorunun cevabını tamamlıyor gibi. Kendisine “resmi bir devlet görevlisi” diyen faksın sahibi, bir siyasetçi ve onun akrabası ile bir gazete sahibinin Peker—Nuriş kavgasının senaryosunu hazırladığını iddia ediyor. Bunun sebebinin, bir partide yaşanan istifaların sorumlusu olarak Peker’in görülmesi olduğu belirtilen notta, Ersin Kuştemir’in, gönderildiği Edirne Hapishanesi’nde öldürülebileceği, bunun da Peker’e mal edilebileceği ifade ediliyor.  Nuriş kardeşlerin ikisi de hapisteler; uzun cezalar aldılar. Buna rağmen, Sibel Can olayından itibaren duyurdukları adları, daha uzun zaman gündemde kalacak gibi. İçerde olmalarına rağmen, dışardaki “işleri” ve namları yürüyor. Peker’e gelince... Çıkış noktası bugün mafya denilen kabadayılar âlemi olan Peker, kendisi hakkında yapılan “mafya” nitelemesinden çok rahatsız. Bunun altında Peker’in, işadamlığı ve dava adamlığı misyonuna bürünme niyeti/girişimi yatıyor. Finanse ettiği ozturkler.com sitesi, Türk dünyasına yönelik. Sebebi ne olursa olsun Nurişler’le girişilecek bir kanlı çatışma, Peker’in “dönüşüm ve ideal” niyetini büyük sekteye uğratacak, onu “mafya” tanımlamasının içine hapsedecek. Bu yüzden bugünlerde, Peker adamlarına, “Sakin olun, biz kavga değil, sevgi adamıyız” mesajı gönderiyor.
+       <br/>
+       <br/>
+       Türkiye’de uzun yıllardır dikkat çekici bir gelenek yaşanıyor. Hemen her alanda geçerli olan bir uygulama bu: Çok büyüyen, bir numaraya yükselenleri, karşısına rakip çıkartarak yok etmek, o olmazsa yıpratıp küçültmek.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2071), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301162104/http://www.aksiyon.com.tr:80/detay.php?id=2071)

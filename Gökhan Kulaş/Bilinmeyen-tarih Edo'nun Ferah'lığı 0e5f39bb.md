@@ -1,0 +1,67 @@
+# Edo’nun Ferah’lığı
+
+*Gökhan Kulaş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092922im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092922im_/http://www.aksiyon.com.tr/resim/345/44.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sıcak yaz aylarının vazgeçilmez serinleticisi dondurma, dünyanın ve Türkiye’nin  her yerinde üretiliyor ama Kahramanmaraş’ta üretileni bir başka.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bir dondurmanın damağınızda bırakabileceği maksimum tadı hissedeceğiniz Kahramanmaraş dövme dondurmasını, bir kez yediğinizde kolay kolay diğer dondurmaları yemeniz mümkün değildir.
+   <br>
+    <br>
+     Kahramanmaraş dondurması tadı kadar dayanıklı ve güçlü yapısıyla da çoğu kez gazete ve televizyonlara haber konusu olmuştur. Bir otomobili, traktörü, hatta bir kamyoneti kaldırırken veya satır, balta, motorlu testere ile kesildiğini gördüğünüzde şaşkınlıkla izlemiş ve işin içinde hile olabileceğini düşünmüşsünüzdür. Ancak Kahramanmaraş dondurmasının ağızlarda bırakdığı o reyhan ve kekik kokulu, olabildiğince doğal tadının yanısıra, şovlara konu olan dayanıklılığı önemli bir özelliği. Hatta bu tür şovlar dondurmanın Maraş dondurması olduğunun tescili sayılıyor.
+     <br>
+      <br>
+       Gizemini ve sırrını koruyor
+       <br/>
+       <br/>
+       Bugün Kahramanmaraş’ta ve Türkiye’de hakiki dondurma ustaları bir elin parmaklarını geçmeyecek kadar az. Bu sayının azlığı  çoğunlukla aile fertlerinden oluşan çırakların, uzun yıllar içinde öğrendikleri incelikleri bir sır gibi korumasından kaynaklanıyor. Gizemini koruyan formül, içine katılanlardan ziyade bu karışımların zamanı ve miktarında saklı. Bu nedenle iyi bir usta sütün ne zamana kadar kaynayacağını, hangi salebin ne miktar atılacağını ve ne kadar yoğurulacağını çok iyi bilmekte.
+       <br/>
+       <br/>
+       Dondurmayı farklı kılan diğer bir önemli husus ise, şehrin arkasını yasladığı Ahır Dağı’nın yamaçlarında özellikle kekik, orkide, keven gibi rayihalı otlarla beslenen keçilerin sütü ve salep. Gerçek salebi tanımak ve elde etmek bir dondurma ustasının özellikleri arasında.
+       <br/>
+       <br/>
+       Sütün dondurmaya yolculuğu
+       <br/>
+       <br/>
+       Kahramanamaraş’ın ünlü dondurma ustalarından Ferah Pastanesi ve Edo Dondurmaları sahibi Sıddık İnalbars, gelen keçi sütünün eksper tarafından kontrol edilerek sütteki yağ oranının belirlenmesinin ve belirli bir yüzdenin altına düşürülmemesinin sütün dondurmaya olan yolculuğunun ilk adımı olduğunu söylüyor.
+       <br/>
+       <br/>
+       Eksperden aldıkları sütü 90 derece ısıda kaynatarak mikrop ve zararlı mikroorganizmalardan arındırdıklarına dikkat çeken İnalbars, “Daha sonra süte önce salep, sonra da şeker katıp, iyice karıştırıyoruz. Bu karışımı 6—8 saat dinlendirdikten sonra eksi 6 derecede soğutuyoruz. Bu aşamaya gelen dondurmayı önceleri dondurma ustaları elleriyle yoğuruyordu ancak talep fazlalığı nedeniyle yoğurma işlemi için İtalya’dan özel makinalar getirdik. Artık bu makinalarla yoğuruyoruz” diyerek gizemli dondurmanın nasıl üretildiğini anlatıyor.
+       <br/>
+       <br/>
+       İnalbars, sütün fabrikaya girişinden dondurma oluşuna kadar geçen tüm safhaların geleneksel yöntemlerle değil, teknolojiyi bünyesinde barındıran fabrikasyon teknikleriyle el değmeden üretildiğinin altını çizerek, tüketime hazır hale gelen dondurmayı Türkiye’nin dört bir yanına ve bazı ülkelere gönderdiklerini hatırlatıyor. Başta süt olmak üzere karışım maddelerinden ötürü dondurmanın büyük bir besleyici özelliğe sahip olduğunu vurgulayan İnalbars, “Dondurmamız kalsiyum, sodyum, potasyum, fosfor ve demir gibi önemli minerallerin deposu olmakla birlikte A, E ve B vitaminlerini de içeriyor. Ürettiğimiz 100 gram dondurmada yaklaşık 200 kalori var. Ayrıca rejim yapan veya kilo korkusu olan vatandaşlarımız için de diyet dondurma ürettik” diyor.
+       <br/>
+       <br/>
+       Franchising ile ağ genişliyor
+       <br/>
+       <br/>
+       Son yıllarda büyük bir rakebetin yaşandığı dondurma sektöründe, ailenin üçüncü kuşak temsilcisi olan İnalbars, artık Türkiye ve dünyaya açılma zamanının geldiğine inanarak Kahramanmaraş’ta ağabey anlamına gelen ‘Ede’ ile dondurmanın ‘Do’ sunun birleşmesiyle ortaya çıkan ‘EDO’ markasıyla birlikte ilk olarak 1998 yılında Kahramanmaraş dışına bayilikler vermeye başladı. Önce Diyarbakır, Malatya, Adana gibi çevre kentlerde açılmaya başlayan cafeler, daha sonra Marmara ve Akdeniz bölgelerine yayıldı. Kısa sürede Kahramanmaraş merkezdeki Ferah Pastanesi’yle birlikte Türkiye genelinde 16 merkezli Edo Dondurma Cafeleri zinciri oluştu. Türkiye’de yaşanan ekonomik kriz nedeniyle yeni müracaatları askıya alan İnalbars, kendilerine şu ana kadar Türkiye’nin değişik yerlerinden 120 müracaat olduğunu söylüyor. İtalya’da gıda fuarında franchising ile tanışan İnalbars, Türkiye ve dünyaya açılma sisteminin bu yöntem olduğuna inanmasının ardından çalışmalara başlamış. “McDonald, Amerika’dan kalkıp benim ülkeme geliyorsa ben neden Kahramanmaraş’tan dünyaya gitmeyeyim” düşüncesiyle hareket eden İnalbars, Edo markasıyla ürettiği dondurmaları yurtdışına ihraç ediyor. Şu anda yurtdışında ağırlıklı olarak Kuveyt ve Birleşik Arap Emirlikleri başta olmak üzere Macaristan ve Romanya gibi ülkelere ihracat yapan Edo, Yunanistan ile master franchising görüşmelerini sürdürüyor.
+       <br/>
+       <br/>
+       İkinci fabrika camdan
+       <br/>
+       <br/>
+       Her türlü taze meyveden 32 çeşitte üretilen Kahramanmaraş dondurmasına her geçen gün artan talebi karşılamak amacıyla İnalbars, 13 dönüm üzerine ikinci bir dondurma fabrikası yapmayı planlıyor. Dondurmanın formüle edilidiği bölme dışında tamamı cam kaplı olacak fabrikada saatte 3 ton dondurma üretimi yapmayı hedeflendiklerini vurgulayan İnalbars, fabrikanın kısa zamanda bitirileceğini ifade etti. Plan ve program dahilinde düyanın çok deşik ülkelerine Kahramanmaraş’ın dondurmasını yedireceklerini vurgulayan İnalbars, yeni fabrika ile AB’nin istediği kalite standardına ulaşacaklarını belirterek, “AB ülkeleri gıda ürünlerine bazı standartlar koymaları nedeniyle şu anda  Türkiye’den hiçbir firma bu ülkelere dondurma ihraç edemiyor. Bu nedenle biz daha önceden çalışmalarına başlayacağımız yeni fabrikanın projesini değiştirerek, bu standartlara uygun üretim yapacak hale getirdik. Tüm proje çalışmaları tamamlanan fabrikayı yeni bir kriz olmazsa gelecek yıl bitirmeyi düşünüyorum. Yeni fabrika ile birlikte dünya gıda üretim standardı olan HCCP ve ISO 9001 kalite belgeleri alacağız. Böylelikle AB’ye Türkiye’den önce Kahramanmaraş dondurması girecek” diyor. İnalbars, ayrıca internet ve e—ticaret için de çalışmalarının olduğunu, ileriye dönük olarak e—ticaret ile satış yapmayı düşündüklerini ifade ediyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12654), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092922/http://www.aksiyon.com.tr:80/detay.php?id=12654)

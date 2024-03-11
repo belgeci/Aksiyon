@@ -1,0 +1,46 @@
+# Sıcak sıcak tatil
+
+*Şule Altundağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040519070635im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040519070635im_/http://www.aksiyon.com.tr/resim/477/74.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  2. Turizm hamlesi, kültür ve doğa turizminin gelişmesi adına başlatıldı. Ancak termal turizmi ihmal ediliyor. Sektörün gelişmesi için, jeotermal su üretilmesi ve işletme ağırlığının özel sektöre devredilmesi gerekiyor.
+  <br>
+   <br/>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   Güzelleşmek, genç kalmak, sağlıklı olmak, stresten ve şehirden uzak yaşamak, bedenle zihni mümkün olduğunca dinlendirmek…  Tüm bunlar çağımız insanının şiddetle ihtiyaç duyduğu unsurlar. Kaplıcalar ve termal tesisler ise bu ihtiyaçların en kolay karşılığını bulduğu yerler olduğu için dünyadaki kullanımları her geçen gün artıyor. Termaller, arkeolojik bulgulara göre yaklaşık 10 bin yıldır tedavi ve terapi amacıyla insanlığın hizmetinde. Şifalı kaynakların bünyesinde, eriyik halde demir, kükürt, kireç, magnezyum, potasyum, sodyum ve silist gibi madeni tuzlar bulunuyor. Termaller, romatizmadan ağrılı metabolizmal hastalıklara, kalp, kan dolaşımı ve damar sorunlarından eklem kireçlenmelerine, sinirsel rahatsızlıklardan, sindirim ve deri hastalıklarına kadar birçok tedavide olumlu sonuç verebiliyor. Bu anlamda termal turizm, üçüncü kuşak tabir edilen orta yaş üstü yerli ve yabancı turistler için de potansiyel sağlık kaynağı. Yani, başlatılan 2. turizm hamlesinin, yılda azami 17-40 milyar dolar arasında ek gelir sağlayabilecek kapasitedeki bu sektörü es geçmemesi büyük önem arz ediyor. Çünkü 6 yılda turizmden 30 milyar dolar toplam gelir hedefleyen devlet, bunun çok fazlasını verimli kullanımla termal turizminden sağlayabilir.
+   <br/>
+   Ancak termallerden yeterince yararlanılmadığı uzun süredir tartışma konusu. Örneğin, İzmir’de, geçtiğimiz turizm sezonunda -şehrin “termal turizm” potansiyeli olmasına rağmen- yatırım ve tanıtım eksikliği nedeniyle istenen gelir sağlanamamış. Türkiye Sağlık Turizmi Derneği Başkanı Dr. Sinan İbiş, devletin turizm programında termal turizminin yer almadığını söylüyor. Ayrıca termal kaynaklar bilinçli ve çok yönlü kullanılamıyor. İbiş, “Artırılması gereken termal kür tesislerinin yanında, kapısında bilet kesilen, etrafı parsellenmiş her kaplıca tesisten sayılıyor. Termal sular, milli gelire katkı sağlamak yerine devre mülklerin banyolarına taşınıyor” diyor. Termal enerjiden ısıtma amacıyla faydalanma oranı ise yüzde 10’u geçmiyor. Bu yolla 1 milyon 600 bin konutu ısıtmak mümkünken bu rakam 50 bin konutta kalıyor.
+   <br/>
+   Türkiye’de henüz işlenmemiş bin 800’e yakın termal su kaynağı bulunuyor. Boşa akan termal su ise, yetkililerin dikkat çektiği önemli bir kaynak israfı. Bu durum acilen uygulanacak bir “termal turizm politikası”nı gerektiriyor. Dünyada, Japonya’daki 1500 adet kaplıcada, yılda 100 milyon kişi kaplıca turizminden faydalanırken, Türkiye’de bu rakam yılda ancak 7 milyon yerli, 10 bin de yabancı turiste ulaşabiliyor.
+   <br/>
+   Türkiye, termal su zengini
+   <br/>
+   Dünya ülkeleri arasında, coğrafi oluşumun da etkisiyle kaynak zenginliği bakımından ilk 7’nin içinde yer alan Türkiye’deki termal sular, fiziksel-kimyasal özellikler ve sıcaklık açısından Avrupa’daki termal sulardan daha üstün nitelikte. Bugün 240 adet halihazırda faydalanabildiğimiz kaplıca var. Ayrıca bazı termal tesislerin ekonomik getirisi, deniz - güneş-kum üçlüsünden ortalama 2 kat daha fazla. Çünkü tedavi amaçlı döviz harcaması, uzun süreli ve yerleşik turizm faaliyetini gerektiriyor. Bir de, termal suyun denizle birleştiği, her kuşaktan insana hitap eden, aile turizmine yönelik özel alanlar da ülkemizde mevcut. Çeşme, Kuşadası, Bodrum, Köyceğiz, Edremit, Dikili, Güre, Aliağa bunlardan bazıları. Dr. Sinan İbiş, termal tesis kür merkezlerinin ve tedavide bütünlük sağlayıcı paket kür programlarının uygulanması gerektiğini söylüyor.
+   <br/>
+   Jeotermal Derneği’nin verilerine göre, Türkiye’de kaplıca amaçlı olarak 50 bin litre/saniye jeotermal su kaynağı üretilmesinin karşılığı sınırsız termal yatak kazanılabilir. Bu da kaplıcalardan günde 8 milyon kişinin yararlanması gibi bir sayı demek. AB’ye girdiğimizde ise bu rakamların oldukça artması bekleniyor. Dernek yetkilileri, 2020 yılında, şu anda 40 bin olan yatak kapasitesinin 1 milyona çıkarılmasını, 10 bin olan yabancı turistin de 1 milyona çekilmesinin hedeflenmesi gerektiğini söylüyor. Yerli turist sayısının ise 30 milyonu bulması hedeflenmeli.
+   <br/>
+   Termal tatil köyü yolda...
+   <br/>
+   Türkiye’de termal turizminin önemini fark eden kuruluşlar da kompleks işletmeler açıyor. Yapımı devam eden Asya Kızılcahamam Termal Tatil Köyü de bunlardan biri. Asya Finans’ın köy projesi, sağlık turizmi alanındaki yatırımcı kuruluşlara örnek olacak nitelikte bir işletme. Kuruluşun pazarlama koordinatörü Gafur Kahraman, sahil ve deniz ağırlıklı tatile alternatif olması amacıyla, “Dağ turizmi, kültürel turizm ve en önemlisi hep ihmal edilen sağlık turizmi bugün herkes için önemli. Bu projemizle devre mülk anlayışını kökten değiştirecek bir sistem getiriyoruz. Yurt dışındaki örnekleriyle karşılaştırarak ve yenileyerek köy projemizi geliştirdik” diyor. Asya Kızılcahamam Termal Tatil Köyü, tamamlandığında 300 kişiye istihdam sağlayacak. 2004’e bitecek olan köy, 230 dönümlük arazide, ev, kültür ve ticaret merkezi, termal havuzlar, tedavi üniteleri, park ve spor alanları, çocuk eğitim merkezi, restoran ve kafeteryaları kapsıyor. Avrupa’da yaşayan vatandaşları da hedefleyen tatil köyü, beden ve ruh sağlığını korumaya yönelik ve “insana yatırım” anlayışıyla hazırlanıyor.
+   <br/>
+   “Şifalı Turizm” nasıl gelişir?
+   <br/>
+   Türkiye’de kaplıca turizminin yol alması için, devletin temel attığı işletmelerin yükünü özel sektörün devralması gerekiyor. Özellikle yerel yönetimlerin, tecrübe, sermaye, vasıflı eleman ve tanıtımda sınırlı olanaklara sahip oluşu, mevcut tesislerin gelişmesine engel oluyor. Kaynak havzalarının korunması, yanlış imar planlarıyla kirletilmemesi de ayrı bir yükümlülük. Yoksa bugün Pamukkale’nin başına gelenler, yarın bir başka termal kaynağın başına rahatlıkla gelebilir. Bunda da hukuki düzenlemelere gidilmesi isteniyor. Dünya ülkeleri termal yatırımları teşvik ediyor. Hatta Vatikan’da bir “Termal Sanatlar Akademisi” bile kurulmuş.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11079&yorum=963), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040519070635/http://www.aksiyon.com.tr:80/detay.php?id=11079&yorum=963)

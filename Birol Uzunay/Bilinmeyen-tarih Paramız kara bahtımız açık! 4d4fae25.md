@@ -1,0 +1,145 @@
+# Paramız kara bahtımız açık!
+
+*Birol Uzunay Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093407im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093407im_/http://www.aksiyon.com.tr/resim/358/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye ekonomik krizin ve coğrafyasında çıkan savaşın etkisiyle çıkılmaz sokaklara doğru ilerliyor. Ankara kulislerindeki “kara paraya ve kayıt dışına kısmi izin” fısıltıları raporlara, önerilere yansımaya başladı bile..
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   IMF’nin baskısı, Zekeriya Temizel’in “kayıt altına alma” hevesi ve Susurluk Çetesi’nin dağılmasıyla ekonominin daraldığını söyleyenler, Afganistan Savaşı’ndan sonra çok daha dertli. Amerika, Afganlıların tek gelir kaynağı olan uyuşturucu trafiğini kesmek istiyor ve bu istek Afgan kökenli uyuşturucunun bir bölümünü taşıyan Türkiye için 5—10 milyar dolar demek!
+   <br>
+    <br>
+     Maliye Bakanlığı’na 1 Eylül günü ulaşan “çok gizli” bir raporda Türkiye’nin kara para ve kayıt dışı para organize suçlarının kapsamına girdiğini, bu durumun da sosyal yapıyı tahrip edeceği vurgulanıyordu.
+     <br>
+      <br>
+       Bir başka cephede ise hazırladığı raporlarla hükümet politikaları üzerinde önemli ölçüde etkili olan “ağır bürokrat” da hazırlattığı raporu, Hüsamettin Özkan aracılığıyla sunmaya çalışırken “küçük bir sorun “ ile karşılaştı: IMF direktifleri.. IMF, baskılarını artırarak, Türkiye’nin kara para mücadelesi için ayak direttiği Avrupa Sözleşmesi’ni imzalattı.
+       <br/>
+       <br/>
+       Rapor savaşlarının yaşandığı hükümet çevreleri ikiye ayrılmış durumda. Bir yanda IMF baskıları ve son 4 yılda “kara para ve kayıt dışı” ile mücadelede belirli mesafe alındığını, tüm zorluklara rağmen taviz verilmemesi gerektiğini söylüyor. Kulislerin diğer tarafı ise, gizemli raporu hazırlayan bürokrat gibi, verilecek küçük tavizlerin sonunda ekonominin rahatlayacağını iddia ediyor. Bu kesimin örnek aldığı model ise iyi biliniyor: PKK mücadelesinde ve Körfez Krizi’nden sonra Turgut Özal’ın kara paraya ve kayıt dışına yaptığı göz kırpmalar...
+       <br/>
+       <br/>
+       Bugünlerde dış borç ödemelerinde önemli aksamalar oluyor ve kriz üretime büyük darbeler vurmuş durumda. Geçmişteki döviz darboğazları “göz yummalarla” geçiştirilmişti. Bugünkü döviz darboğazının ise nasıl geçiştirileceğini ise Afgan Savaşı’nın geleceği belirleyecek.
+       <br/>
+       <br/>
+       Darbeleri önlemek için daha çok döviz
+       <br/>
+       <br/>
+       1980’li yıllara kadar 30 yılda üç darbe yaşayan Türkiye, darbe sebebi olarak döviz darboğazlarını görüyordu. Özellikle Turgut Özal, döviz darboğazından çok korkuyor ve ülkenin bir darbe daha görmemesi için her türlü yolu denemek istiyordu. Ekonomiye para girişi sağlayacak yolları açmak için de İsviçre’de Berber Yaşar ve Şekerciyan gibi kara para uzmanlarıyla görüşmüştü. Kendisine itiraz etmek isteyenlere çıkışan Turgut Özal “Kara para dediğin olmasın bu ülke batar. Bak İtalya nasıl bu sayede kurtardı. Akdeniz havzasında bu olmazsa ekonomi biter” diyordu.
+       <br/>
+       <br/>
+       Türk parasını koruma kanunu ve kaçakçılıkla ilgili yasaları rahatlatan Turgut Özal, amacına da ulaşmıştı. PKK mücadelesi ve Körfez Krizi’nin yaraları bu yöntemle önemli ölçüde sarılmıştı. İthalat—ihracat dengesinde açık bulunmasına rağmen Türkiye döviz darboğazına girmedi ve Turgut Özal’ın iddia ettiği bir darbeden de kurtulmuş oldu!
+       <br/>
+       <br/>
+       Terör örgütleri yan etki oldu
+       <br/>
+       <br/>
+       Turgut Özal’ın “kolaylaştırmalarından” sonra Türkiye ekonomisinde bariz bir genişleme sağlandı, bu arada da kayıt dışının ve kara paranın nimetlerinden yararlananlar “gizli zengin” ya da “yeni zengin” olarak çıkmaya başladılar.
+       <br/>
+       <br/>
+       Kara paranın nimetlerinden en çok yararlanan ise PKK oldu. ASALA’dan devraldığı uyuşturucu trafiğini genişleterek uygulayan PKK, örgütün finansmanını da bu yöntemle karşılıyordu. Prof. Dr Mithat Melen’in tesbitlerine göre bu dönemde kara para kumarhanelerde, döviz bürolarında ve bankalarda aklandı.
+       <br/>
+       <br/>
+       Susurluk Komisyonu Raporu’na göre kara paranın Türkiye’deki miktarı 50 milyar dolar. Amerikan DEA kuruluşuna göre de miktar aynı. Yine bu dönemde ulusal gelirin görünenin iki katı olduğu belirtilirken, Van ve Lice başta olmak üzere doğuda birçok ilin finansmanında kara para kaynakları kullanıldığı biliniyordu.
+       <br/>
+       <br/>
+       Başka bir görüşe göre ise kara para Türkiye’den sadece geçiyor ve geçişin bedeli olarak da 5 milyar dolar para bırakıyordu.
+       <br/>
+       <br/>
+       Dr. Sedat Yetim’in araştırmasına göre Türkiye’nin suç ekonomisinin yıllık cirosu 60 milyar dolar. Ödemeler dengesinde “ diğer” ibaresinin altına saklanıyor. Net hata ve noksan ibaresi de bir başka can kurtaran. İthalat ihracat dengesini koruyamayan bir Türkiye’de, dış ticaret açığı bir türlü döviz açığına yol açmıyor. Dış ticaret açık veriyor, sermaye hareketleri hiç de tehlikeli değil.
+       <br/>
+       <br/>
+       Bankalar paraları akladı ve batırıldılar!
+       <br/>
+       <br/>
+       PKK’nın ve devlete “kafa tutan” zenginlerin türemesi Turgut Özal’ın politikalarını zamanla tartışılır hale getirdi ve 1996 sonrasında 80’li yıllarda verilen bütün tavizler tek tek geri alınıyordu. İlk amaç PKK’nın en önemli gelir kaynağı olan uyuşturucu trafiğini durdurmak ve sistem karşıtı işadamlarını bitirmekti.
+       <br/>
+       <br/>
+       Türkiye’nin kara para ve kayıt dışı ekonominin üzerine gitmesinde iç dinamiklerinden ziyade IMF ve Dünya Bankası zorlamaları çok daha etkili oldu. Prof. Dr Mithat Melen’e göre uluslararası kuruluşların yaptığı baskının altında Türkiye’de sisteme giren kara paranın uluslararası sisteme geri dönmemesi yatıyordu. Melen’e göre uluslararası çevreler Türkiye’deki aklama işleminden pay almak istiyorlardı.
+       <br/>
+       <br/>
+       Kara paranın ve kayıt dışı kazancın en iyi aklanması ise banka sahibi olmakla mümkündü ve Türkiye’de kara paranın üstüne gidilmeye başlandığı 96’dan itibaren banka piyasası bir anda hareketlendi. En kötü bir bankanın 70 milyon dolardan başladığı bir piyasayı Mithat Melen “aklamanın son halkası” olarak açıklıyor. Bu dönemde önemli ölçüde para aklayan bankaların hemen hepsi bugün “batık” konumunda.
+       <br/>
+       <br/>
+       Susurluk Çetesi ve ekonomi...
+       <br/>
+       <br/>
+       Susurluk Çetesi’nin çökertilmesiyle ekononiminin darboğaza girdiğini söyleyenler, kısmi olarak yeniden eski günlere dönülebileceğini savunuyorlar. Türkiye’nin kara para işine girmediğini, sadece göz yumduğunu, bu yöntemi de birçok ülkenin uyguladığını söyleyen çevreler IMF’den yeteri kadar  para gelmeyeceğini de savunuyorlar.
+       <br/>
+       <br/>
+       Kayıt altına alma isteğinin Türkiye’ye 40 milyar dolara mal olduğunu iddia edenlerin en büyük kozları ise Afganistan—ABD savaşının getireceği yeni krizler oluyor.
+       <br/>
+       <br/>
+       Geçtiğimiz hafta imzalanan Avrupa Sözleşmesi’yle şüpheli kişilerin üçüncü kişiler üzerine yaptıkları mallara el konuluyor ve ispat edilemeyen her gelire el konulabiliyor. Bu durumun Zekeriya Temizel politikalarının bir sonucu olduğunu ve ülkeyi daha da zor durumda bırakacağını belirtiyorlar.
+       <br/>
+       <br/>
+       Liberal Parti Genel Başkanı Besim Tibuk, kara paranın Türkiye’de abartıldığını, bugünkü rakamın gerçek değerinin ancak 250—300 milyon dolar seviyesinde olduğunu belirtiyor.
+       <br/>
+       <br/>
+       Türkiye geçişinin geleceği karanlık
+       <br/>
+       <br/>
+       Türkiye son 5 yılda kara para ve kayıt dışı ekonomiyi engellemek için önemli mesafeler katetse de; Afganistan’dan Batı ülkelerine doğru uzayan uyuşturucu trafiğinde de önemli rol oynuyor. Bugünlerin kilit sorusu ise Afganistan’daki savaşın uyuşturucu trafiğini ne ölçüde etkileyeceği. Amerika’nın uyuşturucu trafiğini durdurması ya da başka güçlere terk etmesi sadece Türkiye için değil tüm dünya için önemli. Türkiye’ye 5—10 milyar dolar bıraktığı söylenen uyuşturucu trafiğinin yıllık cirosu ise 150 milyar dolar seviyesinde.
+       <br/>
+       <br/>
+       Avrupa’da yakalanan uyuşturucunun yüzde 75’i, ABD’de yakalanan uyuşturucunun da yüzde 25’i Altın Hilal Bölgesi denilen Pakistan, Afganistan, Bekaa Vadisi’nden çıkartılıyor. Daha çok Orta Asya, Hazar ve Rusya yolunu kullanan uyuşturucu trafiği, zaman zaman Kafkaslar üzerinden Türkiye’ye de giriyor ve Avrupa’da satışa çıkartılıyor.
+       <br/>
+       <br/>
+       5 yıl öncesine kadar uyuşturucu trafiği için güvenli ve rahat bir geçiş ülkesi olan Türkiye bugün yol ayrımında. Savaşın birkaç yıl sürmesi durumunda belli bir gelirden feragat edecek ya da savaş sonunda oluşacak Afgan iktidarının işini kolaylaştırmak için tıpkı eskisi gibi geçişleri görmezden gelecek.
+       <br/>
+       <br/>
+       Fakir ülke Afganistan’ın geçim kapısı
+       <br/>
+       <br/>
+       Son 20 yılda dünyanın en büyük uyuşturucu üreticisi Afganistan, uzmanı olduğu haşhaş ve afyondan sonra eroin ve morfin de üretiyor. Bunun anlamı, Afganistan’da artık laboratuvarlar var ve uyuşturucu sadece hammadde olarak satılmıyor. Taliban’ın afyon imha görüntülerine rağmen Afganistan’da geçen yıl uyuşturucu üretimi 2.5 kat arttı. Bu artıştan da uluslararası uyuşturucu mafyaları kadar 5 Türk Cumhuriyeti, İran, Pakistan ve Türkiye de para kazanıyor.
+       <br/>
+       <br/>
+       Sedat Yetim’in araştırmalarına göre 81—98 arasında sadece yakalanan eroin miktarı tam 44 milyar dolar. Kaçırılanın miktarı ise en az 5—10 kat.
+       <br/>
+       <br/>
+       Dr Sedat Yetim’e göre eroin trafiğinde oluşan gelirin yüzde 90’ını dağıtıcılar alıyor. Üreticiler yüzde 6, işleyiciler yüzde 2, hammadde tedarikçileri ise yüzde 2 alıyor.
+       <br/>
+       <br/>
+       Amerika’nın en büyük müttefiği olan İngiltere’nin Afganistan nefreti sadece 11 Eylül saldırısıyla açıklanmıyor. İngiltere’deki uyuşturucunun yüzde 95’i Afganistan’da üretiliyor. İngiltere 11 Eylül saldırısından önce BM’ye 2.2 milyon sterlin aktarıp, Afganistan topraklarında güvenlik koridoru kurulmasını ve Türkiye’nin de içinde bulunduğu geçiş yolunun denetlenmesini istemişti.
+       <br/>
+       <br/>
+       Taliban’a muhalefet eden Kuzey İttifak Cephesi de uyuşturucu trafiğinin içinde. Kendi bölgelerinde uyuşturucu üreten muhalefetin amacı öncelikle uyuşturucu kaynaklarına sahip olmak ve Türkiye’nin de içinde bulunduğu geçiş yolları için Amerika’dan vize almak.
+       <br/>
+       <br/>
+       Mültecilere göz yum, para kazan!
+       <br/>
+       <br/>
+       Türkiye’nin savaş ortamında ekonomik krizden kurtulması için göz yumması beklenen bir diğer kaynak da insan kaçakçılığı... Fakir ülkeden zengin diyarlara göç etmenin bir bedeli var; bu bedelin cirosu da Avrupa’da 20 milyar dolara ulaşmış durumda. İnsan kaçakçılığı, suç ekonomisinin uyuşturucudan sonraki en büyük gelir kaynağı.
+       <br/>
+       <br/>
+       Türkiye’de yakalanan kaçaklar 1995’te 12 bin iken bu yıl 100 bini aşmış durumda. Özellikle Doğu ülkelerindeki maceracılar Türkiye’den geçiyor. Türkiye’deki insan tacirlerinin dörtte üçünün Türk olması, insan kaçakçılığını içselleştirdiğimizi gösteriyor. Türkiye üzerinden sadece kara ve deniz yoluyla değil, havaalanları kullanılarak da Avrupa’ya ve Amerika’ya insan ihraç ediliyor!
+       <br/>
+       <br/>
+       İnsan kaçakçılığının Türkiye’ye bıraktığı paranın ise şimdilik 150—200 milyon dolar seviyesinde olduğu tahmin ediliyor.
+       <br/>
+       <br/>
+       Hükümetin özellikle DSP kanadı da kumarhanelerin yeniden açılması gerektiğini savunurken; geçmişteki kumarhane kârlarını ballandıra ballandıra anlatıyorlar. Meclis’e tekliflerini sunan DSP milletvekilleri, kumarbazları Balkan ülkelerine kaptırmaktan çok müzdaripler.
+       <br/>
+       <br/>
+       biroluzunay@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12769), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093407/http://www.aksiyon.com.tr:80/detay.php?id=12769)

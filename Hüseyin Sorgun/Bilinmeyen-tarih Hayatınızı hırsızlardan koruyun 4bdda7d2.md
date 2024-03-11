@@ -1,0 +1,69 @@
+# Hayatınızı hırsızlardan koruyun
+
+*Hüseyin Sorgun Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041226003710im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041226003710im_/http://www.aksiyon.com.tr/resim/504/72.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Oscar ödüllü Angelina Jolie’nin başrol aldığı “Hayatın Benim” gerilim ve gizemi sonuna kadar sürdüren bir film.
+  <br/>
+ </font>
+ <p>
+  <font class="content">
+   Mutsuz bir çocukluğun ardından gelişen şizofren kimliğin arkasında, soğuk kanlı bir seri katili gizleyen bir adamın Montreal sokaklarında estirdiği terör, “Hayatın Benim / Taking Lives” adlı filmin konusu. Özellikle kaçış sendromu yaşayan, öfkeli insanların kimliklerini bir süre kullanan, onlar nasıl yaşıyorsa öyle yaşayan ve sonra da onları feci bir şekilde öldüren bir seri katilin cinayetlerinden yola çıkarak olayı çözmeye çalışan ama bu işte aciz kalan Montreal dedektifleri, Illeana Scott’ın (Angeline Jolie) yardımına ihtiyaç duyar. Özellikle metodolojik bilgisinin yanı sıra, sıra dışı güçlerinin de varlığına inanılan Scott’ın denkleme dahil olmasıyla, gerilim dolu bir sürek avı başlar. Av ve avcı konumlarının sürekli yer değiştirdiği filmde değişmeyen bir gerçek vardır ki, o da cinayetlerin feci şekilde işlendiği ve katilin tarzının ölen insanların kimliklerinde gizli olduğudur.
+   <br/>
+   <br/>
+   İlk cinayet ve devamı
+   <br/>
+   <br/>
+   Katilin gençlik yıllarında işlediği bir cinayet, onun öldüreceği kişi ile nasıl bir empatik ilişkiye girdiğinin ipucunu verir. Yol kenarında gördüğü ve askerlikle ilgili şarkılar dinleyen birisinin ölümüne neden olurken, onun yerine geçip, psikolojisini devralmaya başlar. Öldürdüğü insanın kimliğine bürünen ve sadece psikolojik bir empatiyle yetinmeyip, kredi kartı, kimlik kartı ve hobileri ya da mesleği gibi birçok hayati ve sosyal yönünü de devralan katilin, sonraki cinayetlerinin ipucu bu ilk cinayette gizlidir. Bu gizin peşine düşen Montreal polisinin üç dedektifi arasında, FBI ajanı Scott’ın gelmesiyle ihtilaf doğar. Aslında çözüme çok yakın olduğunu düşünen Joseph Paquette (Oliver Martinez) bu yardım talebinin kendi başarılarını gölgeleyeceğini düşünmektedir. Scott ile Paquette arasındaki bu soğukluk uzun süre devam eder. Bu arada katilin izine, araştırmalar sayesinde, epey yaklaşılmıştır.
+   <br/>
+   <br/>
+   Kimlik bunalımında bir seri katil
+   <br/>
+   <br/>
+   Esrarengiz görünümlü ve acılı bir anne olan Rebecca Asher (Gena Rowlands), yıllar önce ölen oğlunu bir vapurda gördüğünü iddia etmekte, oğlunun çok tehlikeli biri olduğu konusunda polisleri uyarmaktadır. Ancak ilk itiraf anında fazla ciddiye alınmayan bu uyarının, zaman geçtikçe katilin kim olduğuna dair önemli bir ipucu olacağı anlaşılır. Fakat, bilinenden daha çok bilinmeyen ürkütmektedir. Çünkü, hayli zeki ve bir o kadar da öfkeli olan katil, farklı kimliklerin hayatlarını sürdüğü için, bulunması çok zordur. Zaten Asher de oğlunu ancak gözlerinden tanımıştır. Scott’ın anne ile yaptığı görüşmeler, Martin Asher’in farklı bir çocuk olduğunu, bir ikizinin olduğunu ve ikizinin dost canlısı tavrına rağmen Martin’in öfkeli ve şizofren yapısını deşifre eder. Aslında, bir katilin portresi aşağı yukarı ortaya çıkmıştır. Ancak bilinmeyen bir şey vardır: Katil, hangi kimlikte kimin hayatını sürüyor? Bu soru filmin sonuna kadar gizemini koruyacaktır. Ve, ‘Hayatın Benim’in gerilim yanını da bu sorunun bilinmezliği oluşturmaktadır.
+   <br/>
+   <br/>
+   Sürpriz tanık ve katilin kimliği
+   <br/>
+   <br/>
+   Bir yandan birbiri ardına ortaya çıkan cinayetler diğer yandan insanların tehdit altında olması ile artan gerilim, katili gördüğünü iddia eden bir ressamın tanıklığıyla yeni bir ivme kazanır. James Costa (Ethan Hawke), katili kurbanını öldürürken görmüş, ressam olduğu için de onun resmini açık seçik çizebilmiştir. Bu bilgilerden yola çıkan Montreal dedektifleri ve FBI ajanı Scott, Martin Asher isminde karar kılarlar. Bu bulguyla derinleşen soruşturma, Costa’nın tanıklıktan işbirliğine doğru yol almasıyla, farklı bir seyre dalar. Bu seyir, aslında Costa’yı da tanıklıktan hedef konumuna iten bir operasyonla iyice gizemli bir hâl alır. Bu gizemin içerisinde, katil kendisini çok iyi kamufle etmeyi başarmıştır.
+   <br/>
+   <br/>
+   Başından itibaren, gizemli bir anne; Asher’in bir ikizinin daha olması; sürpriz kaçak eser simsarı; esrarengiz tanık Costa başta olmak üzere birçok ihtimal üzerinde gelgitler oluşturan film, aslında katilin kimliğini bu “çok kimlikli” ortamda kaybettiriyor. Katilin ödünç yaşamların içerisine sığınıyor olması da bu durumun esrarını artıran bir durum.
+   <br/>
+   <br/>
+   Aksiyon severler için
+   <br/>
+   <br/>
+   Oscar ödüllü Angelina Jolie’nin başrol aldığı “Hayatın Benim”, gizemi ve merakı başlangıcından sonuna kadar taşıyan bir film. Dinamik bir aksiyon ve polisiye tarzı olmasının yanı sıra, psikolojik derinlikli korku türünün ana unsurlarını da başarılı bir kullanımla perdeye yansıtan film, aksiyonunu bu sayede sürekli dinamik tutuyor.
+   <br/>
+   <br/>
+   Filmin iki ana oyuncusu Angelina Jolie ve Ethan Hawke, rollerindeki inandırıcılıkları ile filmin başarısında önemli bir rol oynuyor. Birbirinden farklı ama birbirine de benzer iki karakteri, iki oyuncu başarıyla taşıyor. Jolie’nin duygusal ve serinkanlı; Hawke’ın gizemli ve zeki yanı ağır basan karakter tahlilleri, filmin başarısında önemli artılar.
+   <br/>
+   <br/>
+   Hayatın Benim, katilin karakterinin belli olduğu, kimlik bilgilerine ulaşıldığı halde, kim olduğunun bilinemediği bir ortamda, ciddi bir araştırmaya giren FBI ve Montreal polis gücünün çabasını beyaz perdeye taşırken, ustalıklı bir kurgu ile gerilim ve gizemi son ana kadar sürdürmeyi başarıyor.
+   <br/>
+   <br/>
+   Katil, her zaman göz önündedir. Hatta, çok yakınlarda...
+   <br/>
+   <br/>
+   Öyle ki, bu yakınlık çoğu zaman onu gizler...
+   <br/>
+   <br/>
+   Hayatın Benim’de olduğu gibi...
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13572&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041226003710/http://www.aksiyon.com.tr:80/detay.php?id=13572&yorum_id=1)

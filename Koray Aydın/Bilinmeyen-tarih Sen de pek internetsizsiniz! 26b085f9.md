@@ -1,0 +1,82 @@
+# Sen de pek “internetsiz”siniz!
+
+*Koray Aydın Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ülkemize ilk geldiği günlerde bir lüks olarak görülen ve bu  nedenle genelde elit tabakanın ceplerinde gezinen cep telefonları, zamanla ilkokul öğrencisinden inşaat işçisine kadar 7'den 70'e hemen hemen toplumun her kesimi tarafından kullanılır hale geldi.
+   <br/>
+   <br/>
+   Cep telefonunun bu kadar geniş bir kullanım alanına yayılmasında hiç şüphesiz yapılan reklamların büyük katkısı var. Buna benzer bir süreç, henüz Türkiye'de yeni bir sektör olan internetin pazarlanmasında da yaşanıyor.
+   <br>
+    <br>
+     İnter-reklamlar
+     <br>
+      <br>
+       Özellikle son aylarda Türkiye’de oldukça hızlı bir şekilde yayılan internet teknolojisi, reklamlarıyla herkesin ilgi alanı haline geldi. Televizyon izlerken sık sık ISS firmalarının eğlenceli reklamları ile karşılaşır olduk. Hatta yapılan reklamlar öyle dikkat çekici ki; izleyiciler artık tv programlarını değil de reklamları izler hale geliyor bu yüzden. “Ixir”, “e—kolay.net” ve “Funkey” firmaları tarafından hazırlatılan üç reklam, bu kategoriye giren reklamlardan başlıcaları.
+       <br>
+        <br>
+         “İxir” firması, reklamlarında kokoreççi—kestaneci arasında geçen internet muhabbetini sokak dili kullanarak esprili bir yaklaşımla ele alırken, “E—kolay.net” ise Kemal Sunal’ın oynadığı İnek Şaban karakteriyle halkın ilgisini çekmeye çalışıyor. “Funkey” de Zafer Alagöz’ün canlandırdığı yaşlı ev hanımı tiplemesiyle çıkıyor izleyicinin karşısına. Üç reklamda da dikkat çeken ve benzerlik gösteren unsurlar; espri ögelerinin yoğunluğu, kullandıkları “bu bi devrim”, “sen de pek şıksınız”, “e—kolay”, “daha ne istiyonuzzz” gibi sözlerin insanlar arası iletişimde sık sık başvurulacak kadar halk tarafından benimsenmesi ve internetin herkes tarafından rahatlıkla kullanılabileceği mesajını vermesi.
+         <br/>
+         <br/>
+         Kokoreççi ile kestanecinin (yaz mevsimi gelince kestane satmak abes olacağından son reklamlarda mısırcı olarak çıkıyor karşımıza) “Sana i—meyil attıydım aldığ mı!” ile başlayan internet üzerine yaptıkları konuşmalarda, izleyicilere aslında internetin kullanımının sanıldığı kadar zor olmadığı hatta sokak satıcıları tarafından bile rahatlıkla kullanılabileceği mesajı veriliyor. Öğle tatilinde ellerinde çubuklarla Çin yemeği yemek, toplum tarafından itilmemek için önemli gecelerde hırka üstüne ‘no smoking’ giymek, gündemi ‘faynenşıl tim’den takip etmek gibi esprilerin yer aldığı ‘iskir’ reklamlarında ilgi çeken bir diğer özellikse kullanılan deforme olmuş sokak dili. Karakterlerin mimikleri de reklamı eğlenceli hale getiren diğer bir artı. Reklam ilgi çekici olunca haliyle halkın internete olan ilgisi artıyor, böylece reklam amacına ulaşmış ve internet paketi satılmış oluyor. İnternet paketini satın alınca iş bitmiyor elbette. İnternetten reklamlarda bahsedildiği gibi sorun yaşamadan faydalanabilmek için, sizi bekleyen bazı sorunları da aşmanız lazım.
+         <br/>
+         <br/>
+         “E—kolay.net” firması ise kolay internet sloganıyla başlattığı reklam kampanyasında, filmleri televizyonlarda halen gösterilen ve büyük beğeniyle izlenen Kemal Sunal’ı kullanıyor. İnek Şaban’ın bile internete iki tuşla sorunsuz bağlanabildiği ve Metin Oktay’ın ayakkabı numarası gibi zor bulunabilecek uçuk bir bilgiyi ‘e—kolay’lıkla elde edebildiği vurgusunun yapıldığı reklamda yer alan “bir siteden öteki siteye geçiş hızı adeta ışık hızı” abartısı, aslında reklamın, internetin sorunlarından bîhaber kişiler tarafından gerçeklerden uzak olarak hazırlandığını göstermesi açısından manidar.
+         <br/>
+         <br/>
+         ‘E-kolay’ değil
+         <br/>
+         <br/>
+         Peki gerçekte internete bağlanmak ve aranan bilgiye ışık hızıyla ulaşmak reklamlarda anlatıldığı kadar kolay mı? Star Gazetesi bilişim editörü Yurtsan Atakan, Aksiyon'un konuyla ilgili sorusu üzerine “İnternet erişim paketi hangi marka olursa olsun, internet erişim aracı olarak bilgisayar kullanılıyorsa, kullanıcıya internete bağlanma kolaylığı açısından iki tuşa basmaktan ibaret bir kolaylık sağlayamaz” şeklinde cevap veriyor.
+         <br/>
+         <br/>
+         Milliyet bilişim editörü Serhat Ayan ise önemli bir noktaya, internetin aslında kokoreççilerin kullanacağı kadar kolay bir şey olduğuna dikkat çekiyor. Ancak o kokoreççinin ABD’de oturması ve İngilizce bilmesi gerektiğini söyleyen Serhat Ayan, bu alandaki diğer bir eksikliği de, “İnternetle çok sıkı fıkı olan bizler sık sık bu hataya düşüyoruz: ‘Ne var canım işte open tuşuna basacaksın, save as bölümüne gireceksin, bookmarklara ekleyeceksin ki daha sonra bulabilesin.’ Hayır olay o değil. İşin içinde bulunan insanlar için doğal gelen bu günlük konuşmalar ilk kez internete giren bir insanın kendini ‘yetersiz’ hissetmesine neden oluyor” şeklinde dile getiriyor.
+         <br/>
+         <br/>
+         Aksiyon’un Sanalpark Köşesi yazarı Yasin Kesen de bu konuda “Reklamlarda gösterilen bağlantıların hiçbir kıymet—i harbiyesi yok. Ama yine de bu reklamların toplumu internete yaklaştırdığı kesin” diyor.
+         <br/>
+         <br/>
+         Sonuçta internet paketi sizin interneti kolaylıkla kullanmanızı sağlayan ‘Alaattin'in sihirli lambası’ değil; internette rahat etmek istiyorsanız öncelikle bilgisayar nasıl kullanılır, internet için gerekli programlar nelerdir ve nasıl kullanılır, internete girdiğimizde neler yapacağız şeklindeki soruların cevaplarını bilmek gerekli.
+         <br/>
+         <br/>
+         “Hâlâ internetiniz yok mu?”
+         <br/>
+         <br/>
+         Televizyonlarda sık sık izlediğimiz diğer bir reklam ise “Funkey” firmasına ait. “Funkey” reklamında izlediğimiz yaşlı ev hanımının da teknolojiyi oldukça rahat kullanabiliyor olması vurgusu, diğer reklamlarda da rastladığımız alt kültür ve gelir seviyelerini de teknolojiyi kullanmaya teşvik etme politikası doğrultusunda kullanılıyor. Reklamın sonunda bir nevi “daha sizin bilgisayarınız ve internetiniz yok mu ne kadar ayıp!” mesajı, “Daha ne duruyonuzzzz” vurgusuyla konulmuş oluyor. Böylece insanlar ‘Bende de olsun, eksik kalmayayım’ diyerek teknolojinin nimetlerine ‘mal bulmuş mağribi’ gibi bilinçsizce atlar hâle geliyorlar.
+         <br/>
+         <br/>
+         Evet, internete girişin ilk kapısı olan ve şu an için olmazsa olmaz bir konumda bulunan internet erişim paketimizi reklamlardan etkilenerek bayiden aldık, CD’mizi yükledik, internet abonelerinin hücumuna uğrayan ve aşırı yüklenmeler yüzünden sorunların yaşandığı ISS hatlarımızdan da kazasız belasız, iki tuşla internete bağlandık diyelim. (Reklamlardaki gibi ‘aç—kapa artema’ misali iki saniyede bağlanmak ve bunu ard arda 17 kere başarabilmek için, internetin altyapısının henüz tamamlanamamış ve bulunduğumuz bölgedeki telefon hatlarının yavaşlığı ve kalabalık olması gibi ufak tefek sorunların da çözülmüş olduğunu varsaymamız gerekiyor.) Peki alem—i internette nasıl bir dünya bekliyor bizi?
+         <br/>
+         <br/>
+         İnternet dediğin
+         <br/>
+         <br/>
+         Türkiye’de internet, genelde chat yapma, e—mailleşme, oyun oynama, mp3 dinlemeden ibaret bir eğlence aracı olarak görülüyor. Küresel bir bilgi ağı olan internetin kullanımı elbette bu kadar sınırlı değil. Serhat Ayan chat yapıp, birbirine komik mektuplar atmanın internete girmek olmadığını, insanlara doğruyu sunmada görevin büyük firmalara düştüğünü vurguluyor. Belli bir bilinç kazandırılmadan internete girilmesini çok zararlı bulmadığını belirten Yasin Kesen, “Kullanıcılar nihayetinde internetin gerçekten de ne kadar büyük bir bilgi ve iletişim ortamı olduğunu ve bundan istifade etmek gerektiğini fark edecektir. Önemli olan bu fark etme sürecinin azaltılması. Bu noktada ise en büyük görev medyaya düşüyor” diyor. Yurtsan Atakan ise, “İnternet her ne kadar kimi kullanıcılarca sohbet etme aracı olarak kullanılıyor olsa da, bu durumun geçici bir heves olarak zamanla azalacağı düşüncesindeyim”  diyor ve ekliyor: “İnternetin bilgiye erişimi kolaylaştırıcı özelliğinin de reklamlarda bir şekilde, mutlaka işlenmesi gerekir.” Ayan, Kesen ve Atakan, internetin tanıtımının hakkıyla yapılabilmesi için, görevin internet sektöründeki firmalar ve medyaya düştüğü noktasında hemfikirler.
+         <br/>
+         <br/>
+         Reklamların internetin geniş kitlelere hitap ettiği mesajını vermesi oldukça yerinde. Hali hazırda çözüme kavuşturulamamış problemleri yok saymaları, reklamlardaki bir eksiklik olarak göze çarpıyor. Ayrıca internetin eğlence ve ticari boyutunun yanı sıra diğer işlevsel özelliklerinin de vurgulandığı, internetle yeni tanışmış insanların sağlıklı bir şekilde bilgilendirilmesine yönelik reklamlar, geleceğin dünyasını şekillendirecek olan internet teknolojisinin Türkiye'de verimli bir şekilde kullanılmasında kuşkusuz büyük rol oynayacaktır.
+         <br/>
+         <br/>
+         E—mail: koray_aydin@hotmail.com
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14323), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222044059/http://www.aksiyon.com.tr:80/yazdir.php?id=14323)

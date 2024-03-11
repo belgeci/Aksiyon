@@ -1,0 +1,106 @@
+# İnanç yoksa,ıntıhar var!
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Uzmanlar son aylarda intihar vakalarında gözle görülür bir artış yaşanıyor olmasını insanların içinde bulunduğu inanç boşluğuna ve manevi dinamiklerden uzak kalmalarına bağlıyor. Çünkü din insanlara yaşadıkları olumsuz olaylar karşısında sabırlı olmayı öğreten ilahi bir sistemdir.
+   <br/>
+   <br/>
+   Son zamanlarda sıklaşan genç lise öğrencilerinin henüz hayatlarının baharındayken canlarına kıyma haberleri, kaçınılmaz olarak herkesin aklına ‘niçin’ sorusunu getirdi. Bu muammayı açıklamaya çalışırken kimileri kuşak çatışmasına, kimileri satanist avcılara, kimileri de internet üzerinden oynanan fantastik oyunlara dikkat çekti.
+   <br>
+    <br>
+     Belki bunların hepsi doğru. Ama aslında hepsi de sebeplere değil sonuçlara işaret ediyor. Öyle ya gençler niçin yapacak onca şey varken fantastik oyunlara dalıyor, kendi inançları yokmuş gibi satanizm gibi sapıklıklara kayıyorlardı?
+     <br>
+      <br>
+       Doğal olarak bu sorulara cevap arayanlar arasında güvenlik birimleri de vardı. Nitekim Emniyet Müdürlüğü’nün olayla ilgili yaptığı tespit ve değerlendirme raporunda gençler arasında satanizmin yaygınlaşması “din eğitimindeki yetersizlik”le açıklandı.
+       <br>
+        <br>
+         Gerçekten de ideolojilerin iflasının ilan edilmesinden sonra küresel düzeyde ortaya çıkan bir tabloydu bu. Aynı tehlike Rusya’da olduğu gibi Tayland’da da, Avrupa ülkelerinde de kaygı verici noktadaydı. Çünkü geçtiğimiz dönemde ideolojiler tarafından doldurulmaya çalışılan bir boşluk vardı iç dünyalarda. Her piyasanın kuralı burada da devreye giriyor ve bu talep karşısında arz için uygun koşullar doğuyordu. Dolayısıyla bu krizi yaşayan Türk, Rus, Bulgar farketmeksizin bütün dünyada, özellikle de yoğun kimlik krizinin yaşandığı toplumlarda bu boşluğu doldurmak için paranın da yardımıyla inanç değişimi sağlamaya yönelik misyoner hareketleri, Hizbülvahşet gibi aşırı gruplar ya da sapık inançlar erken davranarak bu ortamdan yararlanmak istiyorlardı.
+         <br/>
+         <br/>
+         Emniyet Müdürlüğü’nün raporunda da tesbit edildiği gibi toplum olarak bu tür hadiselerle sık karşılaşmaya başlamamızın altında, aile ve okulda yeterli seviyede verilmeyen din eğitiminin eksikliği yatıyor aslında.
+         <br/>
+         <br/>
+         Dolayısıyla manevi doyumu yaşama imkanı bulamayan gençler bu boşluğu doldurabilmek için marjinal akımlara kayıyor.
+         <br/>
+         <br/>
+         İlahiyatçılara göre din duygusu doğuştan gelir ve bu konudaki eğitimin doğru, yeterli ve zamanında verilmesi sağlıklı toplumlara kavuşmanın önkoşuludur.
+         <br/>
+         <br/>
+         Tarihin her döneminde din; insan ve toplum hayatında önemli bir yere sahip oldu. Ancak bizim kültürümüzde dinin sahip olduğu değer ve anlam çok daha farklı. Çünkü milli kültür ve kimliğimizin en belirgin öğelerinden biri din. Tarih boyunca dinini değiştiren soydaşlarımızın Türklük’ten de çıkmaları ise bunun bir göstergesi. Böyle bir toplumda denklemden dini çıkarmak, kuşkusuz toplumun yokoluş fermanını imzalamak anlamına geliyor.
+         <br/>
+         <br/>
+         Aklın yolu birmiş
+         <br/>
+         <br/>
+         İmam hatip liseleri, ilahiyat fakülteleri ve Kur’an kurslarına sınırlama ve yeni düzenlemelerin getirilmeye başlandığı 1997 yılından bu yana bu konuda bir sıkıntı olduğu dindar insanlar tarafından sürekli hatırlatılıyor. Ancak günümüzün ihtiyaçlarına cevap verecek şekilde tasarlanmayan din eğitimi ve gerçek din ile günlük siyasi yorumların birbirine karıştırılması probleme doğru bir çözüm bulunmasını zorlaştırıyor. Dolayısıyla çarpık düşüncelerin etkisindeki gençlerin kendilerine ya da çevrelerine zarar vermeleri engellenemiyor.
+         <br/>
+         <br/>
+         Eğitim sistemimiz ve bu sistem içinde din derslerinin konumlanışına bakıldığında dine neredeyse “sakıncalı” denecek kadar ihtiyatlı yaklaşıldığı gözden kaçmıyor. Halbuki Aksiyon’un iki hafta önceki kapağında belirtildiği gibi İngiltere, eğitim sistemi içindeki başarılı uygulamaları nedeniyle kiliseyi teşvik ediyor.
+         <br/>
+         <br/>
+         Müfredatta yer alan konulardan haftalık din dersi saatine kadar birçok noktada görünen tablo, Türkiye’de bu alanda yaşanan sıkıntıyı resmediyor. Ancak hepsinden önemlisi imam hatip lisesi mezunu gençlerin üniversiteye girişlerinde uygulanan puan kırılması meselesi. İmam hatiplerden mezun olan gençlerin üniversiteyi ilahiyat dışında bir okulda okusalar dahi devletin belirli kademelerine gelememeleri de devletin din eğitimi konusuna yaklaşımını ortaya koyuyor. Dolayısıyla din dersinin zorunlu dersler arasında yer almasına rağmen pek de önemli olmayan bir ders olarak algılanması din derslerine ve din eğitimi verilen okullara öğrencilerin gerekli ilgiyi göstermesini engelliyor.
+         <br/>
+         <br/>
+         Öğretmen—öğrenci diyaloğu önemli
+         <br/>
+         <br/>
+         Bir devlet okulunda çalışan Din Kültürü ve Ahlak Bilgisi öğretmeni Mehmet Kağan, öğrencilerin din dersine not korkusuyla çalıştıklarını, bazı öğretmenlerin de derse ilgiyi çekmek için notu silah olarak kullandıklarını ifade ediyor. Oysa öğretmen öğrenciye kendini sevdirse derse ilgisini çekebilir. Çünkü amaç din bilgilerini dikte ettirmek değil, öğrenciyle diyalog kurarak çocukların hayatları boyunca yaşamlarını zenginleştirecek, kolaylaştıracak bilgileri vermek. Ancak öğrenciler de on yıl önceki öğrenciler değil. Konuştukları konular ve ilgi alanları çok farklı. Birbirlerini kötü alışkanlıklar konusunda da olumsuz etkiliyorlar. Aileler de çoğunlukla boş. Ayrıca çocuğunun din dersindeki başarısızlığı pek de ırgalamıyor onları. Çocuk diğer derslerden başarısızsa özel hoca tutup bilgisi ikmal ettiriliyor ama din bilgisi boşluğunu doldurmak için bir bilene sormak akıllarına gelmiyor. Sonra da çocuklarını kötü arkadaş ve alışkanlıklardan nasıl kurtaracaklarını şaşırıyorlar. Üstelik bu konuda para istemeden yardım etmeye hazır birçok insan bulabilirler. Ayrıca ilkokul 4 ve 5. sınıflarda din derslerinde başka dersler işleniyor. Çocuk 6. sınıfa geldiğinde bomboş. Böyle olunca herşeyi sıfırdan anlatmak gerekiyor.
+         <br/>
+         <br/>
+         İnanan insan sıkıntıyı çabuk atar
+         <br/>
+         <br/>
+         Okuldaki din eğitiminin yetersizliğinden yakınan bir başka öğretmen ise Din Kültürü ve Ahlak Bilgisi öğretmeni Muammer Duru. O da son aylarda intihar vakalarında gözle görülür bir artış yaşanıyor olmasını insanların içinde bulunduğu inanç boşluğuna ve manevi dinamiklerden uzak kalmalarına bağlıyor. Dinin insanlara yaşadıkları olumsuz olaylar karşısında sabırlı olmayı öğreten ilahi bir sistem olduğuna dikkat çeken Duru, eğitim çağındayken yeterli din eğitimi almayan ve bir inanç boşluğu içine düşen insanların karşılaştıkları zorlukları yeterli din eğitimi almış ve dini inancı güçlü insanlara göre daha zor atlattıklarını ifade ediyor.
+         <br/>
+         <br/>
+         Duru’ya göre ilköğretim okulları ve liselerde verilen din eğitimi yetersiz. Bunun en önemli sebebi MEB’in yeterince Din Kültürü ve Ahlak Bilgisi öğretmeni kadrosu vermemesi. Diğer taraftan haftalık ders saatlerinin ilköğretim okullarında 2, liselerde ise sadece 1 saat olması da din eğitimine yeterli önemin verilmeyişinin bir göstergesi Duru’ya göre. Ayrıca din eğitimi temel dini bilgilerin verildiği Din Kültürü ve Ahlak Bilgisi dersleriyle sınırlı kalmamalı. Mesela kutsal kitabımız Kur’an’ı Kerim ve mealinin okutulacağı isteğe bağlı Kur’an’ı Kerim derslerinin ilköğretim okullarına konulması uygun olacaktır. Bu teklifin Diyanet İşleri Başkanı M. Nuri Yılmaz tarafından da dile getirilmiş olduğuna dikkat çeken Duru, teklifin hayata geçirilmesinin önemli bir boşluğu doldurağı inancında.
+         <br/>
+         <br/>
+         İsteğe bağlı din eğitimi hayata geçirilsin
+         <br/>
+         <br/>
+         İlahiyat Fakültesi öğretim üyelerinden Prof. Halis Ayhan 1982’den bu yana zorunlu dersler arasında yer alan din derslerinin örgün eğitimde aslında zorunlu Din Kültürü ve Ahlak Bilgisi ve isteğe bağlı Din Eğitimi şeklinde öngörüldüğünü ancak herhangi bir şekilde planlanmadığını ifade ediyor. Bu yüzden isteğe bağlı din eğitimi henüz hayata geçirilmemiş. Prof. Ayhan’a göre Din Kültürü dersleri şu andaki gibi zorunlu olmalı. Din eğitimi ise isteğe bağlı olarak yürürlüğe konmalı ve üniversiteler de de yine isteğe bağlı olarak sürdürülmeli. Çünkü bir insanın dünya görüşü ne olursa olsun din kültürü bilgileri bir gerekliliktir. Din bilgisinin çocuk ve gençler üzerinde etkisi ise çok büyük. Din eğitimi tamamlanan bir genç herhangi bir problemle karşılaşınca onunla başa çıkma gücünü kendinde bulur, sabretmeyi, dayanma gücünü ve özgüveni kazanır. Aksi halde çözülür, ümitsizliğe düşer, karamsarlığa gömülür, çevresindekileri ve kendini suçlar; sonuçta da intihara kadar gidebilir.
+         <br/>
+         <br/>
+         Ancak herşeye rağmen Prof. Halis Ayhan biraz daha iyimser. Nedeni ise, bazı ilahiyat fakültelerinde ilköğretim okulları için eğitimci açığını kapatmak üzere Din Kültürü ve Ahlak Dersi öğretmenliği bölümünün açılmış olması. Halis Ayhan Marmara Üniversitesi’ndeki bu bölümün de başkanı. İlköğretim okullarına din eğitimcisi yetiştirme amacıyla açılan bu bölümde dört yıl eğitim alan mezunlar, ne yazık ki bu alandaki yetersizliği hemen gideremeyecek. Çünkü Türkiye’de 45 bin okul var ve mezun sayısı buna yetmeyecek. Prof. Ayhan’ın pratik çözümü, ilahiyat mezunu öğretmenlerin kurs ve seminerlerle ilköğretim okullarında ders verecek düzeye ulaştırılması. Çünkü ilköğretim okullarında din bilgisi dersi vermek ayrı bir uzmanlık istiyor.
+         <br/>
+         <br/>
+         Gayrimüslim öğrenciler ne olacak?
+         <br/>
+         <br/>
+         Müslüman olan öğrencilere kendi dinlerini anlatmak kolay da, gayrimüslim öğrencilerin bu konudaki ihtiyaçları nasıl karşılanmalı? Lara Falay’ın Musevi bir ailenin çocuğu olması din eğitimi konusunda farklı uygulamaların gerekliliğini de hatırlatıyor. Prof. Ayhan’a göre Türk okullarında eğitim gören farklı din ya da mezhep mensubu gençler için de yapılabilecek şeyler var. Öncelikle onlara da din kültürü dersi zorunlu olarak okutulmalı. Çünkü bu derste Allah’ın varlığı, birliği, peygamberler, kutsal kitaplar ve ahiret inancı gibi ortak bilgiler ile her inancın kendine has özellikleri kültürel  bir bilgi olarak veriliyor. Kendi inancına ait dini ritüeller ise din eğitimi derslerinde öğretilebilir. Bu dersler ise bakanlığın belirleyeceği veya vakıfların istihdam edeceği farklı dinlerin uzmanları tarafından verilmelidir.
+         <br/>
+         <br/>
+         Din eğitimi denince tabii ki akla sadece devlet okullarında verilen din dersleri gelmiyor. 1997 öncesinde küçük yaştan itibaren çocukların Kur’an eğitimi dersleri alması mümkündü. Ancak  28 Şubat kararlarının uygulamaya geçişiyle Kur’an kurslarına öğrenci kabulü için yaş sınırı 15 olarak belirlendi. 15 yaşındaki çocukların öğrenme kapasitesinin sekiz on yaşındaki çocuklardan daha dar olduğu düşünülecek olursa eğitimin zamanında verilmesi kuralı ihlal edilmiş oluyor. Uzmanlara göre Kur’an eğitimi çocuğa ilkokul çağından itibaren verilebilir.
+         <br/>
+         <br/>
+         Aslında din eğitimi denince akla sadece ilk ve orta öğretim okulları geliyor. Oysa televizyon ve radyo gibi iletişim araçları da bu amaçla kullanılabilir.
+         <br/>
+         <br/>
+         ABD’de üretilen her filme şu kadar saniye bayrak ve şu kadar saniye kilise vs. gösterilmesi gibi zorunluluklar getirildiğini biliyoruz. Şimdiye kadar ısrarla verilmeye çalışılan negatif imajın aksine, Türkiye’de de dini değerlerin olumlu biçimde verilmesiyle problemin çözümüne yönelik önemli bir adım atılmış olacaktır. Çünkü bu tür düzenlemeler din eğitimi konusunda aile ve okulu tamamlayıcı rol oynar.
+         <br/>
+         <br/>
+         E—Posta: e.bilici@aksiyon.com.tr
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 29 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12175), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301150024/http://www.aksiyon.com.tr:80/yazdir.php?id=12175)

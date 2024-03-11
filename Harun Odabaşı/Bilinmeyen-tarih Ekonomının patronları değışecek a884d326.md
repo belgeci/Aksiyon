@@ -1,0 +1,97 @@
+# Ekonomının patronları değışecek
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031043im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031043im_/http://www.aksiyon.com.tr/resim/366/48.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Askeri darbeler ve ekonomik kararlar döneminde TÜSİAD üyeleri hep kazançlı çıktı. Sosyete türedi zenginlerle tanıştı. Fakat son ekonomik kararların ardından sadece küçükler değil  TÜSİAD üyeleri
+  <br>
+   de derinden etkilendi. Kriz sonrası süreçte ekonominin aktörlerini değiştirecek yırtıcı bir dalga başlıyor. Cepheler şimdiden oluşuyor ve elinde sermaye bulunduranlar açısından kaçırılmayacak bir fırsat meydana geldi.
+   <br>
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hayallerine kavuşmuştu. 80’li yıllarda tekstildeki hızlı büyüme atağını iyi değerlendirerek, biriktirdiği tasarruflarını daha büyük hamleler için yatırmıştı. Nereye koştuğunu çok iyi biliyordu; yapacağı işleri önceden tasarlamıştı. Avcılar’da 40 milyon mark yatırarak kurduğu tekstil fabrikasının aynı zamanda yüzlerce insan için iş ve aş anlamına geldiğinin farkındaydı. Fabrikayı kurarken nakite sıkışmış ve bir bankadan döviz üzerinden kredi kullanmak zorunda kalmıştı. Kredi kullanmak pek adeti değildi ama böyle iş kazaları herkesin başına gelmiyor muydu? Önemli olan hedefe koşmaktı. Hem dövizde çıpa ve çıpanın kalkması için de daha 6 ay vardı. Ama o kara gün, 21 Şubat geldi çattı. Dövize müthiş bir devalüasyon yapıldı. İki hafta içerisinde döviz Türk lirası karşısında yüzde 100’ün üzerinde değer kazandı. Bütün planları alt üst olmuş, bankaya olan borcu takat getiremeyeceği korkunç bir noktaya fırlamıştı. Tam 17 milyon mark. Onurluydu. Katlanarak artan borcunu temizlemek için çok kapı aşındırdı, ama nafile. Alternatifler tükenince fabrikayı satılığa çıkardı ama bu sefer alan yoktu. 10 milyar dolarlık IMF yardımının arefesinde şunu söylüyordu: “Artık dayanacak gücüm kalmadı. Bankaya olan borcumu ödeyecek parayı veren ilk kişi kim olursa olsun 40 milyon mark yatırdığım şirketimi satacağım...”
+   <br>
+    <br>
+     Türkiye aslında ekonomik krizlere alışık bir ülke. Üç askeri darbe, bir ‘posmodern darbe’, 24 Ocak ve 5 Nisan Kararları gibi pek çok ekonomik kriz süreçleri yaşadı. Fakat 2001 yılının başından itibaren başlayan kriz hiçbiri ile mukayese edilemeyecek kadar derinlerde hissedildi. Kriz, iktisatta U dönüşü ya da V dönüşü diye adlandırılan yumuşak ya da keskin çıkışlardan hiçbirini yaşamadan ‘dibin de dibini zorlayarak aşağı eğimli yatay bir seyir takip etti. Son krizi diğer krizlerden ayıran çok önemli bir farklılık daha var. Bundan önceki askeri darbeler ve ekonomik kararlar döneminde örneğin TÜSİAD üyelerinin büyük kısmı hep kazançlı çıktı. Güzide Türk sosyetesi türedi zenginlerle tanıştı. Fakat son ekonomik kararlar, sadece küçükleri değil Türkiye’nin GSMH’sının yüzde 30’üzerinde üzerinde bir ciro yapan TÜSİAD üyelerini de derinden etkiledi. Finans sektörü ve reel (üretim, imalat) kesim ciddi finans zaafiyetine girdi. Bırakın yeni atağa geçmeyi; borçlarını, hatta vergisini ödeyemeyenler var. En güçlü bilinen bankalar dökülüyor ve kendisini bir yabancının güvenilir ellerine teslim etmek için fırsat kolluyor. Bu durum kriz sonrası süreçte ekonominin aktörlerini değiştirecek yırtıcı bir dalganın başlaması için elinde sermaye bulunduranlar açısından kaçırılmayacak bir fırsat. Ve cepheler şimdiden oluşuyor.
+     <br/>
+     <br/>
+     Özel sektör kapışacak
+     <br/>
+     <br/>
+     Merak edilen soru şu: Türkiye ertelenmiş sorunları ile yüzleşme cesaretini kriz sonrasında gösterebilecek mi? Tarihe 5 Nisan Kararları olarak geçen ekonomik yaptırımlar  1994 yılında sorunlara köklü çözümler üretmek yerine, sorunun daha da derinleşerek ötelenmesini sağlamıştı. Makro ekonomik dengelerdeki zaafiyet o zamandan günümüze katlanarak büyüdü. Dış ve iç borç sarmalı arttığı gibi kamunun kendi ekonomisini döndürme maliyeti de vergilerle bile karşılanamayacak hale geldi. Şimdi devletin küçülmesi üst başlığı altında Köy Hizmetleri Genel Müdürlüğü’nün lağvedilmesi ile başlayan yeni süreç bir açıdan önlenemez bir rehabilitasyon gibi görünüyor. Fakat burada herkesin gözünden kaçan bir nokta var. Kamu ekonomi içerisindeki yerini yeniden belirlerken özel sektörün durumu ne olacak? Kamunun büyük boşluklarından dolayı ön plana çıkmayan özel sektör de  yeniden yapılanmak zorunda. Bu zamana kadar rantabl hareket etmeyen ve bilmedikleri alanlara yatırım yapan şirketler, sistemin boşluklarından yararlanarak suni solunumla  yaşayabiliyorlardı. Burada klasik tabirle Anadolu Kaplanları ya da TÜSİAD ayrımı yapmadan topyekûn bir silkelenme sözkonusu. Uluslararası rekabet koşullarının dayattığı olmazsa olmaz kurallar var. Ankara ile göbek bağı olan ve bu sayede büyümesini gerçekleştiren bütün şirketler nasiplerini alacak. 1929 Ekonomik Buhranı’nın ardından Başkan Roosevelt’in 1932 yılında başlattığı ‘kartları yeniden dağıtmak’ adını taşıyan programının öncesindeki dağınık durum Türkiye için de söz konusu ve gerçekten de piyasada kartların yeniden dağılmaya ihtiyacı var.
+     <br/>
+     <br/>
+     Türkiye’nin en önemli döviz girdi kaleminin tekstil ve turizm olduğu da veri olarak şirket değerlendirmelerine eklenirse uluslararası standartlarda rekabet üstünlüğünün ve gelişmiş bir sanayinin olmadığı görülüyor. Şimdiye kadar fason ve montaj sanayi ile yoluna devam eden bir özel sektörümüz oldu. Yeni süreçte devlet ve özel sektör yeniden yapılanma sürecinde hangi alanlarda büyüyeceğine ve hangi alanlarda küçüleceğine karar verecek.
+     <br/>
+     <br/>
+     Kasım ve Şubat krizlerinin ardından piyasadan yurt dışına 30 milyar dolar para çıktı. Resmi rakamlar bunun 17 milyar dolar olduğunu ifade ediyor. Elde edilen yeni bulguları ve bazı görünmez ama bilinen kalemleri de dikkate alırsak 30 milyar dolar en uygun rakam olarak ifade ediliyor. MÜSİAD Başkanı Ali Bayramoğlu’nun yurt dışına çıkan bu para ile ilgili saptaması ilginç. Bayramoğlu bu paranın önemli bir kısmının sahiplerinin Hans ya da Michel olmadığını, şu anda hapiste yatan banka hortumcularının ve bazı banka sahiplerinin parası olduğunu iddia ediyor. Ekonomist—Danışman Dr. Gürlesel de kriz sonrasında kaçan paranın sisteme yeniden geri döneceğini ve IMF programının istikametine göre piyasada reel ve finans kesimini kökünden etkileyecek bir sermaye hareketini başlatacağını ileri sürüyor: “Kriz sonrası dışarıya kaçan 15—20 milyar dolar para geri gelecek ve güçler savaşı için kullanılacak. Bu ciddi savaşta cepheleri kimse kestiremiyor. Herkes herkesi satın alabilir ve hiçkimse kimseyi satın alamaz. Türkiye’de neler olacağını IMF ile yapılan stand—by anlaşmasının teferruatları açıklandığında anlayacağız.”
+     <br/>
+     <br/>
+     Türkiye’nin önemi arttı
+     <br/>
+     <br/>
+     Kriz sonrası yaşanacaklar ile IMF’nin stand—by anlaşması arasında birebir ilişki kuruluyor. Ama öncelikle IMF’nin Türkiye’ye vermeyi taahhüt ettiği 10 milyar doların veriliş biçimindeki yöntem değişik değerlendirmelere de karine teşkil ediyor. Önceki stand—by anlaşmalarında kılı kırk yaran, ateşli pazarlıklar yaşayan, tek bir madde üzerinde bazen günlerce duran, verilecek paranın taksitleri ve faiz oranları için müzakere eden heyetleri hatırlıyoruz. Türkiye belki de tarihinin en aciz ekonomik göstergelerine sahipken verilecek para stand—by olmadan taahhüt edildi. Bu gelişmeyi makro iktisatçılar ve uluslararası ilişkiler uzmanları IMF geleneklerine aykırı ve hayret verici buluyorlar. IMF’deki tavır değişikliğini 11 Eylül saldırısı ile irtibatlandıran uzmanlara göre saldırı ile birlikte dünyanın ekonomik, güvenlik ve politik dengeleri yeniden oluşturulacak. Bu çerçevede ABD Türkiye’ye yeni bir rol biçti. İlk bakışta bu rolün eskisine göre daha önemli olduğunu söylemek mümkün. Ama ABD’nin İran, Irak, Ortadoğu, Orta Asya, Asya—Pasifik bölgelerindeki yeni politikasının ve Türkiye’ye biçilen rolün ne olduğunu şimdilik kestirmek güç. Dr. Gürlesel’in bu değerlendirmeye ilginç bir eklemesi var: “ABD’deki karar organları bile bu yeni yapılanma sürecine ayak uydurabilmiş değil. ABD Hazine Bakanı’nın Türkiye’ye verilen IMF kredisi ile alakalı kafa karıştıran beyanatları henüz dış politikadaki değişime ayak uyduramadığının bir göstergesi.”
+     <br/>
+     <br/>
+     Spekülatif sermaye can yakıyor
+     <br/>
+     <br/>
+     Türkiye ve dünyadaki mevcut finans yapısı, küreselleşmenin önündeki en önemli engeli oluşturuyor. Uluslararası sermaye spekülatif olması nedeni ile sık sık piyasaları kilitliyor. İkinci Dünya Savaşı’ndan sonra oluşturulan para sistemi bu anlamda istismar ediliyor. Kısa vadeli sermaye hareketleri istikrarı bozuyor. Halihazırda spekülatif amaçlı hareket eden sermayeyi dizginlemek için ciddi bir gayret yok. Türkiye’nin krize girmesinde bu kısa vadeli yabancı sermayenin çıkışının büyük etkisi var. En azından krizin derinleşmesinde.
+     <br/>
+     <br/>
+     Türk finans sektörü de reel sektör ile olan ilişkisi itibarı ile içler acısı bir durumda. Denebilir ki bankacılık işlevinin dışında faaliyetlerle uğraşıyor. Devletin borçlanma ihtiyacını finans sistemi karşılar hale gelmiş. Bu durumda özel bankalar bile işlevi itibarı ile devlet bankası görünümünde. Türkiye’de üretimi finanse eden bir para piyasası oluşturulamamış. Tek alıcı devlet.
+     <br/>
+     <br/>
+     Ne olacak bu bankaların hali?
+     <br/>
+     <br/>
+     Piyasalar önemli bir gösterge olması açısından İş Bankası’nı dikkatle izliyor. Mevcut iştiraklerinin piyasa değerleri ve ciroları itibarı ile Türkiye’nin en büyük özel sektör kuruluşu olan İş Bankası’nın durumu ne olacak? Doğan Holding’le aldıkları Petrol Ofisi ve İtalya Telekom ortaklığı olan Aria’yı da sayarsak son hacizlerle birlikte elinde 137 iştiraki var. Büyümesini finans dışında reel sektörde gerçekleştirmeyi tercih eden İş Bankası son krizde iştiraklerini ayakta tutmak için çok ciddi sübvansiyonlar yapmak zorunda kaldı. Aria ve POAŞ’ta uğradığı hayal kırıklıkları da eklenince 2002 yılında ilmiği boğazında hissedecek şirketlerin başında İş Bankası geliyor. İstanbul Ticaret Odası Başkanı Mehmet Yıldırım, İş Bankası’nın reel sektöre yönelerek milyarlarca dolarlık pörtföyünü finans dışı sahalarda değerlendirmesini Türk bankacılık sistemine yapılmış bir ihanet olarak değerlendiriyor. Milli bankaların şu anda sıkıntı içerisinde olmasında İş Bankası’nın finans dışı faaliyetlerinin çok etkili olduğunu iddia eden Yıldırım’ın zehir zemberek açıklamaları şöyle: “İş Bankası bir medya kuruluşu ile kolkola girerek finans sektörünün ve reel sektörün çanına ot tıkamıştır. İş Bankası’nın elinde 137 iştiraki var şu anda. Bunların önemli bir kısmı dönmeyen kredilerden dolayı haczedilenler. Büyümesini bir türlü durdurmuyor. Milyarlarca dolar parasını POAŞ ve Aria’ya yatırdı. Ya küçük kalacaksın ya da batırılamayacak kadar büyüyeceksin. Aslında ilk planda el konulması gereken banka İş Bankası. İş Bankası kısa süre önce 350 milyon dolar dış borç aldı. Fakat bu parayı nerede kullanacağı belli değil. Zaten, ‘Senin dışarıda paran vardı, niçin bu parayı aldın ve hangi şartlar altında aldın?’ diye kimse sormuyor, soramıyor. 65 milyon dolar parayı Tatilya’ya niçin verdin? Burası, bu kadar para eder miydi? Aydın Doğan ile ortaklığa ne ihtiyacın vardı? Doğan Grubu’na verdiğin reklam ne kadar? Şu anda ciddi bir finansal sıkıntı çekmene rağmen deliklerini niçin tıkamadın? Neye ve kime güveniyorsun? Egebank, iştirakleri yüzünden bankanın içini boşalttı. İştirakleri olmasa idi bankayı bu kadar soyamazdı. İş Bankası da iştiraklerini bahane ederek bankanın içini boşaltıyor. Bankaların şirket idare etmekle ne işleri olabilir?”
+     <br/>
+     <br/>
+     Dr. Can Fuat Gürlesel de İş Bankası ve Oyak’ın özelleştirmelerde aktif rol oynamasına pek anlam veremeyenlerden. Gürlesel, kapalı kapılar ardında, devletin yarı resmi statüsü bulunan kurumlara şirketlerini satmasını, hele Oyak’a Sümerbank’ı satmasını gizli devletleştirme olarak niteliyor.
+     <br/>
+     <br/>
+     Mehmet Yıldırım ve Fuat Gürlesel İş Bankası üzerinden yaptıkları mikro değerlendirme ile aynı sonuca varıyorlar. Piyasanın çağdaş bir zemine oturması için finans kurumları ile reel sektör arasına barikat kurulması gerektiğine işaret ediyorlar. Piyasada ayrıcalıklı kurumlar olamayacağını ifade ederek, devletin her kuruma eşit mesafede bulunmasının zorunluluk olduğunun altını çiziyorlar.
+     <br/>
+     <br/>
+     Komlo değil gerçek
+     <br/>
+     <br/>
+     Ekonomik krize bağlı olarak yabancı sermayenin Türkiye’ye olan ilgisinin artması bu açıdan Türkiye ile aynı kaderi paylaşan gelişmekte olan ülkeleri akla getiriyor. Ekonomik krize giren Malezya, Meksika, Endonezya, Kore, Tayland gibi ülkelerde kurulu tesisleri satın alarak piyasanın hakimi pozisyonuna geçen Avrupalı ve Amerikalı şirketlerin Türkiye’de de aynı konumu elde etmek için çıkış yapacakları belirtiliyor. Uzakdoğu ve Latin Amerika’da yaşanan krizlerin ardından Kore, Meksika, Brezilya ve Arjantin gibi ülkelerdeki yabancı sermaye oranı piyasanın yüzde 90’ını elde etme seviyesinde hızla artmıştı. Yaşadığı krizlerden sonra yabancı sermayenin gelmesi için gerekli zemini oluşturan Brezilya’ya 1999 yılında 31.5, Arjantin’e 23.5, Meksika’ya 12 milyar dolar; Asya krizi öncesinde yaklaşık 3 milyar dolarlık yabancı sermaye girişi olan Kore’ye ise kriz sırasında giren yabancı sermaye miktarı 9 milyar dolar seviyesine çıktı. Uzmanlar, Türkiye’nin yabancı sermaye çekme potansiyelinin Çin ve Brezilya arasında bir noktada olduğunu belirterek, bu potansiyelin 35 milyar dolar civarında olduğunu ifade ediyorlar.
+     <br/>
+     <br/>
+     Türkiye öteden beri yabancı sermayenin gelişine sıcak bakan bir ülke ama bu sermayenin kartel oluşturacak şekilde piyasayı ele geçirmek istemesi milli ekonominin menfaatleri açısından tehlike arz ediyor. Prof. Dr. Esfender Korkmaz, özellikle bankacılık sektörüne gelecek yabancı sermayenin zararlı olacağını, paranın yurt dışına çıkmasının kolaylaşacağını savunurken, yabancı bankaların girişi ile birlikte oluşacak güven havasının yabancı sermayenin reel sektöre yapacağı yatırımları da hızlandıracağını kabul ediyor.
+     <br/>
+     <br/>
+     Tehlike yok
+     <br/>
+     <br/>
+     Can Fuat Gürsel de Türkiye’de reel kesime ve finans sektörüne girecek yabancı sermayenin Latin ve Asya—Pasifik ülkelerindeki gibi piyasa kontrolünü ele geçirebilecek boyutta olamayacağını öne sürüyor. “Latin ülkelerinde 1980’lerden itibaren yasaların tanıdığı ayrıcalıklarla 8—10 şirket piyasada tekel konumuna geldi. Asya—Pasifik ülkelerinde ise öteden beri ekonomi köklü birkaç ailenin kontolü altında büyümüştür. Dolayısı ile yabancı firmalar 5—6 holdingi satın alınca piyasanın yüzde 80—90’ını kontrol altına alabilme imkanını elde etti. Ancak Türkiye’de bu anlamda bir tekelleşme söz konusu değil. Koç Grubu’nu tek başına satın alsalar bile ekonominin ancak yüzde 1’ini ele geçirmiş oluyorlar.” Bu zamana kadar Türkiye’ye giren yabancı sermaye miktarının çok düşük olması da Gürlesel’in savunmasını destekliyor.
+     <br/>
+     <br/>
+     Sermayenin yeniden yapılanması aynı zamanda siyasetin de yeniden yapılanmasına zemin hazırlayacak bir etken. Bu sayede sermayenin Ankara ile göbek bağı kesilecek ve Ankara kendi rotasını çizmek zorunda kalacak.
+     <br/>
+     <br/>
+     e—mail: harunodabasi@hotmail.com
+     <br/>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12321), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031043/http://www.aksiyon.com.tr:80/detay.php?id=12321)

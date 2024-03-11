@@ -1,0 +1,68 @@
+# 'Demokrasi Pratiğini olgunlaştırıyoruz'
+
+*Çetin Çiftçi Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040705072651im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040705072651im_/http://www.aksiyon.com.tr/resim/490/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Malatya gerek içindeki potansiyelleri gerekse dışarıdaki Malatyalıların etkinliği dolayısı ile dernekleşme yönünden şanslı illerden biri. Malatya Aktif İşadamları Derneği (MAKİAD) ise altına imza attığı projelerle kendisini bir adım öne çıkartıyor.
+  <br>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   1990’lı yılların başından itibaren her ilde kendini göstermeye başlayan sanayici ve işadamları derneklerinin (SİAD) faaliyetleri şehir kalkınmasında ayrı bir önem kazanmaya başladı. Hatta bu iş o kadar ileri gitti ki bazı illerde farklı kulvarlarda faaliyet gösteren birkaç işadamı derneği bile var. Malatya gerek içindeki potansiyelleri gerekse dışarıdaki Malatyalıların etkinliği dolayısı ile dernekleşme yönünden şanslı illerden biri. Malatya Aktif İşadamları Derneği (MAKİAD) ise altına imza attığı projelerle kendisini bir adım öne çıkartıyor. 1994 yılında genç işadamlarının bir araya gelerek kurdukları bu dernek o günden sonra Malatya’ya ve Malatyalı işadamlarına yol gösterici ve ufuk açıcı birçok organizasyona imza atmış. AB’ye giriş sürecinde daha bir ehemmiyet kazanan sivil toplum kuruluşları içerisinde müteşebbisi ve toplumu yeni sürece hazırlama işlevini yürütme gayreti içerisinde olan dernek, işadamlarının ekonomik ilişkilerini teşvik etmenin yanında ilin sorunlarını tespit etmede ve bu sorunların en üst makamlara ulaştırılmasında da etkin rol oynuyor. Malatya halkına yönelik olarak 100’ün üzerinde bilgilendirici program yapan dernek, hiçbir etnik ve siyasi ayırım yapmadan, ekonomik alanda işbirliğini, sosyal ve kültürel alanda hoşgörüyü amaçlıyor. Teknolojinin getirdiği yenilikleri yakından takip eden dernek, AKTİVİTE adıyla yayınladığı bir bülteni 2 bin 500 kişiye ulaştırıyor. MAKİAD Başkanı Muzaffer Erşan, derneği, ‘1994 yılından beri ekonomisi güçlü, sanayisi gelişmiş, ticareti canlı bir Malatya hedefleyen işadamlarını temsil eden yerel bir iktisadî örgüt’ olarak nitelendiriyor.
+   <br/>
+   <br/>
+   —MAKİAD ne zaman, hangi amaca yönelik kuruldu?
+   <br/>
+   <br/>
+   Dernek, bir üretim ve istihdam hacmine sahip işadamlarının bir araya gelmesi ve bu işadamları arasında ekonomik ilişkilerin teşvik edilmesi, işbirliğinin artırılması amacıyla doğdu. Malatya ve Malatyalıların ekonomik, soysal ve kültürel tanıtımına ve gelişimine katkıda bulunmayı, yerli ve yabancı işadamları arasında ticari ilişkileri geliştirmeyi kendine görev bildi. Malatya ve çevre iller başta olmak üzere Türkiye için fayda sağlayacak her türlü ekonomik, sosyal ve kültürel projenin oluşturulması, geliştirilmesi ve hayata geçirilmesinde aktif rol almak istiyoruz. Ayrıca bölgede faaliyet gösteren diğer derneklerle bir araya gelerek Güneydoğu Sanayici ve İşadamları Federasyonu (GÜNSİAF) da kurulmuştur.
+   <br/>
+   <br/>
+   —Malatya’da yaşanan don olayının kayısı piyasasını olumsuz etkilemesi konusunda neler yaptınız?
+   <br/>
+   <br/>
+   Malatya ve çevresinde 60 bin aile kayısı ile geçimini sağlamakta. Bu da yaklaşık 250 bin kişinin ekmeğini direkt kayısıdan sağladığının göstergesi. İnsanlar bütün yatırımlarını kayısıya göre yapıyor. Malatya’da bütün ekonomi kayısıyla bağlantılı. Dünya kuru kayısı üretiminin yüzde 95’i Türkiye’de, Türkiye kayısı üretiminin yüzde 90’ı da Malatya’da gerçekleşmektedir. İlimizde 5—6 Nisan tarihinde sıcaklığın aşırı derecede düşmesinden dolayı çiçek açan yüz binlerce kayısı ağacımız zarar görmüştür. Ortalama 100 bin ton kuru kayısı rekoltesine sahip ilimiz, yaşanan tabii afet neticesinde bu yıl toplam rekoltede yüzde 90 oranında fire verecek. Bu da üreticimizi mağdur edecektir. Malatya’ya büyük bir ihracat girdisi sağlayan ve sosyal bir ürün olan kayısı, nüfusun büyük çoğunluğunun gelir kaynağıdır. Bu nedenle ilimizin “tabii afet kapsamına” alınması gerektiği kanaatini taşımaktayım. Bu konudaki fikirlerimizi Başbakan Recep Tayyip Erdoğan’a yazılı olarak bildirdik.
+   <br/>
+   <br/>
+   —Rekabet şartları gün geçtikçe ağırlaşıyor, bu konuda çalışmalar yapıyor musunuz?
+   <br/>
+   <br/>
+   İlimiz ve bölgemizin, dolayısıyla da Türkiye’nin kalkınmasında işadamlarımıza öncülük etmeyi, ortak çaba ve gücü organize etmeyi, bölgemizin gelişmesine katkıda bulunmayı, sorunlara çözüm yolları üretmeyi, KOBİ’ lerin yapılarını sağlamlaştırmayı ve bu kurumların rekabet güçlerini artırmayı amaç edindik. Derneğimizin etkinliği ile orantılı olarak üye sayısı da sürekli artmaktadır. Yurtiçi ve yurtdışı gezilerini, ticari ve hizmet yatırımlarını artırmalarına rehberlik etme gibi faaliyetleri yürütmektedir. Bugün Malatyalı aktif işadamlarının üye olarak ciddi yararlar sağlayacakları bir sivil toplum kuruluşudur. Bünyesindeki komisyonlar ve meslek komiteleri kendi alanlarındaki her türlü gelişmeyi değerlendirir ve konuyla ilgili seminerler, paneller düzenler.
+   <br/>
+   <br/>
+   —Diğer kurumlarla diyalogunuz nasıl?
+   <br/>
+   <br/>
+   Sorumluluk duygusunu, hoşgörüyü, saygıyı ve sevgiyi ilişkilerimizin temeli olarak görmekteyiz. Derneğimiz işadamlarını altında toplayan ana çatı konumunda. Bu nedenle Malatya’yı, insanımızı etkileyen, yöneten, onlar adına kararlar veren her kişi ve kuruluşla ilişkilerini geliştirerek sürdürüyor. MAKİAD, yerel siyasi, mülki ve ekonomik kurumlarla, üniversitelerle, vakıf, dernek ve diğer sivil toplum kuruluşlarıyla diyalog halindedir ve bu diyaloğu artırarak sürdürmeyi arzu ediyor. Sağladığı ortak bir gelecek vizyonuyla üyeleri arasında daha ciddi ve kalıcı yatırım ortaklıkları için kapı açıyor. Hızla değişen iş dünyasının yeni değerlerini üyelerine tanıtarak, ülkemizde ve dünyamızdaki değişim trendlerini takip ederek buna uygun fırsatlar sunuyor. Derneğimizin, ülkemizin sosyal, ekonomik, kültürel sorunlarını tespit etmeyi, yeni fikir akımları ve projelerden yararlanarak bu sorunlar çözüme kavuşturmayı amaçlamaktadır. Bu amaçla bazı yerel ve bölgesel projeler üretildi.
+   <br/>
+   <br/>
+   —Neler? Daha somut ifade edebilir misiniz?
+   <br/>
+   <br/>
+   Yer yer misafir konuşmacılar davet ediyoruz. Yılın belirli dönemlerinde toplantılar gerçekleştiriyor, bu toplantılarda gündemde olan ekonomik konular ve ülke tanıtımları hakkında konuşmalar yapılıyor. Ayrıca üyelerimizin çalışanlarını bilgilendirmek, iş ilişkilerini ve kişisel donanımlarını geliştirmeye yardımcı olmak adına eğitim seminerleri veriyoruz. Gücünü üyelerinin ekonomik yeteneklerinden ve iş dünyasındaki ekonomik temsil kabiliyetlerinden alan derneğimiz bu gücü koruma ve geliştirme arzusundadır. Bu amaçla seçkin kuruluşlarla çeşitli seminer ve eğitim programları da düzenlenmekteyiz.
+   <br/>
+   <br/>
+   —Profesyonel çalışan bir insan kaynakları biriminiz var. Bu birim neler yapıyor?
+   <br/>
+   <br/>
+   Kişilerin isteklerini ve imkanlarını, çeşitli özelliklerini tanımasına yardımcı olma ve nihayet bu bilgilerden yararlanma olanakları sunmakta, başta üyelerimize, eğitim programlarına katılmak isteyen misafirlere ve üyelerimizin çalışanlarına yönelik eğitim seminerleri düzenlemekteyiz. Aynı zamanda işadamları derneği olmamız nedeniyle yer yer iş müracaatları olmakta, bunlar da üyelerimizin taleplerine göre yönlendirilmektedir.
+   <br/>
+   <br/>
+   Yurtiçi ve yurtdışı iş ve turistik gezileri de programlarımızda yer almıştır. Bugüne kadar 40 ülkeye iş ve turistik geziler düzenleyen derneğimiz, bölgesel ve uluslararası ekonomik faaliyetleri yerinde görerek üyelerinin ufkunu genişletmiştir. Yurtiçi ve yurtdışı fuarlara katılım ve ziyaretlerle bu süreç hızlandırılmıştır.
+   <br/>
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11410&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040705072651/http://www.aksiyon.com.tr:80/detay.php?id=11410&yorum_id=1)

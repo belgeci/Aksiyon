@@ -1,0 +1,63 @@
+# Müslümanlar anti-semitist değildi...
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Filistin halkının yaşadıkları, dünyaya ne taraftan bakarsak bakalım, hepimiz için öfke ve isyan kaynağı. İsrail devletinin sivil yerleşimlere attığı her bomba aslında yüreklerimizde patlıyor.
+   <br/>
+   <br/>
+   Önyargılardan arınmış halkların asla düşman olamayacağını bilen insanlar için bu savaşın kaynağı İsrail devletinin yanlış uygulamaları. Ama İsrail"de de devletin politikalarına karşı olan, barışsever insanlar olduğunu bilmek, yaşananlara rağmen savaşın bir gün sona ereceğine dair umutları güçlendiriyor.
+   <br>
+    <br>
+     Peki İsrail-Filistin savaşında takındığınız tavrın, haklı her sebebine rağmen, önyargı taşıyan kimi unsurlar barındırdığını düşündünüz mü? Daha açık anlatacak olursak, İsrail devletinin uygulamalarına duyduğumuz öfkenin, aynı zamanda, köklerini tarihin derinliklerinden alan Yahudi düşmanlığıyla ya da en azından bu düşmanlığın terminolojisinden etkilenerek şekillendiği hiç aklınıza geldi mi?
+     <br>
+      <br>
+       Ortadoğu tarihi uzmanı Prof. Bernard Lewis, "Semitizm ve Anti-Semitizm: Çatışmaya ve Önyargıya Dair" adlı kitabında bu bilgi eksikliklerini, farkında olmadan kullandığımız kimi kavramların tarihsel kökenlerini okuyuculara sunuyor. Kitabın ana omurgasını oluşturan semitizm ve anti-semitizm kavramlarını İsrail-Filistin topraklarında yaşanan savaş bağlamında yeniden ele alarak, kökenleri çağlar öncesine dayanan bir önyargıya ve ırksal aşağılama biçimine dikkat çekmeye çalışıyor.
+       <br>
+        <br>
+         Anti-semitizmin kökenlerini Hıristiyanlıktan aldığını belirten Lewis, Yahudilere karşı oluşturulan önyargının ilk halinin dinsel temelli olduğunu ve Musevilikle Hıristiyanlık arasındaki tarihsel ilişkilerden kaynaklandığını ileri sürüyor. Kitapta anti-semitizmin, Hz.İsa"nın mesajının Museviler tarafından reddedilmesi ve Hz. İsa"nın yaşamı ile ölümündeki Yahuda"nın rolünün İncil"de anlatılmasıyla ilgili olduğu çeşitli örnekler ve tarihi olaylarla anlatılmış. Yüzyıllar boyunca Avrupa"nın dört bir yanına dağılan milyonlarca Yahudi, bu dinsel düşmanlıkla bulundukları her yerde karşılaşır; İsa"nın katili, Tanrı"nın sunduğu gerçeklerin reddiyecileri oldukları gerekçisiyle baskı alında tutulur. Gelişen ekonomik süreç ve buna göre şekillenmeye başlayan toplumsal dönüşümlerle beraber bu kavram ve içeriği tamamen ırksal bir nitelik kazanır.
+         <br/>
+         <br/>
+         Avrupa"daki Yahudilerin Hıristiyan dünyasındaki durumunu tarihsel gelişimi içinde her yönüyle irdeleyen Bernard Lewis, 1400 yıllık Arap-Yahudi ilişkilerinin büyük bölümünde Arapların anti-semitik olmadıklarını belirtiyor. "Bu durum onlar da Sami oldukları için değil, büyük çoğunluğu Hıristiyan olmadıkları içindir" tespitini yapıyor. Teolojik benzeşmelerin çoğu zaman Müslümanlarla Musevileri Hıristiyanlığa karşı yakın durmaya ittiğini ileri süren Lewis, bu benzeşmeleri şöyle aktarıyor: "Kilise ve İsrail arasındaki uzun ve teolojik açıdan hâlâ çözüme kavuşturulamamış çatışmaya denk bir çatışma İslamiyet"le söz konusu değildir. Her ikisi de kati biçimde tek tanrıcıdır... Yahudi teolojisini formüle etme çabaları, ilk olarak ortaçağda ve Müslüman topraklarında gerçekleştiği için Musevilik İslami düşünce biçiminden derinden etkilenmiştir... Hem Musevilik hem de İslam, hukuk dinleridir ve Yahudi halakhası ile İslam şeriatı arasında birçok ortak yön bulunmaktadır. Tanrı"dan gelen ve vahiyle bildirilen, hem kamusal hem özel, hem toplumsal hem de bireysel yaşamın her yönünü düzenleyen bir ilahi hukuk olduğuna ilişkin ortak fikir vardır... Ayrıca her iki dinde de Hıristiyanlıktaki gibi teolojik anlamda bir ruhban sınıfı yoktur... 1400 yıl Müslüman devletlerin egemenliği altında yaşayan Yahudiler, bazı küçük istisnalar hariç Hıristiyan Avrupa"sında uğradıkları dinsel ve ırksal aşağılanmalara, hakaretlere maruz kalmadılar..."
+         <br/>
+         <br/>
+         Peki ne oldu da birden her şey tersine dönüverdi? Bu ortalama barış ve halklar arası hoşgörü süreci nasıl oldu da on yıllar boyu sürecek ve iki halk açısından da acı, kan ve gözyaşı dolu bir savaş halini aldı?
+         <br/>
+         <br/>
+         Lewis"e göre Arapların Yahudilere duyduğu düşmanlığın iki durağı var: Birincisi Hitler"in ve Nazi Partisi"nin korkunç propagandaları ve yok edilmesi gereken Yahudilere karşı Arapları desteklemeleri; ikincisi Filistin"de siyonist yerleşimlerinin başlaması ve İsrail devletinin kurulmasından sonraki Arap-İsrail savaşları. Lewis, özellikle bu savaşta yaşanan ve on yıllar boyunca her iki halkı da acı, kan ve gözyaşına boğan bu süreçte anti-semitizmin yeni bir ivme kazandığını ileri sürüyor.
+         <br/>
+         <br/>
+         Lewis, anti-semitizmin tarihi gelişimini ve köklerini "kendi penceresi"nden anlatıyor. Bir de "Sen Yahudi düşmanı mısın yoksa" baskısının yankıları yazılabilse keşke.
+         <br/>
+         <br/>
+         Prof. Dr. Bernadr Lewis
+         <br/>
+         <br/>
+         Everest
+         <br/>
+         <br/>
+         328 sayfa
+         <br/>
+         0 212 513 34 20
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1224 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11586), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050221153444/http://www.aksiyon.com.tr:80/yazdir.php?id=11586)

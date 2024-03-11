@@ -1,0 +1,149 @@
+# Rum'un 'hayır'ında hayır var
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050116193657im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050116193657im_/http://www.aksiyon.com.tr/resim/488/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kıbrıs"ta gözler 24 Nisan"da yapılacak referanduma çevrildi. Sandıktan çıkacak sonuç Ada"nın geleceğini belirleyecek. Prof. Dr. Ruşen Ergeç, Rumların "hayır", Türklerin "evet" demesi halinde KKTC"nin önünün açılacağını dile getiriyor.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kıbrıs"ta son virajlar da dönüldü. Avrupa Birliği uyum yasası sürecini başlatırken, Türkiye ve Yunanistan da Annan Planı"nın Ada"da referanduma götürülmesini kabul ettiğine ilişkin taahhütnâmeyi, BM Genel Sekreteri Kofi Annan"a gönderdi. Şimdi gözler 24 Nisan"da yapılacak referandumda. Kuzey Kıbrıs Türk Cumhuriyeti (KKTC) Cumhurbaşkanı Rauf Denktaş ile Kıbrıs Rum Yönetimi lideri Tasos Papadopulos"un karşı çıktığı Annan Planı"nın geleceği, Kıbrıs"ta yaşayan iki toplumun yapacağı tercihle ortaya çıkacak. Referandum süreci bir yandan devam etmesine ediyor; ancak Annan Planı"nın muhtevasından Avrupa Birliği"nde birincil hukuk olup olmayacağı noktasına kayan tartışmalar henüz bitmiş değil. Başbakan Recep Tayyip Erdoğan, anlaşma sonucunun AB birincil hukuku olması konusunda bir risk olduğunu söylüyor. Aynı tezi anlaşmaya karşı çıkanlar da işliyor. 1999 yılından beri Kıbrıs meselesinin içinde yer alan ve New York"taki görüşmelere katılan Brüksel Üniversitesi Anayasa Hukuku öğretim üyesi Prof. Dr. Ruşen Ergeç, bu konuda en yetkin isimlerden biri. Prof. Ergeç, hukukçu kimliği ile Kıbrıs"ta yaşanan son gelişmeleri dergimize değerlendirdi.
+   <br>
+    <br>
+     -Beşinci Annan Planı"nın KKTC ve Türkiye açısından tatmin edici olduğunu söylüyorsunuz. Sizi bu kanaate sevk eden sebepleri izah eder misiniz?
+     <br>
+      <br/>
+      Annan Planı başından beri iyi bir plandı. Dördüncü ve beşinci planla anlaşma daha da iyileştirildi. Örneğin, senatodaki Türk ve Rum temsilcilerin sayısı 24-24 şeklinde oldu. Garanti açısından Türk askerinin, nihâyetinde 650 kişi de olsa ilelebet Ada"da kalmasının yer alması, iki kesimliliğin gözetilmesi, siyasi eşitliğin tanınması Türk tarafı için önemli kazanımlar. Halbuki daha önce Senato"da yer alacak üyelerin Türk kökenli olacağı; ancak bunların Rum kökenliler tarafından seçileceği; Rumların da Rum kökenlilerin oyları ile belirleneceği söyleniyordu. Şimdi bu tehlike ortadan kalktı. Ayrıca, Rumlar Türk tarafına geçip Türk vatandaşlığı alır, sonra oy kullanma hakkı elde eder gibi birtakım rizikolardan bahsediliyordu. Bana göre teorik olan bu riskler de şimdi ortadan kalkmış oldu.
+      <br/>
+      <br/>
+      -Annan Planı"na nüfuz eden temel felsefe nedir?
+      <br/>
+      <br/>
+      Annan Planı"ndaki temel felsefe şudur: İki egemen devlet yeni bir federasyon kuruyor. Söz konusu olan iki kesimliliği koruyan ortak bir devlet yapısı. Ortak devlete terk ettikleri kısıtlı yetkiler dışındaki bütün yetkileri, sahip oldukları topraklar üstünde ve sınırlar içinde egemen biçimde kullanıyorlar. Bu yetkiler oldukça geniş. Şimdi bunlar Annan Planı ile daha bir pekiştirildi. Bana göre alınan sonuç çok iyi.
+      <br/>
+      <br/>
+      -Anlaşmanın uygulanma şansı var mı?
+      <br/>
+      <br/>
+      Şimdi, bu plan ne kadar iyi bir anlaşma olsa da ortaya çıkacak devlet iki toplumdan oluşuyor. Bu çok önemli. Bütün federal devletlerin tarihinden alınan bir dersten hareketle söylüyorum bunu. Ortada iyi bir anayasa olsa bile bunu uygulayacak olan toplumdur. Kıbrıs"ta iki toplum var. Daha önce aralarında birtakım sürtüşmeler çıkmış. Birbirlerine olan güvenlerinde zedelenmeler meydana gelmiş. Eğer, her iki toplum iyi niyetli olmaz ise dünyanın en iyi anlaşmasını da getirseniz, en mükemmel anayasasını da yapsanız, mutlaka bir problem ortaya çıkabilir.
+      <br/>
+      <br/>
+      -Siz Kıbrıs"ta ne tür problemler çıkacağını öngörüyorsunuz?
+      <br/>
+      <br/>
+      Şiddet açısından bir problem çıkacağına inanmıyorum. İki tarafta da aşırı görüşlere sahip insanlar var. Bazı şiddet olayları gerçekleşebilir. Ancak, ben o safhayı geçtiğimize inanıyorum. Hele Avrupa Birliği"nin uhdesinde böyle bir şey olacağını zannetmiyorum. Fakat, hukukî tartışmaların ve savaşların olacağını tahmin ediyorum. Her iki taraf da Belçika"da olduğu gibi mahkemeler üzerinden mücadelesini sürdürebilir.
+      <br/>
+      <br/>
+      -Bu mücadelede taraflar bireylerden mi oluşur yoksa işin içine oluşturucu devletler de girer mi?
+      <br/>
+      <br/>
+      İki türlü de olabilir. Kurucu devletler arasında hukukî ihtilaf olur. İhtilaflar konusunda yetkili organ Yüksek Divan. Muhtemel davalar Yüksek Divan"a gider. Bireyler de hukukî süreç başlatabilir. Bir Rum, Türk tarafını Yüksek Divan"da mahkemeye verebilir ya da tersi olur. Bence bunlara alışmak lazım. Demokratik federal ülkede bunlar normaldir.
+      <br/>
+      <br/>
+      -Rum tarafı anlaşmadan pek memnun görünmüyor. Neden acaba?
+      <br/>
+      <br/>
+      Bunu New York görüşmelerinde açık biçimde gördük. İlk defa Türk tarafı atağa geçti. Eskiden Rumların işi çok kolaydı. Türkler gelir, masaya yumruğunu vurup giderdi. Onların itiraz etmelerine gerek kalmazdı. Bu oyun ilk kez bozuldu. Şaşkınlık ve endişe New York"ta yüz ifadelerine yansıdı. Avrupa Birliği"ne üyelik vaadi aldıklarından Ada"da çözüm istemiyorlar. Maskeleri düştü yani.
+      <br/>
+      <br/>
+      -Anlaşmadaki itiraz noktalarından ziyâde Avrupa Birliği"nden aldıkları güvenceden mi kaynaklanıyor bu memnuniyetsizlik?
+      <br/>
+      <br/>
+      Müzakere sürecine yeniden başlandığında Rumların tezi şuydu: "Ben Ada"nın tamamına hükmeden tek meşrû hükümetim. Kuzeyi Türkler istila etti. Ben oraya hükmedemiyorum. Ama, Kıbrıs Cumhuriyeti"nin bugünkü anayasasını değiştirmeye hazırım. Azınlık olarak Türk tarafının bütün haklarını koruyacağım. Çoğunluk bizde olduğu için de son sözü söyleme hakkı benim olmalı." Türk tarafı karşı atağa geçince ve Annan Planı"nda Türk toplumunun tezlerine daha fazla yer verilince bunların maskesi düştü. Plan hoşlarına gitmiyor, çünkü eşitliğe yer veriyor, egemenliğin paylaşımını getiriyor. Rumların istemediği şeyler bunlar.
+      <br/>
+      <br/>
+      -Peki, referandumda Türkler "evet", Rumlar da "hayır" derse, nasıl bir tablo çıkar ortaya?
+      <br/>
+      <br/>
+      Bizim için çok güzel bir tablo olur. Türk tarafının muhakkak "evet" demesi lazım. Biz kabul edersek, onlar da reddederse, KKTC egemen bir devlet olarak uluslararası alanda kendine yer bulur, parya olmaktan çıkar ve tanınmaya başlar. Varlığı meşrûiyet kazanır. Hatta, Türkiye ile uluslararası bir anlaşma yaparak, "Ben şu kadar Türk askerinin burada kalmasını istiyorum" diyebilir. Egemen bir ülke olarak böyle bir hakka sahip çünkü. Böylece, uluslararası alanda gayr-i meşrû olarak görülen Türk askerinin durumu da meşrûiyet kazanmış olur.
+      <br/>
+      <br/>
+      -Aynı sonuç Avrupa Birliği"ni nasıl etkiler?
+      <br/>
+      <br/>
+      Türkiye üzerine düşen yükümlülüğünü yerine getirmiş, Annan Planı"nı referanduma götürmüş. Kıbrıs Türk halkının "evet", diğer tarafın da "hayır" dediği bir tablo karşısında kuzeyin hâlâ ambargo altında kalması düşünülemez. Mevcut statüko devam etmez. Mecbûren kuzeyi tanımak zorunda kalacaklar. KKTC, Avrupa Birliği ile ayrı bir ilişki içine girer. AB de ayrı ülke olarak onu birliğe alır. Türk ve Rum temsilciler, bu aşamadan sonra görüşme yapmak isterse masaya iki eşit egemen devlet olarak oturur.
+      <br/>
+      <br/>
+      -Türkiye"de Annan Planı ile ilgili en temel kaygı, anlaşmanın AB"nin temel hukuku haline gelip gelmeyeceği. Sizde de aynı endişe var mı?
+      <br/>
+      <br/>
+      Ben bunu daha evvel söylemiştim. Anlaşmanın mutlaka AB"nin birincil hukuku hâline gelmesi lazım diye. En iyi garanti birincil hukuka geçmektir çünkü.
+      <br/>
+      <br/>
+      -Neden birincil hukuk?
+      <br/>
+      <br/>
+      Çünkü, birincil hukuk hâkimin üzerindedir. Hâkim ona riâyet etmek zorunda. Görevi de onu uygulamaktır zaten. Ancak, anlaşmanın birincil hukuka geçmesi için zamana ihtiyacı var. AB üyesi ülkelerin parlamentolarında onaylanması lazım. Bu da iki-üç seneyi bulabilir.
+      <br/>
+      <br/>
+      -Varsayalım bu gerçekleşmedi. Ne olacak o zaman?
+      <br/>
+      <br/>
+      Onun yerine AB, "uyarlama yasası" (act of adoptation) diye bazı formüller geliştirmeye çalışıyor. Orada, birincil hukuk seviyesinde Kıbrıs"ın Katılım Anlaşması"nın 10. Ek Protokolü var. Bu protokolde "Avrupa Konseyi, Kıbrıs AB"ye katılırsa Türk tarafının da birlik müktesebatına uyumu için gereken önlemleri alacaktır" deniyor. 10. protokolün 4. maddesi konseye bir yetki veriyor, ama konseyin alacağı karar Annan Planı"ndaki derogasyonları kapsar mı kapsamaz mı bu konuda şüphe var.
+      <br/>
+      <br/>
+      -Niye şüphe var?
+      <br/>
+      <br/>
+      Şundan var. Orada konseye verilen yetki, daha teknik konular hakkında. Rumların Türk tarafına geçmesinin kısıtlanması gibi daha derin konular hakkında değil. Bana göre ek protokoldeki yetki, bunları kapsamıyor. Bunun en iyi ispatı şu: Geçen yıl Annan Planı"nda ek katılım protokolü vardı. Orada derogasyonlar teyit ediliyordu. Şimdi Rumlar AB"ye üye oldu. Halbuki Annan Planı"nda vardı o protokoller. Geçen sene onaylanmadığı için havada kaldı. Şimdi o protokolü sürece sokmayı tenezzül ediyorlar. Çünkü o zaman bütün ülkeler kabul ederdi. Aksi takdirde AB"nin genişlemesi bloke edilmiş olurdu. Hepsi paket halinde geçecekti. Oysa bugün ayrı olarak geçirmeye çalışılıyor.
+      <br/>
+      <br/>
+      -Aynı şüphe Başbakan Erdoğan"da da var ki derogasyonlar konusunda "risk" olduğunu söyledi.
+      <br/>
+      <br/>
+      Hükümeti zamanında uyarmıştım. Fakat, bu konuya fazla takılmamak lazım. Şimdi, Avrupa Konseyi karar alacak ve bu derogasyonların AB hukukuyla bağdaştığını açıklayacak.
+      <br/>
+      <br/>
+      -Yarın bir Rum "Bu derogasyonlar birincil hukuka aykırı" diye Lüksemburg"daki Avrupa Birliği Adalet Divanı"nda dava açarsa ne olacak?
+      <br/>
+      <br/>
+      Mahkeme, ortada bir konsey kararı ile ek protokolün olduğunu söyleyecek. Burada şunu açıklığa kavuşturmak lazım. Mahkeme, tam katı hukuk açısından "Tamam, bunlar birincil hukuk değil" diyebilir. "Ben bu derogasyonlara, AB hukuku ile örtüşüyor mu örtüşmüyor mu diye bakmak istiyorum" diyebilir. Hukukî açıdan bunu demesi mümkündür. Ancak, bu kararı verecek olan kişiler siyasî mantığı olan hâkimler. Avrupa"daki siyasî gelişmeleri yakından bilen bu kişilerin kalkıp da hukuk fakültesi birinci sınıf öğrencisi gibi "Tamam, bunlar AB hukukuna aykırıdır" şeklinde bir karar vermeleri beklenmemeli. Böyle düşünmezler. Aksine, siyasî iradeyi dikkate alırlar ve "Bizim alacağımız karar ne?" sorusunun cevabını ararlar. Hukuka bakmadan önce siyasî durumu dikkate alırlar ve verecekleri kararın bütün bir süreci alt üst etmesine izin vermezler.
+      <br/>
+      <br/>
+      Kıbrıs"ta 40 senedir devam eden bir ihtilaf olduğu ortada. Avrupa Konseyi"ndeki ülkelerin imzaladığı bir karar var ayrıca. Problemin çözülmesini BM, ABD gibi dış faktörler de istiyor. Hukukî bir karar alarak bütün süreci akim bırakmazlar. Kararı verir, sonra da yardımcılarına kararın gerekçesini hukuka uygun bir şekilde yazmasını isterler. Kıbrıs konusunda, örneğin, 10. Protokol"de yetki olduğunu yorumlayarak ya da konseyin aldığı karar birincil hukuk niteliğindedir ya da birincil hukuk niteliğinde değildir diyerek bir hukukî gerekçe yazabilirler. "Birincil hukuk niteliğinde değildir" hükmünü de sonra inceler ve "Bu, AB hukuku ile bağdaşıyor; çünkü bir devletin içindeki kamu düzenini korumak için getirilmiş kısıtlamalardır" diyerek işin içinden çıkabilirler.
+      <br/>
+      <br/>
+      -Kıbrıs meselesinin bir başka boyutunda Ankara ile Brüksel arasındaki ilişkiler yer alıyor. Türkiye, Kıbrıs konusunda iyi niyetini ortaya koydu. Aralık 2004"ü düşündüğümüzde Brüksel bu iyi niyete nasıl somut bir karşılık verir?
+      <br/>
+      <br/>
+      Türkiye"nin yükümlülüğü, Annan"ın ileri sürdüğü önerileri kabul etmek ve bu anlaşmayı referanduma götürmekti. Ankara"nın yükümlülüğü burada bitiyor. Referandumda "evet" ya da "hayır" çıkması önemli değil. Türkiye"nin yapabileceği planın iyi bir anlaşma olduğunu söylemektir. Ondan ötesi beklenemez kendisinden. Gelinen noktada Türkiye"nin AB üyeliği konusunda Kıbrıs"ın bir engel olmaktan çıktığı söylenebilir. Avrupa Birliği"nin Aralık 2004"te Türkiye"ye müzakere tarihi verebileceği konusunda ben iyimserim. Kıbrıs engeli aşılır, birkaç reform daha var, onlar da yapılır ve bunları uygulamaya başlarsak, AB"nin müzakere tarihi vermeme gibi bir seçeneği yok bana göre.
+      <br/>
+      <br/>
+      -Diyelim ki vermediler müzakere tarihini. Bunun AB"ye faturası nasıl olur?
+      <br/>
+      <br/>
+      Avrupa Birliği açısından sonuçları kötü olur tabii ki. Bugün Avrupa"da yaklaşık 16 milyon Müslüman yaşıyor. ABD"nin Irak politikasından ötürü Müslüman nüfusa sahip ülkelerde Batı medeniyetine karşı bir öfke oluşmuş durumda. Medeniyetler Çatışması"nın konuşulduğu bir ortamda eğer siz Türkiye"yi AB"ye üye olarak almazsanız, bu, teröristlere ve Batı medeniyetinin düşmanlarına "Siz haklısınız" mesajı vermiş olur.
+      <br/>
+      <br/>
+      -Türkiye"nin AB kapısından dönmesi Batı dışı medeniyet havzalarındaki öfkeyi körükler diyorsunuz?
+      <br/>
+      <br/>
+      Evet. Şöyle bir algılama ortaya çıkar: "Bakın Türkiye, Batı"nın bütün temel prensiplerini benimsedi. Ona rağmen dışladılar. Bu adamlar Müslümanlığa karşı." Batı"nın bugüne kadar verdiği "Biz Müslümanlara karşı değiliz, evrensel düzeyde din ve fikir hürriyetine sahip, hukuk prensiplerine bağlıyız" mesajı bir anda tersine dönebilir. Türkiye"yi dışarıda bırakan her bir karar, Batı"nın "Hıristiyan toplumu" olduğu kanaatini pekiştirir. Nitekim bu da medeniyetler savaşı tezini güçlendirir.
+      <br/>
+      <br/>
+      -Avrupa açısından durum böyle. Peki, verilmeyen müzakere tarihi kararı, Türkiye"nin iç dinamiklerini nasıl etkiler?
+      <br/>
+      <br/>
+      Türkiye açısından da ben biraz karamsarım. Türkiye"de ciddi reformlar yapıldı. Kaldı ki bunlar yalnızca AB için değil, Türkiye için de yapıldı. Türkiye"de, AB çerçevesinde yapılan reformlara muhalefet eden güçlü lobiler ve gruplar var. Brüksel"in aleyhte vereceği bir karar bunların elini güçlendirir. Hükümete, "Bütün reformları yaptın, ama hiçbiri bir işe yaramadı" diyerek baskı yapabilirler. Türkiye"de, bu tür muhalif grupların kuvvetlenmesi AB"nin lehine olmaz. Bu işten Brüksel zararlı çıkar.
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11358&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050116193657/http://www.aksiyon.com.tr:80/detay.php?id=11358&yorum_id=1)

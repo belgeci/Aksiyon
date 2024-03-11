@@ -1,0 +1,44 @@
+# 2004'ü virüsler istila etti
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040403204049im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040403204049im_/http://www.aksiyon.com.tr/resim/483/74.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  E—mail virüsleri şubat başından beri tüm internet ağlarını istila etti. İnternet bağlantılarının yavaşlamasına neden olan virüsler Türk Telekom’un ADSL hizmeti verdiği şirketlerde işleri durma noktasına getirdi.
+ </font>
+ <p>
+  <font class="content">
+   Şubat bilgisayar tarihinin en kötü ayıydı. Şubat ayı boyunca birçok yeni virüs ortaya çıktı ve tüm bilgisayarlara bulaşmamış olsa da bilgisayar kullanıcılarını ve internet ağlarını olumsuz etkiledi. Mydoom, Nachi, Doomjuice, Netsky, Bagle ve türevlerinden oluşan virüs salgını e—mail yoluyla tüm bilgisayarları istila etti.
+   <br>
+    <br/>
+    Panda Software’in ücretsiz virüs tarama sistemi Panda ActiveScan’i kullananlarda tespit edilen virüsler arasında Mydoom.A solucanı tüm dünyada en çok zarar veren virüs seçildi. Yüzde 14’lük pay alan Mydoom virüsünü yüzde 6 ile Downloader.L ve Netsky.B takip etti.
+    <br/>
+    <br/>
+    Virüs tehdidinin artarak devam edeceğini belirten bilgisayar güvenliği uzmanları, virüslerden kurtulmak için internet servis sağlayıcıları ile yazılım şirketlerinin güçbirliği yapması gerektiği görüşünde birleşiyor.
+    <br/>
+    <br/>
+    E—mail yoluyla yayılan virüsler, eskisi gibi sadece bilgisayar kullanıcılarını etkilemiyor. E—maillere ekli olarak dolaşan virüslerin oluşturduğu data trafiği, hem ülke içindeki hem de uluslararası fiber hatların data kapasitesini aşıyor. Dolayısıyla internet hızında ciddi bir yavaşlama hissediliyor.
+    <br/>
+    <br/>
+    İnternet trafiğinin yavaşlığını en fazla hissedenler ise Türk Telekom’dan internet bağlantı hizmeti alan aboneler. ADSL (genişbant internet hizmeti) ve dial—up (çevirmeli bağlantı) abonesi olanların olumsuz etkilenmesinin temel nedeni, geçtiğimiz aylarda abone kapasitesi artırılan ADSL sistemi. Daha önce 10 bin aboneye hizmet veren ADSL sistemi, Türk Telekom’un bant genişliği artırılmadan 70 bin abone kapasitesine çıkarıldığı için yedide bir oranında yavaşladı. Özellikle mesai saatlerinde kendini gösteren yavaşlama, e—mail virüslerinin oluşturduğu trafikle birleşince iş dünyasını felç ediyor. Hızlı internete kavuşma beklentisiyle ADSL aboneliği satın alan şirketler, diğer yollardan internete bağlanmanın maliyeti yüksek olduğu için Türk Telekom’un bant genişliğine yatırım yapmasını bekliyor.
+    <br/>
+    <br/>
+    Türk Telekom ise, bant genişliğini artırmaya yerine ADSL abone sayısını 270 bine çıkarmak için ihaleleri tamamladı. Mayıs ayında kullanıma açılacak yeni hatlarla birlikte Türkiye’de ADSL kullanmak tam bir işkenceye dönüşecek.
+    <br/>
+    <br/>
+    Diğer yandan özel şirketlerin de ADSL sistemi kurabilmesine yönelik mevzuat düzenlemesi yapıldı. Çok yakında internet şirketleri de ADSL hizmeti vermeye başlayacak. Yurtdışı bağlantılarını sağlama almak için uydu bağlantılarına yatırım yapmaktan çekinmeyen özel şirketlerin ADSL pazarında kısa zamanda lider konuma geleceği tahmin ediliyor.
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11228&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040403204049/http://www.aksiyon.com.tr:80/detay.php?id=11228&yorum_id=1)

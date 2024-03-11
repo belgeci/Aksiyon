@@ -1,0 +1,142 @@
+# Siyasetin Dominant Teyzeleri
+
+*Meral Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Türk siyasetinde lider eşleri yanlız bu gün değil her dönemde etkiliydi.İlk First Lady Latife Hanım, ülkenin geleceğine dair projelerde otoritesini hissettirdi. Mevhibe İnönü, reformları uygulayan çağdaş kadın olarak ön plandaydı.Bu gelenek  Nazmiye Demirel, Semra Özal, Ranşan Ecevit, Nermin Erbakan,Berna Yılmaz ve eklenecek yeni isimlerle devam edeceğe benziyor... Geçmişte kadının siyasete etkisi anormal bir durum gibi kabul edilirken şimdilerde devletin zirvelerine yürüyenler yanlarında eşlerini göstermeyi asla ihmal etmiyor.
+   <br/>
+   <br/>
+   Medya çağının siyasetçi eşleri karizma olarak, Leh asıllı, sarışın, Hürrem Sultan’ı henüz gölgeleyebilmiş değiller ama kamera ve objektif uyumunu tutturanlar kendi alanında birer yıldız olmayı başarabiliyor. Eşler ne kadar hoş ve modernse, seçim meydanlarında çocukların saçlarını okşayıp, kalabalıklara tatlı tatlı gülümseyebiliyor, lider gibi el sallayabiliyorlarsa mutlu aile tablosu pekişmiş oluyor. Eğer lider eşi yaşlıysa ve modern değilse...
+   <br>
+    <br>
+     Medyanın ve dolayısıyla halkın ya da seçmenin sempatisini kazanmak için gelişmiş ülkelerdeki gibi bizde de politikacı eşinin çok okumuş, ekonomik bağımsızlığını elde etmiş, film yıldızı kadar güzel ve özgür bir kadın olması gerekmiyor. Basında yer almaktan kaçınmayan, sevimli ve uyumlu olması yeterli. Bizimkiler gelişmiş ülkelerle yarışı daha da ileri götürüp First Lady’leri giyiminden kuşamına, takı ve mücevherlerine hatta yüz ifadesinin tedirgin olup olmamasına kadar analize tâbi tutabiliyor. Batıda politikacılar eş ve ailesiyle birlikte seçim pazarına çıkar. Lider eşlerinin bir kadın kitlesini temsil etmesi beklenir. Bunun somut örneğini Hillary Clinton ile Barbara Bush arasındaki kıyas farkının seçimlerdeki etkisinde görmüştük.
+     <br>
+      <br>
+       Politikacıların eşleriyle birlikte hareket etme süreci bizde Batılı yaşam tarzına uygun bir aile profili olarak gelişti. Kadın sorunları dahilinde lider eşinden belirli kadın sorunlarına eğilmesi beklendi bir dönem. Bu bakış açısı zamanla değişti.
+       <br>
+        <br>
+         <br/>
+         <br/>
+         Benim First Lady’im...
+         <br/>
+         <br/>
+         Mevhibe İnönü, reformları uygulayan çağdaş kadın olarak ön planda bulunurken, Cumhuriyetin ilk First Lady’si Latife Hanım, kültürlü ve karizmatik yapısıyla etrafındaki siyasi eşleri üzerinde önemli bir etkiye sahipti. Kısa süren evliliğinde ülkenin geleceğine dair projelerde ve Mustafa Kemal’in arkadaş çevresinde baskın tutumunu hissettirdi. Latife Hanım’dan sonra zamanın deyimiyle “Birinci Kadın” olan Mevhibe İnönü için konumu gereği ülkeyi içeride ve bilhassa yabancı ülkelerde temsil etmek daha önemliydi. Siyasi meselelere karışmaktan kaçındı. Özveri ve yumuşak huylu olmayı lider eşinde bulunması gereken en önemli özellik olarak gördü. Bu yönüyle Adnan Menderes’in eşi Berin Hanım’la benzeştikleri söylenebilir. Politikadan uzak, sade bir hayatın içinde kalan Berin Hanım, meydanlarda görülmedi. Köy köy dolaşıp meydanlarda görülen ilk politikacı eşi Nazmiye Hanım oldu. Kalabalıklar arasında önde ama siyasette arka planda görünse de Nazmiye Hanım, zaman zaman eşiyle arası açılan politikacılarla atışmaktan da geri kalmadı.
+         <br/>
+         <br/>
+         Özal çiftinin baskın siyasi duruşu Türk siyasetine yeni bir dönem kazandırdı. Hâlâ belirli davetlerin ve eğlence yerlerinin baş köşesindeki masanın hanımağa modunda Semra Özal’a ayrılması geçmişteki politik duruşunun semeresi.
+         <br/>
+         <br/>
+         Bazı yönleriyle Semra Özal’ın ağırlıklı tutumunu Rahşan Ecevit’in parti çalışmalarına benzetmek mümkün. Rahşan Hanım’ın DSP’de Başkan Yardımcısı olarak aktif bir görevi var. Semra Hanım, eşinin Cumhurbaşkanlığı döneminde ANAP’ın liderliğine soyunmuş, partinin başına geçmesine ramak kalmışken farklı bir rota çizmişti. Cumhuriyet döneminden bu yana siyasetin birinci kadınları belirgin bir kaç portrenin dışında sanıldığı gibi sadece eşlerine yardımcı konumlarıyla yetinmiş değillerdi. Latife Hanım - İş Bankası ilişkisi
+         <br/>
+         <br/>
+         Ufak tefek, çoğunlukla başı örtülü, akıllı, okumuş, Avrupa görmüş ve ileri fikirli bir kadın olan Latife Hanım’ın görüşlerine Mustafa Kemal’in de çok önem verdiği bilinir. Devrin siyasetçi eşleri arasında ciddi otoritesi olan Latife Hanım, bir sohbet sırasında, “Saltanatla geri gelseydi ben sultan olurdum” der. Köşkün idaresinde oldukça başarılı olan, Mustafa Kemal’e düzenli bir aile hayatı yaşatan Latife Hanım ve ailesinin    ülkenin geleceğine dair bazı kararlarda etkileri görülür.
+         <br/>
+         <br/>
+         Ticaretle meşgul olan Latife Hanım’ın babası Uşakizade Muammer Bey, savaş sonrasında İzmir’de yaşanan ihracat sıkıntısını Mustafa Kemal Paşa’ya iletir ve ihracatla uğraşan bir şirket kurmak istediğini söyler. Kayınpeder Uşakizade Muammer Bey’in içinde bulunduğu ticari sıkıntı İş Bankası’nın doğuşuna neden olacaktır. İzmir’in tanınan köklü ailesi Uşakizadelerle Mustafa Kemal arasındaki saygın aile ilişkisi daha sonraları Latife Hanım’la boşanma aşamasında Mustafa Kemal’e zor anlar yaşatır.
+         <br/>
+         <br/>
+         Mevhibe İnönü’nün torunu Gülsün Bilgehan, Mevhibe İnönü’yü anlatan kitabında Latife Hanım ve Atatürk’ün ilişkisinden bahsederken, Mustafa Kemal’in evliliğinin bittiğini iki insana izah etmekte zorlandığını kaydeder. Bunlardan biri onun aile hayatını daima destekleyen İsmet İnönü, öbürü de Latife Hanım’ın annesi olur. Mustafa Kemal’in kayınvalidesini çok saydığını, zamanla da severek bağlandığını kaydeden Bilgehan, kızının boşanacağını duyar duymaz İzmir’den Ankara’ya hareket eden Latife Hanım’ın annesini kırmaktan çekinen Paşa’nın olaylar yatışıncaya kadar Çankaya’dan kaçıp şehir dışına gittiğinden bahseder.
+         <br/>
+         <br/>
+         Latife Hanım evliliğinin bitmesinden sonra bir köşeye çekilir ve ölünceye dek, geçmişe saygılı ve suskun kalır. Hiç bir zaman yorum yapmaz. Nezihe Araz’ın Latife Hanım’ı yazdığı kitabında bitmiş bir evlilik hakkında yorum yapmanın törelerine sığmayacağını söyleyen Latife Hanım, “M. Kemal’le birbirimize verilmiş bir sözümüz var. Onun hatıraları  benim için çok mukaddestir” der.  Şefleri barıştırmaya çalıştı
+         <br/>
+         <br/>
+         Latife Hanım ile Mustafa Kemal’in evliliğinin bitmesinden sonra ülkenin birinci kadını Mevhibe İnönü olur. Ömründe ilk kez Lozan Konferansı'nda fotoğraf makinalarını kendisine yöneltmiş sorular soran gazeteci kalabalığıyla karşılaşan Mevhibe İnönü, irkilip arkadaşlarının arasına gizlenir.
+         <br/>
+         <br/>
+         Sade, iddiasız ve doğal zarafetiyle bilinen Mevhibe Hanım, bütün yaşamı boyunca gazetecilerin sorularını gülümseyerek geçiştirir. Kendisi ya da eşi hakkında hiç bir zaman yorum yapmaz. Uzun yılar Türk kadınını hem ülke içinde hem de yurt dışında temsil etme görevini üstlenen Mevhibe İnönü için birinci derecede önemli olan ailesinin mutluluk ve huzurunu temin etmektir. Bunu eşine karşı karakteristik bir özelliği olan “yumuşakbaşlılık”la yapar. Eşinin gerek ülke yönetiminde gerekse Atatürk’le olan ilişkilerinde ne müdahale etmeyi ne de bu konuda çevresine yorum yapmayı uygun görür. Mustafa Kemal’in ziyaretlerinde, ev sahibesi olarak özenli bir sofra hazırlar, hizmetini kusursuz yapmaya gayret etikten sonra onları başbaşa bırakıp yanlarından ayrılır.
+         <br/>
+         <br/>
+         Mustafa Kemal’in vefatından kısa bir süre önce Mevhibe Hanım artık dayanamaz ve kocasının Atatürk’le ilişkilerine müdahale eder. İsmet İnönü’ye Mustafa Kemal’in ziyaretine gitmesi gerektiği noktasında baskı yapar ve ikna eder ancak karşı taraftan aynı şekilde yanıt gelmediği söylenir. Siyasetin hanım güzeli
+         <br/>
+         <br/>
+         Dostlar vasıtasıyla tanıştırıldıkları zaman aktif siyasete girmeyi düşünen biriyle evlenmek istemediğini belirten Berin Menderes, eğitim ve görgü olarak politik arenada eşine bir çok yönden katkıda bulunabilecek kapasiteye sahip bir Osmanlı hanımefendisidir. İzmirli Evliyazade ailesine mensup olan Berin Hanım’ın annesi de dönemin gazetelerinde yazıları çıkan tanınmış bir gazetecidir.
+         <br/>
+         <br/>
+         1930’larda aktif siyasete giren Adnan Menderes’i politikayı sevmese de destekleyen Berin Hanım, 10 yıl süren başbakanlık döneminde siyasetin arka planında, sessiz ve gösterişsiz kalmayı tercih eder. Adnan Menderes’in adı ülkenin dört bir yanında yankılanırken eşini ne fazla merak eden olmuştur ne de seçim meydanlarında gören. Ankara çevrelerinde onu tanıyanlar “Siyasetin Hanım Güzeli” diye bahsederler ondan.
+         <br/>
+         <br/>
+         Berin Hanım, evlerinde kalabalık heyetlerle siyaset konuşulduğu akşam sofralarında bile bulunmaktan uzak durmayı tercih eder. Toplantılarda, balolarda, açılış törenlerinde eşinin yanında pek görünmez. Hakkında magazinel boyutta bile çok az şeyler söylenip yazılır.
+         <br/>
+         <br/>
+         Berin Hanım’la ilgili yorumlara baktığımızda onun görgü ve kültürel potansiyelinin insanları etkilediğini görürüz. Dönemin gazetecilerinden Mümtaz Fenik’in de dikkatini çeker Berin Hanım’ın dönemin zor şartlarına rağmen taşıdığı rol. Ülke çapında yapılan icraatların, atılan temellerin, yükselen tesislerin çoğunu Türkiye başbakanın eşine borçludur diye yazar Fenik. ABC basın ajansının hazırladığı yazı dosyasında belirtilen bu bilgiler ve Dr. Mükerrem Sarol’un Berin Hanım’la ilgili açıklamaları Berin Hanım’ı anlamakta önemli kaynak niteliğinde. Adnan Menderes’in yakın arkadaşı ve “Bilinmeyen Menderes” kitabının yazarı olan Mükerrem Sarol, Menderes’in eşi Berin Hanım’ı kendi politik ve sosyal yaşamının özenle dışında tutması konusunda Menderes’le aynı görüşte değildir. Menderes’in hayat arkadaşındaki niteliklerinden istifade etmeyişini büyük talihsizlik olarak görür. Zeki, meziyetli ve yabancı dil bilen Berin Hanım’ın ülkenin dış ve iç ilişkilerinde eşine fazlasıyla yardımının dokunabileceğine inanır.  “Gülümse çekiyorlar, Nazmiya’nım”
+         <br/>
+         <br/>
+         Nazmiye Demirel’in başbakan eşi olarak ilk kez yabancı sefireler, komutan eşleri ve bakan eşlerinden oluşan kalabalık davetli grubuna bir çayda ev sahibeliği yaptığı yıllar... Davetliler arasında daha önceki bir yazısında Nazmiye Hanım’ın taktığı şapkalar hakkında yorum yapan Müşerref Hekimoğlu da vardır. Nazmiye Demirel onu görünce “Müşerref Hanım, bizim şapkalarımızı değil, kocalarımızın politikalarını yazmanız size daha çok yakışmaz mı?” diye çıkışır. Bu sözlerden sonra Nazmiye Hanım’a bakışım değişti diyen Hekimoğlu davetlileri ağırlama noktasında Nazmiye Hanım’ın kırdığı potları düzeltmek için ona yardımcı olur ve işi tatlıya bağlarlar.
+         <br/>
+         <br/>
+         Süleyman Demirel’le aynı köyden ve uzaktan akraba olan Nazmiye Hanım’ın diğer lider eşlerinden ayrıldığı önemli özelliği köy köy, kasaba kasaba Demirel’in peşinden gidip seçim meydanlarında görünen ilk lider eşi olması. Bu açıdan bile  onun için “Demirel’in gizli kurmayı” benzetmesi fena bir tespit sayılmaz.
+         <br/>
+         <br/>
+         Devlet protokolünde yer aldığı fakat siyasetle ilgili pek laf etmemiş olması Nazmiye Hanım’ın sözünü esirgediği anlamına gelmiyor. Bir dönem Süleyman Demirel’le takışan Tansu Çiller’i protokolde öpmemiş, geçiştirmişti. Üstelik Tansu Çiller dönemin başbakanıydı. Politikalarıyla da eleştiriyordu Çiller’i. Kaynak bulmak için ülkenin lojmanlarını önermesine sert çıkmıştı: “Kızım sen lojmanda oturmadığın için bilmezsin...”
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+         Davetlilerin haricinde evde yemekleri kendi yapan, köşkün bahçesinde bile tarhana kurutan, fırsat buldukça elişleri yapmayı da seven Nazmiye Hanım’ın zaman zaman namaz kıldığı ve isim belirtmeden yardımlarda bulunduğu rivayet ediliyor. Ancak politikacı eşlerinde sıkça görülen lösemili çocuklara yardım gibi medyatik kampanyalarda isminin geçtiğine şahit olmuyoruz.
+         <br/>
+         <br/>
+         Elinde çoğu kez kırmızı nostaljik bir mendil taşıyan Nazmiye Demirel’e köşkten taşınırken fotoğraf çekildiğini gören Süleyman Demirel’in “Biraz gül, fotoğrafın çekiliyor” uyarısı fotoğraf altı yazısı olarak bile kullanılmıştı.
+         <br/>
+         <br/>
+         Bir röportajında ehliyetinin olmadığını, buna ihtiyaç duymadığını belirten Demirel’in, siyasetteki ilk yıllarında Nazmiye Hanım’ın arabayı kullandığı, Demirel’in ise yanında oturduğu görülür.  Arım balım peteğim
+         <br/>
+         <br/>
+         1991 sonbaharında ANAP İl Başkanlığı döneminde İstanbul’da katıldığı bir sempozyumda tıklım tıklım dolu olan salona “Arım balım peteğim” şarkısı ve alkışlar eşliğinde giren Semra Özal, eşi Turgut Özal’ın başbakanlık ve cumhurbaşkanlığı döneminde siyasette belirgin bir karakter çizer. ANAP İstanbul İl Başkanlığını kazandıktan sonra İstanbul’a geldiği zaman hava alanında “büyük başkan” sloganlarıyla karşılanır.
+         <br/>
+         <br/>
+         O döneme kadar görülmeyen kalabalıkta bir kadın grubunu etrafında toplar. Papatyalar olarak tanımlanan bu kadın sosyetesi aynı zamanda politik ve sosyal duyarlılığa da sahiptir. Türk Kadınını Güçlendirme ve Tanıtma Vakfı çatısı altında çeşitli sosyal yardım ve aktiviteleri olan “Papatyalar” aktif siyasete de açıktılar. Siyasette daha çok kadın bulunmasını arzu ettiğini her seferinde belli eden Semra Özal, gazetelere yansıyan bir demecinde “50 kadını birden Meclis’e sokmak isterim” diyordu. Vakfın beş yıl boyunca aktif başkanlığını yürüten Semra Özal’dan bahsederken dönemin yabancı gazeteleri “20. Yüzyılın Sultanı” tanımlamasını kullanıyorlardı.
+         <br/>
+         <br/>
+         Semra Özal, ANAP’ın seçim kampanyalarında sessiz kalmaz. Yüksek ses teknolojisiyle döşenmiş GAP adında özel bir seçim otobüsüyle çalışma yapar. Hatta Mesut Yılmaz’ın başbakan oluşunda Semra Özal’ın çalışmaları büyük rol oynar.
+         <br/>
+         <br/>
+         Semra Hanım’ın politik manevralarını  Yusuf Bozkurt Özal, tasvip etmez. Partiye oy kaybettirdiğini dile getirir.
+         <br/>
+         <br/>
+         Cumhurbaşkanı eşi, ANAP İl Başkanı, Vakıf Başkanı, anne, büyükanne ve sokaktaki vatandaş... “Bir bedende 5 kişi taşıyorum” der. Sadece lider eşi vasfının kendisine yetersiz kalacağını vurgular. Semra Hanım’ın siyasi tutumunun kendi ihtirasından kaynaklandığını ileri sürenler olduğu kadar, Özal’ın teşviki olduğunu düşünenler de vardır.
+         <br/>
+         <br/>
+         Bunun Özal’ın isteği olduğunu düşünenlerden biri de Gazeteci- Yazar Mehmet Barlas. Barlas’a göre; belli süreden sonra iktidardaki politikacı kendisi olmadan ülke yönetilemeyeceğini zannediyor. Kendisine yakın olan hiçkimse olmadığını, tek başına oluğununu varsayıyor ve sonunda sadece kendi ailesine dönmeye başlıyor. Özal, kendisi ve ailesinin dışında kimsenin kendisine tam sadık olmadığına, kendisi olmadan ülkenin yönetilemeyeceğine inandı. Semra Özal’ın kendisine yönelik bütün kötülüklere karşı bir ön sezisi olduğuna inandı. Erkeklerde genellikle bir zaaf vardır. Hanımlarda kendilerinde olmayan bir önsezi olduğuna ve kendilerine yönelik kötülükleri keşfettiklerine inanırlar. Turgut Özal, Semra Özal’a bağımlı hale geldi. Aynı şey Bülent Ecevit’te ve diğer politikacılarda da mevcut...  Berna Hanım’ın sokak çocukları
+         <br/>
+         <br/>
+         Yıldırım Mayruk imzalı giyimiyle kokteyllerin, kampanyaların şık hanımefendisi Berna Yılmaz, seçim meydanlarında politikacı selamı veren sempatik tavrıyla medya yıldızı olmaktan uzak bir yapıda değil. Çocukların lösemiden ölmemesi, sokakta yatmaması adına katıldığı kampanyalarla tanınıyor; yeri geliyor yine çocuklara katkı olsun diye defileye katılıp podyuma çıkıyor... Vehbi Koç Vakfı’nın Amerikan Hastanesinde kurduğu sağlık merkezinin açılışında Rahmi Koç saygıyla eğilip Berna Hanım’ın elini öperken objektiflere takılan kareye bakılırsa iş çevrelerinde hatırı sayılır bir imaja sahip.
+         <br/>
+         <br/>
+         Yurt içi gezilerinin sıklığıyla siyasetçileri geride bıraktığı şeklinde yorumlar yapılan Berna Yılmaz, gittiği illerde partinin genel başkanı gibi karşılanıyor. Eşinin yanında sürekli gülümseyen yüzü ile bulunuyor. Kalabalıklara el sallayışındaki politik duruşun aksine siyaset ve parti içi meselelerden uzak kalıyor. Cerrahpaşa Tıp Fakültesi’ne Çocuk Acil Servisi’nin açılışı için geldiğinde dışarıda başörtü eylemi yapan üniversiteli öğrenciler ve hasta yakınları tarafından “Günlerce eylem yapan öğrencilerden haberiniz yok mu?” şeklindeki sorulara maruz kalıp ne söyleyeceğini bilememiş, “Bu siyasi bir mesele” demişti.  Rahşan - Golda Meir benzerliği
+         <br/>
+         <br/>
+         Gençlik dönemiyle şimdiki yılları arasında giyim kuşam bakımından ciddi farklar göze çarpmayan Rahşan Ecevit’in siyasi otoritesinin çok fazla gündeme gelmesi daha çok konjonktürle alâkalı. Kimilerine göre onunki eşini koruma iç güdüsü. Onun dominantlığını içinde yetiştiği kültürel çevreyle ilintileyen yorumlar da bulunuyor.
+         <br/>
+         <br/>
+         Rahşan Hanım sadece lider eşi değil, aynı zamanda DSP’nin genel başkan yardımcısı. Dolayısıyla sahip olduğu bu aktif görevi onun ne Mevhibe İnönü, ne de Berin Menderes’le kıyas kabul edilemezliğini ortaya koyuyor. Röportaj için gelen gazetecileri eşiyle başbaşa bırakıp bir kenara çekilmeye, eşinin arkasında bulunup sempatik tavırlar sergilemeye ne yapısı ne de konumu müsait.
+         <br/>
+         <br/>
+         Diğer açıdan Rahşan Ecevit’i görünüş ve karakteriyle İsrail’in eski Basbakanı Golda Meir’e benzetenler de var. Araştırmacı-Yazar Ilgaz Zorlu’ya göre, Rahşan Hanım’ın dominant karaktere sahip olması için fazlasıyla gerekçe sıralanabilir. Zorlu’ya göre Rahşan Hanım’ın belirleyiciliği kültürel bir mesele. Ona göre Rahşan Hanım, ana erkil bir kültüre sahip.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+         Kalıtsal özellikler bir yana siyasetin hanımağalarına -en masumundan eşlerine destek vermek için- çevirdikleri entrikaları bir gün gerçekleştirebilecekleri önceden söylenseydi belki de buna kendileri bile inanamayacaklardı. Gazeteci Yazar Mehmet Barlas’ın da ifade ettiği gibi lider hırsı başka hırslara benzemez. Birinin varlığı diğerinin yok olmasını gerektirdiğine göre... Üstelik geçmişin tecrübesi çoğu kez işe yaramaz. Siyasi açıdan geçmişin tekerrür ettiğine artık inandığımız ülkemiz siyaset pazarında bir kez daha politikacılar ve eşleri boy gösterecek. Belki de, hatta muhtemelen kadınlar lider kocalarından daha önde koşacak. Meydanlarda ya da ev içinde. Fark etmez... Ne de olsa bir dönemin başbakan eşi “çocukları ve erkekleri kadınlar yönetir” deyip, konuya nihai noktayı koymuştu.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 391 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1782), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301174440/http://www.aksiyon.com.tr:80/yazdir.php?id=1782)

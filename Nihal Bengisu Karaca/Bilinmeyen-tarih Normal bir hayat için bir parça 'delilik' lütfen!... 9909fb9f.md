@@ -1,0 +1,38 @@
+# Normal bir hayat için bir parça 'delilik' lütfen!...
+
+*Nihal Bengisu Karaca Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20031027075658im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20031027075658im_/http://www.aksiyon.com.tr/resim/447/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir “Anlat Bakalım”, ya da “Benden Bu Kadar” kadar komik olmasa da hayatın insana yaraşır bir şey olması için bir parça ‘anormal’ olunması gerektiğini öğütleyen ve bence doğru parametrelerden hareket eden bir film ‘Asabiyim’.
+ </font>
+ <p>
+  <font class="content">
+   Terapi genellikle psikiyatrın bu iş için ayrılmış odasında, kimin hasta kimin doktor olduğunun altını iyice çizen bir dekorasyon eşliğinde yapılır. Burada doktor da hasta da güvenli sulardadır; hasta hastalığını bilir, doktor doktorluğunu. Doktor hasta tarafından talep edilmiştir, hastanın psikiyatrın ‘akıl sağlığına’, nosyonuna ve söylediklerinin çok şey ifade edeceğine güven duyması sözkonusudur. Bu düzenek alt üst olduğunda neler olabilir peki? Hasta doktorun hayatına sızmaya kalkışırsa mesela, ya da doktor hastasıyla birlikte yaşamaya kalkarsa?
+   <br/>
+   <br/>
+   Üstelik psikiyatrlar da ‘anormal’ olabilirler. Bu anormallik kuşkusuz neyin gerçekte ‘normal’ olduğu sorusuna götürür bizi. Sevmediğimiz kişilere gülümsemek zorunda olmamız normal midir? Basit bir terfi için en hayati tepkilerimizden feragat etmemiz, psikolojinin ‘persona’ dediği bir bir üst kimlikle dolaşmak, onu gerçekliğimizi örten ikinci bir maske gibi takmak zorunda olmamız. ‘Normal’ midir?
+   <br/>
+   <br/>
+   Psikiyatrların delilerle uğraşa uğraşa zaman içinde ‘onlara’ benzedikleri gibi ilkel bir çıkarımdan yana tavır almak işin kolay tarafı. Aslında görevi insanları sisteme sorunsuz bir şekilde entegre etmek olan psikiyatrın anlaşmaya uymayıp “kral çıplak, nedeni de şu...” dediği için aynı sistem tarafından cezalandırılmasından ibarettir mesele. Komik, çılgın ya da ‘deli’ psikiyatr figürünün altında biraz da bu vardır kanımca. Nihai amacın ‘özgürleşmiş ve çarkın bir dişlisi ol-ma-sa da, ‘tek başına’ da bir değer ifade ettiğinin farkında’ olan bireylere dönüşmek olduğunu düşünen psikiyatr ‘norm’ dışı davranışları ve normal terapi yöntemlerine ilgi duymaması ile ‘karikatürize ‘ olma yolunda gereken malzemeyi çoktan vermiştir; Hollywood’un geçmişte bu malzemeyle ne kadar çok yarı-deli psikiyatr tiplemesi ürettiğini biliyoruz.
+   <br/>
+   <br/>
+   Anger Management/Asabiyim’de aslında böylesi bir göndermenin tanıdık çağrışımları üzerinden işliyor, ama söylemini farklılaştırmayı da beceriyor. Filmin konusu bir terapist ile hastasının olağandışı ilişkisine odaklanmış durumda. Olay bir uçak yolculuğu sırasında hostesle yaşadığı sorun yüzünden kendisini mahkemede bulan Dave Buznik’in bir süre ‘öfke kontrolü’ adı verilen terapiye devam etmesi “cezasına” çarptırılması ile gelişiyor. Normalde sakin ve hatta ‘ezik’ bir tip olan Dave daha terapinin ilk gününde renk veriyor. İki tür öfkeli adam vardır Dr. Rydell’e göre, biri kestiği kuponlar yüzünden kasiyere bağırıp çağıran adamın ‘görünür’ öfkesidir, diğeri ise bütün gün böyle insanlarla uğraşmak zorunda olan ‘kasiyer’in ‘gizli’ öfkesi. ‘Ve sen Dave, sen kasiyersin!”
+   <br/>
+   <br/>
+   Bir talihsizlikler dizisi gidiyor, yerine  başkası geliyor ve Dave kendisini tüm ipleri eline almaya kararlı olan doktor Rydell ile aynı evde yaşarken buluyor. Olaylar öyle gelişiyor ki, aslında kimin ‘öfkeli’ kimin ‘normal’ olduğu birbirine karışıyor. Rydell’in ‘öfke kontrolü’ eğitimi Dave’i sakinleştirmekten çok bir öfke nöbetinin içine yuvarlıyor gibi görünüyor dışarıdan. Ama aslında mesele gerçekten sakin ve sürekli gülümseyen bir birey yaratmak değil; mesele, nerede ne zaman öfkeleneceğini bilen bir insan kazanabilmek. Kız arkadaşına evlenme teklif edemeyen, projelerini çalan bölüm şefinden hakettiği terfiyi isteyemeyen, hayatı boyunca ‘alttan almak’ zorunda kalmış olan Dave’in ‘adam gibi’ öfkelenebilmesini ve taleplerini doğru dürüst ifade edebilmesini sağlamak.  Bu anlamda bir “Anlat Bakalım”, ya da “Benden Bu Kadar” kadar komik olmasa da hayatın insana yaraşır bir şey olması için bir parça ‘anormal’ olunması gerektiğini öğütleyen ve bence doğru parametrelerden hareket eden bir film ‘Asabiyim’. Eğlenceli olmayı da elbette elden bırakmıyor, uçakta yaşanan ‘bu zor dönemde, birlik ve beraberlik içinde olmalıyız’ söylemleri ile 11 Eylül sonrası Amerika’sına yaptığı göndermeler de fazladan keyiflendirici soslar oluyor. Finali itibariyle ‘saçma’ ama bütünü bakımından eğlenceli ve hatta ‘eğitici’ bir film ‘Asabiyim’. Jack Nicholson ve komedi türünün yeni adamı Aoam Sandler’in iyi bir ikili olduğuunda şüphe yok.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2729&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20031027075658/http://www.aksiyon.com.tr:80/detay.php?id=2729&yorum_id=1)

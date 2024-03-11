@@ -1,0 +1,79 @@
+# Hatıp kürsüye çıkınca
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225010011im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225010011im_/http://www.aksiyon.com.tr/resim/328.26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Batı’da üniversite kürsülerinde eğitimi verilen hitabet Türkiye’de şimdiye kadar sadece imam-hatiplerin konusu olageldi. Savaşlar kazanan, devlet kuran hatipler olduğu gibi artık iş yaşamında çalışanları motive etmek, siyasette kitleleri heyecana getirmek için hatip olmak karizmanın ayrılmaz bir parçası haline geldi
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   AK Parti milletvekili Bülent Arınç ile Başbakan Bülent Ecevit Meclis koridorunda karşılaşırlar. Karşılıklı selamlaşmanın ardından Ecevit birkaç adım atmıştır ki geri döner ve Bülent Arınç Bey’e “Sayın Arınç belki fikirlerimiz uyuşmayabilir ama hitabetinize hayranım” deyiverir.
+   <br>
+    <br>
+     Hitabetin en fazla önem kazandığı zaman dilimlerinin savaş dönemleri olduğu yönünde güçlü bir kanaat olsa da, iyi hatip her dönemde farkını hissettiriyor. Söz üstadı konuşmaya başladığı anda fikirler ne kadar farklı olursa olsun karşı taraf üzerinde tesir edici bir etki bırakabiliyor. Onun için söz sanatının sihir sanatı olduğunu söyleyenler var.
+     <br>
+      <br>
+       Mesajların aktarılmasında her zaman önemli bir role sahip olsa da, yazının büyük kitleler tarafından kabullenişi şunun şurasında birkaç yüz, yıllık bir geçmişle anlatılıyor. Dinlerin ve felsefi fikirlerin yayılışı söz sanatında ileriye gitmiş, ikna kabiliyeti yüksek hatiplerin elinde oldu.
+       <br/>
+       <br/>
+       Bir de savaşlar kazandıran, devletler kuran hatipler var. Bunlar kitleyi ulvi bir heyecan içersine sokarak, insanları biricik hazinesini, canını hiçe sayarak seve seve ölüme yönledirebiliyorlar. Bu sebeple Osmanlı savaşlarda hararetli konuşma yapmasını bilen din adamları istihdam ediyordu. Endülüs Medeniyeti’nin ilk kahramanı Tarık Bin Ziyad’ın İspanya orduları ile karşılaşmadan, kendilerini getiren gemileri yaktırdıktan sonra ve Alparslan’ın Malazgirt Meydan Savaşı öncesi askerlerine seslenişi seçkin savaş nutukları arasında gösteriliyor. Napolyon ve Hitler gibi asker kökenli devlet adamları hitabet güçleri sayesinde çılgınlık boyutunda çok önemli kararlarını bile halkına rahatlıkla kabul ettirdi. Bu açıdan da sözün gücü biraz da karşı tarafın kabulleniş derecesi ile sınırlı. Tarih, sözün en güzeli ile gelmiş olmalarına rağmen kapıların kendilerine kapandığı insanlarla dolu. Hitabet bazıları için bir zorunluluk. Öğretmenler, öğretim görevlileri, siyasetçiler, din adamları mutlaka konuşmak zorundalar. Modern zamanların işyerlerinde  emri altındaki insanları motive edebilmek için tepe yöneticilerin etkili konuşmayı bilmesi daha işin başında gerekli oldu. İskele Sancak ve Siyaset Meydanı gibi televizyon programları sayesinde kitleleri etkileme açısından hitabetin ilgi ve gereklilik sahası daha da genişledi. Teknik direktörler oyuncuları maça motive edebilmek için maç başında ve devre arasında soyunma odasında söyleyeceği sözlere çok önceden çalışıyorlar. Fatih Terim’in UEFA kupası finalinde Arsenal’le yapılan maçın devre arasında oyuncularına yaptığı hitap bu konuya ilgi duyanların kaçırmayacakları orijinallikte.
+       <br/>
+       <br/>
+       Hitabet öğretme artık bir sektör
+       <br/>
+       <br/>
+       Batı, hitabeti de bir bilim dalı kabul edip üniversite kürsülerinde ona da yer ayırdı. Bu konudaki bilgiyi pazarlanacak bir meta haline getirip seminerler düzenliyorlar. Ve her kesimden insan, iş adamı, bürokrat ve politikacı bu seminerlere katılıyor. Türkiye iş ve din hayatında hitabetin önemini yeni yeni fark etti. Diyanet İşleri Başkanlığı vaizlerin hitabet eğitimine daha fazla önem verilmesi yönünde kararlar alırken, koca koca şirketlerin genel müdürleri, tepe yöneticiler hitabet üzerine eğitim alıyorlar. Koç Grubu, yöneticilerini eğitmek için Türkiye’de söz söyleme sanatı ile ilgili en geniş eseri vermiş olan Necat Muallimoğlu’nu davet ediyor. O Necat Muallimoğlu ki, hitabet üzerine Batı kaynaklarını taramış ve Dale Carnegie’nin kurslarına katılmış bir duayen.
+       <br/>
+       <br/>
+       Kalite Merkezi adlı eğitim şirketinin verdiği ‘hitabet sanatı’ kursunun hangi başlıklar altında dersler verdiğini bilmek, hitabetin unsurları açısından ip uçları veriyor: Hitabet nedir? Konuşmayı zengin kılma yöntemleri (fıkra, atasözü ve deyimleri konuşma içerisinde kullanma ilkeleri). Bir konuşma nasıl hazırlanır? Konuşma öncesi yapılması gereken hazırlıklar. Konuşma öncesi duruş ve davranış. Konuşmanın sunuluşu. Göz temasının önemi. Ses tonunun uygun ve etkili kullanımı. Konuşmaya giriş. Konuşmayı geliştirme ve bitiriş esasları. Tarih boyunca ünlü hatiplerin özellikleri nelerdir? Hitabet sanatından örnekler.
+       <br/>
+       <br/>
+       Yakın tarih hatipleri
+       <br/>
+       <br/>
+       Peki yakın tarihimizin büyük hatipleri diye soracak olsak kimler akla gelir? Hamdullah Suphi Tanrıöver, Tevfik İleri, Osman Bölükbaşı, Celal Yardımcı (DP Milli Eğitim Bakanı), Necip Fazıl Kısakürek ve Osman Yüksel Serdengeçti ilk alka gelenlerden. Yaşayan hatipler arasında ise Bülent Arınç, Yılmaz Karakoyunlu, Namık Kemal Zeybek, Kamran İnan ön plana çıkıyor.
+       <br/>
+       <br/>
+       Hamdullah Suphi Tanrıöver ile uzun yıllar Türk Ocakları’nda beraber çalışan Lütfü İkiz, Tanrıöver’in özellikle gençlik yıllarında kitleleri coşturan büyük bir hatip olduğunu söylüyor. Yaşlanınca eski formunu kaybeden Tanrıöver’i birkaç kez kürsüye çıkardıklarını fakat iyi netice alamadıklarını hatırlatan İkiz, Tanrıöver’in hitabelerini Günebakan adlı kitapta topladığını kaydediyor. İyi hatiplerin yetişme tarzlarının da farklı olduğuna değinen Lütfi İkiz, Osman Bölükbaşı’nın Kırşehir’in Kalacakurt aşiretinden olduğunu, bu aşirette herkesin konuşmaya karşı büyük bir düşkünlüklerinin bulunduğunu anlatıyor.
+       <br/>
+       <br/>
+       Hamdullah Suphi Tanrıöver Bükreş’te büyükelçi iken yanında görevli hariciyeci Zeki Kuneralp’in Hamdullah Suphi’nin hitabeti ile ilgili hatıraları ışık tutucu mahiyette. Kuneralp bakın hatıralarında ne diyor: “Tanrıöver büyük bir hatip idi, modern Türkiye’nin meydana getirdiği, belki, en büyük hatiplerinden biri. Canlı, renkli, envai türlü teşbihlerle dolu, son derece edebi bir lisan kullanırdı. Yalnız konuşması değil, bakanlığa gönderdiği şifreli telgraflar da bu şiveden idi. Bunun bazı mahzurları vardı. Telgraf masrafını bir hayli kabartıyordu, raporları şifrelemek de bir hayli vakit alıyordu. Kançılarya Şefi, biraz cüretkâr bir tarzda ve Tanrıöver’in haberi olmaksızın, bu mahzurları hiç olmazsa kısmen gidermek yolunu bulmuştu. Tanrıöver beni bir sabah yanına çağırdı. Son siyasi istihbaratına dayanan bir şifre telgraf dikte etti. Dikte bittikten sonra, ‘Haydi evladım, bunu hemen kapatın, gönderin’ dedi. Kançılarya Şefi Başkâtip Hasan Nurelgin odaya girdi. ‘Ne yapıyorsun?’ diye sordu. Anlattım. Raporu elimden aldı ve ‘Yaz’ dedikten sonra miftaha ve rapora bakarak, şifre rakamlarını bu sefer kendisi bana dikte etmeğe başladı. Hiç tahmin etmediğim kısa bir zamanda iş bitti. Nurelgin, ‘İşte oldu ve daha çok iyi oldu, üç sahifelik raporu bir sahifeye indirdik’ dedi. Yüzümdeki hayret ifadesini görünce, sözüne şöyle devam etti: Hamdullah Suphi Beyefendi büyük bir hatiptir, telgraflarını da sanki birer nutuk imiş gibi dikte eder. Halbuki, nutuk lisaniyle yazı lisanı arasında büyük fark vardır. Hatip aynı şeyi üç defa söylemek mecburiyetindedir. Birinci defa, dinleyenlerden bazıları sözlerini kaçırmış olabilirler. İkinci defa, diğer bazıları bu sefer manayı sezmemiş olabilirler. Ancak üçüncü defadır ki, herkes her şeyi anlamış olur. Yazıda bu tekerrürler fuzulidir, okuyan için can sıkıcıdır. İlk okuyuşunda yazıyı anlamamış olan tekrar aynı yeri okuyabilir, tekerrürlere lüzum duymaz. Raporlarını böyle kısaltmak suretiyle okunmalarını kolaylaştırıyoruz, Hamdullah Suphi Beyefendi’ye iyilik etmiş oluyoruz.”
+       <br/>
+       <br/>
+       İyi hatip sosyo-psikolog olmalı
+       <br/>
+       <br/>
+       30 sene Anadolu’yu karış karış dolaşarak bini aşkın konferans veren Mustafa Yazgan’a göre iyi hatip olabilmek için her şeyden önce derin bir bilgi birikimine ihtiyaç var. Bu bilgi aynı zamanda sindirilmiş ve hazmedilmiş olmalı. İnsanın dünyaya bakışı ve eşyayı tasavvuru bu bilgi ışığında aydınlığa ermeli. Sonra hatip iyi bir sosyo-psikolog olmalı. Herkese her şey söylenmez. Hitap edilen topluluğun bilgi birikimi ve ilgi sahasına göre konuşma yapılmalı. Mühendis, doktor ya da iktisatçı ağırlıklı kitleye onların alaka göstereceği örneklerle yaklaşılmalı. Bu ihmal edilirse ne kadar etkili konuşma yapılırsa yapılsın karşı taraf üzerinde istenilen etki yapılamaz. Bir de hatibi motive eden hususlar var: Hitap edilen kitlenin ruh hali. Eğer konuşulanları anlamayan, ilgi göstermeyen ölü bir kitleye sesleniliyorsa, ister istemez hatip bundan etkilenecek ve verimi düşecektir. Mustafa Yazgan bu durumu şöyle anlatıyor: “Dinleyenlerin anlayışı farklı ise bazı konferanslarda şu konuşma çarçabuk bitse de gitsem diyorsunuz. Ama bazen de konuştukça konuşasınız geliyor. Kitle alırsa hatip konuşur.”
+       <br/>
+       <br/>
+       ‘Hitabet yeteneği vehbi’
+       <br/>
+       <br/>
+       Hitabet için özel bir kurs almadığını ve hiç bir kitap okumadığını söyleyen Bülent Arınç, hitabet yeteneğinin vehbi olduğunu, sonradan olamayacağını ancak geliştirilebileceğini savunuyor. Gençlik yıllarında Osman Bölükbaşı, Osman Yüksel Serdengeçti, Necip Fazıl ve Mustafa Yazgan gibi söz üstatlarını çok fazla dinlediğini ve bunların kendisinde hitabet adına birikim yapmış olabileceğini anlatan Arınç, yabancı kültürlere göre Türklerin hitabet inceliklerinin farklı olduğunu belirtiyor: “Amerikalılar hep bildik sitilde hitap ediyorlar. Önce esprili bir giriş yapıp, sonra konuya giriyorlar ve ardından toparlıyorlar. Bunlar çok kısa tutuluyor. Hangisini dinlerseniz dinleyin genel kaide bu. Türkiye’de ise hitabet sanatının çok değişik vecheleri sergileniyor. Dışarıya göre daha fazla hamaset var.” Arınç konuşmalarında; kitlenin meselelere nasıl baktığına, giriş, ana konu ve sonuç gibi kriterlere özellikle dikkat ediyor. Mustafa Yazgan ve Bülent Arınç’ın hitabetlerini geliştirmede milli görüş teşkilatı içerisinde her yere konuşma yapmak için gönderilmelerinin çok büyük bir payı var.
+       <br/>
+       <br/>
+       Bir düşünce adamı “Kişinin tarz-ı lisanı onun timsal-i şahsiyetini ele verir” diyor. Devlet büyüklerimizin lisanlarına psikolojik tahlil zaviyesinden baktığımızda karakter yapıları hakkında neler söyleyebiliriz acaba?
+       <br/>
+       <br/>
+       e-posta: harunodabasi@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12083), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225010011/http://www.aksiyon.com.tr:80/detay.php?id=12083)

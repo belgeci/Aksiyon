@@ -1,0 +1,60 @@
+# Paşabahçe geleneği ranta kurban oluyor
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226075023im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226075023im_/http://www.aksiyon.com.tr/resim/400/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Onlarca nesil, bin 500 derecelik fırınların karşısında nefes verdi kor aleve, çeşmibülbül oldu,  vazo oldu, ibrik oldu kızgın kumlar. Bir yaşam biçimi oldu Paşabahçe. Ama İş Bankası zarar ettiği gerekçesiyle fabrikayı kapatmaya karar verdi, fırınlar söndü. Çalışanlar belki tazminatlarını alacak, başka fabrikalara kaydırılacaklar. Peki ya yüzlerce yıllık gelenek, kültür mirası?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sultan 3. Selim, cam sanatını öğrenmesi için dönemin önemli ustalarından Mehmet Dede"yi İtalya"ya gönderir. Eğitimini tamamlayıp İstanbul"a dönen Mehmet Dede, Beykoz"da bir cam atölyesi kurar ve zaman içinde Paşabahçe ve Çubuklu çevresine  yayılan atölyelerle Osmanlı kültüründe çok önemli yeri olan Beykoz Camları geleneği oluşur. İşte imparatorluğun 18. yüzyıldan kalan bu mirası, Atatürk döneminin en büyük yatırımı olan, bugün 117 ülkeye ihracat yapan Paşabahçe fabrikalarının temeli o yıllara kadar gider.
+   <br>
+    <br>
+     Bu tarihi tesisin üzerinde on yıldır karabulutlar dolaşıyor. İlk olarak 1991 yılında fabrika yönetiminin aldığı bir kararla kapatılmak istenen tesis, işçilerin ve kamuoyunun yoğun baskısı üzerine kapatılmamış ve kademe kademe daralsa da üretime devam etmişti. Aradan geçen süre zarfında belirsizlik sürdü. Ancak geçtiğimiz hafta içerisinde işçilerini 15 günlük izne çıkartan fabrika, bu kez tam olarak kapatılma tehlikesi ile karşı karşıya.
+     <br>
+      <br>
+       Paşabahçe bir medeniyetin adıydı
+       <br/>
+       <br/>
+       İstanbul Boğazı"nın Karadeniz çıkışında yer alan Beykoz ve Paşabahçe aynı zamanda dünya çapında bir markanın da adı. Türkiye"nin en büyük sanayi kuruluşlarından olan Türkiye Şişe ve Cam Fabrikaları A.Ş geleneği yaşatıp Paşabahçe ismini kullanmaya devam ediyor. Paşabahçe fabrikası sadece bir fabrika, bir iş yeri değil. Bu çevrede bulunan 250 bin kişinin neredeyse yarısı bir şekilde fabrikadan ekmek yiyor.
+       <br/>
+       <br/>
+       Bölgede yaşayan herkesin hayatının bir parçasını teşkil ediyor camlar, binlerce derecelik fırınlar ve Paşabahçe ismi.  Bu sebeple olsa gerek 22 Temmuz"da fabrika yönetiminin, işçileri 15 günlük ücretli izne çıkarması bölge halkında infiale yol açtı. Bini aşkın fabrika işçisi fabrikayı terk etmeme kararı aldılar; işçilerin aileleri, yakınları fabrikada yatıp kalkmaya başladı. Eylemler her geçen gün daha çok katılıma şahit oluyor. Günlerdir fabrikada kalan işçiler kararlı ve fabrikalarını kapattırmayacaklarını söylüyorlar.  Polis fabrikayla birlikte Beykoz ilçesini de ablukaya almış durumda. Kimse fabrikaya yaklaştırılmıyor, özellikle de gazeteciler. Yola barikat kuran polis, basın araçlarına el koyup gazeticileri çevik kuvvet barikatının arkasında tutuyor. Polisler İstanbul Valiliği"nin kesin talimatı olduğunu, bu sebeple hiç bir gazetecinin bölgeye girişine izin verilmeyeceğini belirtiyorlar. Ancak fabrikada eylemde olan işçilerle görüşmek de imkansız değil. Geniş bir alana yayılan fabrikanın arka duvarları bu iş için uygundu biz de bu yöntemi kullanarak tarihi fabrikaya girerek işçilerle konuştuk, çoluklu çocuklu eylemin seyrini gözlemledik.
+       <br/>
+       <br/>
+       155 dönüm arazi üzerindeki fabrikanın avlusuna karton kutulardan barakalar yapan işçiler ve aileleri biraz sıcaktan biraz da günlerdir süren eylem yüzünden bezginler ama en çok da hayatlarının parçası haline gelen fabrikanın kapanacak olmasından dolayı gerginler. İşçiler televizyonların başında. Kulaklar gelecek müjdeli haberde. İşçilerin temsilcisi Kristal İş Sendikası"ndan Hasan Bilgiç, fabrikanın bilinçli olarak zarar ettirildiğine inanıyor. Şişe Cam yönetiminin fabrikayı zarar ettirebilmek için her şeyi yaptığını iddia eden Bilgiç, bugünlere geliş sürecini şu şekilde anlatıyor: "Fabrikanın tarihi süreci malum. Ancak şehrin yapısının değişmesi, özellikle de depremden sonra Beykoz civarının değerinin artmasıyla bu fabrikanın yerine göz dikildi. İlk olarak 1991 yılında fabrikayı kapatma girişiminde bulundular. İşçilerin ve kamuoyunun yoğun baskısıyla vazgeçtiler. Ancak plan değişmedi. Yönetim burayı tasfiye etmeye kararlıydı. Aşama aşama fırınlar durduruldu, işçiler azaltıldı, iki yıl zam yapılmadı. Fabrika yönetimi zarar ettiğini söylüyor. Ama burasının zarar etmesinin tek ve gerçek nedeni kötü yönetilmesidir. Bütün rakamlar bunu doğruluyor. Üstelik illa zarar nedeniyle kapatacaklarsa 700 trilyon zarar eden İş Bankası"nı kapatsınlar." Fabrikanın önemini anlatmaya çalışan Bilgiç, bu fabrikanın kendileri için sadece bir fabrika olmadığını belirtiyor: "Burada 18. asırdan bu yana herkes camcıdır. Bu insanlar başka iş bilmez. 18-20 yıldır çalışan insanlar bu saatten sonra başka iş yapamazlar. Üstelik bu fabrika çalışanları Şişe Cam tarafından açılan tüm fabrikaların kurucu kadrosunu teşkil etti. Burada yetişen işçiler gidip diğer fabrikaların işçilerini eğitti. Bu insanlar başarısızsa diğer fabrikalar nasıl rekor kâra gidiyor?"
+       <br/>
+       <br/>
+       Fabrikada işçi olarak çalışan Davut Bayraktar da 13 yıldır fabrikada çalışıyor ve Şişe Cam"ın zarar ettiğine inanmadığını söylüyor. "Eğer Şişe Cam zarar ediyorsa nasıl diğer fabrikalara yeni yatırımlar yapılıyor?  Nasıl oluyor da Rusya"da yeni fabrika açılıyor? Ben kararın siyasi bir rant meselesi olduğuna inanıyorum. Bu karar Beykoz ve Paşabahçe"nin sosyal yapısının da değişmesi demektir" diyor. İsmini vermek istemeyen bir bayan eylemci ise eşine destek olmak için fabrikada yatıp kalkıyor, "Dedem, onun babası, babam burada çalıştı. Eşim burada çalışıyor muhtemelen oğlum da burada çalışacak. Burası sadece bir iş yeri değil. Bir yaşam biçimi bizim için. Adeta bizim kimliğimiz burası. Burayı kapatmak Beykoz"u bitirmektir" şeklinde konuşurken bir başkası da "Biz bu bölgeyi koruduk. Bu fabrika ve onun işçileri olduğu için Beykoz, Beykoz olarak kaldı. Üstelik 15 yıldır eşim bu fabrikada çalışıyor. Başka bir iş bilmez. Onun tek bildiği cam işidir. Bu yaştan sonra ne iş yapsın?" diye tepkisini dile getiriyor. Hangi işçiyle konuşsanız benzer şikayetler dile getiriliyor. Bir başkası burada yetişen cam ustalarının aynı zamanda sanat eserleri ortaya koyduğuna işaret ediyor, bir diğeri ise bazı çevrelerin rant elde etmek için fabrika arazisine göz koyduklarını anlatıyor. 18 yıldır burada çalışan işçilerden birisi de "Fabrikanın her türlü altyapısı var. 14 fırın, 14 makine varken sadece 7 fırınla çalışıldı. Sonra onlar da birer birer kapatıldı. Haliyle fabrika zarar eder. Böyle yönetirseniz bakkal bile iflas eder" diyor.
+       <br/>
+       <br/>
+       İş Bankası kararlı: Fabrika kapanacak!
+       <br/>
+       <br/>
+       Türkiye İş Bankası iştirakleri arasında yer alan Şişe ve Cam Fabrikaları A.Ş, Paşabahçe Fabrikası"nı kapatmakta kararlı. Tüm işçileri izne çıkartan, fırınları söndüren yönetim, kamuoyundan gelen sorulara da bir basın bülteni ile cevap veriyor. Şişe Cam Genel Sekreteri Dr. Rüştü Bozkurt imzalı açıklamada "Paşabahçe dört yılda 71.5 milyon dolar zarar etti ve bu nedenle fabrika tasfiye edilerek üretim Denizli fabrikasına kaydırılacak" deniyor.
+       <br/>
+       <br/>
+       Zarar eden bir fabrikanın tasfiye edilmesi bir işletme stratejisi olarak değerlendirilip saygı gösterilebilir. Ancak sözkonusu olan tarihi öneme sahip bir yer ve eldeki veriler zarar konusunda kafaları karıştırıyor. Çünkü Paşabahçe Fabrikaları"nın bağlı bulunduğu Türkiye Şişe ve Cam  Fabrikaları A.Ş. İstanbul Sanayi Odası tarafından yayınlanan 500 büyük şirket araştırmasında bu yıl 30. sıraya yükseldi. Bir önceki yıla oranla  verimliliğini yüzde 81 oranında artıran grup Türkiye"nin büyük ihracat kalemlerinden birisini de teşkil ediyor. Üstelik Şişe Cam grubu geçtiğimiz aylarda 26 milyon dolar yatırım yaparak Rusya"nın  Vlademir bölgesinde bir fabrika kurdu ve sadece iki ayda 2.6 milyon dolarlık ciro elde etti. Rakamlara yansıyan tablo bu şekilde ancak Paşabahçe Fabrikasının kapatılması yönündeki kararın BBDK tarafından İş Bankası"na tebliğ edildiği dile getiriliyor. Geçtiğimiz yılki zararı 700 trilyonu aşan İş Bankası"na çözüm arayan Hazine"nin tarihi öneme sahip fabrikayı gözden çıkarttığı da son gelişmelerin nedenlerinden birisi olarak gösteriliyor.
+       <br/>
+       <br/>
+       Taraflar şimdilik kendi tezlerinde kararlı gözüküyor. İşçiler fabrikanın bölge insanı için sadece bir iş yeri değil, bir yaşam biçimi de olduğunu, mutlaka yaşatılması gerektiğini söylüyor. Şişe Cam grubu ise fabrikanın şehrin  ortasında kaldığını, ciddi anlamda zarar ettiğini, bu sebeble de mutlaka taşınması gerektiğini savunuyor. Çözüm şimdilik alternatifler arasında yer almıyor. Masada çözülecek olan olay polisin sert tutumuyla bastırılmaya çalışılıyor. Polisin ablukası anayasal hakları ihlal edecek kadar sert. Öyle ki kamuya açık yol basına yasak. Öte yandan Şişe Cam"ın Türkiye"deki en büyük reklam veren kurumlardan olması fabrikayla ilgili haberlerin medyanın büyük bir kısmında yer almamasına neden oluyor. Tabii bir de Boğaz"ın en güzel yerindeki fabrikanın 155 dönümlük iştah kabartan arsası var. Paşabahçe olayının kimsenin dillendirmediği bir boyutu daha var. Bu hususa ünlü tarihçi Prof. Dr. İlber Ortaylı   parmak basıyor:  "Osmanlı-Türk kültüründe cam ve porselen eserler övünç kaynağıdır. Bu, işletme hesaplarıyla değerlendirilebilecek bir konu değildir. Kökleri 18. yüzyıla kadar inen bir medeniyet. Her ne şart altında olursa olsun yaşatılması bir vecibedir."
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1616), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226075023/http://www.aksiyon.com.tr:80/detay.php?id=1616)

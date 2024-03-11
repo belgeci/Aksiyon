@@ -1,0 +1,71 @@
+# “Çok şükür bugün de aç kalmayacağız”
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092253im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092253im_/http://www.aksiyon.com.tr/resim/364/05.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İstanbul’da yaşayan tek imaret olan Eyüp İmareti, tekke dervişlerine,kervansaray olcularına ve varsa civardaki yoksullara sıcak yemek dağıtmak için 208 yıl önce kurulmuştu. Bugün ne tekke dervişleri kaldı ne de kervansaray yolcuları. Onlardan eser kalmadı ama sayıları her geçen gün artan fakirler giriyor yemek sıralarına
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bir sosyal dayanışma sistemi düşünün. Öğrencilerin herhangi bir ücret ödemeden yemek yediği, o semtin yoksullarının ve gelip geçen misafirlerin sabah akşam yemek yedikleri, uzun yoldan gelenlerin üç güne kadar konaklayabildikleri bir sistem. Bu hizmetlerin karşılığında hiç bir ücretin talep edilmediği gibi yemek yiyenlere bir miktar ‘ diş kirası’ olarak para verildiği bir sistem. Bu sistem ancak ütopik devlet kuramlarında mevcuttur diyenler olabilir ancak Osmanlı’nın yüzyıllarca yeşertip ayakta tuttuğu imaretler tam da bu fonksiyonu görüyordu. Gerçi Osmanlı döneminde günde 30 bin kişinin yemek yediği, bazılarının barındığı imarethaneler artık yok, ancak bu sistemin halen ayakta olan bir temsilcisi var: Eyüp İmarethanesi.
+   <br>
+    <br>
+     Osmanlı döneminde İstanbul’da faaliyette olan 20’yi aşkın imaretten günümüze kadar ulaşabilmiş tek örnek. Faaliyetlerini aralıksız olarak 208 yıldır sürdürüyor. Kuruluş nizamnamesinde; ‘varsa etraftaki fakirlere de yemek verilsin’ denilen ve iki asırdan fazladır hizmette olan Eyüp İmareti’nde şimdilerde her gün 3 bin yoksula yemek dağıtılıyor.
+     <br>
+      <br>
+       208 yıllık gelenek
+       <br/>
+       <br/>
+       Eyüp İmareti, belediyeler tarafından kurulan Ramazan Çadırları dışında düzenli olarak sıcak yemek veren ender kurumlardan biri. Osmanlı padişahlarından 3. Mustafa’nın eşi Mihrişah Valide Sultan tarafından 1793 yılında ‘tekke dervişlerine, kervansaray yolcularına ve eğer etrafta fakir ve yoksullar varsa onlara da yemek vermesi” vasiyeti ile kurulan Eyüp İmareti o günden bugüne kadar savaşlar, bayramlar, tatiller demeden fakir fukaraya aralıksız olarak yemek dağıtıyor. Gerçi günümüzde tekke dervişleri ya da kervansaray yolcuları kalmadı ama eskiden ‘belki varsa’ diye aranan, sayıları birkaçı geçmeyen fakir ve yoksullardan şimdilerde çok sayıda var. İmaret, son yıllarda sayıları her geçen gün biraz daha artan yoksullara yemek dağıtımını yetiştirmeye çalışıyor. Bugün Eyüp İmareti’nde haftada üç gün üç kap, dört gün de iki kap yemek veriliyor yardıma muhtaç insanlara. Yemekler işinde uzman kişilerce hazırlanıyor, kesimi yapılacak hayvanlar veteriner kontrolünden geçiyor ve kaliteli bir şekilde servise sunuluyor. Yardım almaya gelen kişiler düzenli bir şekilde ailesindeki kişi adedine göre yemek alabiliyorlar. İzdiham ya da kargaşaya meydan verilmiyor. İmaret son yıllarda giderek artan yoksul sayısına hizmet verebilmek için İstanbul’un farklı noktalarına da hizmet noktası açıp Eyüp’e gelemeyenlerin ayaklarına yemek götürüyor. Burada hazırlanan yemekler imaretin özel araçlarıyla Kağıthane, Piyalepaşa, Üsküdar Ahmediye Camii, Maltepe Bağdat Caddesi ve Kartal Merkez Camii’nde ihtiyaç sahiplerine dağıtılıyor.
+       <br/>
+       <br/>
+       İmaret yetkililerinin verdiği bilgiye göre burada verilen yemek hizmetinden faydalanabilmek için yardıma muhtaç olduğunuza dair birtakım bürokratik işlemleri yaptırmak gerekiyor. Eğer yardıma muhtaçsanız, size bakacak kimse yoksa, bulunduğunuz bölgedeki en yakın kaymakamlığa başvuruyorsunuz. Kaymakamlık hakkınızda emniyet aracılığı ile tahkikat yapıyor ve mal bildirim beyannamesi alıyorsunuz. Bulunduğunuz nüfus idaresinden alacağınız nüfus örneği ile imarete gelip bir kart çıkartıyorsunuz. Bu kartla da haftanın her günü yemek alabiliyorsunuz. İmarethane yetkililerine göre bunlar tamamen formalite çünkü fakir ve yardıma ihtiyacı olan insan ilk bakışta anlaşılıyor. İmarethane bütün bu hizmetleri karşılıksız yapıyor ve gelirinin büyük bir kısmı da hayırsever vatandaşlardan sağlanıyor. Makbuz karşılığı yardımlar kabul edilirken yardımların daha çok kuru gıda ve canlı hayvan bağışı şeklinde yapıldığını söylüyor imarethane yetkilileri.
+       <br/>
+       <br/>
+       Kriz ikiye katladı
+       <br/>
+       <br/>
+       Eyüp İmarethanesi iki asırdan fazladır fakir fukaraya yardım ediyor. Hiç aksamamış olan bu hizmetten yararlananlar belli kesimlerdi ve sayıları çok fazla değildi. Ancak kasım ve şubat krizlerinin patlak vermesi ve giderek artan ekonomik sıkıntılar yüzünden yemek için başvuranların sayısı bir önceki yıla göre neredeyse yüzde elli artmış. Geçtiğimiz yıl günlük ikibin kişiye yemek çıkartılırken bu yıl bu rakam günlük 3 bin kişilik yemeğe ulaşmış. İmarethane yöneticileri sayıdaki bu artışta ekonomik krizin çok etkili olduğu görüşündeler. Yöneticilerin bu görüşlerini sırada bekleyenlerin ifadeleri de destekliyor. Yemek sırasında elinde iki boş kapla bekleyen  Halis Korkmaz, hem geçirdiği iş kazası yüzünden sakat kalmış hem de 5 yıldır iş bulamamış. 5 kişilik ailesine bakabilmek için her gün Alibeyköy’den geliyor. Çocukların geçimini nasıl sağladığını sorusuna “İnşaatlarda kaçak çalışıp onlara bakıyordum. Binadan düştüm. Doktorlar kafatasımın çatladığını söylediler. Ağır işlerde çalışamaz oldum. İş yok, para yok. Kış geldi, çocuklar gene üşüyecek. Çocuklar okula gidiyorlar. Üzerlerine kıyafeti sağdan soldan verilenlerle aldık. Yarınımız meçhul” diyor. Yaz kış Alibeyköy’den gelmenin zor olduğunu söyleyenlere ‘Ne yaparsın açlık bu, mesafe dinletmez’ diyor.
+       <br/>
+       <br/>
+       Eyüp Camii’nin doğu kapısında yer alan imarethanede her gün öğle saatlerinde yoğun bir hareketlilik yaşanıyor. Çünkü yemek dağıtımına saat 11 civarında başlanıyor. Aralarında genç ve çocukların da bulunduğu yüzlerce insan ellerinde yemek kaplarıyla sıraya giriyorlar. Herkesin yüzünde derin bir keder, üzüntü ve sıkıntı var. Kime dokunsanız bin ah işitiyorsunuz. Ancak konuşmaya başlamadan önce fotoğraf çekilmemesini rica ediyorlar. Sorumlusu olmadıkları krizden, hayat pahalılığından ve yoksulluktan utanıyorlar çünkü. Hatta çoğu yemek kuyruğuna girip yardım almaktan utandığı için yemek almaya çocuklarını gönderiyor. Elinde tesbihle sırada bekleyen 75 yaşındaki Mehmet Ali Kanlı “Ömr ü hayatımda böyle bir sıkıntı görmedim” diyerek söze giriyor. Evi yangında yanmış ve bütün mal varlığını kaybetmiş. Yaşlandığı için de çalışamıyormuş ve İmarethane’den yemek alamazsa aç kalacağını anlatıyor. İstanbul’a büyük umutlarla 40 yıl önce geldiğini anlatan Kanlı bugün geldiği noktayı ise “ Yaktın bitirdin beni İstanbul” diye özetliyor. Dakikalar geçtikte kuyruk uzuyor ve yeni yüzler geliyor imarethaneye. Hepsinin yüzü asık, hepsinin yüzünde ezilmişlik duygusunun derin izleri var. Elinde ekmek kapları sıraya girmiş, üstündeki eski ve yamalı kıyafetleri ile sıranın kendine gelmesini bekleyen Ayşe Şaban objektifi görünce başını öne eğiyor. 95 yaşındaki Ayşe Nine “ Buraya gelip yemek almaktan utanıyorum” diye başlıyor söze. Eşi vefat etmiş, çocukları da sahip çıkmamış. Kemerburgaz’da tek başına oturuyormuş ve tek tesellisi Eyüp İmareti’nden alabildiği iki kap sıcak yemekmiş. Bu imarethaneyi açanlara dua ediyor ve ekliyor; “Bugün de bir kap yemeğimiz oldu ya. Çok şükür Allahıma”. Bir kap sıcak yemeğini ve ekmeğini özenle yerleştiriyor çantasına ve bastonuna dayanarak ağır adımlarla evine doğru yola çıkıyor Ayşe Nine.
+       <br/>
+       <br/>
+       El İnsan sûresinin “ Onlar içleri çektiği halde yiyeceği yoksula, öksüze ve esire yedirirler” meâlindeki 8. ayeti yer alıyor Eyüp İmareti giriş kapısında. Osmanlı medeniyetinde sosyal yardımlaşmada çok önemli bir yere sahip olan İmaret kültürünün yaşayan tek temsilcisi Eyüp İmareti, hiç bir karşılık beklemeden her gün 3 bin kişiye sıcak yemek sağlıyor. ‘Eğer varsa’ deyip yoksullara da yemek dağıtması planlanan imarethanenin önünde yemek sırasına gelenler utanarak, sıkılarak bekliyorlar. Kendilerine yöneltilecek herhangi bir soruya ise; “ Evladım sen açlık nedir bilir misin?” diye cevap veriyorlar. Peki bu insanların yoksulluğunun sorumluları bilir mi açlığın ne olduğunu?
+       <br/>
+       <br/>
+       e—mail: a.yavuz@aksiyon.com.tr
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       Tarihe karışan bir vakıf medeniyeti: İmaretler
+       <br/>
+       <br/>
+       ‘Bina, yapı, imar etmek’ anlamına gelen imaret bir vakıf müessesesi olarak Selçuklu ve Osmanlı döneminde yoksullar, muhtaçlar, öğrenciler ve yolcular için yeme, içme, bazıları için de barınma ihtiyacını karşılamak için kurulan vakıf müesseseleriydi. Türkçe’de aşevi olarak da bilinen bu kurumlar daha çok devlet, vezirler ve zenginlerin bağışlarıyla kurulmuş, gayri menkul gelirleriyle destenlenmişti. İslam yoksulu, öğrenciyi, yolcuyu koruyup gözetmeyi emrettiği için vakıflarla birlikte pek çok imaret yapılagelmişti. Osmanlı’da medrese öğrencilerine hizmet eden imaretler aynı zamanda o semtin yoksul ve gelip geçen misafirlerinin yemek yedikleri yerlerdi. Buralarda üç güne kadar barınma imkanı da sağlanır, hatta yemek yiyenlere ‘diş kirası’ adı altında yardım yapılırdı. Bu tip imaretlerin ilk örneği 1336’da İznik’te kurulmuş. İznik’teki imarette Orhan Gazi’nin bizzat yemek yapıp dağıttığı, imarethanenin ışıklarını yaktığı biliniyor. Tarihi kayıtlara göre 18. yy sonlarında İstanbul imaretlerinde her gün 30 bin kişiye yemek veriliyordu. Ayasofya, Beyazıt, Fatih, Sultan Selim, Süleymaniye, Sultan Ahmed, Nuruosmaniye, Laleli, Şehzade, Üsküdar Valide—i Atik ve Mihrimah, Eyüp İmareti en büyükleriydi. İmaretler medreselerin kapatılmasından sonra biri dışında tarihe kavuştu. Eyüp İmarethanesi iki yüzyıldan fazla bir süredir aralıksız olarak hizmet veriyor. Binlerce insanın her gün sıcak yemek yiyebildiği imaret sistemi tamamen vakıflarca ve hayır sahiplerince yapıldığı için devletin yapması gereken yoksulu gözetme, fakirlere yardım etme görevi sivil toplum kuruluşları tarafından yapılıyor ve devletin sırtından büyük bir yük kalkmış oluyordu.
+       <br/>
+       <br/>
+       (Yardım için irtibat telefonu: 0-212 563 27 57)
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12458), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092253/http://www.aksiyon.com.tr:80/detay.php?id=12458)

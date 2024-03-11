@@ -1,0 +1,92 @@
+# Yüzüme bak ruhumu oku
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030704140604im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20030704140604im_/http://www.aksiyon.com.tr/resim/39/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İnsanın beden dışında ruh, akıl ve karakter gibi soyut bileşenlerinin de olduğunu keşfeden insan kendi cinsine ait bu yönleri merak ediyor. Yüze bakarak karakter tahlili yapabilen insanlar bir anda ilgi odağı olabildiği gibi magazin dünyası için de iyi malzeme haline gelebiliyor. Oysa Aristo, Hipokrat ve İbrahim Hakkı hazretlerinin kaynaklık ettiği ve eskilerin ilm-i sima diye tabir ettiği fizyognomiden bugün çok önemli alanlarda yararlanılıyor.
+ </font>
+ <p>
+  <font class="content">
+   Birlikte çalışacağınız, aynı evde yaşayacağınız ya da çocuğunuzu bakması için bırakacağınız insanın karakter yapısını bilmek ister misiniz? Aynı ofiste çalışırken nelerine katlanmak zorunda kalabilirim, ortak kullandığımız evde bana sığıntı muamelesi yapar mı ya da çocuğuma bakma konusunda şefkat ve iyi niyetine güvenebilir miyim diye düşündüren birçok insana güvenmek zorunda kaldığımızda kafamız kuşkulu sorularla doludur.
+   <br/>
+   <br/>
+   Bu tür seçimler yapmak zorunda kalan hiç kimse yoktur ki hakkında karar vermekte zorlandığı insan hakkında daha fazlasını bilme arzusu duymasın.
+   <br/>
+   <br/>
+   Tabii ki yüzyüze yapılan görüşmeler kabataslak fikirler ön bilgiler edinmeyi sağlayabilir. Ancak daha ayrıntılı bilgilere ulaşmak için bilimsel ve profesyonelce yapılmış araştırmalar gerekiyor. Batılı ülkelerde, profesyonel şirket yöneticileri, birlikte çalışacakları ya da çalıştıracakları kişileri seçerken çeşitli tahlil yöntemlerinden yararlanıyorlar son yıllarda. Örneğin bir çok şirket teşrik-i mesai halinde olacak çalışanlarını karakteristik özelliklerine göre gruplandırarak yaşanabilecek uyumsuzluklara karşı önceden tedbir alıyor. El yazısıyla yazılmış bir başvuru formunu ya da özgeçmiş yazılarını ya da fotoğraflarını karakter tahlili yapan uzmanlara inceletip iş için gerekli özellikleri taşıyan, güvenilir, dürüst kişileri bulmaya çalışıyorlar. Hatta birçok aile çocuk bakıcısı ya da yardımcı kadın almadan önce bu tür araştırmalara başvuruyor. Grafoloji gibi fizyognomi de başvurulan yöntemlerden biri... Yüz hatlarını inceleyerek karakter tahlil etme diye tarif edilen fizyognominin bilinen ilk kullanım alanı Adli Tıp Kurumu ve Polis Teşkilatı. Ancak bugün epeyce genişlemiş bir hizmet alanı içinde görüyoruz fizyognomiyi. Öyle ki artık insanlar sadece birlikte çalışacakları ya da iş teslimi için güvenmeleri gereken kişilerin karakterini tahlil amacıyla değil eş ve arkadaş seçiminde de fizyognomistlere ihtiyaç duyuyorlar.
+   <br/>
+   <br/>
+   Fizyognominin serencamı
+   <br/>
+   <br/>
+   İnsan karakterinin beden dili, beden yapısı, el biçimi, ses tonu gibi kişisel özellikler ile bir ahenk oluşturduğu fikri eski dönemlerden itibaren bilginlerin dikkatini çekmiş ve bu konuda belli görüşlerin ortaya çıkmasına neden olmuş. Çinlilerin bu konudaki görüşleri daha sonra Yunanlılar tarafından geliştirilmiş. Hipokrat, Aristo ve bazı diğer Yunan düşünürlerin çalışmalarında insanın fiziki yapısıyla karakteri arasındaki ilişkiye dikkat çeken görüşlere rastlanıyor.
+   <br/>
+   <br/>
+   Aristo’ya göre insanın beden ve yüz yapısının belli bir hayvana benzemesi karakter özelliklerini ortaya koymaktadır. Örneğin dudakları  ince ve üst dudağı alttakinin üzerine çıkacak şekilde gevşek olan insanlar alçakgönüllüdür. Bu aslan tipine uygun gelmektedir. Dudakları kalın ve üst dudak alttakinin üzerine çıkan insanlar aptaldır. Bu eşek ve maymun tipine uygun gelmektedir. Üst dudağı ve üst damağı öne doğru çıkan insanlar huysuz ve kavgacıdırlar. Bu köpek tipine uygundur.
+   <br/>
+   <br/>
+   Bazı Müslüman din alimleri de insanın yüzüyle karakteri arasında bir bağ kurarak çeşitli sınıflandırmalarda bulunmuş.18. yy.’da yaşamış ünlü bilim adamı ve mutasavvıf Erzurumlu İbrahim Hakkı Hazretleri de Marifetname adlı ünlü eserinde yüz biçimi ve bedenin ayrı ayrı azaları ile insan karakteri arasındaki ilişkiden bahsediyor. Marifetname’ye göre Allah insanı en güzel şekilde süsleyip nurlandırmıştır. Bunun yanısıra insanları şekil ve karakter olarak değişik yaratmıştır. Sonra lütuf ve inayeti ile şekli karakterin; azayı da ahlakın belirtisi kılmıştır. Böylece insan önce kendi görünümünden kendi karakterini tanımlayarak ihtimam ile ahlakını güzelleştirir. Daha sonra yakınları ve dostlarının dış görünümlerine fehm ve ferasetle bakarak onların iç hallerine ve ahlaklarına vâkıf olabilir. Onlara ya ahlaklarına göre rağbet ve muhabbetle muamele eder, veya aklınca idare edip geçinip gider.
+   <br/>
+   <br/>
+   İbni Haldun’un Mukaddime adlı eserinde ise insanların karakterinin oluşumunda, yaşadığı coğrafyanın ve o bölgede hüküm süren iklimin etkisi bulunduğu ifade ediliyor. Dağlık bölgelerde yaşayanlarla vadilerde ve denize yakın yerlerde yaşayanların huy ve tabiatının farklılık göstereceğini, mizaçtaki sertlik veya yumuşak huyun coğrafya ile birlikte iklimin sert ve ılıman olmasıyla da yakından ilintili olduğu ileri sürülüyor.
+   <br/>
+   <br/>
+   Fizyognomi magazin malzemesi değil
+   <br/>
+   <br/>
+   El ve yüze bakarak karakter tahlili yapan kişiler kadar bu konuda yazılmış kitaplar da artık çok ilgi çekiyor. İnsanın beden dışında ruh, akıl ve karakter gibi soyut bileşenlerinin de olduğunu keşfeden insan kendi cinsine ait bu yönleri merak ediyor. Dolayısıyla da bu konudaki kitaplara daha farklı bir ilgi duyuyor. Yüze bakarak karakter tahlili yapabilen insanlar bir anda ilgi odağı olabildiği gibi magazin dünyası için de iyi birer malzeme haline gelebiliyor. Son haftalarda “Yüz Okuma Sanatı” adlı kitabıyla medyada yer alan Azeri yazar Alesker Aleskerli de bu tarz bir merakın kurbanıydı. Çeşitli gazete ve televizyonlara çıkarılarak ünlülerin ya da siyasetçilerin karakterini tahlil etmesi istenen Aleskerli kitabında vermek istediği mesajı ne kadar iletebildi bilmiyoruz ama bizim konuya farklı bir açıdan yaklaşarak onunla fizyognomi üzerine konuşmak isteyişimiz onun da hoşuna gitti.
+   <br/>
+   <br/>
+   Konuşmasına başlarken kitabın hazırlanma amacının eğlence olmadığının altını çizen Aleskerli kitaba dayanarak eşin dostun yüz yapısını alaya almak yerine “Acaba bu hususta yapılan çalışmalar hangi boyuta ulaşmış?” sorusuna cevap aranması gerektiğini vurguluyor.  Bir çeviri niteliğinde olan kitapta tarihten bugüne fizyognomi üzerine yapılmış araştırmalara ve çeşitli ekollere yer veriliyor. Ancak kendisinin de ‘bilimsel ya da laboratuvar sonuçları olmayan’ bir alan olarak tanımladığı fizyognomi ustaları arasında bazı çelişkiler söz konusu. Kitapta dikkatimizi çeken bu durumu Alesker Aleskerli şöyle yanıtlıyor: “Bu görüşler farklı yüzyıllar ve farklı coğrafyalarda ortaya çıktığı için çelişmesi gayet doğal. Uzakdoğu’da yaşayan insanların fizik-karakter bağlantılarıyla Avrupalılarınki farklıdır. Bin yıl önce yaşayan insanla bugünkü insan arasında da çok önemli farklar vardır. İnsan tipleri bölgeden bölgeye değiştiği gibi ruha yansıması da değişiyor. Bizim şu anda yaptığımız karakter tahlili Avrupalı insan tipi baz alınarak yapılıyor.”
+   <br/>
+   <br/>
+   Irklararası akrabalık fizyognomiyi şaşırttı
+   <br/>
+   <br/>
+   Yüzyıllardan beri ırklar üzerinde gözlenen doğal değişim ve ırkların birbiriyle kurduğu akrabalıklar sonucu ortaya çıkan yeni insan tipleri yüzyıllar önce uygulanan kriterlerin bugün uygulanamayacağını ortaya koyuyor. İnsanların sayısı arttıkça fiziksel özellikleri arasındaki farklılıklar da artıyor. Aristo ya da Platon gibi İbrahim Hakkı Hazretlerinin yaptığı tahlillere bakacak olursak etrafta birçok ahmak, fitne fücur yayan ya da kötü niyetli insan olduğuna hükmetmek işten bile değil. Peki herşey bu kadar basit mi? Ağzına, gözüne ya da kulağına bakarak insanlar hakkında karar vermek, kesin bir kanaate sahip olmak bu kadar kolay mı? Alesker Aleskerli fizyognominin bu şekilde anlaşılmasından en az bizim kadar rahatsız. Öncelikle kitapta yazdığı özelliklere dayanarak insanlar hakkında kesin kanaatlere varılamayacağını ancak belki bir ön bilgi edinilebileceğini söylüyor. İnsanın sosyal bir canlı olduğunu, dolayısıyla sosyal etkilenmeler sonucu hayatının bazı evrelerinde bazı karakteristik özelliklerinin değişebileceğini vurguluyor.
+   <br/>
+   <br/>
+   Dolayısıyla karakter tahlili yapılan kişi görünenden farklı biri olarak çıkabilir. Yaşam şartları, aldığı eğitim, ailesi ya da arkadaşları sahip olduğu kişilik özelliklerinin önemli oranda değişmesine neden olabilir. Ayrıca insanların sonradan yaptırdığı fiziksel değişimler de tahlilde yanıltabilir. Örneğin estetik ameliyat yaptırmış sanatçılar hakkında yapılan yorumlarda yanılma olabiliyor.
+   <br/>
+   <br/>
+   Normalde de böyle değil midir zaten? İlk bakışta sizde pek de iyi hisler uyandırmayan bir insan hakkındaki düşüncelerinizi değiştirmek zorunda kalmadınız mı hiç? Ya da tam tersi. İlk intiba ya da ilk izlenimler... Tanıştığınız her insan hakkında bir fikir oluşur kafanızda siz farkında olmasanız da. Sizi ona yaklaştıran ya da uzaklaştıran fikirleriniz vardır. Ve bunlar daha önce tanıdığınız, benzer yüz yapısına sahip insanlar hakkındaki görüşlerinizin ürünüdür. Tecrübelerinizi farkında olmasanız da yeni tanıştığınız insanları tanımaya çalışırken kullanırsınız. İşte fizyognomi de bunu sistematik bir şekilde yapmaya çalışan bir bilim. Aleskerli’ye göre insanlar öncelikle kendilerini tanımak için bu yönteme başvurmalı. Ne tür becerileri var, kabiliyetleri ne yönde, hangi alanlarda daha başarılı olabilirler, ya da ne tür zaafları var gibi. Günümüzde önemli bir bilim dalı haline gelmeye başlayan fizyognomi gizli servislerden büyük şirketlere kadar pekçok alanda kullanılıyor ve konunun uzmanları istihdam ediliyor. Belki de ileride insanların meslek seçimlerinden hastalık teşhisine kadar yüz okuma sanatının verilerinden azami istifade edilecek insana ilişkin meçhullerden biri çözüme kavuşturulacaktır. O zaman daha az yanılmayla karşımızdaki insan hakkında bir kanaate varabiliriz.
+   <br/>
+   <br/>
+   Kimbilir...
+   <br/>
+   <br/>
+   <br/>
+   BAZI DEVLET BAŞKANLARININ KARAKTER TAHLİLLERİ
+   <br/>
+   <br/>
+   Fizyognomi uzmanları eski Devlet Başkanı Boris Yeltsin’i değerlendirirken zevkine düşkün, karar alma sürecinde keyfi davranan, başkalarına pek güvenmeyen ve kibirli birisi olduğuna dair yorumlar yapıyor. Üst ve alt göz kapaklarının yapısı çabuk yorulan ve içkiye meyilli birisi olduğu fikrini veriyor.
+   <br/>
+   <br/>
+   Rusya’nın bugünkü Devlet Başkanı Vladimir Putin’in kemikli yüz yapısı ve diğer yüz organlarına oranla alnının daha gelişmiş olması, kaşları üzerindeki bölgenin kabarık olması gibi özellikleri düşünce ve muhakeme yeteneğinin güçlü olduğu ve kesin kararlar alabilen bir kişi olduğunu ortaya koyuyor.
+   <br/>
+   <br/>
+   İngiliz Başbakanı Tony Blair’in yüz yapısı dışadönük ve iletişime açık birisi olduğunu düşündürüyor. Geniş açılmış burun delikleri hassas ve olaylara çabuk tepki gösteren biri olduğunu gösteriyor. Çene yapısı üzerinde otoriter çizgilerin olduğu görülebilir. Kısa burun yapısı sorumluluk duygusunun o kadar da büyük olmadığının bir belirtisi olarak görülmektedir.
+   <br/>
+   <br/>
+   Bill Clinton ihtiraslı, enerjik, optimist (iyimser), mizah duygusu güçlü bir karakter özelliği gösteriyor ki iktidarı döneminde de yaşanan olaylar bunu doğrulamıştır.
+   <br/>
+   <br/>
+   Bush aşırı tepkisel bir kişiliğe sahiptir, bu nedenle aldığı kararların ve söylediği ifadelerin aceleci ve değişik olduğu gözlemlenebilir. Genel olarak, Bush’un karakter özelliklerini vurgulayan fizyognomi uzmanları menfi özelliklerinin müspet özelliklerine oranla daha çok olduğunu söylemektedirler.
+   <br/>
+   <br/>
+   Saddam Hüseyin’de ise ferdiyetçilik (bireycilik ve bencillik) duygusu daha kabarıktır. Aşağıya doğru sarkmış yanakları ise gaddarlığı yansıtmaktadır. İçine kapalı bir kişilik olduğunu söylemek mümkün.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2319), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030704140604/http://www.aksiyon.com.tr:80/detay.php?id=2319)

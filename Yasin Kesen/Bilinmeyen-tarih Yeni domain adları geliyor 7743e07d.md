@@ -1,0 +1,77 @@
+# Yeni domain adları geliyor
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Aslen ABD’ye ait olmasına rağmen global domain uzantıları haline gelen .com, .net ve .org domainlerine ek olarak yeni domainler geliyor.
+   <br/>
+   <br/>
+   Uluslararası internet alan adı belirleme üst kurulu ICANN’nin dijital ortamda gerçekleştirdiği toplantı ve oylamalarda yeni kullanıma girecek uzantılarla ilgili talepler için süre doldu. Şu günlerde ise talep edilen yüzlerce uzantıdan bazılarının seçilerek kullanıma sunulması hazırlığı yapılıyor.
+   <br>
+    <br>
+     20 yıldır yeni domain uzantısı kullanıma açılmamışken pek yakında .bank, .movie, .list, .info, .union, .music gibi alan uzantılarının satışının başlaması piyasayı oldukça hareketlendireceğe benziyor. Bu tür spesifik isimlerin belirlenmesinde, örneğin .bank uzantılı domainlerin satışında ICANN tarafından “banka olduğuna dair bir belge istenecek mi?, “bu domainlerin verilmesini bir kurul tarafından onaylanacak mı?” gibi sorular henüz netlik kazanmış değil. Ancak, böyle bir sınırlama konulmaması durumunda “isim tacirleri”nin çok can yakacağını herkes tahmin edebiliyor.
+     <br>
+      <br>
+       Yeni domainler neyi sağlayacak? Aynı isme sahip fakat farklı ticari sektörlerde görev gören firmaların kendi sektörlerine ait domainleri alabilmeleri mümkün olacak. Örneğin Zaman’ı ele alalım. Zaman Gazetesi bu durumda www.zaman.newspaper şeklinde bir adrese sahip olabilecek. Zaman Müzik adlı bir firma da varsa şayet www.zaman.music şeklinde bir adrese sahip olabilecek. Bu da klasik “tüh ya ismimizi kaptırdık” türü yakınmaları ortadan kaldıracak. Herkes kendi sektörünün uzantısıyla birlikte adresini satın alabilecek. (Tabi bu uzantıların satışı kurul tarafından kararlaştırılırsa…)
+       <br>
+        <br>
+         Türkiye’de de bazı domain uzantıları 2 yıl kadar önce hizmete girmişti. Ancak bunlar .com.tr uzantılı domain için belge ibraz edemeyenler için açılan uzantılardı. (.gen.tr ve .nom.tr gibi) Yeni çıkacak olan uzantılarla ilgili herhangi bir çalışma yapılıyor mu onu bilmiyoruz ancak, bu uygulama başladığında bizimkiler bunu ihmal ederlerse bir kayıp olacağı kesin. .tr uzantılı adres satışını tamamen bitirmiş olurlar. Çünkü bütün firmalar doğan olarak kendi sektörlerine ait uzantıyla birlikte adres almayı tercih edecektir...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         Titanic’e sanal yolculuk
+         <br/>
+         <br/>
+         Bir efsane olarak başlayıp bir efsane ile sona eren hayal gemisi Titanic ve yolcularının anısına filmler çekilir de web siteleri açılmaz mı? Titanic Ansiklopedisi anlamında Encyclopedia Titanica ismiyle açılan sitede 1., 2. ve 3. sınıfta yolculuk eden bütün herkesin fotoğrafları ve biyografileri bulunuyor. Gemide görevli personel de aynı şekilde yaptığı göreve göre kategorilendirilerek siteye yerleştirilmiş. Kabin görevlileri, müzisyenler, mühendis ekibi...
+         <br/>
+         <br/>
+         Gemiden kurtulanlar da aynı şekilde bindikleri flikanın ismine göre gruplandırılarak veriliyor.
+         <br/>
+         <br/>
+         Multimedye bölümünde ise animasyon, film arşivi, gemide çalan müzikler ve geminin batmasının ardından Titanic için bestelenen parçalar bulunuyor. (www.encyclopedia—titanica.org)
+         <br/>
+         <br/>
+         Bu yıl Beşiktaşlıyız!
+         <br/>
+         <br/>
+         UEFA yolunda bu yıl rüzgar estireceğe benzeyen BJK, Barcelona’yı 3—0 yendiği maçında bunu göstermiş oldu. Zaferle coşan bir sürü sanal taraftar hemen yeni siteler, yeni gruplar, yeni chat odaları oluşturmaya başladı. Takımın kendi resmi sitesi www.bjk.com. Beşiktaş’ın geçmişi, Beşiktaş TV, BJK Dergisi gibi bölümlerin haricinde download köşesinde beşiktaş marşları download edilebiliyor.
+         <br/>
+         <br/>
+         Yazarlar bölümünde de maç yorumları bulunuyor.
+         <br/>
+         <br/>
+         Forza Beşiktaş
+         <br/>
+         <br/>
+         www.forzabesiktas.net genç bir taraftarın hazırladığı fan sitesi. Burada da takımla ilgili bilgiler bilgiler bulunuyor. Oyuncular, dernek, yazılar ve duyurular...
+         <br/>
+         <br/>
+         Web Kartalları
+         <br/>
+         <br/>
+         www.webkartallari.com da bir fan sitesi. İçerik yönüyle oldukça geniş hazırlanmış. Ciddi bir arşivin yanında multimedya bölümü de zengin içerikle karşınıza çıkıyor. Gollerin video görüntüleri, mpler, masaüstü resimleri.... sizi bekliyor.
+         <br/>
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 12 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13896), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043926/http://www.aksiyon.com.tr:80/yazdir.php?id=13896)

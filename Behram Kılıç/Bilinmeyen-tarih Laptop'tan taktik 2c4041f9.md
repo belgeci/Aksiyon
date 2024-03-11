@@ -1,0 +1,146 @@
+# Laptop'tan taktik
+
+*Behram Kılıç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143328im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050117143328im_/http://www.aksiyon.com.tr/resim/513/64.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ersun Yanal, futbol sahalarına bilgisayarı taşıyan ilk isim oldu. Bu yönüyle meslektaşlarından ayrıldı. Bugüne kadar kimseyle paylaşmadığı bilgisayarındaki bilgileri ilk kez Aksiyon’a anlattı. Türkiye’de, adını farklı çalışma metotlarıyla duyuran bir teknik direktör Ersun Yanal. Denizli, A.Gücü ve G.Birliği’nde elde ettiği başarılar bir anda onu milli takım koltuğuna taşıdı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Onun en büyük özelliği yanından hiç ayırmadığı diz üstü bilgisayarı. Ekibi dört kişilik Yanal’ın. Beşincisi ise laptopu...
+   <br>
+    <br>
+     Kimileri, diz üstü bilgisayarıyla alay etti. Kimileri “Ne analizi kardeşim” dedi; ‘Adam sahada yürür; ama 90. dakikada bir gol atar işi bitirir.” Ersun Yanal bu tür olumsuz eleştirilerin hepsine kulak tıkadı. Doğru bildiğinden şaşmadı. Değişime de açık tuttu kendisini. Var olanla yetinmedi. Daha iyisini nasıl yaparım diye kafa yordu
+     <br>
+      <br>
+       Diz üstü bilgisayarı, Denizlispor’u ikinci ligde şampiyon yaptığında yanındaydı. A.Gücü’nde uygulattığı doğru antrenman teknikleriyle yaşı ilerlediği için futbolu bırakmayı düşünen Hakan Kutlu’nun bile yeşil çimendeki ömrünü uzattı, G.Birliği’ni UEFA Kupası’nda dördüncü tura taşırken de en büyük yardımcısıydı bilgisayarı.
+       <br/>
+       <br/>
+       Ersun Yanal şimdi en zor sınavında. Yeni hayalleri olan, yeni başarılara imza atmaya hazırlanan bir kadro onun elinde. Hedef 2006 Dünya Kupası’na katılmak. Yanal, takımın başına geldikten sonra 8 maç oynadı Türkiye. Millilerimiz bu maçlarda 4 galibiyet, 2 beraberlik, 2 mağlubiyet aldı.
+       <br/>
+       <br/>
+       Ersun Yanal, laptopunu milli takımın başına geldikten sonra ilk kez Aksiyon için açtı. Bilgisayarla arasındaki birçok sırrı paylaştı; bazılarını yazılmamak kaydıyla anlattı. Diz üstü bilgisayarı ile alay edenlere güldü. Bilimden yararlanmaya kapalı olanlara acıdı. Ancak hiçbir meslektaşını incitecek, onları küçümseyecek ve hafife alacak bir ifade kullanmadı.
+       <br/>
+       <br/>
+       Ersun Yanal’ın bilgisayarla bağlantısı hayli eski. Endüstri Meslek Lisesi elektrik bölümü mezunu olduğunu söyleyen Yanal, “Küçüklüğümden beri tamir işlerine yatkındım. Sonra Manisa Spor Akademisi’ni bitirdim. Bilgisayarla da tanışmam o zamanlara rastlar. MS-DOS’dan beri, MS-DOS sisteminin 286 MB’lık sx dx bilgisayarlarından beri bu dünyanın içindeyim” diyor.
+       <br/>
+       <br/>
+       Bilgisayar kullanımını yeşil sahalara taşımasının ilk adresi Denizli. Denizlispor’da iken kasetlerden klip yapmaya başladığını belirtiyor. Görüntülü analize ise A.Gücü’nde başlamış. Daha önce kullandığı “Liverpool Programı” sadece istatistikî bilgiler veriyordu. Bugün kullandığı ‘Muna’ adını taşıyan programı ise İzmirli beden eğitimi öğretmenleri Nadir Arıkan ve Murat Yaman onun isteği doğrultusunda hazırlamış. Programın bilgi girişi gibi geri dönüşü de mükemmel.
+       <br/>
+       <br/>
+       Programın en temel özelliği, çalıştırdığı takımla rakiplerinin eksik yönlerini ve artılarını somut biçimde göstermesi. “Maçı çıplak gözle izlediğinde bazı bilgiler elde ediyorsun. Ama çıkardığın somut veriler seni hem doğruluyor, hem de daha ileriye götürüyor. Gelecek adına da bu bilgileri kullanma şansına sahip oluyorsun” değerlendirmesini yapıyor. Bir maçta herkesin yıldız futbolcular üzerinde yoğunlaştığını anlatan Yanal, elindeki program sayesinde yıldızları değil, asıl ikinci plandaki adamları, yani yıldızları besleyen oyuncuları ortaya çıkardığını belirtiyor. İnsanın zihnine, taktiği kim veriyor sorusu takılıyor ister istemez... Elbette, taktiği bilgisayar vermiyor. Ancak, taktiği kuvvetlendirecek bilgiler ondan geliyor.
+       <br/>
+       <br/>
+       Ersun Yanal, sohbetimiz sırasında hünerini gösteriyor. Birkaç saniye içinde herhangi bir milli oyuncunun ya da tüm takımın sahada yaptıklarının fotoğrafını önümüze koyuyor. İster bir maç, ister 5 maçta ortaya çıkan tüm değerler ekrana yansıyor. İster görüntülü, ister rakamsal.
+       <br/>
+       <br/>
+       Program adeta bir bilgi hazinesi. Neler yok ki? Olumlu, olumsuz hareketler, kısa pas, uzun pas, doğru baskı, top kazanma (havadan, pas arası top kazanma, ikili mücadelede top kazanma), ofansif, defansif ribauntlar, ikinci topa giden adamlar, ikinci topu alma, kazanılan fauller, rakibin kazandığı fauller, doğru kademe, top uzaklaştırma, sırta atılan toplar, sağ ve sol olumlu ve olumsuz ortalar, sağ ve sol olumlu ve olumsuz kornerler, şut gol, şut kaleci, atılan goller, yenilen goller, kalecinin topa doğru veya yanlış çıkması, top kazandırmaya yardımcı oyuncu, asistler, kartlar....
+       <br/>
+       <br/>
+       Sahada kameranın kaydettiği bütün olaylar, bir iki tuşla kolayca bilgisayar ekranına taşınıyor. İstenirse, her pozisyon 5 saniye öncesi ya da sonrasında bitirilebiliyor. Yine istenirse süre artırılıp, azaltılabiliyor.
+       <br/>
+       <br/>
+       Yanal ve ekibi, A Milli Takım’ın kendi dönemlerinde oynadığı 8 maçtan yedisinin analizini tamamlamış. Son Yunanistan maçının analizleri yoğunluk sebebiyle henüz bitmemiş. Bu işi genelde Özcan Bizati yapıyor. ODTÜ mezunu Özcan hoca, bir maçın analizinin bütün veriler girildiğinde en az 6 saat sürdüğünü söylüyor. Bu yüzden Özcan Bizati, sıkıştığında diğer yardımcı hoca Mesut Bakkal ve kaleci antrenörü Metin Bayındır devreye giriyor. Ekipteki herkes analiz işinden anlıyor. G.Birliği takımında bu işleri yapan 2 tane öğrenci varmış. Ancak milli takımda böyle bir kadro yok.
+       <br/>
+       <br/>
+       Ersun Yanal, Yunanistan maçına rakibin son 10 müsabakasının analizini yaparak hazırlandıklarını söylüyor. Nerede top kazanıyorlardı, nerede kaybediyorlardı. En çok topla oynayan oyuncuları kimdi, kaleye ne kadar şut çekmişlerdi. Hepsi, maçtan önce Ersun hocanın önünde hazırdı.
+       <br/>
+       <br/>
+       Hakan Şükür’ü kadroya almamasında elde ettiği bu verilerin etkisi büyük: “Havadan oynamak onların isteğini yerine getirmekti. Çünkü hava toplarının hepsini alıyorlardı. Bununla kalmıyor, hızla hücuma çıkıyorlardı. Bizim yerden oynamamız gerekiyordu. Onun dışında kazandıkları topların neredeyse tamamını ön bölümde elde ediyorlardı. Yani yan pas yaparak onların üzerine gitmek neredeyse imkansızdı. Onun için uzun top oynamamız gerekiyordu. Biz de bunu yaptık. Onlara bu özelliklerini kullanma izni vermedik.”
+       <br/>
+       <br/>
+       Bir yandan Yunanistan’ın oynadığı son on maçın verilerini ekrana getiriyor bir yandan şunu üstüne basa basa söylüyor: “Program taktiği belirlemez, sadece taktikte etkili olur. Nihai kararı da ben veririm. Yardımcılarıma da danışırım.”
+       <br/>
+       <br/>
+       Yanal, söz konusu programın geçmişte kendisine ve ekibine kattığı faydaları ise şöyle anlatıyor: “G.Birliği ile Valencia’ya karşı oynadığımız UEFA Kupası maçlarında rakibin 39 yaşında bir oyuncusu vardı. Adı Carboni. Analizler sonucunda baktık bu oyuncu tüm ortaları aynı yere yapıyor. Bunu bir maçta göremeyebilirsiniz. Çünkü bir maçta bu oyuncu belki bir belki iki orta yapabilir. Ama üst üste 3-4 maçı bindirirseniz o oyuncunun özellikleri otomatikman ortaya çıkar.”
+       <br/>
+       <br/>
+       Geçtiğimiz yıllarda Beşiktaş’la oynanan ve İstanbul’da G.Birliği’nin 4-3 kazandığı kupa maçındaki taktiği de bilgisayarın yardımıyla hazırladığını söylüyor: “Beşiktaş’ın analizlerini yaptıktan sonra şunu gördük. Defansta oynayan Ronaldo, Zago ve A.Yıldırım hep yan pas yaparak oyunu kuruyorlar. Rakipler de iyice geriye çekildiğinde ilerideki İlhan’a topu atıyorlar. Biz o maçta Youla, Veysel ve Ahmet Hassan’ı ileride oynattık. Onlara ön bölümde baskı yaptık. Oralarda kaptığımız toplarla da etkili olduk. En azından rahatça üzerimize gelmelerini engelledik. Neticede de İstanbul’da onları yenmeyi başardık.”
+       <br/>
+       <br/>
+       Ersun Yanal, milli takım oyuncuları hakkında çok fazla bilgi vermek istemiyor. Korkusu, bu bilgiler rakiplerin eline geçebilir. Ayrıca, oyuncular alınganlık gösterebilir. Yaptıkları analizlerden elde ettikleri sonuçları futbolculara kamplarda gösterdiklerini anlatıyor Yanal. Özellikle G.Birliği’nden beraber çalıştıkları Ümit Özat ve Serkan’ın bu olaya çok meraklı olduğunu;  bu oyuncuların kendi değerlerini görmek için sürekli ekibi sıkıştırdığını anlatmakla yetiniyor.
+       <br/>
+       <br/>
+       Futbolcuları kulüplerde de takip etmeye çalıştıklarını belirten Yanal, “Şu an çok gelişmiş bir birimimiz yok. Her takımı analiz edemiyoruz. Ancak ileride böyle bir birim kurarak tüm ligleri takibe almak istiyoruz. Böylece, Türk futbolunun bir veri tabanını oluşturabiliriz” diyor.
+       <br/>
+       <br/>
+       Milli takımda oyunculara performans geliştirici testler (genel sağlık testleri, biokimyasal testler, efor testleri, kas testleri) uygulayamadıklarından yakınıyor: “Futbolcuyla kısa zamanda beraber oluyoruz. Kulüplerde ‘polar’ saatlerle oyuncunun tüm değerlerini takip edebiliyorduk. Sporcu yorgun mu, iyi uyumamış mı bunu öğrenebiliyorduk. Ama burada bu mümkün değil, oyuncu sadece maçtan maça bize geliyor. Kulüplerde sezon başında aldığımız oyuncunun değerleri sezon ortasında ve sonunda farklı oluyordu. Burada ise sporcuların performansını artırmak gibi bir faaliyetimiz yok. Ancak onları yönlendirebiliriz.”
+       <br/>
+       <br/>
+       Sohbet sırasında gözümüz hep Ersun hocanın bilgisayarında... Bir ara, bilgisayarın sol alt köşesinde yer alan “Leicester” yazısına takılıyor gözümüz. Leicester, İngiltere’de bir takım ve bilindiği gibi geçtiğimiz sezon Mustafa İzzet bu ekipte oynuyordu. “Bak iyi fark ettin. Leicester’in 5-6 maçını analiz ettik. Mustafa İzzet’i yakından tanımak için” diyor Ersun Yanal; sonra duraklıyor; “Mustafa’nın kendi takımındaki verileri muhteşemdi. Ancak kulübündeki performansını bir türlü milli takıma yansıtamadı.”
+       <br/>
+       <br/>
+       Göreve geldikten sonra oynadıkları G.Kore, Avustralya, Belçika, Belarus ve Gürcistan maçlarıyla ilgili bazı verileri bizimle paylaşıyor. “Toplamda 1446 hareket olmuş. Bu hareketler oyunu etkileyebilecek hareketler. Mesela kendi sahasında rakip baskı yapmadan yapılan kısa paslar burada değerlendirilmeye alınmıyor. Her pozisyonun, her eylemin bir tehlikesi, bir amacı olmalı.” Bu 1446 hareket içinde 834 olumlu, 612 olumsuz harekette bulunmuş bizim takım. Bu sonuçlar, milli maçlar açısından sevindirici. Ancak, G.Birliği takımında olumlu hareket oranını yüzde 70’in üzerine taşıdıklarını kaydediyor Ersun hoca.
+       <br/>
+       <br/>
+       Değerler, tabloda noktalarla gösteriliyor. Milli takımın olumlu hareketleri oyunun tamamına yayılmış görünüyor. Sadece sol tarafın gerisinde biraz eksiklik var. Bir tuşla hangi futbolcuların bu hareketleri yaptığı da görülüyor. Olumsuz hareketlere bakıldığında ise bir eşitlik söz konusu. Yine sol arka tarafta olumsuz hareketlerin sayısı hayli fazla...
+       <br/>
+       <br/>
+       Avustralya ile oynadığımız ilk maçtaki veriler hayli ilginç. Maçta 31 adet top kaybı yapmış Türk Milli Takımı. Kimin hangi bölgede yaptığı da belli. Ceza sahası önünde hiç top kaybı yok. Müdafaa oyuncularının da hiç top kaybı yok. Bu maçtaki top kayıpları genelde kenarlarda olmuş.
+       <br/>
+       <br/>
+       Türkiye’nin kaybettiği Belarus maçındaki top kaybı ise 33. Bu kez kayıpların hepsi geride meydana gelmiş. Ersun Yanal’ın ilk maçı olan Belçika karşılaşmasında, toplam 21 top kaybı var. Yukarıda saydığımız 7 maçta girilen gol pozisyonu sayısı 60. Örneğin, 3-2 kazandığımız Belçika maçındaki gol pozisyonu sayısı 13. Kaybettiğimiz Belarus maçında ise bu rakam 5. Belçika maçında 5’i olumlu 6 korner kullanmışız.
+       <br/>
+       <br/>
+       Bu maçlarda rakiplere verdiğimiz toplam gol pozisyonu sayısı 58. Özellikle duran toplarda ikinci topu alamadığımız açıkça görülüyor. “Ölü toplar dünya futbolunda çok önemli olmaya başladı. Artık bizim hem bu topları iyi kullanmayı öğrenmemiz hem de ölü topları iyi kullanan rakiplere karşı önlemler almamız şart” diyor. Mesela, gelecek haftaki rakiplerimizden Danimarka’da oynayan 7 numaralı oyuncuya dikkat çekiyor. Takımdaki ölü topların neredeyse tamamını o kullanıyor. Barajın boş yerinden kalecinin kapattığı köşeye vuruyor.
+       <br/>
+       <br/>
+       “Futbolcularımız hakkında daha özel bilgi” isteğimize ısrarla karşı çıkıyor. Sonra, “Kimi istersin?” diye de soruyor. “Emre” dediğimizde, “değerlerine bir bakalım” diyor. Göstergelerin hepsi olumlu. 7 maçta toplam 86 olumlu hareketi var Emre’nin. 25 ise olumsuz. Yanal, “Bunlar Emre’ye anlatıldığında kendine olan güveni daha da artacak” diyor.
+       <br/>
+       <br/>
+       “Takımda en çok top çalan oyuncu kim?” sorusuna cevap bulmak için tekrar bilgisayara başvuruyor. İlk Avustralya, ilk G.Kore, Belçika, Gürcistan ve Belarus maçlarının verilerine bakıyor. 19 top kazanan Ümit Özat ilk sırada. En çok top kaybeden oyuncuyu da gösteriyor; ama “bunu yazma” diye rica ediyor. Futbolculara bu bilgileri bazen tek tek, bazen gruplar halinde anlattıklarını belirtiyor. Kamplarda, genelde günde 15-20 dakikalık bir gösterim halinde bu görüntüler futbolculara izlettiriliyor.
+       <br/>
+       <br/>
+       Ersun Yanal, bu hafta sonu oynayacağımız Kazakistan takımının maçlarını da analiz ettiklerini söylüyor. Kazakistan ile ilgili kısa bilgiler de veriyor. Oyuncuları genelde kendi liglerinde top koşturuyor. Maçlarda rakipleri kendi sahalarında kabul ediyorlar. Fazla ileri çıkmıyorlar. Hocaya göre Kazakistan bize rakip olamaz. Danimarka’yı da masaya yatırmışlar. Gerek Avrupa Futbol Şampiyonası’ndaki maçlarını gerekse gruptaki maçlarını analiz etmişler. Danimarka maçı ile ilgili ise sadece ‘zor maç olacak’ diyor Yanal.
+       <br/>
+       <br/>
+       Yanal’ın bilgisayarı sırlarla dolu. Verdiği bilgiler, deryadan bir katre ölçüsünde... “Bilgisayar verileri veriyor. Ben bu verileri ekibimle beraber değerlendiriyorum. Sistemi ve taktiği ona göre kuruyorum. Rakibin etkili yerlerine önlem almaya çalışıyorum. Zayıf yönlerinden faydalanmaya çalışıyorum. Ama bazen bu amacına ulaşmayabilir. Bazen görev verdiğiniz oyuncu gününde olmayabilir. Futbolcular robot değil, etten kemikten” diyor, son bir hatırlatma yaparak.
+       <br/>
+       <br/>
+       Hasılı, Yanal’ın elindeki bilgi kaybolmuyor, uçup gitmiyor, her zaman kullanılmaya hazır duruyor. Tabii ki sürekli artıyor. O geçmişle beraber geleceği çizmeye çalışıyor. Teknolojiyi de beraberinde taşıyarak.
+       <br/>
+       <br/>
+       MUNA PROGRAMININ AVANTAJLARI
+       <br/>
+       <br/>
+       Yanal’ın bugün kullandığı ve ‘Muna’ ismi verilen programı İzmirli beden eğitimi öğretmenleri Murat Yaman (programı bilgisayarda yazan program yazılımcısı) ve Nadir Arıkan (programa futbol literatür araştırmalarını ve bilgilerini sunan eski profesyonel futbolcu) hazırladı. Programda, oynanan bir futbol maçının kasetinin bilgisayar ekranında görüntülenmesi sağlanıyor. Oyun esnasında analizi yapılan takımın futbolcularının, sahanın neresinde, hangi hareketi, ne şekilde yaptıkları gösteriliyor. Bunun dışında bunların istatistiksel bilgilerinin hepsinin hafızaya kaydedilmesi ve doküman olarak çıktılarının yazıcıdan elde edilmesi de sağlanıyor. Bu programın en büyük ayrıcalığı analizin tamamının Türkçe ve kullanımının çok basit olması.
+       <br/>
+       <br/>
+       YANAL’IN EKİBİ
+       <br/>
+       <br/>
+       Özcan Bizati: Ekibe A.Gücü’nde katılmış. Ersun Yanal ile tanışmaları Denizli’den başlıyor. Emsanspor ve Denizli Belediyespor’da Ersun Yanal ile beraber futbol oynamış. Hocanın bugün beğeni ile karşılanan hücum futbolunun ilk tohumlarını amatör takım Denizli Belediye’de attığını belirtiyor Özcan hoca. Sakatlandığı için futbolu erken yaşta bırakmış. Daha sonra ODTÜ Beden Eğitimi ve Yüksek Öğretimini kazanan Bizati, Yanal’dan Denizlispor’u çalıştırdığı dönemde teklif almış. Ancak birlikte çalışmak A.Gücü’nde nasip olmuş.
+       <br/>
+       <br/>
+       Metin Bayındır: 16 sene Denizlispor’da futbol oynadı. 1997’den bu yana Ersun hocayla birlikte çalışıyor.
+       <br/>
+       <br/>
+       Mesut Bakkal: 14 yıl futbol oynadı. 4 kere Genç ve Ümit Milli Takım forması giydi. İki yıl altyapı antrenörlüğü yaptı. Denizlispor’u genç, hiç tanınmayan futbolcularla 1. lige çıkartırken yardımcı antrenördü. Ankaragücü ve Gençlerbirliği’nde beraber çalıştı.
+       <br/>
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Altay Varol, 05-Ekim-2004
+> Kararından asla dönmez: 
+> Ersun Yanal’la uzun süre çalışma imkanı buldum. Karar aldı mı ölür de dönmez. Onu zor günler bekliyor. Allah yardımcısı olsun.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16468&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143328/http://www.aksiyon.com.tr:80/detay.php?id=16468&yorum_id=1)

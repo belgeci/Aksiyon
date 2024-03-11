@@ -1,0 +1,97 @@
+# Ekonomi emniyet altında!
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302115448im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302115448im_/http://www.aksiyon.com.tr/resim/311/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Devletin içine çöreklenen ve İçişleri Bakanı Sadettin Tantan’ın ifadesiyle ‘Tapınak Şövalyeleri gibi örgütlenen ve uluslararası ayakları olan’ çeteler karşısında önemli başarılara imza atan emniyet teşkilatı suçla mücadeledeki başarısını ekonomi alanına da taşımak istiyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Polisin ekonomik olarak rahatlamasını sağlayacak holdingleşme çabalarını ise polislere sosyal yardım sağlamak ve dayanışmayı artırmak amacıyla kurulan Polis Bakım ve Yardım Sandığı yürütüyor.
+   <br>
+    <br>
+     1952 yılında 3201 sayılı kanunla kurulan Polis Bakım ve Yardım Sandığı’yla ekonomi alanında etkin olmaya çalışan polisler son dönemde finans sektöründe önemli çıkışlar yaparak dikkatleri üzerine çekiyor. İlk etapta 6.2 milyon dolara Ankara Sigorta’yı satın alan polislerin bir sonraki hedefi ise batan bankalardan birisini satın almak!
+     <br>
+      <br>
+       Polisler arasında ‘kara gün’ dostu olarak bilinen Polis Bakım ve Yardım Sandığı’nın tamamı emniyet teşkilatı mensubu 70 bin üyesi bulunuyor. Sandık Başkanı Ferruh Özcan 170 bin kişilik emniyet camiasından 70 bin kişinin üye olmasını zorunlu değil gönüllü üyelikle kurulmalarına bağlıyor. Özcan, son dönemde medyada büyük yankı uyandıran çalışmalara imza atan Polis Sandığı’nın kuruluş amacının polislere ekonomik ve sosyal anlamda yardımda bulunmak olduğunu söylüyor: “Polislerin emeklilik, ölüm ve şehadet durumlarında onları bir de ekonomik sıkıntı içine sokmamak, ihtiyaçlarını karşılamaları için düşük faizle borç para vermek gibi çalışmalarla sosyal haklarının korunmasını amaçlıyor Polis Yardım Sandığı. Bunun için her ay üyelerimizden maaşlarının yüzde beşini aidat olarak topluyoruz. Yapacağımız yardımlarda aldıkları maaş ve ödedikleri aidat esas alınıyor. Mesela ayda 300 milyon TL maaş alan bir ortağımızın şehit olması halinde maaşının sekiz katını ailesine tazminat olarak ödüyoruz. Normal ölümü halinde ise 6 kat yani 1.8 milyar ödüyoruz. Bunun dışında tüzüğümüzün 24. maddesi uyarınca şehid olan veya ölen üyelerimizin ailelerine ayrıca emeklilik yardımında bulunuyoruz. Bunun dışında emekli olan memurlarımızın emeklilik tazminatlarının üçte birini yine biz ödüyoruz.”
+       <br/>
+       <br/>
+       Yaptıkları işin zorluğuna karşın düşük sayılabilecek maaşlarla görev yapan polislerin ekonomik sıkıntılarını hafifletme ve sosyal güvence oluşturma misyonuyla yola çıkan Polis Yardım Sandığı bu amaçla üyelerine çeşitli alanlarda kullanılmak üzere enflasyonun altında bir faiz oranıyla kredi veriyor. İhtiyaç, konut ve araba kredisi alan üyelerin aldıkları bu paraların takibini ise yine teşkilat yapıyor. Bu sayede üye aidatlarını ve borçlarını her ay rahat bir şekilde toplayan sandık uzun bir süre paraların biriktiği ve üyelerin ihtiyaçlarını karşılayan bir kurum olarak görev yapıyordu. Üyelerinden ayda 520 milyar TL gibi yabana atılmayacak bir meblağ toplayan Polis Yardım ve Bakım Sandığı’na projektörlerin dönmesini sağlayan olay ise 21 Nisan 2000 tarihinde yaşandı. Sandık 6.2 milyon dolar karşılığında Özelleştirme İdaresi’nden Türkiye’nin köklü sigorta şirketi Ankara Sigorta’yı satın alınca gözler bir anda kurumun üzerine çevrildi.
+       <br/>
+       <br/>
+       Neden sigorta şirketi?
+       <br/>
+       <br/>
+       1936’da kurulan Ankara Sigorta Türk sigortacılık tarihinde marka olmuş bir isim olarak biliniyor. İş Bankası’nın yüzde 85 ve çalışanların yüzde 15 katılımıyla kurulan Ankara Sigorta, uzun süre en iyi ciro yapan 5 sigorta şirketi arasında gösteriliyordu. Şirket bu durumunu oldukça uzun bir süre 1985 yılına kadar sürdürebildi. Bu tarihte şirketin ana hisselerini elinde bulunduran İş Bankası bunları Etibank’a satınca Ankara Sigorta için zor günler başladı. Bu dönemde büyük kan kaybına uğrayan şirket 1997’de Etibank’ın özelleştirilmesinin ardından eski ihtişamından oldukça uzak bir şekilde Özelleştirme İdaresi Başkanlığına devredildi. ÖİB yönetiminde çalışmalarını eski günlerinden uzak bir şekilde sürdüren Ankara Sigorta’nın kaderi düzenlenen üç ihalenin sonunda 21 Nisan 2000 tarihinde hiç beklenmeyen bir ismin, Polis Yardım ve Bakım Sandığı’nın, 6 milyon 250 bin dolara şirketi satın almasıyla bir anda değişti.
+       <br/>
+       <br/>
+       Özelleştirme idaresinin düzenlediği ihalenin sonuçlarının açıklanmasıyla birlikte herkesin aklına gelen ilk soru; ‘Polis Sandığı neden Ankara Sigorta’yı satın aldı?’ oluyordu.
+       <br/>
+       <br/>
+       Genel itibariyle faaliyetleri bir sigorta şirketini andırıyorsa da Polis Sandığı’nı bir sigorta şirketine dönüştürme fikri oldukça yeni bir fikir. 1998 yılında yapılan yasal düzenlemelerin ardından, sigortacılıkla ilgili detaylı bir araştırma faaliyeti yürüttüklerini söyleyen sandık yöneticilerini şirketleşmeye iten sebeplerin başında kurumsallaşma arzusu geliyor. Devletin güvenlik birimleri’nin kurumsallaşması fikri aslında yabancı olduğumuz bir şey değil. Ordu mensuplarının ihtiyaçlarını karşılamak için 1961 yılında kurulan ve bugün bankacılık, finans, sigortacılık, inşaat ve gıda gibi bir çok sektörde faaliyet gösteren Ordu Yardımlaşma Kurumu (OYAK) bu alanda ilk ve tek örnek olarak bulunuyor. OYAK zorunlu üyelerinden elde ettiği gelir ve başarılı çalışmalarıyla bir yandan ülke ekonomisi içinde güçlü bir yer edinirken, diğer taraftan ise askeri ve sivil mensuplarına büyük kazançlar sağlıyor. Konuyla ilişkin açıklamlarında bu tür benzetmeleri yanlış bulduklarını ifade etmelerine karşın, polisin kurumsal olarak örnek alabileceği tek örneğin OYAK modeli olması yapılanmanın benzer olacağının sinyallerini veriyor.
+       <br/>
+       <br/>
+       Polis Sandığı’nın sigortacılık sektörüne girmesinin bir başka nedeni ise 1990 yılından itibaren başlayan ve Türk ekonomisini iflasın eşiğine getiren iç borçlanma, repo döneminin artık kapanıyor olması. IMF ve hükümetin uyguladığı istikrar programının ‘tatlı para’ dönemini kapatmaya başlaması yatırımların yeniden hız kazanmasına neden oldu. Faiz ve repo oranlarının düşmesinin oldukça önemli bir etken olduğunu belirten uzmanlar, polisin Ankara Sigorta’yı alarak yatırım döneminde de elindeki ekonomik gücü korumaya çalıştığını ileri sürüyorlar.
+       <br/>
+       <br/>
+       OYAK’ın polis versiyonu olarak görülmekten rahatsız olduklarını her seferinde belirtmelerine karşın, sandık yöneticilerinin devletin el koyduğu batık bankalardan birisine talip oldukları yönündeki beyanlar “OYAK’tan sonra POYAK mı geliyor?” sorusunu gündeme getiriyor.
+       <br/>
+       <br/>
+       “POYAK olmayı düşünmüyoruz!”
+       <br/>
+       <br/>
+       Konuyla ilgili olarak görüştüğümüz Polis Sandığı yöneticilerinin tamamı bu tür bir benzetmenin yanlış olacağını vurguluyorlar. Öncelikle Polis Yardım ve Bakım Sandığı’nın OYAK gibi zorunlu bağışlarla değil, gönüllü aidatlarla oluşturulduğuna dikkat çekiyorlar. Yöneticilerin altını çizdiği bir diğer konu ise çalışma alanlarının farklı oluşu. Polis Sandığı’nın sektör olarak bankacılık ve sigortacılık gibi iki yakın sektörü seçtiğine, buna karşın OYAK’ın otomotiv, çimento, inşaat, gıda, bankacılık, sigorta gibi çok farklı sektöre yayılmış bir kurum olduğuna dikkat çekiyorlar.
+       <br/>
+       <br/>
+       Konuya ilişkin sorularımızı cevaplayan Ankara Sigorta Genel Müdürü Can Başar, öncelikli amaçlarının polisi ekonomik olarak rahatlatmak olduğunu söylüyor. Bu amaçla Ankara Sigorta bünyesinde 2 trilyon sermayeli Ankara Hayat Sigorta’nın da hizmete gireceğine değinen Başar, batık bankalardan birisine talip olduklarını açıklıyor. Tasarruf mevduat fonuna devredilen ve sahipleri hakkında yasal soruşturma yürütülen batık bankalardan birisine talip olan polislerin bu alanda da detaylı çalışma yürüttüğü görülüyor. Peki sigortacılık yaparak üyelerinin güvenliğini sağlayan sandığın riskli bir alan olan bankacılık sektörüne girmesi önemli tehlikeleri de beraberinde getirmiyor mu?
+       <br/>
+       <br/>
+       Ankara Sigorta Genel Müdürü Can Başar’a göre ortada bir risk yok; “Bankacılık ile sigortacılık sektörü birbirine son derece yakın sektörler. Üstelik bizim üyelerimizin çokluğu yüzünden para transferinde sorunlar yaşayabiliyoruz. Bu yüzden Ankara Sigorta’nın kurulmasıyla birlikte para transferi ve primlerin toplanması için bir banka almayı düşünüyoruz. Şu anda devletin el koyduğu 10 banka var ancak bize ulaşan duyumlara göre bir 10 banka daha Hazine’ye geçecek imiş, bu bankalardan birisinin özelleştirilmesi düşünülürse biz buna talibiz!”. Polis Sandığı Başkanı Ferruh Özcan da böyle bir yapılanmanın polislerin lehine sonuçlar doğuracağını savunuyor, “Önceden, yani sandık olarak görev yaptığımız dönemde bir zarara uğradığımız zaman ‘kusura bakmayın, biz sizin paranızı yanlış kullandık, özür dileriz deyip olayı kapatabilirdik; ancak şimdi insanların eline birer tane poliçe verdiğimiz zaman bu durum her iki tarafı da bağlayan sağlıklı bir işbirliğine dönüşecek”.
+       <br/>
+       <br/>
+       Polis profesyonel yönetim istiyor!
+       <br/>
+       <br/>
+       Özel sektörün son yıllarda uluslararası alanda gösterdiği başarının temelinde yatan unsurların başında profesyonel yönetim anlayışı geliyor. Sigortacılık ve bankacılık gibi yoğun rekabetin yaşandığı bir kulvarda mücadele vermeyi amaçlayan polisler de oyunu rakiplerinin kurallarıyla oynamaya hazırlanıyor. İlk olarak Sandığın başına profesyonel bir yönetici olan Ferruh Özcan’ı getiren polisler bu alandaki çabalarını hız kesmeden sürdürüyorlar. Profesyonel yönetim anlayışını tabana yaymak için yüksek ücretlerle dışarıdan profesyonelleri bünyesine dahil eden Polis Sandığı, Ankara Sigorta’yı ÖİB’den alır almaz yaptığımız ilk iş olarak ÖİB’in atadığı yöneticileri ÖİB’e iade ediyor.
+       <br/>
+       <br/>
+       Eski dönemden bazı yöneticileri yüksek maaşlarla kendi şirketine dahil eden Polis Sandığı, Ankara Sigorta’nın başına da 20 yıllık sigortacı Can Başar’ı getiriyordu. Bürokrasi oluşmaması ve hareket kabiliyetlerinin engellenmemesi için çaba sarf ettiklerini ifade eden yöneticiler bu amaçla ODTÜ’den Prof. Dr Alaattin Tikelioğlu’nu Ankara Sigorta’nın yönetim kuruluna danışman olarak dahil ettiklerini belirtiyorlar. Bunun yanısıra 2 trilyon sermaye ile kurulan Ankara Hayat Sigorta’nın danışmanlığını da ODTÜ Finans bölümünden Cengiz Erol’un yürütmesi polisin işi ne kadar ciddiye aldığını ortaya koyuyor. Devletin gözünün kendi üzerlerinde olduğunu belirten Ferruh Özcan, bu yüzden çok ciddi paralar ödeyerek profesyonel yöneticileri transfer etmelerinin gerekli bir hamle olduğunu ifade ediyor.
+       <br/>
+       <br/>
+       “Polis şirketi olmasak işimiz zor!”
+       <br/>
+       <br/>
+       Zorunlu Deprem Sigortası’nın gündeme gelmesiyle birlikte sigorta sektöründe büyük bir hareketlilik yaşanıyor. Yangın, trafik, sağlık ve hayat sigortalarına olan talebin büyük bir artış gösterdiğini belirten sigorta uzmanları bunun temel nedeninin ise 17 Ağustos depremi olduğu görüşünde birleşiyorlar. Bu kadar hareketli bir sektöre öncelikli olarak polislere, daha sonra bütün herkese hizmet verme sloganıyla giren Ankara Sigorta’nın bu durumu diğer sigorta şirketlerinin de dikkatinden kaçmıyor. Sigortacılık gibi son günlerde adından çok söz ettiren bir sektörde hazır müşterilerinin yanısıra yeni müşteriler de bularak pazar payını genişletmeyi düşünen Ankara Sigorta’yı zorlu rakipler bekliyor. Rakipleri tarafından dikkatle izlendiklerini kaydeden bir Ankara Sigorta yetkilisi’nin ‘polis şirketi olmasak işimiz çok zor. Rakiplerimiz bizim her adımımızı izliyorlar’ şeklindeki açıklaması bu pazarda yakında sıcak saatlerin yaşanacağını gösteriyor. Rakiplerinin yakın markajı altındaki şirketlere eleman alımında ise emniyet birimlerinin kendilerine yardımcı olduğunu açıklayan yöneticiler bu sayede ‘sızmaları’ engellediklerini açıklıyorlar. Her fırsatta kamu yararına hizmeti ön planda tuttuklarını ifade eden sandığın, Ankara Sigorta’yı satın almasının ardından devletin de isteğiyle kamu için çeşitli çalışmalar yaptığı görülüyor. Bu amaçla ilk olarak kazalarla mücadele için Avrupa’da yürütülen bir uygulamayı Türkiye’ye getirmeye çalışıyorlar. Başarılı sürücülerin sigorta primlerinin düşük tutulması ve bu yolla trafik kazalarının önüne geçmeyi amaçlayan bu projenin yanında trafik kazalarıyla ilgili bir fizibilite raporu hazırlayacaklarını ifade eden Ankara Sigorta yetkilileri amaçlarının salt para kazanmak olmadığının bir kez daha altını çiziyorlar.
+       <br/>
+       <br/>
+       Devlet ekonomiyi yeniden ele mi alıyor?
+       <br/>
+       <br/>
+       Devletin ekonomik alandaki etkinliği daralmadan Türkiye’de demokrasiden söz etmenin zor olduğu bilinen bir gerçek. Ekonominin yaklaşık hâlâ yüzde 60’ını kontrolü altında bulunduran devletten ekonomik rant sağlamak isteyenlerin devlet içine çöreklenmesiyle ortaya çıkan çete ve yeraltı örgütlerinin pisliklerini temizlemek için toplum büyük çaba harcıyor. Bu anlayışın sonucunda ortaya Banker Faciası, Susurluk ve batık bankalar gibi olaylardan ağzı yanan Türk halkı ekonominin yarı özel kurumlar aracılığıyla tekrar devletin eline geçmesinden endişe ediyor. Bilkent Üniversitesi Ekonomi Bölümü öğretim görevlisi Dr. Hakan Berument bu konuda en büyük sorunun devletin kendi bünyesinden çıkan ekonomik yapıları denetlemesi olduğunu ifade ediyor. Batı dünyasında vakıf veya yardım sandığı şeklinde olduğunu belirten Berument, buna karşın bu tür kuruluşların hiç bir ayrıma tâbi tutulmadan son derece sıkı bir şekilde mâli denetlemeye tâbi tutulduğunu belirtiyor. Sivil ve şeffaf toplum konusunda çıkışlarıyla tanınan vali Recep Yazıcıoğlu ise, prensip olarak kamu çalışanlarının holdingleşmesine karşı olmadığını ancak holdingleşen bu kuruluşların şeffaf bir yönetim ve açık denetime tâbi tutulması gerektiğini belirtiyor.
+       <br/>
+       <br/>
+       Devletin kurduğu veya desteklediği bir holdingin devlet tarafından nasıl denetleneceği sorusu aslında herkesin kafasını karıştıran bir soru. Önceki yıllarda THK, Kızılay gibi kamu kuruluşlarında meydana gelen yolsuzlukların faillerinin hâlâ ortada dolaşması akıllardan çıkmış değil. Aynı şekilde POYAK’ta bir yolsuzluk olduğunda mâli polis olaya nasıl müdahale edecek veya en önemlisi müdahale edebilecek mi? Sandığın tüzüğüne göre lüzumu görülmesi halinde sandığın tüm işletmelerinin hesapları İçişleri Bakanlığı ve Maliye Bakanlığı tarafından denetlenebiliyor. Ancak bunun gerçekleşmesinin zor olduğunu belirten uzmanlar konuyla ilgili olarak OYAK’ın önemli bir örnek olduğunu ifade ediyorlar. Kafaları karıştıran bir diğer soru ise devletin memurlarını kendi şirketlerine müşteri olmaya zorlaması uluslararası ve yerli yatırımcıları nasıl etkileyecek?
+       <br/>
+       <br/>
+       Uzun dönemde cevap bulacak bu sorulara karşın Polis Sandığı’nın satın aldığı Ankara Sigorta sermayesini 2.5 trilyondan 5 trilyona çıkararak eski kötü günlerin acısını çıkarmaya çalışıyor. Bunun yanısıra geçen yıl 8.5 trilyon olan prim üretimlerini 15 trilyona çıkarmayı hedefleyen Ankara Sigorta yeni yapılanmasını daha sağlıklı gerçekleştirmek için Kozyatağı’ndaki 10 katlı yeni binasına taşınmayı bekliyor. Kozyatağı’ndaki yeni binaya geçtiği zaman kurumun eski anlayışı ne kadar değişir bilinmez ama polisin operasyonlardaki başarısını ekonomi alanına taşıması halinde Türk ekonomisinin çok değişeceğini söyleyebiliriz!
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13711), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302115448/http://www.aksiyon.com.tr:80/detay.php?id=13711)

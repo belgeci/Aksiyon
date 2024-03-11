@@ -1,0 +1,85 @@
+# Üç günde sigaraya paydos
+
+*Cevdet Gengörü Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302112149im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302112149im_/http://www.aksiyon.com.tr/resim/311/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Siz de sigara tiryakisi misiniz? “Bundan kurtulmalıyım” dediğiniz halde bir türlü bırakamıyor musunuz? İşte size fırsat. Ankara’da bulunan Sigarasız Toplum Derneği (STD) ışın tedavisi ile üç günde sigara bıraktırıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   22 AB ülkesinde uygulanan tedavi yönteminin yan etkisi bulunmuyor. Yapacağınız ilk ve en önemli şey sigarayı bırakmaya karar vermek. Bu kararı aldıktan sonra 6 aylık sigara parası karşılığında tedavi olabilir ve zehir solumaktan kurtulabilirsiniz.
+   <br>
+    <br>
+     Sigaranın sağlığa zararlı olduğunu herkes biliyor ancak nikotin bağımlılığının uyuşturucu bağımlılığı ile eşdeğerde olduğunu bilen insan sayısı çok az. Sigara firmalarının bu gerçeği kamuoyundan uzunca bir süre saklama konusunda bir hayli başarılı oldukları görülüyor. Ancak başta AB ülkeleri olmak üzere birçok ülke sigara ile mücadele konusunda son yıllarda ciddi adımlar atmaya başladı. Nitekim geçtiğimiz yıl İngiltere’de yayımlanan bir rapor, sigaranın eroin ve kokain ile aynı düzeyde bağımlılık meydana getirdiğini ortaya koymuş, İngiliz doktorlar, sigaranın, tıpkı kokain ve eroin gibi bağımlılık yaptığını ve bu çerçevede değerlendirilmesi gerektiğini açıklamışlardı. Bunun üzerine Britanya Sağlık Bakanı Alan Milburn, sigaranın içindeki bağımlılık yapan maddelerin kamuoyuna açıklanacağı sözünü vermişti.
+     <br>
+      <br>
+       Bırakmak için irade yetmiyor
+       <br/>
+       <br/>
+       İnsanlar sigaranın psikolojik bağımlılık oluşturduğunu, bu nedenle istenmesi halinde bırakılabileceğini düşünüyorlar. Yani günlük dilde sık kullanıldığı gibi, “Her şeyin kafada biteceği” inancı var. Dernek Başkanı Fatma Cengiz, sigaranın psikolojik bağımlılık yanında fiziksel bağımlılık oluşturduğunu, bu nedenle iddia edildiği gibi her şeyin kafada bitmediğini belirtiyor; “Herkes de zannediyor ki, bu irade ile halledilebilecek bir şey’. Ben her konuda irademe sahibim ama sigara konusunda değilim’ sözlerine sık rastlarız. Bu, öyle bir şey değil. Sigara hem fiziksel, hem de psikolojik bağımlılık yapan bir uyuşturucu maddedir. Fiziksel bağımlılık, kişinin iradesi dışında uyuşturucu kullanması demek. Merkezi sinir sistemi dediğimiz beyin hücreleri o maddeye alışıyor, o madde olmayınca normal faaliyetini sürdüremiyor ve mutlaka hava gibi, su gibi ihtiyaç duyulan bir madde oluyor.”
+       <br/>
+       <br/>
+       Yapılan araştırmalara göre ülkemizde nüfusun yüzde 40’ı, yani 25 milyon kişi sigara içiyor. Kırsal kesim ve ev hanımlarının durumlarının araştırmalara sağlıklı olarak yansımadığı düşünülecek olursa bu rakamın 30 milyon civarında olduğu söylenebilir. Diğer önemli bir problem de sigara içme yaşının gittikçe düşmesi. Araştırma verilerine göre ülkemizde sigaraya başlama yaş ortalaması 9. Bu rakam, olayın geldiği tehlikeli boyutu da gözler önüne seriyor. STD Başkan Yardımcısı Muzaffer Sarıhan, çocukları ve gençleri bu tehlikeden kurtarmak için herkesin seferber olması gerektiğini belirtiyor ve “Öğretmenler bize geliyorlar ve ilkokul üçüncü sınıfa giden çocukların sigara içtiğini söylüyorlar, ‘Elimizden bir şey gelmiyor, ne yapalım’ diye soruyorlar” diyor.
+       <br/>
+       <br/>
+       Tedavi yöntemi
+       <br/>
+       <br/>
+       Beynimiz bir sürü hücrelerden oluşmuştur ve bunlar hormon salgılarlar. Hormonlardan bir tanesinin adı endorfindir. Yani mutluluk hormonu. Üzüldüğümüzde, sevindiğimizde, terlediğimizde, üşüdüğümüzde vücudun dengesini sağlayan hormondur. Vücudumuzun doğal morfini diyebiliriz. Nikotin bu endorfine biyokimyasal yapısı olarak çok benzer. Nikotin sunidir, endorfin doğal morfinimizdir. Sigara içen kişilerde nikotin bu endorfin salgısını durdurur, beyin hücrelerine yerleşir ve sigara içme isteğini doğurur. Bu nedenle sigara bırakmak için gelenlere önce sigranın insan vücudunda neler yaptığı anlatılıyor. Fiziksel bağımlılığın nasıl önleneceği anlatıldıktan sonra tedaviye geçiliyor. “Sigara içen herkes bırakma ile ilgili olarak mutlaka deneme yapmıştır. Ama bıraktığı zaman sinirlenir, strese girer, konsantrasyonu bozulur, kafası çalışmaz, ağrı olur, mutsuz olur. Bunlar tamamen endorfin üretiminin durmasından, eksik salgılanmasından kaynaklanır. Nikotin kesildiği zaman bunlar başlar. Bizim burada yaptığımız tamamen fiziksel isteği kesmek, fiziksel bağımlılığı ortadan kaldırmak. Vücudun nikotin ihtiyacını kesmek. Bunu da enfraruj dediğimiz kızılötesi, morötesi ışınlar ile sağlıyoruz” diyor Fatma Cengiz.
+       <br/>
+       <br/>
+       Tedavinin herhangi bir yan etkisi bulunmuyor. TUBİTAK ve Türkiye Atom Enerjisi Kurumu yaptığı incelemeler sonunda enfrarujun zararsız olduğuna ve radyasyon yaymadığına dair rapor yazmış. Bu, CE belgeli, Avrupa Birliği’nde, Asya ve Latin Amerika olmak üzere toplam 22 ülkede kullanılan bir cihaz. Vücudun belirli noktalarından uygulama yapılıyor. Bu uygulama ile endorfin salgıları yeniden uyarılarak tıkanmış ritmler yeniden düzenli hale getiriliyor. El, parmak uçlarına uygulanır genelde. Başarı oranı yüzde 90 civarında. Üç gün üst üste yapılan uygulamalardan sonra endorfin salgıları yeniden bol bol üretilmeye başlıyor ve nikotin alma isteği sona eriyor. Böylece irade de güçleniyor ve kişinin kararlılığı ile bu yüzde yüz başarıya ulaşıyor. Fatma Cengiz, tedavide en önemli unsurun kişinin sigarayı bırakma kararı vermesi olduğunu söylüyor. “Sigara fiziksel bağımlılık ve uyuşturucu bağımlılığı yaptığı için önce kişinin karar vermesi gerekiyor. Kendi payına düşen yüzde 10 iradeyi göstermesi ve kararlılığını devam ettirmesi. İstemesi yeterli oluyor. Bu yöntemle tedavi olanlar yüzde 90 sigarayı bırakıyor. İki yıl takip ve garantisi de var. Amerika bile bunu şu an çözememiş durumda. Akciğer Derneği’nin geçen hafta bir açıklaması vardı; sigara bağımlıları, bıraksalar bile tekrar sigaraya dönme ihtimalleri var. Kişi kendi iradesi ile sigarayı bıraktığında bir süre sonunda mutlaka nikotin alma isteği doğuyor ve kişi bu isteği yenemediğinde tekrar başlıyor.” Cengiz, tek bir sigaranın bağımlılığı başlattığının altını çiziyor. “Eskiden, yok şu kadar sene geçecek, yok şu kadar sigara içildikten sonra bağımlı olunur gibi şeyler söyleniyordu. Bunlar tamamen yanlış. Bir tek sigara bile bağımlılığı başlatıyor.”
+       <br/>
+       <br/>
+       Dört ayda 80 kişiye sigara bıraktırıldı
+       <br/>
+       <br/>
+       Tedavinin maliyeti 160 milyon lira, yani altı aylık sigara parası. Tedavi üç gün sürüyor, ama bazen bu 1 haftaya kadar sarkıyor. Yani istek kesilinceye kadar devam ediyor. İki yıl da garantisi var. Tedavi olanlar bu süre içerisinde belli periyotlarla aranıyor ve tekrar sigaraya başlamaları önleniyor. Kişi sigara içme isteği duyduğunda hemen derneğe çağrılıyor ve destekleme programına alınıyor. STD Başkan Yardımcısı Muzaffer Sarıhan, kesinlikle kâr amacı gütmediklerini, burada aldıkları tüm parayı eğitime harcayacaklarını kaydediyor. “Şu an alt yapı çalışmaları devam ediyor. İşin pedagojik yönünü de düşünerek öğrencilerin yaş gruplarına göre anlayabilecekleri seviyede kitapçıklar, broşürler hazırlıyoruz. Bunlar okullara dağıtılacak. İşin köklü çözümü sigaraya başlatmamak, bunu engellemek için çalışmalar yapmak.” Ağustos 1999’da kurulan dernek dört ay önce tedaviye başlamış ve bu süre içerisinde 80 kişiye sigara bıraktırmış.
+       <br/>
+       <br/>
+       Katrilyonlar duman oluyor
+       <br/>
+       <br/>
+       Türkiye’de bir günde sigaraya harcanan para miktarı ortalama on bir trilyon lira. 1999 yılında sigaraya verilen para bir katrilyon 750 trilyon lira iken bu rakamın 2000 yılında 3 katrilyon 750 trilyon civarında olması bekleniyor. Yani Türkiye bütçesinin yüzde 12’si kadar para sigara tüketimine gidiyor. Milli Eğitime ayrılan payın 2.6 katrilyon, Adalet Bakanlığı’na bütçenin ancak yüzde birinin ayrıldığı dikkate alınacak olursa rakamın büyüklüğü daha iyi anlaşılır. İşin ekonomi boyutunun yanında dikkatimizi bir başka konuya çekiyor Muzaffer Sarıhan: ‘Light’ aldatmacası. Kimin söylediği, nereden çıktığı bilinmiyor ancak insanlar light sigaraların normal sigaralara oranla daha az zararlı olduğuna inandırılmışlar. Nitekim İngiliz bilimadamları yukarıda sözünü ettiğimiz raporda bu aldatmaya dikkat çekmişler ve sigara paketlerinin üzerindeki ‘light’ ibaresinin kaldırılmasını istemişlerdi. “Cafelerde olsun, barlarda olsun, diskolarda olsun, özellikle light sigaraları eşantiyon olarak dağıtıyorlar. Geliyorlar, masalara koyuyorlar, ücret almıyorlar. Neden? Çünkü bir sigara bağımlılık yapıyor. Bir defa içen insan o sigaranın müptelası oluyor” diyor Sarıhan. Başkan Yardımcısına göre Türkiye’de sigara, uyuşturucuya açılan bir kapı olarak görülüyor. “Yapılan tüm araştırmalar sigara içme yaşının 9—11, uyuşturucuya başlama yaşının da 12—14 yaşlarında olduğunu gösteriyor. Bu, şu demek; önce sigara bağımlılığı, ardından uyuşturucu bağımlılığı.”
+       <br/>
+       <br/>
+       En iyi temizlik hiç kirletmemektir düsturundan hareketle sigaraya hiç başlamamak/başlatmamak en iyi çözüm yolu. Olayın ekonomik, sosyal ve psikolojik yönlerini etraflıca ele alarak meseleye el atmak gerekiyor. Gelişmemiş ülkelerde sigara içme oranının, gelişmiş ülkelere göre çok daha fazla olduğu gerçeği gözardı edilmemeli. Ülkemizde sigara ile mücadele konusunda devlet ciddi bir çalışma yapmadı bugüne kadar. REFAHYOL döneminde çıkarılan beş ve beşten fazla kişinin bulunduğu kapalı ortamlarda sigara içilmesini yasaklayan 40207 sayılı yasa kamu kurumlarında bile uygulanmıyor. Bunun en önemli nedeni denetleme yetkisinin valiliklere verilmiş olması. Valiliklerin hangi personelle, hangi imkanlarla bunu yapacağı konusu üzerinde hiç düşünülmemiş. Muzaffer Sarıhan, valilik ve kaymakamlıkların öncülük yapması halinde personel vermeye hazır olduklarını söylüyor.
+       <br/>
+       <br/>
+       Onlar erdi muradına, darısı bizim başımıza
+       <br/>
+       <br/>
+       Nefes darlığı, yürümekte güçlük çekme, ayakların morarması, damar tıkanıklığı... Bunlar, günde birbuçuk paket sigara içen 76 yaşındaki bir insanın sigaradan dolayı yaşadığı rahatsızlıklardan birkaçı. Emekli öğretmen Kamil Özyazar, 56 yıldır soluduğu zehirden ışın tedavisi sayesinde kurtulmanın sevincini yaşıyor. Kamil Bey 25 defa sigarayı bırakmaya karar vermiş, ancak bir türlü bırakamamış. Onu tedavi için STK’ya götüren oğulları da hiç umutlu değillermiş, zira yakın zamanda birkaç akrabasını kaybetminin üzüntüsünü yaşayan babalarının bu iradeyi gösterebileceğine ihtimal vermiyorlarmış. Ama Kamil Bey herkesi yanıltarak ilk günde sigarayı bırakmış ve birbuçuk aydır sigara içmiyor. Özellikle 60 yaşından sonra insanların iradelerinin iyice zayıfladığı dikkate alınırsa Kamil Bey’in gösterdiği direnç takdire şayan gerçekten. “50 metre ötedeki bakkala bile gidemiyordum ama şimdi rahat yürüyorum, bir solukta merdivenleri çıkıyorum. Kendimi eskiye göre oldukça iyi hissediyorum” diyor emekli öğretmen.
+       <br/>
+       <br/>
+       STD’de gördüğü tedavi sayesinde sigarayı bırakanlardan biri de Necmiye Gümüşkaptan. 18 yaşında sigaraya başlamış ve doktorların ısrarla ‘bırak’ demelerine rağmen hiç bırakmamış; böyle bir teşebbüste bile bulunmamış. “Bırakmayı hiç istemedim ama yaş ilerledikçe rahatsızlanmaya başladım. Günde ikibuçuk paket içiyordum. Sabah kahvaltısından önce üç sigara içmeden rahat etmezdim”. Emekli memur Gümüşkaptan 32 yıl sonra sigaradan kurtulmaya karar verip tedaviye başladığı gün sigarayı kırmış ve Kızılay’dan Aşağıayrancı’ya yayan yürümüş. Ertesi sabah ise kızıyla duygu dolu dakikalar yaşamışlar. “Sabah kalktığımda sigara içme isteği duymadım. Kızım bana bakıyor, ben ona bakıyordum, ‘Sigara içme isteğim yok’ dedim ve ağladım.” Necmiye Hanım’ın da hayatında sigarayı bıraktıktan sonra önemli değişiklikler olmuş. Eskiden en kısa mesafelere bile araçla gidiyormuş ancak artık hep yürümek istediğini söylüyor. Ama en çok torununun zehirlenmekten kurtulmasına seviniyor Necmiye Hanım.
+       <br/>
+       <br/>
+       Sigaranın zararlı olduğunu bilmeyen yok ama bunu bilmek yetmiyor. Sigara içme nedenlerini ortadan kaldırmanın yanında, çocukların bu illete alışmaması için ciddi tedbirlerin alınması gerekiyor.
+       <br/>
+       <br/>
+       Sigara içen biri olarak bu dosyayı hazırlamanın ne kadar doğru olduğunu bilmiyorum ama bu illetten kurtulmak isteyenlere vesile olursak ne mutlu bize. Not: isteyenler için, STD’nin telefon no’su; (0312) 4199575
+       <br/>
+       <br/>
+       E—mail: cgengoru@yahoo.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13713), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302112149/http://www.aksiyon.com.tr:80/detay.php?id=13713)

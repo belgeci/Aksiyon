@@ -1,0 +1,100 @@
+# Haberin hamalı
+
+*Cemal A. Kalyoncu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031228im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031228im_/http://www.aksiyon.com.tr/resim/365/46.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Sanırım 1970 yılı başlarıydı. Bir gün kapıda görevli hanım, iki konuğum olduğunu bildirdi. İsim sordum. Gelen bizim sokakta oturan ve MİT’e çalıştığını duyduğum emekli bir albaydı. (...) Önce uzun uzun ailemi ve beni çok iyi tanıdığını, ne kadar dürüst, yurtsever bir insan olduğumu bildiğini filan anlattı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sonra da lafı dolaştırmadan, aklımda kaldığı kadarıyla şöyle dedi: ‘Ben MİT Trakya istihbarat sorumlusuyum. Senden bize yardımcı olmanı istiyoruz.’
+   <br>
+    <br>
+     Sözlerin sahibi gazeteci Tufan Türenç’tir. Türenç, o tarihte Milliyet gazetesine stajyer olarak gireli iki yıl olmuş ve ilk imzalı haberi de yine o yıl yayınlanmıştır. Yani daha ismen tanınmış bir gazeteci değildir. Yanına gelen albay, kendisinin de söylediği gibi ailesini tanıdığından dolayı bu teklifi yapmıştır ona.
+     <br>
+      <br>
+       Dikbaşlı bir mizaca sahip olduğu için askeriyeden erken emekli olmak durumunda kalan Hasan Fehmi-Nuriye çiftinin torunu olan Tufan Türenç’in babası ise Kilis, Urfa, Siverek, Hilvan, daha sonra Afyon olmak üzere Anadolu’nun bir çok yerinde hizmet etmiş doktor Niyazi Türenç’tir. Niyazi Bey, özellikle Anadolu’da o yıllarda yaygın olan yüzlerce sıtma ve trahom hastasını tedavi etmiş birisidir.
+       <br/>
+       <br/>
+       Tufan Türenç’in ailesi aslında Bulgaristan Tırnovalı’dır: “Tırnova’ya da Konya civarından göç edilmiş. 1400-500’lerde zannediyorum, Osmanlı ordusu Avrupa’ya sefere gittiğinde arkasını sağlama alabilmek için Bulgaristan’ın kuzeyindeki Deliormanlar ile güneyindeki Rodop Dağları’nın arasındaki vadiye yerleştirmiştir onları.” Türenç’in dedeleri de yaklaşık 400 yıl boyunca Deliormanlar adı verilen bu civara yerleşir. Deliormanlar, pehlivanları ile ünlü bir yerdir. Türenç’in dedesinin babası İbrahim Bey de pehlivan olarak tanınmaktadır burada: “İbrahim pehlivan derlermiş ona. Çok ünlü bir pehlivanmış. Hatta Sultan Abdülaziz de pehlivan zaten, onu saraya çağırmış güreşmesi için. Gitmek üzere iken vazgeçirmişler.” Ailenin Rumeli’den göçü ise 1800’lerin sonuna doğru gerçekleşecektir. Yeni ikamet yerleri ise Bursa Karacabey olacaktır.
+       <br/>
+       <br/>
+       Dede Hasan Fehmi Bey, askeriyeden ayrıldıktan sonra tek erkek çocuğu (diğer çocuğu Firdevs Hanım’dır) olan Tufan Türenç’in de babası Niyazi’yi önce Işıklar Askeri Lisesi’ne yazdırır. Fakat gözlerindeki bozukluk asker olmasına engel olduğundan o da Pertevniyal Lisesi’ne, ardından da tıbbiyeye girer. Hasan Fehmi, 1941 yılında da evlenir. Kırım muhaciri olarak Bursa Akçalar Köyü’ne yerleşen yol mühendisi Arif Hikmet Bey ile Nazmiye Hanım’ın iki çocuğundan biri olan Necdet Hanım’la birleştirir hayatını. Çiftin diğer çocuğu Etyopya ve Nijerya’da büyükelçilik, daha sonra da Dışişleri Bakanlığı Protokol Genel Müdürlüğü yapmış Zeki Yemen’dir.
+       <br/>
+       <br/>
+       Niyazi-Necdet Türenç ise üç çocuk getirir dünyaya. Nuri Munis adlı bir elektrik muhendisi ile evli (Amerika’da yaşamaktadırlar) Tanju Hanım’dan sonra ve makine mühendisi Hasan Genç’le evli Gül Hanım’dan önce 1945 yılında Tufan doğduğunda aile Bursa/Yenişehir’de ikamet etmektedir. Tufan bir yaşında iken baba Niyazi Türenç ihtisas için İstanbul’un yolunu tutar. Beş yaşına kadarki çocukluk dönemini İstanbul Aksaray’da, sinema sanatçısı Metin Akpınar gibi arkadaşlarıyla aynı mahallede geçiren Tufan’ın babası 1950 senesinde Afyon’a tayin edilir. Eğitimine Afyon Dumlupınar İlkokulu’nda başlayan Tufan’ın, özellikle annesinin tercihi ile kolejde okumasına karar verilir. Böylece imtihanını kazandığı Saint Benoit’ta yatılı okur: “Saint Benoit, bir papaz okuludur. Saint Benoit okulu vardır Paris’te. Bu, onların vakfiyesi olarak kurulmuş zamanında.”
+       <br/>
+       <br/>
+       Saint Benoit ekolünden
+       <br/>
+       <br/>
+       - Bunlar misyoner okullarıdır. Neler hatırlıyorsunuz o okuldan?
+       <br/>
+       <br/>
+       “O zamanlar misyonerlik amacıyla kurulmuş tabii ama sonra misyonerlik şeyi kalmamış. Bizim zamanımızda öyle bir şey yoktu ama öğretmenler papazdı. İstanbul’un çeşitli Katolik kiliselerinde görev yaparlardı, aynı zamanda. Diyebilirim ki benim bütün kültür altyapım Saint Benoit’tir. Orada müthiş bir ahlak ve terbiye verdiler bize.” Türenç, sinema sanatçısı Halit Akçatepe, gazeteci Melih Aşık, eski pop şarkıcısı Özkan Kaynak gibi tanınmış kişilerle aynı dönemde okur burada. 1964’te mezun olan Tufan Türenç, siyasal bilgileri kazanır: “Babam enteresan bir adamdı. ‘Oğlum, sen sakin yapılı bir karaktere sahipsin fakat haksızlığa uğradığında da senden beklenmeyen tepkiler gösteriyorsun. Onun için senin kararterine uymaz, sen memur olma’ dedi.” Tufan, bunun üzerine Nişantaşı’ndaki özel eczacılık okuluna kayıt yaptırır. Burada ancak bir yıl okuyabilen Türenç, birden gazeteci olmaya karar verir: “Ortaokulda iken iyi gazete okuyordum. Akis ve Kim gibi dergileri okurdum ama kafamda gazeteci olmak fikri hiç yoktu.” Türenç, o zaman Fındıkzade’de olan Gazetecilik Yüksek Okulu’na girer. Babası Niyazi Bey de Taksim İlkyardım Hastanesi’nde başhekim muavinidir. Başhekim ise, Galatasaray’ın meşhur başkanlarından Ali Tanrıyar: “Ali Bey Abdi İpekçi ile çok iyi tanışıyordu.” Tanrıyar’ın aracı olması ile Tufan Türenç, henüz 1968’de girdiği gazetecilik okulunun birinci sınıfında Milliyet gazetesinde stajyer olarak çalışmaya başlar: “Bizim zamanımızda şimdi olduğu gibi kolay gazeteci olunmuyordu. Stajyer girmek bile çok büyük bir olaydı. 1968’de girdim ve beş sene parasız çalıştım. İlk imzalı yazım da 1970’te çıktı.” Türenç’in ilk haberi, o zaman Türkiye’ye gelen ünlü bir İtalyan aktörle Turizm Bakanlığı’nın gözetiminde Sait Halim Paşa Yalısı’nda açılan Türkiye’nin ilk kumarhanesinde ne kadar para kazanıp ne kadar kaybettiği üzerine yapılmış bir röportajdır.
+       <br/>
+       <br/>
+       “1973 yılıydı. Lakabı Deli olan İpekçi’nin yardımcısı Turan Aytul vardı. Onunla Taksim Sıraselviler’de bir barda kafayı çekiyoruz. O, sarhoşken bana ‘Seni yazıişlerine alalım’ dedi.” Türenç, böylece çok kısa bir zaman sonra, sayfanın çiziminden haberlerin seçimine kadar bir çok işi yürüten yazıişleri kadrosunda çalışmaya başlar: “Benim meslek hayatım daha çok hamallıkla geçti. Yaziişlerinde bütün haberler senin elinden geçiyor ama bana göre gazetecilik -zordur ama- muhabirliktir.”
+       <br/>
+       <br/>
+       Tufan Türenç, çok uzun yıllar Milliyet’te çalışır. Milliyet’in yazıişleri kadrosunda Turan Aytul ve Doğan Heper’den sonra üçüncü adamlığa kadar yükselir. Türenç, 1986’da, Trabzonspor’un eski başkanlarından iş adamı Mehmet Ali Yılmaz’ın sahibi olduğu Güneş’e transfer olana kadar Milliyet’te, haberlere konan ambargolarıyla ünlü iki zor darbe dönemi geçirir: “12 Eylül diğerlerine göre daha baskındı. Mesela bir telefon gelirdi. ‘- Ben Ahmet bilmem ne...’ “- Buyurun astsubayım.” ‘- Bilmem ne bilmem ne haberi yasak, fotoğraf da kullanılmayacak.’ Tak diye telefonu kapatır herif. Yahu sen kimsin? Acaba söylediğin o kişi misin değil misin? Ara teyit et bakalım var mı böyle bir kişi? Telefon açardık, karşıdaki ‘- Var kardeşim var. Siz denileni yapın’ derdi. Tabii demokratik ülkelerde olmaması gereken şeylerdir bunlar ama, Türkiye’de demokrasi oturmadığı için bu tip ara dönemler yaşanıyor.”
+       <br/>
+       <br/>
+       ‘Elinde silahı olanla tartışmam’
+       <br/>
+       <br/>
+       - Peki, en yakın tarihte 28 Şubat örneğini yaşadığımız bu gibi dönemlerde gazete sahipleri veya gazeteciler nasıl bir duruş sergilemeli?
+       <br/>
+       <br/>
+       “İsmet İnönü’nün bir lafı vardır, hiç unutmam onu. İnönü derdi ki ‘Ben elinde silah olan adamla tartışmam. Çünkü elinde silah olan adam kafadan galip.’ Ara rejim bu. Ara rejimin kahramanlığı yok ki... Adam geliyor kapatabiliyor. Mahkemesi yok, itirazı yok, bilmem nesi yok. Hukuk o sırada işlemiyor.”
+       <br/>
+       <br/>
+       Tufan Türenç, 18 ay boyunca Güneş’te çalıştıktan sonra 1988 yılında Çetin Emeç’in başında bulunduğu Hürriyet’ten teklif alır. Burada da yazıişleri kadrosunda çalışan Türenç, o yıldan bu yana Hürriyet’te sürdürmektedir çalışma hayatını. (Türenç, Hürriyet gazetesinde halen üç yazıişleri müdüründen biridir.) Yani, mutfakta yer alarak gazetenin şekillenmesinde günahıyla sevabıyla onun da payı vardır.
+       <br/>
+       <br/>
+       - Okuru yönlendirme ve manipülasyonlara sebep olduğunuzu düşündünüz mü hiç?
+       <br/>
+       <br/>
+       “Kişisel olarak elimden geldiğince mesleğin ilkelerine sadık kalmaya çalışıyorum. Ama ülkedeki genel yozlaşmadan kendini tam olarak soyutlamanın imkanı imkanı da yok.”
+       <br/>
+       <br/>
+       1992 yılından itibaren köşe yazarlığı da yapan Tufan Türenç, askerliğini ise 12 Mart sanıklarının hapsedildiği Selimiye (1. Ordu Komutanlığı Muhafız Bölüğü) Kışlası’nda yapar. Türenç, 1978 yılında da hayatını yine gazeteci olan Pınar Türenç’le birleştirir. ANAP Merkez Karar Yürütme Kurulu üyesi olan, Bahri ve Zerrin Pehlivanoğlu’nun kızları Pınar Hanım, ANAP eski Milletvekili Şadi Pehlivanoğlu (Pınar Hanım’ın amcasıdır) ile onun oğlu Selçuk Pehlivanoğlu’nun da mensubu bulunduğu Rizeli Pehlivanoğlu ailesindendir. Tufan Türenç de eşi gibi siyasete girer, CHP’den siyasete girer ama Doğan Medya Grubu’nun almış olduğu ilke kararı çerçevesinde tercihini gazetecilikten yana kullandığından siyasetten uzaklaşır.
+       <br/>
+       <br/>
+       ‘Çamuru özledim’
+       <br/>
+       <br/>
+       Çocuğu bulunmayan, Gazeteciler Cemiyeti, Büyük Kulüp ve Fenerbahçe Kongre üyesi olan Tufan Türenç, her şeye rağmen Türkiye’den başka bir yerde de yaşamak istememektedir: “2,5 ay Londra’da kaldım. Türkiye’yi ne kadar özledim biliyor musunuz? Garip şeyleri de özlüyor insan. Çamuru özledim mesela. Türk ekmeğini, köfte-piyazı, düzensizliği özledim mesela. Senden daha iyi gelir düzeyleri var ama hayatları yalnız adamların. Özelliklerimizi, gelenek ve göreneklerimizi bozmamamız lazım. Bunlar uygar olmaya engel şeyler değil.”
+       <br/>
+       <br/>
+       Bu arada, Tufan Türenç’in 2000 yılında Hürriyet’teki köşesinde MİT’ten ajanlık teklifi aldığına dair yazmış olduğu ve bir bölümünü girişte aktardığım yazısının devamını merak edenleri daha fazla merakta bırakmamak için ilgili bölümü de buraya not düşüyorum: “...albayın suratı asıldı, yardımcısına öfkeli öfkeli ‘Hadi kalkalım’ deyip allahaısmarladık bile demeden gittiler.
+       <br/>
+       <br/>
+       Ismarladığım çaya da teşekkür etmediler. Albayı da bir daha görmedim.
+       <br/>
+       <br/>
+       Başımdan geçen bu olay (MİT Müsteşarı Şenkal) Atasagun’un (MİT’in basında ajan kullanmadığı) açıklamalarının gerçekle uzaktan yakından ilgisi olmadığını gösteriyor.”
+       <br/>
+       <br/>
+       email: ckalyoncu@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12350), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031228/http://www.aksiyon.com.tr:80/detay.php?id=12350)

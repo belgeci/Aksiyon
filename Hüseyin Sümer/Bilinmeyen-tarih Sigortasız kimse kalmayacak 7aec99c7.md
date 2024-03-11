@@ -1,0 +1,166 @@
+# Sigortasız kimse kalmayacak
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050116193612im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050116193612im_/http://www.aksiyon.com.tr/resim/487/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sosyal güvenlik sisteminin sağlıklı bir şekilde geleceğe devredilmesi isteniyorsa mutlaka prim sistemine geçilmesi gerektiğini belirten Çalışma ve Sosyal Güvenlik Bakanı Murat Başesgioğlu"na göre bugüne dek bu sistemden faydalanan vatandaşlar sokağa atılmadan genel sağlık sigortasistemi içine alınmalı.Ülkemizdeki nüfusun yüzde 17"sinin sosyal, 23"ünün de sağlık güvencesi bulunmuyor. Son 20 yıldır uygulanan ekonomi politikalarının en fazla etkilediği alanların başında hiç kuşkusuz sağlık geliyor. Sağlık ve eğitim, iki evrensel kavram.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ülkelerin gelişmişlik düzeyini en iyi ifade eden iki önemli hizmet. Bugüne kadar, varolan durumun değişmesi yönünde çok radikal adımlar atılmadı. Hükümetler hep popüler söylemlere yönelerek tribünlere ve ederek asıl çözümün üzerine "şal" örtmeyi tercih etti. Bugün ise bu sorunları çözmek istediğini söyleyen, Meclis"te çoğunluk konumunda bir hükümet bulunuyor. Çalışanların yaşadıkları problemlerden hastanelere, oradan da işverene getirilen kolaylıklara kadar kamuoyunun merak ettiği  birçok sorunun cevabını Çalışma ve Sosyal Güvenlik Bakanı Murat Başesgioğlu"ndan aldık.
+   <br>
+    <br>
+     -Son günlerde en popüler projeniz olan "e-bildirge", açıklandığı üzere 1 Mayıs"ta yürürlüğe giriyor. Bu proje işverene ne tür kolaylıklar sağlayacak?
+     <br>
+      <br/>
+      Sosyal güvenlik sisteminde, kayıp ve kaçakları önleyebileceğimiz bir teknik alt yapı yok. E-devlet uygulamaları e-bildirge projesiyle yaygınlaşacak. İşletmelerde çalışan işçilerin sigorta bilgilerinin internet üzerinden SSK"ya bildirilmesi projenin ilk ayağı olacak. Bu sistem, işverenleri, mali müşavir ve muhasebecileri yakından ilgilendiriyor.
+      <br/>
+      <br/>
+      Bugün 800 bin kayıtlı işyeri ve 6 milyonu aşkın sigortalı çalışan var. Her işletme çalıştırdığı işçilere ilişkin sigorta bilgilerini sigortaya veriyor. Bu bildirimler karşısında işveren, tahakkuk bilgilerini alıp primini yatırmak için sigorta müdürlüklerinde ve bankalarda kuyruklara giriyor. Bu projenin hayata geçmesiyle şirketlerin zaman ve işgücü kaybı ortadan kalkacak.
+      <br/>
+      <br/>
+      -Proje ile ne kadarlık bir tasarruf öngörüyorsunuz?
+      <br/>
+      <br/>
+      Sigorta müdürlüklerinden ve çalışanlardan 500 trilyon liralık bir işgücü tasarrufu olmasını bekliyoruz. Sistemin ilk ayağında ise genel olarak 1 katrilyonluk bir kaynak israfının önleneceğini öngörüyoruz.
+      <br/>
+      <br/>
+      -Anladığım kadarıyla e-bildirge ile işverenin işi kolaylaşırken diğer yandan SSK daha şeffaf bir hale gelecek.
+      <br/>
+      <br/>
+      Gayet tabii. İşveren, personelini bu işe tahsis etmekten kurtulacak. Zaman ve mekan kısıtlaması olmadan internet aracılığıyla sigorta kayıtlarına bildirimlerini yapabilecek. İlk etapta sekiz ve daha fazla işçi çalıştıran işletmelerin bu sisteme girmeleri mecburi kılınıyor. Sekizin altında işçi çalıştıranlardan dileyenler eski sisteme devam edecekler.
+      <br/>
+      <br/>
+      E-bildirge"ye geçmeyen
+      <br/>
+      <br/>
+      işletmeler takibe alınıyor
+      <br/>
+      <br/>
+      -Reklam ve ilanlarınızı görüyorum. İşletmeler için mecburiyet ne zaman başlıyor; geçmeyenlere cezaî müeyyide olacak mı?
+      <br/>
+      <br/>
+      1 Mayıs 2004 tarihinde mecburi olarak sisteme geçilmesi gerekiyor.SSK geçiş yapmayanları takip edecek. Tanıtım kitleri her işletmeye ulaştırılacak. Şirketlere özel bir şifre verilecek; sisteme nasıl girecekleri, nasıl işlem yapacakları konusunda bilgiler aktarılacak.
+      <br/>
+      <br/>
+      -Bugüne kadar çalışanların yaşadığı en büyük sorun prim kayıplarıydı. Peki sistem bu kayıpları önleyebilecek mi?
+      <br/>
+      <br/>
+      Şu anda günde 50 bin kişinin ziyaret ettiği SSK"nın internet sayfasından, herhangi bir çalışanımız, sigortalılık süresini  veya kendi adına priminin yatırılıp yatırılmadığını öğrenebiliyor. Ancak e-bildirge daha şeffaf olacak. Emekliliğe ne kadar süre kalmış gibi detaylı bilgilere ulaşılacak. Tüm sosyal güvenlik kuruluşlarımızı bu temel üzerine inşa edip, bütün sisteme adapte edeceğiz.
+      <br/>
+      <br/>
+      Ayrıca internet bankacılığı açısından da sistemin faydası olacak. Şu anda Türkiye"de internet bankacılığının hacmi çok düşük. SSK, yaklaşık 22 katrilyon civarında prim varlığı olan bir kuruluş. 22 katrilyonluk bir meblağ SSK"ya ödeniyor. Sistemle bu paranın büyük kısmı internet bankacılığına kayarak bu alanın gelişmesine de katkı sağlayacak.
+      <br/>
+      <br/>
+      -İnternet bankacılığının gelişmesine e-bildirgenin katkısının olması önemli bir gelişme.
+      <br/>
+      <br/>
+      Evet doğru. Sadece internet bankacılığının gelişmesine katkıda bulunmuyoruz. Modern bir teknolojiyi sosyal güvenlik sistemine kazandırmış oluyoruz. Bu da kurum bürokrasimizin kendi bilgisiyle ve çalışanlarımızın emeğiyle üretilen bir sistem. Yani dışarıdan alınma değil. Tasarımı, dizaynı tamamen Çalışma Bakanlığı"na ait bir proje.
+      <br/>
+      <br/>
+      Sigortalının eczane çilesi bitiyor
+      <br/>
+      <br/>
+      -Peki efendim, anda insanlar ilaçlarını eczanelerden rahatlıkla alabiliyor mu?
+      <br/>
+      <br/>
+      Büyük şehirlerde 24 saat açık eczane uygulamasıyla sistemi rahatlatmaya çalışıyoruz. Ama SSK kapsamında 35 milyon nufus var. Özellikle büyük şehirlerde ilaç konusunda sıkıntılar hâlâ bitmiş sayılmaz. Yıllardır sigortalıların ilaçlarını sadece SSK hastaneleri ve eczanelerinden alma kısıtlılığı getirilmiş.
+      <br/>
+      <br/>
+      -24 saat açık eczane projesini ilk defa duyuyoruz. Bu yeni bir proje mi?
+      <br/>
+      <br/>
+      15 gün önce başladı. Bu sayede akşamın herhangi bir saatinde hastalar ilaçlarını alabilecek. Şimdilik büyük şehirlerde uygulanıyor. Örneğin İstanbul"un beş büyük hastanesi ve Ankara"nın iki hastanesinde günün 24 saati ilaç veriliyor. İzmir, Eskişehir gibi illerin büyük hastanelerinde de açık eczane uygulaması sürdürülüyor. Ayrıca ilacın serbest eczanelerden alınabilmesi için görüşmelerimiz devam ediyor.
+      <br/>
+      <br/>
+      -Serbest eczane uygulaması nasıl olacak? Önceden olduğu gibi eczanelerle anlaşma mı yapılacak yoksa yeni bir konsept mi getireceksiniz?
+      <br/>
+      <br/>
+      Genel bir konsept dahilinde olacak. Belirli oranlarda indirimler yapılacak. Sektörde üreticiden başlayarak eczacıya dek herkesin kâr oranlarında indirimler gerçekleşecek. Bu gerçekleştiğinde SSK"lının tekrar SSK eczanesine gelmesine gerek kalmayacak.
+      <br/>
+      <br/>
+      -SSK eczaneleri ortadan kalkıyor mu?
+      <br/>
+      <br/>
+      Hayır kalacak ama hastanemizde yatan hastalara ilaç vermek için. Ayakta ilaç verme işleminde, anında reçetesiyle ilaç alabilecek hastalar için serbest eczane uygulaması olacak. Önümüzdeki günlerde sektörün muhataplarıyla yapılacak bir toplantıda mutabakat sağlanırsa bu proje 2005 yılına kalmadan uygulamaya geçecek.
+      <br/>
+      <br/>
+      -SSK hastanelerindeki ilaç kuyrukları bitiyor mu yani?
+      <br/>
+      <br/>
+      Büyük şehirlerde başta İstanbul olmak üzere hâlâ sorunlar bulunuyor. Ancak Anadolu"da böyle bir sıkıntı yok. İlaç ve hastane konusunda SSK"lılar devlet hastanelerine gidebildiği için hasta da kendi programını kendi yapıyor. Neresi rahatsa orayı tercih ediyor.
+      <br/>
+      <br/>
+      -Hastanelerin büyük şehirlerde yetersiz kaldığını biliyoruz. Yeni hastane yapımı ya da özel hastanelerle işbirliği gibi yeni projeleriniz var mı?
+      <br/>
+      <br/>
+      Bugün kamu hastanelerinin yaklaşık 500 civarında olan kapasitesi yaklaşık yüzde 50"nin altında çalışıyor. Bu atıl kapasitedir. Zaten bizim ortak kullanıma geçmemizin amacı bu atıl kapasiteyi düşürmektir. SSK, yüzde 80-90 kapasite ile çalışırken devlet hastanelerinin büyük bölümü yüzde 50"nin altında çalışıyor. Bu yıl, Adapazarı, Bolu, Düzce ve Denizli gibi illerimizde altı adet yeni hastaneyi sisteme ilave edeceğiz. Bunun dışında özel hastanelerden özelikle cerrahi branşlarda hizmet satın almayı düşünüyoruz. SSK hastanelerinde bir ayı geçen ameliyat sürelerinde biz hastalarımızı bekletmeyeceğiz. Bu hastaları özel sağlık kuruluşlarına sevk edeceğiz. Orada ameliyatlarını olabilecekler. Şu anda paket anlaşmalar üzerinde çalışılıyor. Gerek tıp fakültelerinden, gerek özel hastanelerden hizmet satın alma yoluna gideceğiz.
+      <br/>
+      <br/>
+      "Kayıtdışını önlemek gerekiyor"
+      <br/>
+      <br/>
+      -Hastane yapmak yerine özel sağlık kuruluşlarından hizmet satın almak daha ekonomik olsa gerek.
+      <br/>
+      <br/>
+      Evet, bunun daha ekonomik olduğunu düşünüyoruz.
+      <br/>
+      <br/>
+      -Geçen yıl bütçeleri yetişmediği için SSK"ya yaklaşık olarak 5, Bağ-Kur"a 5, Emekli Sandığı"na da 6 katrilyon civarında Hazineden para ayrıldı. Sistem kendi kendini ne zaman amorti edecek?
+      <br/>
+      <br/>
+      Sağlık harcamaları her gün artıyor. Bu sistemin başa baş gelmesi için öncelikle kayıt dışını önlemek gerekiyor. Ama mutlaka devletin sosyal güvenlik sitemine katkısı şart. Şu an toplanan primlerle birebir karşılanması zor. Her gün binlerce kişi Bağ-Kur, SSK emeklilik sistemine giriyor. Başa baş olması için biraz daha zamana ihtiyaç var. Örneğin Almanya son düzenlemeyle gözlük vermekten vazgeçti. Bizde ise en ağır riskler bile muayene ve tedavi kapsamında. Bu noktada bir karar verilmesi gerekiyor. Sadece prim esasına dayalı bir hizmet sunumu mu yapılacak yoksa bugüne kadar geldiği gibi gelir vergisiyle karşılanması gereken hizmetleri de SSK"nın sırtına mı yükleyeceğiz?
+      <br/>
+      <br/>
+      -Sizce nasıl olmalı?
+      <br/>
+      <br/>
+      Bence bu sağlıklı bir yol değil. Sosyal güvenlik sistemimizi sağlıklı bir şekilde geleceğe devretmek istiyorsak mutlaka burada prim esasını koymamız gerekiyor. Bugüne dek bu sistemden faydalanan vatandaşları da tabii ki sokağa atamayız. Genel sağlık sigorta sistemi içinde onlara da yer bulunmalı. Ödeme gücü olmayan vatandaşların da primini devlet karşılamalıdır. En sonunda gelinecek nokta budur. Kaldıracağından fazla risk yüklersek sistemin dengesi bozulur; açıklardan bahsetmeye devam ederiz.
+      <br/>
+      <br/>
+      -Şu anda her şey istediğiniz gibi mi gidiyor, peki?
+      <br/>
+      <br/>
+      Şu anda biz sistemin parametrelerini belirledik. 30 yıl sonra sosyal güvenlik sisteminin hangi noktaya geleceğini biliyoruz. Bu sistemde düzenlemeler ve reformlar yapmak sevimli işler değil. Çünkü mevcut şartları disipline eden bir anlayış hakim sosyal güvenlik sistemi düzenlemelerinde. Fransa ya da diğer gelişmiş ülkelerde sisteme dahil olanlardan katılım payı adı altında ücret alıyorlar. Biz de sosyal güvenlik sistemini disipline etmeliyiz. SSK ve Bağ-Kur"un kaldırabileceği prim gücüyle orantılı bir ödeme sisteminin oluşması gerekiyor. Yoksa bu kurumlar tartışılır.
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      SSK VE ÖZEL HASTANE AYRIMI SONA ERİYOR
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      -Asgari ücrete yüzde 34 zam yapıldı. Bu zammın bir kısmını hazine, bir kısmını işveren karşılayacaktı. Ama benim edindiğim bilgilere göre bu payın tamamını işveren karşılıyormuş?
+      <br/>
+      <br/>
+      Asgari ücrette yüzde 34"lük net artış son beş yılın en yüksek artışı oldu. Biz sadece yüzde 20"sini işverene bıraktık. Kalan yüzde 14"lük bölümü olan 1,1 katrilyon liralık kısmını devlet üstlendi. İşverenin yemek parası ve diğer sosyal yardımlarla birlikte işçisine ödediği toplam ücret, asgari ücret sınırını geçtiği zamanlarda devlet yüzde 14"lük kısmı karşılamıyor. Size gelen bilgiler bu noktada. Ancak bizim katkımız sadece asgari ücretteki artış için geçerli. İşveren diğer sosyal yardımı asgari ücrete ilave edince bu imkandan yararlanamıyor.
+      <br/>
+      <br/>
+      -Acil eylem planında "genel sağlık sigortası", "birleştirilmiş emeklilik" ile sosyal yardım ve hizmet kurumları birleştirildi. Bu çalışmalar hangi aşamada?
+      <br/>
+      <br/>
+      Yasa taslakları yapıldı. İlgili bakanlıkların ve sosyal tarafların görüşleri alındı. Halen de bir tartışma süreci yaşıyoruz. 2004 sonbaharında bu tasarıları Meclise sevk etmeyi hedefliyoruz. Genel sağlık sigortası, birleştirilmiş emeklilik sistemi, sosyal yardım ve hizmet kurumları bir çatı altında birleştirilecek. Artık emekli sandığı, Bağ-Kur ve SSK ayrımı kalmayacak. Yeşil kartlı vatandaş dahil tüm nüfus bu genel sigorta kapsamında olacak. Devlet hastanesi, üniversite hastanesi, SSK hastanesi ve özel hastane ayrımına son vereceğiz. Vatandaş kendi iradesiyle hem hekim hem de hastane seçme imkanına kavuşacak.
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11330&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050116193612/http://www.aksiyon.com.tr:80/detay.php?id=11330&yorum_id=1)

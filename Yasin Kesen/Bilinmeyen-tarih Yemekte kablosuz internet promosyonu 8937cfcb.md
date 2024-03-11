@@ -1,0 +1,42 @@
+# Yemekte kablosuz internet promosyonu
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   McDonalds’ın yeni promosyon uygulaması ve hedeflediği müşteri profili belki biraz ütopik belki biraz fazla uçarı gelebilir fakat teknolojinin gittiği yöne bakılınca kablosuz internet teknolojilerinin insanların nefes alacağı her yere ulaşabileceği görülüyor.Fast food restoranlarıyla tüm dünyaya yayılan ve sosyolojik bir fenomen haline gelen McDonalds, yeni geliştirilen Wi—Fi kablosuz internet teknolojisini promosyon olarak kullanacak.
+   <br/>
+   <br/>
+   İlk olarak ABD’nin Manhattan bölgesindeki 10 dükkanda uygulamaya konulacak sistem ile fiyatı yüksek mönülerden alanlara 1 saatlik ücretsiz kablosuz internet erişimi sağlanacak.
+   <br>
+    <br>
+     Restorana dizüstü bilgisayar veya kablosuz erişim kartları ile uyum sağlayabilen cep bilgisayarını getirenler, bu promosyondan faydalanabilecek.
+     <br>
+      <br>
+       Manhattan bölgesindeki test aşamasından sonra üç ay içerisinde New York, Chicago ve California eyaletlerinde de uygulamaya konulacak olan promosyon sayesinde, yoğun iş temposu içerisindeki kişiler, restoranda yemek sırasında email kontrol etme imkanına kavuşmuş olacak.  McDonalds’ın yeni uygulaması ve hedeflediği müşteri profili belki biraz ütopik belki biraz fazla uçarı gelebilir fakat teknolojinin gittiği yöne bakılınca kablosuz internet teknolojilerinin insanların nefes alacağı her yere ulaşabileceği görülüyor.
+       <br>
+        <br>
+         Birçok kurumun, yerel ağ düzenlemesinde kablolama sorunu ile karşılaştığı günümüzde, yapılan yer değişikliklerinde hafife alınamayacak ölçüde kablolama maliyetleri doğuyor. Yüksek maliyetler nedeniyle de, kurum içi düzenlemelerde optimum verimlilikte yerleşim sağlanamayabiliyor. Kablosuz network (bilgisayar ağı) teknolojisinin gelişmesiyle birlikte, yüksek bütçeler gerektiren bu altyapı yatırımını gerçekleştirmeye başlayanlar da artmaya başladı. Holdingler, büyük şirketler veya üniversiteler, bilgisayar ağlarındaki kablo çilesinden kurtulmayı ilk tercih edenler oldu. Ancak, kablosuz teknolojilerin bu kadar hızlı şekilde hem de restoranlarda promosyon malzemesi olacağı kimsenin aklına gelmezdi. Bu teknolojiyi geliştirenlerin bile!
+         <br/>
+         <br/>
+         McDonald’s, sosyoloji bilimi için bir fenomen olmayı hakettiğini, bu promosyon çalışması ile bir kez daha ispatlamış oldu. Birçok kişinin “gereksiz” göreceği bu uygulama, kısa süre içerisinde taklit edilmeye ya da farklı hizmet alanlarında pazarlama unsuru olarak kullanılmaya başlayacaktır. McDonalds’ın sunacağı internet erişimini Cometa isimli, IBM, AT&amp;T ve Intel ortak girişimi bir şirket sağlayacak. Cometa ile kısa dönemli bir anlaşma yapan McDonald’s, daha sonraki dönemler için T—Mobile gibi Avrupa’da büyük pazar payına sahip şirketlerle de masaya oturacak. T—Mobile ise halen Starbucks Kafe’lerde büyük bir kablosuz ağı işletiyor.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 288 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2490), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043700/http://www.aksiyon.com.tr:80/yazdir.php?id=2490)

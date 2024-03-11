@@ -1,0 +1,122 @@
+# Modaya kopenhag kriterleri
+
+*Meral Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030901230944im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20030901230944im_/http://www.aksiyon.com.tr/resim/35/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  New York 5. cadde, Paris gibi moda merkezlerinde bulunan ünlü markaların, yüzyılın başlarında yola çıkıp hızla holdingleşmiş olması, Türk tarzını yansıtan modacıların dünyaya açılmasının önünde ciddi bir engel. Türkiye tekstil cenneti olmasına ve köklü bir motif geleneğine rağmen moda başkentlerine hep uzak ve edilgen kaldı.
+ </font>
+ <p>
+  <font class="content">
+   Yabancı modacıları hayran bırakan Kraliçe’nin pazen kumaşı şimdi her kesimin malı
+   <br/>
+   <br/>
+   Türk modası Avrupa saraylarına nüfuz ettiği dönemlerde Fransızlar Türk kırmızısının, çivit mavisinin nasıl elde edildiğini öğrenmek için Osmanlı Sarayına casuslar göndermişlerdi. Kaftanların motif zenginliği, kumaşlar ve çizgilerdeki ahenk, Fransız modacılarının dikkatini çekmişti. Şimdi inanılması güç, hayal gibi gelen bu devirlerin üzerinden yüzyıllar geçti. Modada trend belirlemede geçmişe oranla tam tersine işleyen bir devri yaşıyoruz. Dünyanın giyeceği renk ve tarzlar Paris, Londra, Milano ve New York olmak üzere dört adreste belirleniyor.
+   <br/>
+   <br/>
+   Moda ve tekstil sektörü denince ilk akla gelen Fransa, bu alandaki başarısını kumaş sanayiine yaptığı yatırımlara borçlu. Modacılar holdingleşti ve kendilerinden sonra hayatiyetlerini farklı dizaynlarda oluşturulan markalarla devam ettirdiler. İtalya da benzer bir atılımla modacıları tekstil sektörünün önüne koydu. Kumaş ve motif alanında ve hatta tekstil teknolojisiyle yatırımlarının ülkeye geri dönüşümünü fazlasıyla sağladı. 1968’den sonra moda merkezlerinde mağazalaşmaya başlayan Japonya’nın modacılarına elektronik sanayi destek veriyor.
+   <br/>
+   <br/>
+   Dünyaca ünlü markaların, yüzyılın başlarında yola çıkıp hızla holdingleşmiş olmaları, bugünün diğer modacıları ve özellikle ülkemizdeki modacıların dünyaya açılmalarının önünde ciddi bir engel teşkil ediyor.
+   <br/>
+   <br/>
+   Birinci Dünya Savaşı sonrası Avrupa’nın kabarık etekli, korseli kadınlarını bu işkenceden kurtarmasıyla bilinen, o günün ortamında kadınlara pantolon giydiren “Chanel” 90 yıllık bir marka. Chanel, giyimde olduğu kadar parfümüyle de bir hayli ünlü. Hatta şirket yeni ürün çeşitlerini piyasaya sürme gereği bile duymuyor. Chanel’in modacısı Coco Chanel öleli 30 yıldan fazla olmasına rağmen markası ve ürünleri yok olup gitmedi. Chanel’in sade ve rahat tarzını aynı kurum çatısı altında farklı modacılar sürdürmeye devam ediyor. Fransızların başka bir köklü markası olan Christian Dior grubu da benzer sistem içinde devam ediyor. Son yılların meşhur tasarımcısı John Galliano ile Dior büyük bir atak yapmış durumda. 1923’te moda dünyasına giren Gucci, giyim, parfüm ve aksesuarda İtalyanların en ünlü ve kârlı şirketi. Şu aralar Gucci’yi Amerikalı Tom Ford idare etse de marka İtalyanlara ait. Gucci’nin tarzı devam ediyor. Armani, Versace gibi ünlü İtalyan markaları diğer köklü şirketlerle birlikte dünya markaları arasında yerlerini almış durumdalar.
+   <br/>
+   <br/>
+   Peki Türkiye’nin moda sektöründeki durumu nasıl? Yurtdışında bir çok kez ödül almış da olsalar, ülkemizin köylerinde bile tanınmış modacılar dünyaca ünlü modacılarla boy göstermek için ömürlerinin vefa etmeyeceğinin uzun zaman öncesinden idrakine vardılar. Hatta o kadar karamsarlar ki “Bunun için bir mucize gerekir diyor” Cemil İpekçi. Vural Gökçaylı ise bir yıllık kazancımızla yaptığımız defilelerle arkasında köklü holdingler bulunan yabancı modacılarla yarışmanın hayalcilik olacağını düşünüyor. Hazırladığı kreasyonla moda dünyasına Paris’te açtığı ilk mağazayla giren uluslararası Türk markası olmayı başarmış Dice Kayek’in tasarımcısı Ayşe Ece ise, “Modada söz sahibi olacaksanız, ilk mağazanızı Paris’te açmalı, yılda iki kez buralarda yapılan defilelere katılmalısınız” diye öğütlüyor. Her altı ayda bir Paris’te yapılan defileleri 2 bin gazetecinin izlediğini belirten Ece, ülke tanıtımında bunun hazır bekleyen bir fırsat olduğu görüşünde.
+   <br/>
+   <br/>
+   Üstelik geçtiğimiz haftalarda Dünya güzeli seçilen Azra Akın’ın Tahtakale malı, alt ve orta kesimin ve köylerdeki yaşlı teyzelerin pazen kumaşından hazırlanan elbisesi etnik moda zaviyesinden büyük sükse yaptı. Türk tarzı giyim kuşamın şifrelerini çözme konusunda uğraş veren Cemil İpekçi, pazen de olsa bizi yansıtan yorumunun beğenileceğini biliyordu. Metresi 1.5 milyonluk kumaştan diktiği elbiseyle yarışmada giysileri bulunan dünya modacılarını geride bıraktı. Hatta onlara kibarca “nanik “ çekti.
+   <br/>
+   <br/>
+   Kraliçe’nin pazen elbisesi, AB görücülüğünden yorulduğumuz şu günlerde, moda ve hazır giyim sektörüne ve ülkenin imajına kafa yoranlara önemli ipuçları verdi. Çünkü moda, kültürler arası tanıtımda bire bir insanlara ulaşan en etkili ve evrensel bir dil. Eğer biz binlerce yıllık kültür birikiminden süzülüp gelmiş kumaşlarımız, giysilerimiz, parfüm ve çeşitli markalarımızla ülkemizden söz ettirebilseydik, Avrupa kamuoyu bizi tanıyıp yakınlık duyacaktı ve yanımızda olacaktı görüşü dillendiriliyor şimdi tekstil sektörü tarafından.
+   <br/>
+   <br/>
+   Türk modasından önce ülke imajı
+   <br/>
+   <br/>
+   Türkiye, tekstil cenneti bir ülke iken ve Türk tarzına vâkıf bir çok modacımız varken modada şimdiye kadar belirleyen konumunda olamayışımızın bir çok ve bazıları da garip nedenleri var.
+   <br/>
+   <br/>
+   Türkiye Avrupa’ya tekstil ürünü ihraç eden ülkeler arasında birinci sırada. Dünya tekstil sektöründe ise 14. sırada. Dünyadaki toplam 157.5 milyar dolarlık tekstil pastasından bize düşen pay 2.31 milyar dolar. Uluslararası boyutta tekstilin tartışmasız söz sahipleri olan İtalya, Fransa, İngiltere ve ABD gibi marka ve imaj ağırlıklı ülkelerin yanında kabarık nüfuslu Çin’in durumu göz ardı edilemez. Tekstilde en yayılmacı stratejiyi Çin’in uyguladığını görüyoruz. Avrupa ülkeleri ve ABD’yi bile geride bırakan rakamlarıyla 16.14 milyar dolarlık paya sahip. Üstelik Çin, ucuz ve adi üretim yaparken son zamanlarda hem tekstil makinalarını yenilmeye başladı hem de kalitede iddialı olma yolunda. Avrupa ülkeleri tarafından tekstil tedarikçisi ülkeler gözden geçilirken fazla miktarda sipariş vermek gerektiğinde Çin tercih ediliyor. Türkiye ise coğrafi yakınlığından dolayı acil siparişler için ideal. Tekstilde övünebileceğimiz özelliğimiz ise verilen siparişleri vaktinde ve istenen kaliteye uygun hazırlıyor oluşumuz... İTKİP Başkanı Nuri Artok, kaliteli ürün yapma halimizi tekstilde bir başka açıdan marka olduğumuz anlamında değerlendiriyor.
+   <br/>
+   <br/>
+   Dünya pazarlarında markalarımızla yer alamayışımızın önündeki ilk ciddi engelin ülke imajı olduğu gerçeğini hem sektör yetkilileri hem de görüştüğümüz ünlü modacılar dile getiriyor. Türkiye, Avrupa ve dünya kamuoyunda terör ve insan hakları ihlalleriyle gündeme geliyor. Oysa Fransa denince kumaşları, modası, parfümleri ve müziği gibi çeşitli sanat ve tekstil alanındaki yenilikleri akla geliyor.
+   <br/>
+   <br/>
+   Ekonomik dengeler açısından markalaşma çalışmalarını irdelemek için firmaların bu çalışmayı kendi öz kaynaklarıyla gerçekleştirmesi gerekiyor. Marka oluşturmak isteyen firmaların kredi alabileceği finans kuruluşları ülkemizde mevcut değil. Dolayısıyla şirketlerin iyi bir kâr marjı olmalı ki, halkla ilişkiler ve mağazalaşma gibi alanlara ciddi kaynak aktarımı yapıp tasarımcılarını ön plana çıkarabilsinler.
+   <br/>
+   <br/>
+   Türk modasının markalaşmasındaki engellerden biri de sanayi entegrasyonu ihtiyacı. Kumaş sanayii özellikle son 10 yılda iyice hantal duruma düştü. İthal kumaşlar yerlilerden daha ucuza mal ediliyor. Kendi tarzlarını yansıtacak bir kumaş çalışmak isteyen modacılar, kumaş fabrikasıyla çeşitli sorunlar yaşıyor. Normalde binlerce dolar değerindeki kumaş tasarımları fabrikaya kalıyor. Giysinin maliyeti katlanıyor...
+   <br/>
+   <br/>
+   İpekli dokumalarıyla bilinen Bursa’da ipek üretimi neredeyse durmak üzere. En iyi ipek üreten ülke olarak Çin öne çıkmaya başladı. İstanbul gibi büyükşehirlerde ipekli kumaşlarıyla bilinen İpeker firması talep azlığı ve üretim sıkıntısı gibi nedenlerle kepenklerini kapattı ve hazır giyime yöneldi. Üretimdeki tükenmişlik bir yana, eski formlarda kumaş üretilen merkezlerde bile bu kumaşların orijinal örneklerini bulmak neredeyse imkansız.
+   <br/>
+   <br/>
+   Kumaş zenginliği yönünden elimizde kalan tek hazinemiz İstanbul’daki tarihi Kapalıçarşı. Buradaki etnik kumaşları bizden çok önce yabancı modacılar keşfetmişlerdi zaten.
+   <br/>
+   <br/>
+   Köklerinden beslenmeli
+   <br/>
+   <br/>
+   Türk modasının varlığını devam ettirmesini sağlayan en önemli kaynaklardan biri olarak etnik kumaş zenginliğine işaret eden Cemil İpekçi, dünyaya açılma sürecinde modacının kendi köklerinden beslenmesi gerektiğini vurguluyor. İpekçi’nin tam da kendisinden beklenecek ilginç yorumları var. “Dünyada Türk modacısı olarak yer almak için modacının bugünün çizgisiyle geçmiş kültürünün sentezini yapması lazım” şeklinde yorum yapıyor ve ekliyor: “Taklitle bir yere varamadık. Benim yurtdışı davetlerimde şalvarım, ceketim, köylü gömleğim beğeniliyor. Batılılar farklı ve kültürleri yansıtan çizgilere ilgi gösteriyor. Uluslararası modacılar arasına giren Rıfat Özbek ve Hüseyin Çağlayan son zamanlarda Türk tarzını yansıtmalarıyla tanınmaya başladılar. Buna rağmen Türk modacısı değiller. ‘Türk kökenli yabancı modacı’ diyebiliriz onlar için. Türk tasarımcısı olmak için Türkiye’de çalışmak ve buradaki sponsorlar tarafından desteklenmek gerekir. Atıl Kutoğlu Viyana modacısıdır. Atölyesi orada, defilelerinde Türk manken kullanmıyor. Yabancı kareograflara yer veriyor. Türkiye’ye hiç bir girdisi yok. Üstelik İTKİB ona destek oluyor. Bu kurumun yüzde ellisi devlete ait. İTKİB çok ciddi yanlışlar yapıyor. Genç tasarımcılar yarışması düzenlemesi de benim çabamla oldu. Yarışma birincileriyle bile ilgilenmiyorlar.”
+   <br/>
+   <br/>
+   Kendisinin de istese Fransa’ya yerleşip dünyaya açılabileceğini kaydediyor, ancak “O zaman Türk modacısı olmam, Fransız modacısı olurum” diye aktarıyor dünyaya açılmanın güçlüğünü. “Çünkü orada bana sponsor olan bir Fransız kuruluş olacaktır ve ben onların markası için çalışmak durumunda kalacağım” diyor. İpekçi, yıllardır Türkiye’de kalıp yurt içinde ve dışında bir çok ülkede ödül almış olmasına rağmen Türkiye’de kalarak dünyaya açılmanın imkansız olduğunu da kabullenmiş.
+   <br/>
+   <br/>
+   Dolayısıyla dışa açılmanın yegâne yolu, tasarımcı—firma işbirliğiyle mümkün. Şimdiye kadar sektörde böyle bir açılım oluşmuş değil. Bu durumdan yakınan diğer modacılar gibi İpekçi’nin serzenişleri de iş dünyasına yönelik. İş dünyasının kendi insanına yatırım yapmak yerine yabancı bir markaya milyonlarca dolar ödemesine sitem ediyor.
+   <br/>
+   <br/>
+   Moda, sanattan çok ticari iş
+   <br/>
+   <br/>
+   Günümüz normlarında moda sanattan çok ticaret aracı konumunda. Bu pastayı elinde tutan ülkelerde tüm dizaynırların bir araya gelip gelecek yılın trendlerini belirledikleri düşünülür. Neredeyse bütün tasarımcılar üç aşağı beş yukarı benzer renk ve formları yansıtırlar. Bir araya gelip karar mı alıyorsunuz sorusuna Paris’teki moda dünyasına girmiş olan Dice Kayek’in tasarımcısı Ayşe Ece’nin cevabı, tüm bunların tamamen tesadüf olduğu şeklinde. Bununla birlikte, modanın sanattan çok ticari olduğuna hiç bir modacının itirazı yok. Global dünyanın trendlerini kabullenmemek olmuyor. Hint modası ya da Türk modası bu trendlere sadece birkaç yıl ya da belirli aralıklarla yön veren pozisyonda kalabiliyor. Son yıllarda modada Doğu rüzgarları hakim. Bir dönem, Versace tarafından Doğu çizgileriyle birlikte Osmanlı motifleri de harmanlanmıştı. Üstelik bu tasarımlarını en çok da bizim muhafazakâr kesime satmışlardı...
+   <br/>
+   <br/>
+   Hızlı ve acımasız dönen moda çarkı içinde farklı tarzlar varlığını nasıl koruyor? Modacı imaj yapmak için kendi köklerini/çeşitliliğini yansıtmak zorunda. Bilinçten mi, yoksa Batılılar’ın bu tarz bir duruşu daha orijinal bulduğundan mıdır bilemiyoruz etnik tarzlar bir hayli ön plana çıkmış durumda. Ancak, ne salt kendi etnik tarzınızı işleyebiliyorsunuz, ki o zaman da folklorik olmakla yorumlanma riskiniz var, ne de moda rüzgarına teslim olmanız doğru kabul ediliyor. Markada kemikleşmenin yolu geçmişe yolculuktan geçiyor.
+   <br/>
+   <br/>
+   Türk motiflerini bir yerden bir yere taşıyan modacıların konuya ilişkin yorumları benzerlik taşıyor: Kendi öz kültüründen yola çıkarak çağdaş form oluşturmak Türk markası için ön şartlardan biri. Öte yandan Türk tarzı bir moda olur mu tartışması da gündemde.
+   <br/>
+   <br/>
+   Dice Kayek’in tasarımcısı Ece, Türk modasının Fransa’dan görünüşünü yorumlarken daha farklı detayları da hesaba katıyor. Türk tarzının dünya modasında belirleyici olması diye bir şeyin olamayacağını düşünüyor. Dahası, bunu pek gerekli bir şey olarak da görmüyor. Modayı evrensel açıdan ele alıyor. Ona göre aslolan, Afrika’dan Japonya’ya daha geniş bir kitleye hitap eden giysiler tasarlayabilmek. Bu bağlamda, “Türk modası olmaz, Türk asıllı modacı olur” görüşüne sahip.
+   <br/>
+   <br/>
+   Ayşe Ece, Bahar Korçan gibi bir çok tasarımcıya zaman zaman sponsor olan İTKİB Başkanı Nuri Artok’un yorumu da Ece ile benzer minvalde. Dünyaca ünlü bir Türk asıllı modacı olmuş ya da Türk asıllı İngiliz stilini yansıtan modacı olmuş çok ayırt etmiyor Artok. Yurtdışında desteklenen modacıların bir dönem sonra ülkeye geri dönüşüm sağlayacaklarına inancı daha ağır basıyor.
+   <br/>
+   <br/>
+   Türk tarzını taşıdım
+   <br/>
+   <br/>
+   Rüstem Paşa Camii’nin çini detaylarını, padişah kaftanlarına ve dış giyime taşıyan Vural Gökçaylı, bu defilesini yurtdışına da göndermek ister, ancak bunu gerçekleştiremez. Önemli bir kültür aktarımını, üstelik 25 yıllık hayali olan projesini yarıda bırakmak durumunda kalır.
+   <br/>
+   <br/>
+   Tüm çalışmalarında hiç bir destek görmeyişinin zorluklarını yaşayan Gökçaylı, yabancı bir dizaynırın kendi şartlarında verimli olamayacağına inanıyor. Gökçaylı, “Bizde her şey el emeğine dayanıyor. Bir yıllık kazancımızla defile yapıyoruz, yanımızdaki çalışanları da geçindirmek durumundayız. Bu şartlarda bile sanatçı yönümü ön planda tutmayı amaçlıyorum. Tüccar muamelesi gördüğüm de oluyor” diyor. Türk modasını dünyaya açmaya dair hayata geçirilmesi çok da zor olmayan önerileri ise şöyle: “İşadamlarımız bizi sanatçı olarak görmeli. Yurtdışında sık sık defileler yapmalıyız. Sanat ve ekonomi politikaları bir arada olmazsa dışa açılamayız ve imajımızı değiştiremeyiz....”
+   <br/>
+   <br/>
+   Türk modasına yaklaşımı ise daha makul Gökçaylı’nın. “Geleneksel kumaşlarımızdan iyi koleksiyonlar yapabiliriz, Türk modasını sadece jean kumaşlara indirgeyemeyiz. Kendi öz sanatımızı çağdaş modanın içinde başarılı bir şekilde yorumlayabiliriz” şeklindeki yaklaşımıyla konuya imkansız olarak bakmıyor. Aksine Türk moda tarihine yeni bir soluk getirdiğine inanıyor.
+   <br/>
+   <br/>
+   Kumaş sanayiinin bugünkü durumundan nasıl kurtulacağına dair Fransa’yı örnek gösteriyor. “Fransa’da kumaş sanayiinin başına Dior’u getirmişlerdi. Kumaş sanayii göklere çıktı. Dior’u da Dior yapan Fransız kumaşları oldu. İplik fabrikalarımız Avrupa kumaş sanayiinin yan üretimi konumunda. Sofistike kumaşlarımıza sahip çıkılması lazım” diyor.
+   <br/>
+   <br/>
+   Her şeyin başı yine ekonomiye çıkıyor. Üstelik moda ile sanayinin ne alâkası var diye de düşünebilirsiniz. Hangi alana el atsanız elinizde kalıyor. Moda dünyası ve de biz trendleri birkaç sezon öncesinden belirlenmiş biçareler olarak, tümden tekstil sektörünün geleceğiyle aslında ne çok ilintilenmiş durumdayız. Ne kadar karşı dursak da...
+   <br/>
+   <br/>
+   Türk tekstilinin ve tasarımcıların dünyaya açılması şimdilik bir rüya. Hepsinin arkasında köklü aile şirketleri ya da holdingler bulunan dünyaca ünlü markalarla Türk tekstili ve modacılarının aynı kulvarlara çıkması, birinci ligdeki mesela Galatasaray ile Hakkarispor ya da Muşspor’un boy ölçüşmesinin çılgınlığından çok farklı gibi durmuyor. Üzgünüm olumsuz bitirdim.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2238), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030901230944/http://www.aksiyon.com.tr:80/detay.php?id=2238)

@@ -1,0 +1,41 @@
+# Şehir yaşamı belimizi vurdu
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041213075840im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041213075840im_/http://www.aksiyon.com.tr/resim/518/78.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Küçük bir ağrıyla başlayan ve dayanılması imkansız acılarla devam eden bel fıtığı, Türkiye’nin kronik bir hastalığı oldu son zamanlarda. Uzmanlar, soğuk algınlıklarından sonra en çok rastlanan hastalığın bel fıtığı olduğunu söylüyor.
+ </font>
+ <p>
+  <font class="content">
+   Çevremizde küçük bir araştırma yaptığımızda da hemen herkesin bel bölgesinden rahatsızlık yaşadığını fark ediyoruz.  Bel fıtığının aşamaları var ve bu hastalığın en olumsuz yanı, duruş bozuklukları oluşturarak kişinin fiziksel görünümünü bir ömür boyu etkilemesi.
+   <br/>
+   <br/>
+   Hemen herkes bel rahatsızlıkları çekip duruş bozukluğu yaşasa da, bel fıtığı hastalığı tedavisi en kolay hastalıklardan biri aslında. Bu hastalık konusunda yaptığı araştırmaları yabancı dillere çevrilen ve bu sektöre kazandırdığı yeniliklerle adından sık sık söz ettiren Doç. Dr. Ahmet Yıldızhan, “Bel fıtığı en çok rastlanan hastalıklardan biri. Ancak insanlar nedense bu hastalığın tedavisinden korkuyor. Oysa en ağır hastalar bile en geç iki gün içinde mesailerine başlayabiliyor. Mikro cerrahi yöntemiyle zannedilenin aksine hastanın beli falan kesilmiyor. Küçük müdahalelerle dikişsiz bir ameliyat yapılıyor.” diyor.
+   <br/>
+   <br/>
+   Soğuk algınlığı, hareketsizlik ve yanlış hareket gibi sebeplerle oluşan bel fıtığının son yıllarda Türkler arasında yaygınlaşmasının özel bir nedeninin olup olmadığını sorduğumuzda ise Ahmet Yıldızhan şöyle cevap veriyor: “Bel fıtığı sadece Türklere has bir hastalık değil; ancak son yıllarda Türkiye’de çok arttı. Bunun iki sebebi var: Genetik ve yaşam şeklinin değişmesi. Genetik olarak bazı ailelerin bel yapısında aynı rahatsızlığı görüyoruz. Bir de beslenme ve yaşam şeklimiz değişti. Artık hareketi düşünmeyen bir toplumuz. Şehir yaşamı insanları evlere ve ofislere çekti. Ayrıca, dünyada en az spor yapan toplumlardan biri olduk. Spor kültürümüz gelişmiş değil. Tüm bunların neticesi bel fıtığıdır.”
+   <br/>
+   <br/>
+   Ayakta kalmak yanlış oturmaktan yararlı
+   <br/>
+   <br/>
+   Ahmet Yıldızhan, bel rahatsızlığı yaşamak istemeyenlere çeşitli tavsiyelerde bulunuyor. Yıldızhan’a göre sandalyede desteksiz oturmak, ayakta durmaktan çok daha tehlikeli; çünkü bele yüklenen ağırlık bu tür oturuşlarda artıyor. Yine, yerden bir cisim alırken çok dikkat etmek gerekiyor. Dizleri kırmak ve vücudun ağırlığını yaymak eğilme esnasında çok önemli. Yine yumuşak, derin ve alçak koltuklarda oturmak bel için oldukça tehlikeli. Ahmet Yıldızhan, beli dinlendirmenin en iyi yolunun ise sırt üstü yatarak ayakların altına küçük bir cisim koymak olduğunu söylüyor.
+   <br/>
+   <br/>
+   Bel fıtığı hemen herkeste görülebilir bir hastalık ancak özellikle uzun boylu ve orta yaşlı erkeklerin bel fıtığına daha çok dikkat etmesi gerekiyor. Bel ve sırt adalelerini güçlendirmek ise bu hastalığa karşı yapılabilecek en büyük savunma...
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17891&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041213075840/http://www.aksiyon.com.tr:80/detay.php?id=17891&yorum_id=1)

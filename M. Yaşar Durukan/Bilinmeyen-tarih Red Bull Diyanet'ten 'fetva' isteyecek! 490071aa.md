@@ -1,0 +1,62 @@
+# Red Bull, Diyanet’ten ‘fetva’ isteyecek!
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092649im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092649im_/http://www.aksiyon.com.tr/resim/349/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Enerji deposu bir içecek olarak ismini duyuran Red Bull, İslam ülkeleri ve Avrupa’da Helal Sertifikası ile satılıyor. Bu yöntem  Türkiye’de de uygulanacak. Firma  yetkilileri Diyanet’e başvurarak, sihirli içecek için “‘caiz fetvası’ talep edecek
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ünlü bir pazarlamacı olan Dietrich Mateschitz, bir iş görüşmesi için gittiği Tayland’da yerlilerin şişelerce içtikleri bir sıvı ile kendilerini uyanık tuttuklarını keşfeder. Tayland dilinde ‘Kırmızı Boğa’ anlamına gelen Krating Daeng isimli maddenin tadını alan uyanık pazarlamacı, ürünü alarak Avusturya’ya getirir ve yeniden formüle ederek piyasaya sürer. İçerisinde vücut kimyasını değiştiren maddeler içeren bu etkili içecek kısa sürede ‘hit’ oldu. Avusturya’dan sonra Almanya ve İsviçre pazarına girdi. İspanya, Doğu Avrupa derken 1999 yılında Amerika’da satışa sunuldu. Red Bull bugün toplam 53 ülkede satılıyor. 2000 yılında 1 milyar kutu satan ürün, 1 milyar dolarlık ciro yaptı. 2001’de 1.6 milyar kutuya ulaşması beklenen ürün, virüs gibi yayılıyor!
+   <br>
+    <br>
+     Enerji içeceği sektöründe dünya genelinde 150 civarında marka bulunmasına rağmen Red Bull’un yükselişinin altında bu ilginç içeceğin efsaneye dönüşmesi yatıyor. Çünkü Red Bull cinsel gücü artıran, vücuda canlılık kazandıran, performansı yükselten bir iksir olarak lanse ediliyor. Aslında yalan da değil yani. Red Bull’un yaptırdığı araştırmalar sonucunda, fiziksel ve zihinsel performansı artırdığı, her spor dalında özellikle konsantrasyon, hızlı reaksiyon ve dayanıklılık gerektiren spor dallarında vazgeçilmez bir içecek olduğu, performansı yüzde 25 yükselttiği belirlenmiş. Kısaca kendini iyi hissetme düzeyini yükseltiyor insanın. Sabaha kadar uyanık kalmak zorunda olan eğlence mekanları müdavimlerinin yanı sıra, sporcular arasında da çok tutulan bir içecek. Aslında enerjiye ihtiyacı olan herkes, işadamı, ev hanımı, öğrenciler bu içeceği tüketiyor. İçeceğin enerji ihtiyacını karşılamasının yanı sıra diğer malum etkilerinin oldukça fazla olduğu tahmin ediliyor. Zaten Red Bull’u efsane yapan da kulaktan kulağa dolaşan bu şehir efsaneleri.
+     <br>
+      <br/>
+      Amerika genelindeki enerji içecekleri sektörünün yüzde 65’ini oluşturan Red Bull için ABD’li gençler “Alkolsüz içeceklerin Porche’si” diyor. Satışlar, Avrupa’da her sene yüzde 400’lük artış kaydediyor.
+      <br/>
+      <br/>
+      Van’da Red Bull satılıyor
+      <br/>
+      <br/>
+      Mayıs 1998’de Türkiye’ye “Red Bull kanatlandırır” sloganıyla giren efsane içecek, pek kanatlanamadı. İçecek tanınmadığı için ilk yıl satışlarda çok zorlanmışlar. Şu anda su gibi tüketilen ürünü Van’daki Hamido Ağa bile içiyor. İstanbul, Ankara, İzmir, Bursa, Samsun, Trabzon, Adana, Mersin gibi büyük şehirlerden Türkiye’nin güney ve batı kıyılarına, Bodrum, Antalya, Alanya, Marmaris, Kuşadası, Fethiye ve Çeşme’ye, Anadolu’nun derinliklerinden Elazığ, ve Malatya’ya kadar 8 bin 500 noktada dağıtımı yapılıyor. Yakında Hakkari’de de satışa sunulacak.
+      <br/>
+      <br/>
+      İthalatçı firma Spirit of Energy Ltd. (S.o.E) Genel Müdürü Aykut Ferah, satış rakamlarını sır gibi saklamayı tercih ediyor. 10 değişik markanın bulunduğu Türkiye pazarının yüzde 95’i Red Bull’un elinde bulunuyor. Red Bull’u taklit ettiği ve haksız rekabet yaptığı gerekçesiyle yerli bir markanın 50 bin kutu ürününün toplatılarak satışının yasaklanmasıyla ilgili olaya da değinen Aykut Ferah, medyada yer alan olumsuz haberlerin karalama olduğunu söylüyor. 23 yıl yurtdışında kaldığını, artık ülkesi için birşeyler yapmak istediğini anlatan Aykut Ferah, kriz döneminde 5 milyon marklık yatırım, 20 milyon dolarlık da ihracat yaptığına, Red Bul ithalatının bile henüz bu boyutta olmadığına dikkat çekiyor.
+      <br/>
+      <br/>
+      Rizeli bir ailenin oğlu olan fakat Avusturya’da büyüyen Aykut Ferah’a, şu ölüm olaylarını da soruyoruz. “Red Bull’dan ölecek biri varsa o ben olmalıyım. Çünkü ilk çıktığı 1987’den beri içiyorum” diyen Ferah ilginç bilgiler veriyor: “Olay sanıldığı gibi yeni değil, dört sene evvel oldu. 3 kişi öldü. Ölüm karaciğer yetersizliği yüzünden. Red Bull da aynı gün içildiği için araştırma konusu yapıldı ama sonra bundan vazgeçildi. Bir kişi de dört ay önce öldü. Bir sokak doktorunun, ‘aynı gün Red Bul içildi’ diye bir basın mensubuna açıklama yapması bütün dünyayı karıştırdı. Malezya’da yasaklandı deniliyor. Malezya’da hiç satılmadı ki! Satılmayacak da. Çünkü eski ilaç halinde olan Red Bul var orada. Ne Norveç’te, ne İsveç’te...  hiçbir yerde yasağı yok. Türkiye’de ise Red Bull, Tarım ve Köyişleri Bakanlığı’nın onayıyla burda. AB Gıda Koteksi’ne uygun bir ürün. Amerika standartlarına uygun. O haberlerden sonra da başkonsolosluktan yeniden onaylı serbest dolaşım belgeleri aldık.”
+      <br/>
+      <br/>
+      Helal İçecek
+      <br/>
+      <br/>
+      Herşeye rağmen ahir zaman iksirinin satışı her gün daha da artıyor. Üstelik firmanın hedef kitlesinin dışında kalan kitlelerin de Red Bul tüketmeye başlaması ilginç gelişmelere neden oluyor. Mesela Avusturya’da yapılan bir araştırmada, Red Bull’un satışlarının minimum olması gereken zaman aralığında maksimum düzeye çıktığı saptanmış. Bunun sebebi araştırıldığında ise tüketimin Ramazan ayında arttığı belirlenmiş. Meğerse Türkler, iftardan sonra ortaya çakan yorgunluk hissini atmak ve sahurda da ertesi gün enerjik olabilmek için bol bol Red Bull tüketmişler. Red Bull’un tercih edilmesinde en büyük etken ise alkolsüz olması. Viyana başta olmak üzere Türklerin yoğun olarak yaşadığı kentlerde yaşanan bu gelişme, firmaya yeni bir hedef kitle kazandırmış. Dini otoritelerden “Helal” belgesi alan Red Bull, Avrupa’da Türkler’in yoğun olarak yaşadığı bölgelerde bu belge ile satış yapıyor. İslam ülkelerindeki pazarını da aynı taktikle büyüten firmanın Birleşik Arap Emirlikleri, Bahreyn, Gana, Lübnan, Fas, Umman, Yemen, Bosna Hersek, Arnavutluk gibi ülkelerde satışa sunduğu kutuların üzerinde “Helal” veya “Caiz” damgası yer alıyor.
+      <br/>
+      <br/>
+      Red Bull, aynı taktiği Türkiye’de de kullanmaya hazırlanıyor. Avrupa ve İslam ülkelerindeki “Helal Sertifikası” uygulaması Türkiye’de de hayata geçirilecek. Red Bull Genel Müdürü Aykut Ferah, “Bunun için Türkiye’ye özel bir sertifika gelecek. Diyanet’ten onaylanacak” diyor. Yani tartışmalara neden olan ahir zaman içeceği Red Bull, yakında Diyanet’ten de fetvalı olacak. Aslında birçok kesim fetva beklemeden de Red Bull’u tüketmeye başlamış bile. Red Bull’un Suadiye’deki merkezinin sahibi Karadenizli ünlü bir ailenin mensubu ve hacı. Ayda tam beş koli Red Bull alıyor. Ancak Ferah, müşteri portföyünü dar bir kesimle sınırlı tutmuyor. “Hacı Amca da benim müşterimdir, Laila’ya giden adam da...” Bakalım fetvalı Red Bull satışları nasıl olacak?
+      <br/>
+      <br/>
+      e-mail: mydurukan@hotmail.com
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12551), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092649/http://www.aksiyon.com.tr:80/detay.php?id=12551)

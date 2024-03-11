@@ -1,0 +1,67 @@
+# Maden in futbol
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214450im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214450im_/http://www.aksiyon.com.tr/resim/335/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Gelsenkirchen ve Zonguldak... Schalke 04 ve Zonguldakspor... Şimdi, bu isimlerin birbirleriyle ne alâkaları var diyeceksiniz. 350 bin nüfuslu Gelsenkirchen Almanya’nın, 106 bin nüfuslu Zonguldak da Türkiye’nin taş kömürüyle ünlü şehri. Her iki kentin de, her iki ülkenin de ekonomisi büyük ölçüde bu madene bağlı. Schalke 04 ve Zonguldakspor’a gelince...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Schalke 04 Gelsenkirchen’i, Zonguldakspor da Zonguldak’ı temsil eden futbol takımı. İki kulübün ekonomik gücünü taş kömürü madeni, taraftar desteğini de maden işçileri sağlıyor. Ancak aralarında bir fark var: Schalke 04 Bundesliga’da şampiyonluğa oynarken, bir zamanlar 1. Lig’de fırtına gibi esen Zonguldakspor Türkiye 3. Futbol Ligi’nde zor günler yaşıyor. İsterseniz, önce Schalke 04’e değinip daha sonra Zonguldakspor’dan bahsedelim.
+   <br>
+    <br>
+     Schalke 04 tutulmuyor
+     <br>
+      <br>
+       Almanya’nın en büyük taş kömürü madenine sahip olan Gelsenkirchen’in takımı Schalke 04, bundan on yıl öncesine kadar Bundesliga’da inişli çıkışlı bir grafik çiziyordu. Maçlarını Gelsenkirchen Park Stadium’da oynayan Schalke 04, 1989—90 sezonuna kadar iki yıl 2. Bundesliga’da, bir yıl Bundesliga’da mücadele ediyor ve asansör takım olmaktan öteye gidemiyordu. 1990—91 sezonunda bir kere daha Bundesliga’da mücadele etmeye başlayan Schalke 04, profesyonel yönetim sayesinde yavaş yavaş kendini ispatladı ve her geçen sezon daha üst sıralarda yer almaya başladı. Ekonomik gücünü taş kömürü madeninden, taraftar desteğini de maden işçilerinden alan Schalke 04, Trabzonspor’u da saf dışı bıraktığı 1996—97 sezonunda UEFA Kupası’nı müzesine götürme mutluluğunu yaşadı. Bu kupa, Schalke 04’ün kazandığı ilk uluslararası kupaydı. Zaman zaman maden ocağındaki işçileri ziyaret ederek onlarla bütünleşen ve manevi güç alan Schalkeli futbolcular, bu sezon gözlerini Bundesliga şampiyonluğuna dikmiş durumdalar. Üç hafta önce Bayern Münih’i deplasmanda 3—1 yenerek zirveye yerleşen ve çok büyük avantaj elde eden Schalke 04, bu fırsatı en iyi şekilde değerlendirip tarihindeki ilk Almanya şampiyonluğunu kazanmayı amaçlıyor. Şu anda lider durumda olan Huub Stevens yönetimindeki Schalke’nin, şampiyonluğun diğer adayları Bayern Münih, Borussia Dortmund, Hertha Berlin ve Bayer Leverkusen’e göre fikstür avantajı da mevcut. Mavi— Beyazlı ekip, son üç haftada ligin zayıf takımlarından Wolsburg ve Unterhaching ile kendi evinde, Stuttgart ile de deplasmanda oynayacak. Schalke 04, büyük ihtimalle gelecek sezon Almanya’yı Şampiyonlar Ligi’nde temsil edecek. Kadrosunda Ünal Alpugan ve Ali Göl gibi iki Türk futbolcunun yanı sıra Olaf Thon, Ebbe Sand (20 golle Bundesliga’da en fazla gol atan oyuncu), Möller, Emile Mpenza ve Nico van Kerckhoven gibi kaliteli oyuncuları bulunduran Schalke 04, maçlarını önümüzdeki yıllarda 50 bin kişilik Arena Stadı’nda oynayacak. Şu anda bitmek üzere olan ve hem isim olarak, hem de proje olarak Ajax’ın Arena Stadı’na benzeyen tesisi kulübün kendi imkanlarıyla yaptırdığını da hatırlatmakta yarar var.
+       <br/>
+       <br/>
+       Zonguldakspor bir zamanlar neydi?
+       <br/>
+       <br/>
+       Zonguldakspor’a gelince... Dönemin Futbol Federasyonu Başkanı Orhan Şeref Apak’ın isteği doğrultusunda başta Kömürspor olmak üzere kentteki diğer kulüplerin birleşmesiyle 1966 yılında kurulan Zonguldakspor, aynı yıl 2. Lig’de mücadele etmeye başladı. Sekiz yıl şampiyonluk mücadelesi verdikten sonra 1973—74’te Trabzonspor ile birlikte 1. Lig’e yükselen Kırmızı— Lacivertli takım, ilk iki yılında biraz bocaladıktan sonra kendini yavaş yavaş kabul ettirdi ve 1979—80 sezonunda üçüncü oldu. Üst sıralarda yer almanın tadını alan Zonguldakspor, 1981—82 sezonunda da ligi dördüncü sırada bitirdi. Ekonomik gücünü 65 bin maden işçisinin maaşlarından kesilen paralardan, tribün desteğini de yine aynı maden işçilerinin ailelerinden alan Zonguldakspor, artık sözü geçen kulüplerden biri olmuştu. Kırmızı— Lacivertli takım, Trabzonspor, Eskişehirspor ve Sakaryaspor ile birlikte İstanbul takımlarının en büyük rakibiydi. Hiçbir takımın kulüp binası olmadığı o dönemde en modern tesis de Zonguldak’taydı. Sauna, yemekhane ve futbolcuların kalacağı yatak odalarından oluşan Fener semtindeki üç katlı bina, Dünya Gıda Fonu tarafından yaptırılmıştı. Zonguldak’a gelen takımlar bu binayı görünce imrenip ‘Keşke bizim de böyle bir tesisimiz olsa’ diyorlardı. Türkiye’nin kalbur üstü futbolcuları o zamanlar üç büyüklerden önce Zonguldakspor’dan teklif bekliyorlardı. Çünkü, o zamanlar Türkiye’nin Paris’i olarak nitelendirilen Zonguldak’ta para sıkıntısı yoktu. Dünya karmasına futbolcu (İsa Ertürk) gönderen ilk Türk kulübü de yine Zonguldakspor’du. 1980’deki askeri ihtilalden sonra başlatılan özelleştirme çalışmaları ise Zonguldak’ı olumsuz yönde etkiledi. Maden işçisi sayısı azaltıldıkça şehrin nüfusu da, takımın başarı grafiği de düştü. İşçilerden gelen paranın kesilmesi nedeniyle 1988—89 sezonunda kendini 2. Lig’de bulan Kırmızı— Lacivertli takım, daha sonra 3. Lig’e düşmekten de kurtulamadı. Zonguldaklılar, dokuz yıldır 2. Lig, on iki yıldır da 1. Lig özlemi çekiyorlar.
+       <br/>
+       <br/>
+       Örnek tesiste fareler cirit atıyor
+       <br/>
+       <br/>
+       Geçen hafta sonunda Aksiyon adına Zonguldak’taydım. Az da olsa 2. Lig’e yükselme şansı bulunan Zonguldakspor’un Ereğlispor ile deplasmanda oynadığı maçı izledim. Eski Fenerbahçeli Bülent Uygun’un kaptanlığını yaptığı Zonguldakspor öne geçti ama son derece hırslı bir futbol oynayan Ereğlispor sahadan galip ayrılmayı başardı ve Kırmızı— Lacivertlilerin şansını iyice azalttı. Üç bin civarındaki Kırmızı— Lacivertli taraftar kente üzgün bir şekilde dönerken, il olup Zonguldak’tan ayrılmak isteyen Ereğlililer ise son derece sevinçliydi.
+       <br/>
+       <br/>
+       Bir gün sonra Zonguldakspor’un Fener semtindeki kulüp binasına gittim. Bir zamanlar örnek tesis olarak sözü edilen bina, lağım farelerinin baskınına uğraması nedeniyle yeni yönetim tarafından tamir ettiriliyordu. Binadan çıkan pislik ise hayret vericiydi. Dışarıdaki yağmur dininceye kadar altyapı antrenörü Resul Kumaş ile Zonguldakspor üzerine sohbet ettik. Kumaş, söze kulüp binasından başladı ve eski günleri özlemle andı. ‘Şu gördüğün bina bir zamanlar örnek binaydı. Fenerbahçeli, Galatasaraylı, Beşiktaşlı, Trabzonlu futbolcular buraya maç yapmaya geldiklerinde keşke bizim de böyle bir tesisimiz olsun derlerdi. Ama şimdi fareler bastı. Futbolcular korkudan tuvalete giremiyorlardı. Çevre belediyelerin ve altyapıdaki futbolcuların yardımlarıyla yavaş yavaş bu binayı kullanılabilir hale getirmeye çalışıyoruz. Futbolcular bir süre  daha Kilimli’de kalacaklar. Eskiden Zonguldak Türkiye’nin Paris’iydi. Para çoktu, başarı vardı, ilgi vardı. Şimdi ise tam tersi’.
+       <br/>
+       <br/>
+       Bektaş: Herkes Zonguldak’ı çökertmek istiyor
+       <br/>
+       <br/>
+       Fener semtindeki kulüp binasından sonra Şehir Stadı’na gittim. Nice maçlara ev sahipliği yapan bu eski stad, Galatasaray, Fenerbahçe, Beşiktaş ve Trabzonspor’un boynu bükük haline kim bilir kaç kez şahitlik etmişti. Kapalı tribüne monte edilen renkli plastik koltuklar bile stada yeni bir görünüm kazandıramamıştı. Çünkü, kale arkasına ve açık tribüne iyice sinen o siyahımsı renk, yirmi altı bin kişinin tıka basa dolduğu eski maçların nostaljisini yaşatıyordu hâlâ. Keza, denizden taraftaki kalenin arkasında yer alan ve yıllar önce TRT ekranlarına surlara benzer şekilde yansıyan taş duvar da...
+       <br/>
+       <br/>
+       Şehir Stadı’ndan çıktıktan sonra Zonguldakspor Asbaşkanı Ali Bektaş ile görüşmek üzere Kozlu beldesinin yolunu tuttum. Ali Bektaş, aynı zamanda Kozlu Belediyesi’nin de başkanıydı. Başkanla makamında uzun bir süre sohbet ettik. Oldukça dertli olan Bektaş, önce ekonomi— futbol ilişkisinden bahsetti: ‘Futbol demek, ekonomi demek. Bir vilayetin takımı 1. Lig’deyse, ekonomisi de 1. Lig’dedir. Eskiden Zonguldak ekonomik açıdan Türkiye’nin sekizinci iliydi, takımı da 1. Lig’deydi. Şimdi ise ekonomik açıdan elli sekizinci sırada, takımı ise 3. Lig’de. Bu şehir Bülent Ecevit’i başbakan yaptı ama durum her geçen gün daha da kötüye gidiyor’.. Ali Bektaş, sonra Zonguldak’ın bu hale nasıl geldiğini anlattı: ‘Zonguldakspor’un kaderine bakıyoruz, 1980’deki askeri ihtilalden sonra başlayan özelleştirme süreciyle birlikte gittikçe zayıflamış. O döneme kadar Türkiye’yi besleyen Zonguldak, maden ocaklarının özelleştirilmeye başlamasıyla gittikçe küçülmüş. Eskiden 65 bin maden işçisi vardı Zonguldak’ta. Şimdi ise sadece 14 bin... Ekonomik küçülmeye coğrafi küçülme de eklenmiş. Önce Karabük, sonra Bartın il yapılmış. Şimdi de Ereğlililer il olup Zonguldak’tan ayrılmak istiyorlar. Deprem olmasaydı şimdiye kadar çoktan ayrılmış olacaklardı. Zonguldak’ın taş kömürü olmasaydı Karabük Demir Çelik Fabrikası da, Ereğli Demir Çelik Fabrikası da çalışmaz ve bu insanlar bize kafa tutacak hale gelemezlerdi. Şu anda Ereğli ile Zonguldak arasında müthiş bir rekabet var. Bu rekabeti iki hafta önce oynadığımız maçta  bariz bir şekilde gördük. 2. Lig’e yükselme şansımızı epey azalttılar. Bize karşı oynadıkları futbolu diğer takımlara karşı oynasalardı 2. Lig’e yükselmeyi çoktan garantilemişlerdi’. Asbaşkan Ali Bektaş, şu anda da işçilerin maaşından para kesilmesine devam edildiğini, ancak bu paranın yıllardır Maden İşçileri Eğitim ve Spor Vakfı’na aktarılmasından dolayı Zonguldakspor’un yararlanamadığını da sözlerine ekledi.
+       <br/>
+       <br/>
+       Evet, iki kulübün durumları bu şekilde. Üretimi sürekli artırarak hem kendi ülkelerinin ihtiyacını karşılayan, hem de ihracat yapan Gelsenkirchenliler futbolda başarılı sonuçlar alıyorlar. Siyasilerin üretimi ve işçi sayısını azaltmasına engel olamayan Zonguldaklılar ise hem ekonomik açıdan, hem de sportif açıdan zor günler yaşıyorlar. Kıyıda köşede kalıp gündemden düşen Zonguldaklıların nihai görüşü ise şu şekilde: ‘Zonguldakspor bu yıl 2. Lig’e çıktı çıktı... Çıkamazsa bir daha asla çıkamaz’.
+       <br/>
+       <br/>
+       E—mail: n.kola@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13052), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214450/http://www.aksiyon.com.tr:80/detay.php?id=13052)

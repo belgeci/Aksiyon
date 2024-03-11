@@ -1,0 +1,70 @@
+# Sinan'ın 'Ters Lâle'si
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092405im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092405im_/http://www.aksiyon.com.tr/resim/372/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sinan, sadece bir taş-toprak ya da kubbe meselesi değil. O, Osmanlı zenginliğinin yapısal ve ideolojik mantığını sindirip, uygarlığın güçlü soluğunu gelecek kuşaklara iletti. Ama hiçbir zaman Sinan tek başına değildi. Onun getirmiş olduğu Ters Lâle bir aykırılığın simgesiydi. Süleymaniye ise bu aykırılıkların en dorukta olanı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Mimarî, bütün yerleşik toplumlar için, kent kültüründeki standardı anlatan başlıca övünç kaynağı, uygarlığın göstergesi. Paris, Atina ve İstanbul’un çekiciliği buradan gelir. Ama aynı şeyi edebiyat için söylemek mümkün değildir. Dostoyevski’yi veya Victor Hugo’yu okuyabilmek için önce okuma-yazmayı bilmek gerekir, sonra dillerini. Eğer dillerini bilmiyorsanız birinin aracılığına ihtiyacınız var demektir. Resim sanatı da bu bakımdan avantajlıdır. Ama resmi görmek için de ya galeriye, ya da müzeye gitmeniz icabeder. Boyutları ve programı bakımından ‘büyük sanatlar’ grubuna giren mimarlık ürünleri, teknik olarak mühendisliği de ilgilendirir. Bir mimari eser, barınma, mekan sınırlama gibi belirli işlevleri yerine getirmekten başka çağlar sonra bile sembolik ve kalıcı niteliğini koruyabiliyor. Bir fabrika binası ile Aysofya ya da Süleymaniye’nin farkı bu noktada ortaya çıkıyor. Tabii burada unutulmaması gereken yapıdan çok o yapılara şekil veren mimarlar, ustalar. Zaten, “Sinan olmasaydı Sülemaniye nasıl olurdu?” sorusu sanırım ebediyen cevapsız kalacaktır. Mimar Sinan öylesine bir tarz, öylesine bir üslûp getirdi ki, bunun sırrı hâlâ çözülebilmiş değil. Bir “Ters Lâle”bir “Piramidal Kütle” Sinan’da anlam kazandı.
+   <br>
+    <br>
+     Mimar Sinan’ın eserlerindeki sırları, incelikleri anlayıp çözmek hiç de kolay değil. Arşivler hâlâ Sinan’la ilgili karanlıkta kalmış sayısız belgeyle dolu. Marmara Üniversitesi Tarih Bölümü öğretim üyesi Prof. Dr. Selçuk Mülayim yazmış olduğu kitapta Sinan’ın birtakım inceliklerini ve şifrelerini ortaya çıkarıyor. Herşeyden önemlisi Sinan’ın aşkını ve ruhunu bize sunuyor. Ve Sinan’ın yapılarından çok içindeki duygularının incelenmesi gerektiğini söylüyor. Arkeoloji ve Sanat Yayınları’nda çıkan ‘Ters Lale, Osmanlı Mimarisinde Sinan Çağı ve Süleymaniye’ isimli kitapta Sinan’ın eserlerindeki incelikler, sanatlar tam olmasa da kısmen aydınlığa çıkıyor. Mimar Sinan ve mimari incelikleri üzerine bu zamana kadar binlerce kitap yazıldı ama bu son kitap, Sinan’ı ortaya koyması açasından özgün bir çerçeve çiziyor. Selçuk Mülayim kitapta Sinan’ı sadece olumlu yönleriyle ele almıyor, onu eleştirme cesaretini de gösteriyor.
+     <br>
+      <br>
+       Sadece Sinan yoktu
+       <br/>
+       <br/>
+       Kitapta, mimarı bilinmeyen bazı yapıların Sinan’a ait olup olmadığı konusundaki tartışmalara da son noktayı koyuyor. Yazara göre; Sinan tek başına değildi. Sinan ayarında iş yapabilen onun kadar güçlü başkaları da vardı. Bunlardan Sedefkar Mehmet Ağa, Sinan okulunun mensubuydu. Yani gelenek, sistem ya da anlayış hangi adla anılırsa anılsın, aynı üslubu yaşatan fakat ismi bilinmeyen başka mimarlar da en az Sinan kadar vardı. Osmanlı inşaat teknolojisinin entellektüel potasında oluşan Sinan estetiği, kendinden önceki bazı mimari alışkanlıkları ayıklarken, bazı gelenekleri yeniden işleyerek güçlendirmiş ve pekiştirmiştir. Sinan okulunun Osmanlı mimarisine esas olan en önemli buluşu kubbe-mekan ilişkilerini en ideal biçimde formüle edebilmek olmuştur. Bu estetikte, bir gözlemcinin ilk algıladığı şey; zengin ve geniş programlı kompozisyonun hassas dengesidir. İster tam merkezi, ister hafifçe uzunlamasına olsun, her plan şemasında bu denge görülmekle kalmaz, strüktürün kütle kompozisyonuna yansıması daha açık sözlü bir anlatım kazanır. Yazar Selçuk Mülayim bu konuyu yorumlarken şöyle diyor: “Beylikler çağının kararsız fakat çeşnisi bol denemeleri, öteki İslam ülkelerinde bir türlü çıkış yolu bulamayan yöresel denemeler sadece Sinan estetiğinde en akılcı çözüme ulaşır.” Ama Mülayim, Sinan’ı hafifçe yermekten de geri kalmıyor; “Sinan başka mimarlar tarafından daha önce kullanılmış olan bütün unsurları öyle beklenmedik, öyle büyük bir armoniye soktu ki; başkalarının keşfettiği şeyler bile artık onun malı oldu” diyor. Mülayim bununla da yetinmiyor, Sinan’ın mimari oyunun kurallarını bozduğunu da ileri sürerek “Geleneğin güçlü desteğinde ulaşılan bu doğal kolaylık onun sanki bir tanrı vergisine sahip olduğu izlenimini uyandırdı. O hiçbir formu keşfetmedi; formların yeni ölçülerini belirledi. Bununla Sinan’ı küçümsemiyoruz; tersine, oyunun kurallarını değiştirmek gibi en zor olanı başardığı için sorunun üzerine gidiyoruz” şeklinde tartışmaya açık bir yorum getiriyor. Bu konuya bir de örnek veriyor, Sinan’ın merkezi hacmi örten kubbe fikrinin, birkaç yüzyıllık gelişme ve birkaç sanatçı kuşağının arayışları sonunda belirginleştiği rahatça kabul edilebilir diyor.
+       <br/>
+       <br/>
+       İskelet mimarisi
+       <br/>
+       <br/>
+       Mimar Sinan’ın Osmanlı mimarisine katkıları birkaç yönlüdür. O güne kadar denenmemiş biçimleri ve teknikleri yaklaşık aynen uygulamış, fakat mekan kavramını daha etkili hale getirmiştir. Örneğin, dört, altı ve sekiz desteğe oturan baldaken yapı daha önce, hem de oldukça büyük ölçülerde denenmiş olmasına rağmen, bu türler Sinan tarafından ele alınarak giderek yaygınlaşmıştır. Bu anlamda, Sinan’ın inşaat anlayışına bir çeşit ‘iskelet mimarisi’ demek mümkün. Yani Sinan, yapılarını bir insan iskeleti gibi kurgulayıp, onun üzerine gerekli olan parçaları yerleştirdi. Ortaya çıkan eser ise tamamen Sinan’ın dini ve duygusal içtenliklerinin ruhu oldu. Bu mimaride duvarlar, sadece mekanı sınırlamıyor, taşıyıcı olmayan duvarlar sık sık delinebildiği için iç mekana ışık dağıtan pencereler bütün yüzeye yayılabiliyor. Sinan, kütlenin işlenişine içte ve dışta büyük katkıları olan duvarlara birkaç sıra halinde pencere dizerek yüz tasarımını geliştirmiş. İç mekana ışık sağlayan pencereler, Sinan’ın eserlerinde dışta  dörtgen yüzeylerin içini boşaltırken büyük kemerlerin içine öylesine istif edilir ki, aynı çarpıcı ritim ayrıntıda ve genelde buluşur. Prof. Dr. Mülayim, Sinan’ın kullanmış olduğu bütün unsurların bir milimetrik hesaplama ile mümkün olabileceğini belirtiyor ve Sinan’ın bunu çok iyi kullandığının altını çiziyor. Mülayim, “Sinan’ın eserlerinde hiçbir fazlalık görmek mümkün değil. Onun süslemeleri veya kullanmış olduğu taşın ebadı yapının içindeki bütünlüğü tamamlıyor. Renkler bile Sinan’ın yapılarında birer tamamlayıcı objedir. Bu tamamlayıcılık sadece estetik değil aynı zamanda yapının geleceği için de gerekliydi. Bu yüzden Sinan’ın eserlerinde herşeyde bir düzen hakimdir” diyor.
+       <br/>
+       <br/>
+       Sinan’ın her yapısı önemlidir ama bunların arasında Süleymaniye’nin tarzı çok farklı. Belki Edirne’deki Selimiye öncelikli olabilir ama Süleymaniye’deki aykırılık onun ön plana çıkması için yeterli. Sinan, Süleymaniye’yi bir Ortaçağ mimarının ustalık ve deneme mantığının çözümlenmesi bakımından adeta bir fenomen olarak önümüze sürüyor. Ve yazar Mülayim, Süleymaniye’deki Sinan’ı yorumlarken şu cümleyi söylemekten kendisini alamıyor; “Bir kubbe mimarisinin odak yapısı olarak örneklenen Süleymaniye’nin, Sinan eserleri arasında da farklı, hatta oldukça aykırı bir biçimde ortaya çıktığı görülüyor. Bu aykırılık belki de ustayı Ayasofya ile yarışmaya kışkırtan duyguların psiko-sosyal bedeliydi. Bu nedenle Süleymaniye’nin tasarımındaki aykırılık, Selimiye’deki Ters Lâle motifinden çok daha fazla önemsenmelidir.”
+       <br/>
+       <br/>
+       Süleymaniye, Sinan’ın ilk yapısı olsaydı, ana ilkeleri bakımından İstanbul Ayasofya’sına benzetilen bu plan şemasının, iki yarım kubbenin eklendiği ve bu şartlarda yapıyı örten orta kubbeli kompozisyonun, haklı olarak bir öykünme hatta bazı mimar ve sanat tarihçilerinin ileri sürdükleri gibi bir kopyalama olduğu düşünülebilir, sorun kolayca anlaşılabilirdi. Ama aynı doğrultudaki birçok denemeyle, yonca plan klasikleri başarıyla uygulandıktan sonra, iki yarım kubbeli şemaya dönüş yapma düşüncesi şaşırtıcı. Sinan’ın kalfalık eserim dediği ve Şehzade’den yaklaşık on yıl sonra inşa ettiği Süleymaniye’de Ayasofya’daki gibi biraz uzunlamasına çizilmiş bir şemayı benimsemesi, bir başka deyişle önce gerekeni yapıp, farklı açılımlara gidip tekrar eski modele dönmesi Asayasofya’dan esinlendiğiyle ilgili bütün bu tezleri çürütüyor ve insanları biraz da düşünmeye sevk ediyor. Süleymaniye’nin kesit ve planı 16. yüzyılın ortasında, her boyuttaki denge arayışının seçkin bir örneği olarak beliriyor. Dört büyük ayağa oturan ana kubbe, avlu mihrap ekseninde iki yarım kubbeyle destekleniyor. Bu düzen otuz yıl sonra yine İstanbul’da Tophane Kılıç Ali Paşa Camii’nde kullanıldı. Bu arada Edirne’deki Selimiye dahil en az on büyük yapıda altı ve sekiz destekli plan çokça kullanıldı. Sinan’ın Ayasofya’yı sanıldığı kadar umursamadığı buradan da ortaya çıkıyor.
+       <br/>
+       <br/>
+       Tersine bir lâle
+       <br/>
+       <br/>
+       Plan-örtü ilişkilerinin gelişmesini tam bir evrimle açıklamak gerekiyor. Çünkü, ilk bakışta bir anlam verilmeyen bu aykırılık kimi çevrelerce geri dönüş olarak değerlendirilirse de bunun büyük bir yanlış olduğu ortaya çıkıyor. Süleymaniye, genelde Osmanlı mimarlarının izlediği yola ve Sinan’ın geliştirmekte olduğu mantığa ters bir eser. Bu aykırılık Selimiye Camii’nin bir köşesine işlenmiş olan ‘Ters Lâle’ motifine göre daha ilginç bir tersliği temsil ediyor. Yazar Mülayim’e göre Sinan’ın onu nasıl ve neden oraya koyduğunu anlamak mümkün değil. Ama lâleyi tersten çizmede tersten okunuşunda hilal anlamının çıkmasının vermiş olduğu bir içtenlik duygusu olarak yorumlamak yanlış olmaz. Sinan’ın böylece kimseyi inicitmeden, ürkütmeden İslam dininin sembolü olan hilali bir Ters Lâle ile Selmiye’nin duvarına işlemeyi başardığı anlaşılıyor. Zaten Selimiye’yi farklı kılan da bu ‘Ters Lâle’ aslında. Ama Sinan’ın Ters Lâle’yi oluşturmak için taşları ters çevirdiğini ve bunu sadece bu şekli oluşturmak için yaptığını düşünmek yanlış olur. ‘Ters Lâle’ yapının bütününü tamamlayan bir parça ve Sinan lâleyi ters yaparken dahi bu bütünlüğü bozmadan büyük bir ustalıkla desenini işlemeyi bildi. Sinan’ın eserlerinde geometrik bir daireselliği görmek mümkün. Sinan bütün yapıyı bir daire üzerine yüklemeyi çok iyi başardı. Piramidal şekillerden tutun da yapının konuşlandırıldığı mekana kadar bir geometrik düzen ön plana çıkıyor.
+       <br/>
+       <br/>
+       Sinan’dan ‘U’ düzeni
+       <br/>
+       <br/>
+       Bugün içinde yer aldığı semte adını veren Süleymaniye Külliyesi çeşitli fonksiyonları karşılayan birçok yapıdan meydana geliyor. Ortada cami olmak üzere bütün yapıların bir ‘U’ düzeni içinde sıralanması Sinan’ın ne kadar iyi bir planlamacı olduğunu da gösteriyor. Toplum hizmetlerini gören yapılar yani hastane, okul, hanlar, imaret, çeşme ve sebiller vakıf olarak yapılmış; bu çapta bir site 16. yüzyıldan sonra görülmedi. Sinan aynı zamanda yapının gizli de olsa bir ritüeli barındırması için uğraş verdi. Süleymaniye’deki dörtgen alanın içindeki en uygun noktalara konulan dört büyük desteğin üzerine kemerler, kemerlerin üzerinde merkezi kubbe oturtulmuş durumda. Kubbenin düşey ağırlığını taşıyan ve bütünüyle kesme taşlarla örülen bu dört ayağın, dinin dört direği sayılan dört halifeye atfen Sinan tarafından oraya mimari bir ustalıkla konulduğu söylenir. Hz. Ebubekir (r.a), Hz. Ömer, (r.a) Hz. Ali (r.a)  ve Hz. Osman (r.a) adına yapılan direkler, yapıya iyi bakıldığında bu tezi doğuruluyor. Çünkü Sinan oraya bir direk daha koysa yapı daha da estetik olabilirdi diye yorumlanıyor.
+       <br/>
+       <br/>
+       Mimar Sinan sadece bunlarla yetinmeyip yapılardaki en ince ayrıntıları bile gözönünde bulundurmuş. Ses düzeni için oluşturmuş olduğu kubbecikler sesin yapının içine daha iyi yayılmasını sağlamış. Bu sorun aslında Sinani ve Sinan öncesinde birçok mimarı uğraştırmıştı. Burada Sinan’ın üstün başarılarını tek tek sıralamak mümkün değil ama içindeki o ruhu ve aşkı yansıtmak meseleyi bütünüyle çözüyor. Çünkü Sinan sıradan bir inşaat ustası değil. Prof. Mülayim de Sinan’ın yaptıklarını bir taş ya da bir kemerden ibaret görmenin yanlış olacağının titizlikle altını çiziyor. Ama şu nokta da var ki, Sinan Osmanlı zenginliğinin yapısal ve ideolojik mantığını sindirmiş, uygarlığın güçlü soluğunu gelecek kuşaklara ileten tasarım ustalarından sadece biriydi. Yanındakiler de büyüktü. Ama kendisi, bütün inşaat esnafını, dülgerleri, neccarları, demircileri, harç karanları, taş yontucuları ve minarecileri harekete geçirip ustaca yönettiği için kısaca imaparatorluğu yansıttığı için büyüktür. Kendisini kuşatan büyükleri yalın, belirgin, sağlam, açık berrak ve elle tutulabilir bir somutluğa çevirebildiği için de diğerlerinden farklıdır. Sinan bir taş-toprak ya da kubbe meselesi değildir. “Türkleri, sanat yönünden Avrupa’dan, Arap-İran ekseninden ayıran nedir?” sorusuna cevap verebilmek için Sinan tek başına yeterli olacaktır.
+       <br/>
+       <br/>
+       e-mail:hsoylemez@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12461), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092405/http://www.aksiyon.com.tr:80/detay.php?id=12461)

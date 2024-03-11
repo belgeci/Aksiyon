@@ -1,0 +1,73 @@
+# Şair ve yazar aranıyor...
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161057im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161057im_/http://www.aksiyon.com.tr/resim/352/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Herşey bu gazete ilanıyla başlıyor... Günlük bir gazetede bir zayi ilanı büyüklüğünde seri ilanlar sayfasında verilen, bütün muhtevası “Şair, yazar adayları yeni çıkacak dergimizde yazın” olan bir ilan bu. Bu küçücük ilandan bugün 55 genç yazarı olan bir dergi hayata kavuştu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İlanı veren kişinin profesyonel bir yayıncı olduğunu düşünüyorsanız yanılıyorsunuz; babasının taşeron işlerinde boya badana ustalığı yapan imam hatip mezunu, yayınlanmamış bine yakın şiiri ve romanı olan 22 yaşında bir gençten söz ediyoruz. İsmi Adem Korkmaz. 11 yaşından beri şiir yazıyor. Dergi çıkartmak hayali olmuş ve Türkiye’de kendisi gibi bazı idealleri olan kişilerin olduğu inancıyla bu ilanı vermiş. İlana cevap veren her kişinin peşine düşmüş. “İlan vermekten insanlara güven vermek daha zordu” diyor dergileşme aşamasını kasdederek..
+   <br>
+    <br>
+     55’iyle olmasa bile 25’iyle Sefaköy’de dergi çalışmaları için arasıra bir araya geldikleri bir mekanda buluştuk. Haberi yazarken bile hayret duygularını kamçılayan bir görüntüydü orada olan; hiç birbirini tanımayan, kendi hallerinde yazan çizen liseli, üniversiteli gençler gayet uyumlu bir çalışma içinde bir dergi çıkartıyorlar. Bu çalışmada yer alan lise öğrencilerinin bile ne kadar yazmaya karşı ilgili oldukları, her birinin yayınlanmış yayınlanmamış bir iki kitabı olmasından anlaşılıyordu. Üstelik gençler şimdiye kadar çıkan dergilerin düştükleri hatalara düşmemek için, çıkan her sayıda daha iyi bir ifade ve daha iyi bir görsel tasarım yakalamak için sık sık bir araya gelip tartışıyorlar. Sözgelimi bütün dizgisi ve tasarımı ‘matbaa’da yapılan ilk sayıya karşılık, ikinci sayıdan itibaren dergi genç bir tasarımcıya emanet edilecekmiş.
+     <br>
+      <br>
+       İlanla kurulan dergi
+       <br/>
+       <br/>
+       “İlk toplantıya geldiğimde 50 kişiyi görünce acaba bunlar daha önce tanışıyorlar mı diye düşündüm. Salona girdiğimde herkes birbiriyle konuşuyordu. Ben de oturup konuşmaya başlayınca, sanki ben de yıllarca o kişilerle tanışıyormuş gibi oldum. Sıcak bir ortam ve samimiyet vardı” diyor lise öğrencisi Seyfullah Arslan. Seyfullah, şiirlerini ve romanlarını yayınlamak için çok çaba sarfetmiş ama gazetedeki ilanla karşılaşması “yaz tatilini değerlendirmek” için gazetenin seri ilan sayfasını tararken olmuş. Kübra Avcı da Seyfullah gibi bir lise öğrencisi ve o da yaz ayını değerlendirebileceği “dış görünüşüne, kafa yapısına uygun” bir iş ararken bu ilana rastlıyor. “Beni teşvik eden bir ilandı. Zaten yazan bir insanım.” İki çocuk annesi Gülsüm Bay bir kaç yıldır sosyal faaliyetlere katılmaya, kendisini geliştirmeye çalıştığını, bir annenin çocuklarından geri kalmaması gerektiğini düşündüğü için bu çalışmaya katıldığını söylüyor. Murat Cahitkuvvet, ilanı ilk gördüğünde “herhalde gırgır geçiliyor” diye mesaj çekmiş. “Mesajıma cevap geldi ve kendimi Hicran dergisinin içinde buldum” diyor. Derginin en genç çalışanlarından biri olarak tanıtılan aynı zamanda derginin tek ‘emekli’ mensubu Muammer Derin, gazeteye verdiği kiralık dükkan ilanının çıkıp çıkmadığını kontrol etmek için seri ilanlara baktığında karşılaşmış bu ilanla. Yasin Onat şiir ve tasavvufla ilgileniyor ve marifetin iltifata tabi olduğuna fazlasıyla inanıyor. “İnsanların beğenisiyle, eleştirisiyle kendimi geliştirebileceğimi düşündüm. Tefekkür ettim ve adım attım” diyor. Daha pek çok hikaye var; ortak olan şey bu ilana cevap veren kişilerin ortak özelliği; ‘yazmaları’.
+       <br/>
+       <br/>
+       Dergi çıkmadan 20’ye yakın toplantı yapmışlar. Düşünceler, hayaller havalarda uçuşmuş. Yani amatörlüğün verdiği havayla her kafadan bir ses çıkmış ilk önceleri. Uzun bir süre nasıl bir dergi çıkartacaklarını tartışmışlar. Zamanla taşlar yerine oturmuş, iş bölümü yapılmış; yayın yönetmeni, yazı işleri müdürü, alan editörlükleri, hatta reklam müdürleri ve halkla ilişkiler müdürleri belirlenerek belli bir çalışma sistematiğine geçmişler. Her ne kadar amatör bir ruhla hareket edilse de gelecekte bu ruhtan taviz vermeksizin profesyonelce bir çalışma içinde olacaklarının mesajlarını veriyorlar. Sözgelimi halkla ilişkiler müdürü iletişim fakültesi mezunu, reklam müdürü üniversite mezunu ve 3 yıllık reklam ve yayın geçmişi var. Yaşları 17 ile 22 dolaylarında dolaşan genç yazarlar ve girişimciler için erken profesyonelleşme içinde oldukları da gözden kaçmıyor...
+       <br/>
+       <br/>
+       Derginin ismi Hicran. Ayrılığı ve hüznü anlatıyor. “Biz Hicran’ı kötülüklerden ayrılma anlamında algıladık” diyor Adem Korkmaz; “İyiliğin bütün gönülleri çepeçevre sarmasına kadar hicran”. Hümeyra Türksoy ise “Bizler hepimiz, içimizde birer ayrılık acısı taşıyoruz. Bu, kimi zaman eski aşklardan ayrı olmayı temsil ediyor, kimi zaman yitirdiğimiz değerlerden ayrı olmayı” diyerek aktarıyor Hicran’ın kendisinde uyandırdığı hisleri. Peki başörtüsünden kaynaklanan sorunlar bu Hicran’ın neresinde yer alıyor? “Başörtüsü problemi zaten bu değerlerin kaybolmasından kaynaklanıyor aslında” diyor Hümeyra. Doğrusunu söylemek gerekirse dış görünüşle o kadar ilgili değiller; sadece insanın onurluca hayat sürmesi gerektiğine inanıyorlar.
+       <br/>
+       <br/>
+       “Hayatı tanımadan hayata değer katamayız”
+       <br/>
+       <br/>
+       Hicran dergisini çıkartan yazarlar, her şeyden önce kendilerini ifade etme konusunda farklı açılımlar yapmak istiyorlar. Aslında onların bu istediklerinde hayatı bir ideolojinin doğrultusunda değil de tamamen hayatın içinden bir kişi olarak yaşamalarının etkisi var. “Hayatı tanımadan hayata değer katamayız” diyor Muammer Derin. “Biz inançlarımızı, değerlerimizi hayata yansıtmakta, kendimizi ifade etmekte hep zorluk çektik. Ayetleri üst üste koyduk, bunu tebliğ olarak yansıttık. Biz meselelerimizi farklı bir dilde nasıl anlatabilirizi arıyoruz. Bunun için tartışmalarımız, konuşmalarımız uzun bir süre devam edecek.” Kendilerini “sarı çizmeli mechuller” olarak görüyorlar, Hicran’ı da sesleri duyulmayan sarı çizmeli mechullerin sesi... Niye yazıyorlar? Dile getirilmeyen insani ve toplumsal gerçekleri dürüstçe ve cesurca ifade etmek, aslında toy bir genç edasıyla haykırmak. Genç şair Seyfullah Arslan, yazma ihtiyacını toplumun yozlaşmasından onlara yansıyan kötü durumlara bağlıyor. “Yazmak bunu, bir şekilde dışa vurmak. Biz de yozlaşmaya tepkimizi kalemimizle koyuyoruz.” Muammer Bey Hicran’la yapmak istediklerini şöyle açıklıyor; “İnsan fıtratından olan itirazı kendi değerlerimizle yoğurup bir ortak dille ifade edebilmek. İfade kısırlığından kurtulup bütün içinde farklılığımızı ifade ederek hem de kendi değerlerimizi hayata katarak, kendi inanç ve değerlerimizi bir ortak dille ifade edebilmek.”
+       <br/>
+       <br/>
+       Örtündükten sonra yazıyla tanıştım
+       <br/>
+       <br/>
+       Arzu Tozar da, Dilşat Çakarel de üniversite mezunu ve her ikisi de daha yeni, bir yıldır başörtüsü takıyor. Dilşat, bir ara TRT’de çalışmış ve başörtüsü takmaya karar verdiğinde buradan ayrılmaya karar vermiş. İş bulmakta zorlandığını söylüyor. Başörtülü olarak hayatta karşılaşabileceklerini kabullenmiş. Arzu, ise üç yıl haber spikerliği yapmış ve başörtüsü taktıktan sonra yaşadıkları onda isyan duygusunu ortaya çıkarmış, ardından da isyan duygusunu dile getirme ihtiyacını doğurmuş. “Örtündükten sonra yazmaya başladım. Şu anda Türkiye’de öyle bir gençlik yetişiyor ki; asla düşünmüyor, sadece ilgilendiği alan magazinel dünya. Ben önceden haber spikeriydim. Örtündükten sonra haber spikerliği olanağı da sıfırlandı ama ben açıkken de sıkıntı çekiyordum. Çünkü dürüst insanlar belli noktalara gelemiyorlar. Onun için fedakarlık yapman gerekiyor, onu yapmazsan olmuyor. Bu DJ’lik için bile geçerli. Önceden pek yazıyla alâkam yoktu. Çünkü pek düşünmezdim. Hiç bir şey umurumda değildi. Bu istenilen insan tipine getirilmiştim. Örtündükten sonraki zorluklarla karşılaşınca kendi cahilliğimi hissettim. Okumaya açlığımı hissettim. Ve önceden o kadar çok konuşan bir kişiydim ki şimdi toplum arasında çok fazla konuşmuyorum. Cahil olduğumu, hiç bir şey bilmediğimi biliyorum. Ve isyankâr bir yapı içine büründüm. Önceden böyle değildim. Başörtüsü neden bu kadar zor takılır, bir kız başörtüyü neden bu kadar zor taşıyabilir, zor taşımanın ötesinde onun yaşaması, iş bulması bu kadar engellenebilir anlayamıyorum.”
+       <br/>
+       <br/>
+       Dini kitap okuyor, Tarkan, Haluk Levent
+       <br/>
+       <br/>
+       dinliyor...
+       <br/>
+       <br/>
+       İslami kimliğe sahip oldukları bir gerçek olan Hicran’ın genç kadrosunun ilgi alanları çok farklılık arzediyor. Sözgelimi Dilşat dini kitaplar okumaktan hoşlanırken en beğendiği sanatçının Tarkan olduğunu ve her hafta sinemaya gittiğini söylüyor. “Başörtüsü takmam beni hiçbir sosyal etkinlikten alıkoyamaz” diye de ekliyor. Hicran gençlerinin hit sanatçısı isyan ruhunu da besleyen rock müziği ve ülkemizdeki temsilcisi Haluk Levent. Reklam Müdürü Arzu, metal müzikten hoşlananlardan. “Onlar nirvenaya ulaşmayı amaçlıyor biz de Allah inancına” yorumunu yapıyor. Süheyla Taşdemir de pek çok arkadaşı gibi dergide farklı düşüncelerin yer almasını istiyor, eğer bu mümkün olmazsa evrenselliği yakalamak mümkün değil ona göre. “Dergide farklı düşüncelere yer ayrılmalı ki farklı düşünen kişiler kendilerine bir yer bulabilsinler” diye düşünüyor. Geleneksel kaynakları okuduğu gibi Jack London’ı da okuduğunu söylüyor Süheyla. Kübra Avcı da, Haluk Levent dinliyor, Yılmaz Erdoğan’ın şiirlerini okuyor, Bilim Teknik ve Sızıntı okuyor. Farklı görüşleri dinlersem, farklı kitapları okursam acaba fikrim değişir mi gibi bir korkunun da insanın zaten kendi düşüncesine olan güvensizliğini gösterdiğini söyleyen Gülsüm Bay, çok farklı kaynaklardan beslendiğini söylüyor. “ Bir zamanlar genelde dini ağırlıklı kitapları, dergileri ve gazeteleri okuyordum. Yabancı müzik dinleme, rock müzik dinleme gibi mesajlar alıyordum. Devamlı aynı yazarları ve aynı düşüncedeki kitapları okudukça aynı yerde kalıyorsunuz. Zamanla farklı yazarları ve kitapları okuma ihtiyacı ortaya çıkıyor. Bu ihtiyacı gidermediğiniz zaman gelişime ve insanlara ayak uyduramıyorsunuz belki. Şiir çok okurum. Pablo Neruda’dan, İsmet Özel’e yerli yabancı, solcu sağcı, pek çok şairi okuyorum ve bunların da okunması gerektiğini düşünüyorum.”
+       <br/>
+       <br/>
+       Hicran gençleri bunları söylüyor. Büyüklerinin oluşturduğu dünyada kendilerini ifade edebilecekleri bir alan oluşturmaya çalışıyorlar. Ve o kadar hayatın içindeler ki...
+       <br/>
+       <br/>
+       m.ozturk@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12877), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161057/http://www.aksiyon.com.tr:80/detay.php?id=12877)

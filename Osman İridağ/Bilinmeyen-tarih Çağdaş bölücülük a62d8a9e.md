@@ -1,0 +1,112 @@
+# Çağdaş bölücülük
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214647im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214647im_/http://www.aksiyon.com.tr/resim/334/36.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Bölge, ırk, sosyal sınıf, din ve mezhep esasına veya adına dayanarak faaliyette bulundukları tesbit edilmiştir.” Cümle bu.  Peki bu cümle kim(ler) için söylenmiş olabilir?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ne PKK sempatizanı, ne de Güneydoğu kökenli bir dernek bu? Bilemediniz, İslamcı da değil. 2. Cumhuriyetçi? Hayır... Bir insan hakları örgütü, devlet muhalifi bir dernek? Onlar da değil. 1. Cumhuriyeti sonuna kadar destekleyen, önce devlet sonra demokratik haklar diyen, Türkiye’nin kendine özgü koşulları nedeniyle insan hakları ihlallerini daha az gören, devletin âli menfaatleri için bireylerin din ve vicdan özgürlüğüne sınırlama getirilebileceğini düşünen ve kamu yararına faaliyet gösterdiğini söyleyen bir dernek. Adı ÇYDD. Yani Çağdaş Yaşamı Destekleme Derneği. Evet, İstanbul Valisi Erol Çakır’ın oluru ile İstanbul Emniyet Müdürlüğü, İl Defterdarlık ve Vergi Dairesi görevlilerinden oluşan bir ekip tarafından denetlenen ÇYDD, toplam 18 ayrı nedenden dolayı kusurlu görülmüş ve Beyoğlu Cumhuriyet Başsavcılığı’na suç duyurusunda bulunulmuş.
+   <br>
+    <br>
+     Kuruluş amacında Kemalizm, Atatürk İlke ve Devrimleri ile gerçekleşmiş olan hakların korunması, geliştirilmesi, yaygınlaştırılması ve çağdaş eğitim yolu ile çağdaş topluma ulaşmayı hedeflediklerini belirten ÇYDD, çok genel ifadeyle “bölücülük” ile itham ediliyor.
+     <br>
+      <br>
+       Buraya dikkat; itham ediliyor, öyledir demiyoruz. Çünkü mahkeme, daha böyle bir karar vermiş değil. Dolayısıyla ÇYDD’nin yaptığı gibi, kişi ve kurumları hemen bölücülük yapmakla suçlamak yerine, hakkında böyle iddialar var demeyi tercih ediyoruz. Çünkü hukuk sadece güçsüzler için gerekmiyor, güçlülere de hukuk şart.
+       <br/>
+       <br/>
+       ÇYDD’nin hukuk konusundaki karnesinin çok iyi olduğunu söylemek oldukça zor. Demokratik talepler, din ve vicdan özgürlüğü ve, bireysel tercihlerin ortak bir adı oldu hep; “gericilik.” Ve bu taleplerde bulunan kurumlarla ilgili en küçük bir iddia, sanki gerçekmiş gibi propaganda malzemesi olarak kullanıldı. Gün geldi aynı duruma onlar düştü. Üstelik de ‘Sen de mi Brütüs’ dedirtecek ölçüde. Devletin bölünmez bütünlüğüne en çok sahip çıkan bu dernek şimdi; bölge, ırk, sosyal sınıf, mezhep ayrımcılığı yapmakla suçlanıyor. Yine suçlandı diyoruz, çünkü henüz mahkeme başlamadı. Savcılık, Beyoğlu 5. Asliye Hukuk Mahkemesi’nde yöneticiler için dava açtı. Dolayısıyla bütün delillere rağmen ÇYDD hâlâ suçsuz. Hukuk öyle diyor. Bu kural, hukuku ihlâl etmekte hiç sakınca görmeyenler için de geçerli.
+       <br/>
+       <br/>
+       Şikâyet üzerine inceleme
+       <br/>
+       <br/>
+       İstanbul Emniyet Müdürlüğü’ne, isimleri belirli altı kişinin yaptığı şikayet üzerine Emniyet, STK (Sivil toplum Kuruluşları Birliği) ile birliğin yöneticileri konumunda bulunan Çağdaş Eğitim Vakfı Başkanı Gülseven Yaşer, Çağdaş Yaşamı Destekleme Derneği Başkanı Türkan Saylan, Atatürkçü Düşünce Derneği yöneticilerinden İlhan Baş, Dayanışma Derneği Başkanı Bülent Berkarda, Demokratik İlkeler Derneği Başkanı Engin Yurddaş, Eymen Sezerman ve 68’liler Vakfı Başkanı Haşmet Atahan için yapılan şikayetler üzerine inceleme başlatmış. Valilik oluruyla gerçekleştirilen denetim sonucunda ÇYDD için suç duyurusunda bulunulmuş. İşte geçtiğimiz hafta Milliyet gazetesinde, “komplo” olarak değerlendirilen ancak içeriği es geçilen rapor. Ve aşağıda okuyacağınız bütün iddialar valilik oluruyla hazırlanan raporda belirtiliyor.
+       <br/>
+       <br/>
+       STK yasal değil mi?
+       <br/>
+       <br/>
+       Dernekler Kanunu’nda derneklerin diğer derneklerle hangi şartlarda biraraya geleceği düzenlenmiş. Ancak STK’ya üye olan ÇYDD, bu kanunlarda öngörülen düzenlemeleri yerine getirmemiş. Raporda bu ilişkinin yasal olmadığı şöyle belirtiliyor; “Dernekler Kanunu’nun 37. maddesinde, ‘Dernekler tüzüklerinde gösterilen amaç ve bu amacı gerçekleştirmek üzere sürdürüleceği belirtilen çalışma konuları ve biçimleri dışında faaliyette bulunamazlar’ hükmünün kendilerine bildirilmesine rağmen STKB ile işbirliğine devam etmişlerdir.”
+       <br/>
+       <br/>
+       Gayrimenkullerin akıbeti meçhul
+       <br/>
+       <br/>
+       Dernekler Kanunu’nun 64. maddesi, satın alınan veya bağış ve vasiyet yoluyla derneklere intikal eden taşınmaz malların, tapuya tescilinden itibaren üç ay içinde İçişleri Bakanlığı’na bildirilmesi zorunludur diyor. İşte ÇYDD bunu da yapmamış ve dernek kullanımında bulunan sekiz gayrimenkulün sadece üçü için bu işlem gerçekleştirilmiş. Beş gayrimenkul hakkında bildirim yapılmadığı için, gayrimenkullerin ihtiyaç fazlası olup olmadığı bilinmiyor.
+       <br/>
+       <br/>
+       Yurt dışından izinsiz gelen paralar
+       <br/>
+       <br/>
+       Raporda, derneğin yurt içinde açtırmış olduğu banka hesap numaralarına, yurt dışından da yüklü miktarlarda yardım yapıldığı, ancak sözkonusu bağışların İçişleri Bakanlığı’nın izni olmadan gerçekleştirilerek, Dernekler Kanunu’nun 60. maddesinin ihlal edildiği belirtiliyor. İlginç olan, ÇYDD yıllardır Anadolu’da kurulan holdinglerin yurt dışından izinsiz para getirdiklerini söylüyordu. Rapordaki iddiaların doğru olmama ihtimali elbette var. Ama Anadolu holdinglerine, ortada böyle resmî bir belge olmadan, aynı suçlamalar fazlasıyla yapıldı.
+       <br/>
+       <br/>
+       Avrupa ÇYDD
+       <br/>
+       <br/>
+       Bu da kaderin bir cilvesi olsa gerek. ÇYDD, yıllardır Avrupa’da yaşayan Türklerin kurdukları dernek ve örgütlere mesafeli yaklaşmayı tercih etmiş, bu kurumları, yurt içinde bazı örgütlerin uzantıları gibi değerlendirmişti. Rapordan öğreniyoruz ki, Türkiye’deki ÇYDD örnek alınarak Avrupa’da da benzeri bir örgütlenme yoluna gidilmiş. İki dernek arasında ilişki kurulabilmesi için Dışışleri Bakanlığı’nın görüşü, İçişleri Bakanlığı’nın önerisi üzerine Bakanlar Kurulu’nun izin vermesi gerekiyor. Ve sıkı durun, yapılan suçlama iki dernek arasındaki ilişkiden devletin resmi yetkililerinin bilgisinin olmadığı şeklinde. Alman ÇYDD, Türkiye’deki ÇYDD ile işbirliği içerisinde olduklarını söylüyor ama, bunun için alınmış bir izin belgesi yok.
+       <br/>
+       <br/>
+       Makbuzlar ve demirbaşlar kayıp
+       <br/>
+       <br/>
+       Üye aidatları düzenli tutulmamış. Toplanan paralar üye aidat defterine düzenli olarak işlenmediği için, aidatların aylık mı, yoksa yıllık mı toplandığı belli değil. Dernek adına alınan demirbaşlarda da sorunlar tesbit edilmiş. Mesela, derneğin Körfez Şubesi tarafından kullanılan Mercedes otomobil hiçbir kayıtta gözükmüyor. Usulsüz makbuzlar kullanılmış, bir çok makbuz hatalı basım olduğu gerekçesiyle iptal edilmiş. Bağışta bulunanların açık kimlikleri düzenli olarak yazılmamış, asıl koçanı olmayan makbuzlar iptal edilmiş. Ayrıca, yönetim kurulu kararınca çeşitli şahıslara sosyal yardım adı altında yapılan ödemelere ilişkin harcama belgeleri, tek tek gösterilmesi gerekirken, gider defterlerine toplu kayıt edilmiş.
+       <br/>
+       <br/>
+       Üç milyarlık market ve çiçek parası
+       <br/>
+       <br/>
+       Raporda, dernek tüzüğünde olmadığı halde amaç dışı olarak 1999 ve 2000 yılı içerisinde, market ve çiçek parası olarak 2.902.651.250 lira usulsüz harcama yapıldığı belirtiliyor. Yine her ay öğrencilere burs verilmesine rağmen, burslarla ilgili yönetim kurulunda alınan kararlarla yapılan ödemelerin birbirini tutmadığı tesbit edilmiş.
+       <br/>
+       <br/>
+       Deprem paraları repoya gitmiş
+       <br/>
+       <br/>
+       Dernek, depremden sonra bölgenin imarına katkıda bulunmak amacıyla kampanya başlatarak para toplamış. Şartlı toplanan paralarla, yine genel kurul kararı olmadan, hisse senedi, tahvil ve bono alınmış. Yine Marmara Depremi için toplanan yardımların 60 milyar lirası Doğu ve Güneydoğu Anadolu’da amaç dışında kullanılmış.
+       <br/>
+       <br/>
+       Kiliselerle işbirliği
+       <br/>
+       <br/>
+       İsmi bizde saklı bir vatandaşın yaptığı bir ihbar ÇYDD’yi oldukça zor durumda bırakacak gibi. Bu vatandaşın İstanbul Emniyet Müdürlüğü’ne yazdığı şikayet dilekçesine göre, Dünya Kiliseler Birliği, Çağdaş Yaşamı Destekleme Derneği aracılığıyla, Doğu ve Güneydoğu Anadolu bölgesindeki yoksul, nitelikli, kimsesiz ve zeki kız öğrencileri seçip burs vererek, Hristiyan dünyasına hizmet edecek bir kadro oluşturup, Hristiyan annesi Reiman Hanım’ın vasiyetini yerine getirmek istiyor.
+       <br/>
+       <br/>
+       Çağdaş bölücülük!
+       <br/>
+       <br/>
+       ÇYDD’nin, Turkcell ile imzaladığı ve Doğu ve Güneydoğu’da 5 bin kız öğrenciye burs verdiği kampanya, derneği bölücü konumuna getirmiş. Bir öğrencinin, bu kampayadan yararlanabilmesi için kız olması, Doğu ve Güneydoğu illerinin birinde yaşaması, ailesinin doğum kontrol metodlarından herhangi biri ile korunması ve imam hatip liseli olmaması gerekiyor. Bu şartlar da, ÇYDD’yi Dernekler Kanunu’nun 5. maddesinin 5. fıkrasında belirtilen “bölge, ırk, sosyal sınıf, din ve mezhep esasına veya adına dayanarak faaliyette bulunan bir dernek” konumuna sokuyor. İlgili kanunlara göre yöneticiler mahkemede altı aydan az olmamak üzere hapis cezası istemiyle yargılanabilecek.
+       <br/>
+       <br/>
+       “İddialar saçma sapan”
+       <br/>
+       <br/>
+       Bu kadar iddia var ve ÇYDD bunlara ne diyor? Bunun için de Dernek başkanı Prof. Dr. Türkan Saylan’ı aradık. Bize bütün gazetelere ve Anadolu Ajansı’na gerekli açıklamalarını yaptıkların söyledi. Bu raporu yayınlıyoruz, söylemek istediğiniz ekstra ne var sorumuzu ise şöyle cevapladı; “Saçma sapan ve uydurma iddialar.”
+       <br/>
+       <br/>
+       Peki bu kadar sözün anlamı ne? Demokrasinin, ne olursa olsun işlediği bir sistemde belki de yukarıda saydıklarımızın pek çoğunda ciddi bir suç unsuru olmayacaktı. Ama ÇYDD’nin bugüne kadar olmazsa olmazları arasında yer alan değerlerine göre, dernek yöneticileri hapis cezaları gerektirecek suçlar işlemiş. Şimdi karar, yüce Türk adaletinde. İtham etmiyor, suçlamıyoruz.... Sadece küçücük bir hatırlatma. ÇYDD geçtiğimiz günlerde Merkez Bankası eski Başkanı Gazi Erçel’in parasını, ‘ÇYDD böyle bir parayı kabul edemez’ gerekçesiyle reddetmişti.
+       <br/>
+       <br/>
+       osmaniridag@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13104), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214647/http://www.aksiyon.com.tr:80/detay.php?id=13104)

@@ -1,0 +1,94 @@
+# Hadi beraber düşünelim!
+
+*Fatma Şenadlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050328083720im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050328083720im_/http://www.aksiyon.com.tr/resim/498/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Psikolojiye yeni bir rakip doğuyor. Türkiye"nin ilk Felsefi Danışmanı Harun Sungurlu, insanların "Ben kimim?" sorusunun cevabını bulmasına yardımcı olduğunu söylüyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   "Modern çağ" insanının onca kolay ve rahat yaşam şartlarına rağmen  hâlâ birçok arayışın içine girmesinin sebepleri bir yana, insanı şaşırtan ve ilgi çeken metotlar da var. Bunlardan en ilginci felsefi danışmanlık olsa gerek. Türkiye"nin ilk ve tek felsefi danışmanı Harun Sungurlu, ODTÜ felsefe bölümü mezunu. Yaptığı işin ne olduğunu söyleyebilmek ilk etapta o kadar kolay değil. Zaten 1981 yılından beri var olan bu alanla ilgilenen kişi sayısı bile dünyada sadece iki yüz civarında. Harun Sungurlu"ya göre felsefe "filozofların fildişi kulelerinden çıkıp, dağarcıklarındakileri halkın istifadesine sunmaları" ile pratik hayatımıza girecek. Harun Sungurlu"nun felsefeyi pratiğe uygulama süreci, lise yıllarına denk düşüyor. Lise sona kadar dikkatini çekmeyen felsefe dersi, bir anda bütün hayatını kapsayacak noktaya geliyor. Felsefe öğretmenini diğer insanlardan çok farklı, erdemli, ahlaklı ve güzel bir insan olarak gördüğünden onun etkisiyle felsefeye ilgisi artıyor.
+   <br>
+    <br>
+     Üniversite eğitiminden sonra felsefe ile maddi sebeplerden dolayı iştigal edemese de 1998 yılında dünyada "felsefi danışmanlık" adında bir alanın varlığından haberdar oluyor. Bu bilgiden sonra dünyadaki mevcut bütün felsefi danışmanlık eğitimlerini alıyor. Sungurlu ile Türk halkının felsefi sorunları üzerine konuştuk.
+     <br>
+      <br>
+       -"Felsefeyi pratik hayata uygulama" olarak tanımladığınız terapi şekli ile insanlara vermeye çalıştığınız şey nedir? Felsefe ile terapi bağını nasıl kuruyorsunuz?
+       <br>
+        <br>
+         Ben psikanalist değilim. İnsanlara ne ilaç veriyorum ne de geçmişine dönüp hayatını irdeliyorum. Benim yaptığım şey bir insanın hayatı, davranışları, inanç ve değer dünyası üzerine düşünmek ve müşterinin sistematik bir şekilde düşünmesini sağlamak. Psikolojik sorunların çoğunun altında felsefi sorunlar yatıyor. Hayat yanlış yaşandıkça, bunlar psikolojik sorunlar haline dönüşüyor.
+         <br>
+          <br/>
+          -Bahsettiğiniz felsefi sorunlar nelerdir?
+          <br/>
+          <br/>
+          Bir kere hayatı nasıl yaşamanız gerektiğini, hayatı neyin anlamlı kıldığını düşünmelisiniz. Yoksa kaybolmuş hissedersiniz kendinizi. İşte biz insanlara, bu sorunları karşısında cevap olabilecek seçenekleri gösteriyoruz; ama sonuç itibariyle bu tercihleri kendiniz yaparsınız.
+          <br/>
+          <br/>
+          -Psikanalist ile aranızdaki fark nedir?
+          <br/>
+          <br/>
+          Bu uğraşın kendisi felsefi bir kere. Onlar duyguların bozukluklarıyla ilgilenirler. Felsefi danışman ise insanın duygu dünyasının dışında değer ve inanç dünyasıyla uğraşır. Ama duygular da felsefenin geniş resminin içerisinde. Çünkü duygular da bilgi taşıyor.
+          <br/>
+          <br/>
+          -İnsanlar size hangi şikayetlerle başvuruyor? Nereye, ne için geldiklerini gerçekten biliyorlar mı?
+          <br/>
+          <br/>
+          Bazıları biliyor, bazıları bilmiyor. Mesela bazılarıyla mutluluk üzerine düşünüyoruz. Yani mutluluk nedir? Felsefe tarihinde ileri sürülmüş çeşitli mutluluk reçeteleri, tanımları üzerinde düşünüyoruz.
+          <br/>
+          <br/>
+          -Psikolojik bozuklukları olanlar da geliyor mı? Onlar için ne yapıyorsunuz?
+          <br/>
+          <br/>
+          Bir felsefi danışmanın verdiğini ne sadece psikolog verebilir ne de psikoloğun verdiğini sadece felsefi danışman verebilir. Ama ikisinin birlikte çalışması mümkün olabilir.
+          <br/>
+          <br/>
+          -Genel olarak Türk insanının cevaplarını aradığı felsefi sorular nelerdir?
+          <br/>
+          <br/>
+          En temeldeki sorun anlamsızlık. İnsanlar neyi ne için yaptıklarını tam olarak bilmiyor. Profesyonel hayatlarında da bu durum söz konusu. Aradan belli bir süre geçtikten sonra niye yaşadığını fark edemeyebiliyorlar.
+          <br/>
+          <br/>
+          -Nasıl bir uygulama yapıyorsunuz?
+          <br/>
+          <br/>
+          Benim burada yapmaya çalıştığım şey insanların kendilerini tanımasını ve hayatlarını iyi yaşamalarını sağlamak. İnsanların söze dökülmemiş bir dünya görüşü vardır. Dünya görüşünü söze dökmeye çalışıyoruz. Bu noktada insanların zihinlerinde soru işaretleri bırakmaya çalışıyorum. Birinci adım kendi sorularını doğru formüle etmeleri. Bu soruların birçok cevabı var ama bu cevaplar arasında doğru cevabı bulma yöntemini kimse size sunmuyor. Seçenekleri birlikte belirliyoruz.
+          <br/>
+          <br/>
+          -Son yıllarda Yoga vb. birçok yöntem popüler olmaya başladı. İnsanların bu arayış içinde olmasını neye bağlıyorsunuz? Neden, var olan değerleri değiştirme yolu tercih ediliyor?
+          <br/>
+          <br/>
+          Bu ilk başta Batıda ortaya çıktı, "yeni çağ" adıyla. Modern insan karşılaştığı yeni sorunlarla baş edebilmek için nerede çözüm olabilecek kaynaklar varsa oraya yöneldi. Batıda yirmi-yirmi beş yıldır yaygınlaştı. Türkiye"de de yeni yeni moda olmaya başladı bu yogalar, ruhsal arayışlar. Çünkü modern insanın ruhsal bir arayışı var. "Yeni çağ" arayışlarının kökeninde de insanın hayatta karşılaştığı anlamsızlık sorunu yatıyor. Batı toplumunda din etkisini yavaş yavaş yitiriyor. Buna paralel olarak dünyanın her yerinde seküler hayat yaşamaya başladı insanlar ve "ne için" yaşadığı sorunu ile karşı karşıya kaldı. Dünyevileşen, mantığın, maddenin hakim olduğu bir ortamda yaşıyorsunuz. Bundan kurtulmak isteyenler de Hindistan ve Doğu kökenli yogalarla, meditasyonlarla eksiklerini tamamlamaya çalışıyor. Doğunun tercih edilmesinin sebebi, çok köklü bir geleneğin olması. Aynısı bizim için de geçerli; bizdeki mutasavvıflık geleneği, sofizm... Mesela meditasyon, bir nevi bilinci boşaltmadır. Bunun bizim kültürümüzde karşılığı tefekkürdür. Gelenekler temelde benzerlik taşıyor. Batı dünyası rasyonel uygarlık anlamında ileride olabilir ama manevi anlamda İslam dünyası, Çin, Hindistan gibi ülkeler çok şey verebilir dünyaya. Ama onlar da almaya çalışıyor. Ne gariptir ki rasyonelleştikçe, irrasyonelliğe, mantık dışılığa yani doğru manevi değerlere karşı bir arayış var. Buna, insanların kendi özlerini bulma çabası da denebilir.
+          <br/>
+          <br/>
+          Modern insan tatminsiz
+          <br/>
+          <br/>
+          -İrrasyonellikten kastınız nedir?
+          <br/>
+          <br/>
+          Bana sorarsanız bunlar bir nevi dinsel arayışlardır. Ya da manevi boşluğu doldurma arayışları. Dinler belli zaten, ama meditasyona, yogaya yönelmelerin sebebi dinlerin ya tam yaşanmıyor oluşundan, yani oradaki eksiği bu yolla tamamlama çabalarından ya da dinlerin yetersizliğinden kaynaklanıyor. Bir tatminsizlik var modern insanda. O kadar maddi değerler uğruna yaşıyoruz ki hayat belli bir süre sonra çok yaşanılası gelmiyor insanlara. Çünkü göz ardı edilen bir manevi dünyamız var. Mesela öğrencisiniz, üniversiteyi bitiriyorsunuz sonra da bir işin içinde buluyorsunuz kendinizi. Üç-beş kuruş kazanıyorsunuz. Sonra soruyorsunuz kendinize "Hayat bu muydu, her şey bunun için mi?" diye.
+          <br/>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11615&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050328083720/http://www.aksiyon.com.tr:80/detay.php?id=11615&yorum_id=1)

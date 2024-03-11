@@ -1,0 +1,184 @@
+# En az konuşan ajanım
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214655im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214655im_/http://www.aksiyon.com.tr/resim/334/29.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Nihayet ben de görüştüm. Gazetecilik yapıp da onunla görüşmemiş olmak büyük bir eksiklikti. Sekiz yıl sonra da olsa (Kişisel gazetecilik tarihim boyunca yani. Fena bir cümle de olmadı ha.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sahi ben de mi yazar olsam. Sonra siz de bana mektup yazıp, hep aynı şeyleri yazıyorsun diye eleştirseniz. Ben de köşemde bunları cevaplasam ve dergiyi her hafta aynı kişiler okumuyor ki desem. Tamam çok uzattım, parantezi kapatıyorum ama yayın yönetmenim bunu ciddiye alsa fena olmaz) benim de yolum ‘Bir Kelime Bir Hayat’ için Mahir Kaynak ile kesişti. Bu kadar konuşan bir adamdan ne çıkacak diyenler olabilir. İtiraf edeyim ben de öyle düşünmedim değil. Ama çıkıyormuş işte. Meğerse o, çok konuşarak hiçbir şey söylemeyen emekli bir istihbaratçıymış... Ve daha açıklamadığı sırları varmış, hem de pek çok.
+   <br>
+    <br>
+     Geri itildiğimin farkındayım
+     <br>
+      <br>
+       -Mahir Bey yıllardır konuşuyorsunuz, hâlâ yorulmadınız mı?
+       <br/>
+       <br/>
+       Hayır, hatta daha fazla konuşma imkanım olsa, bunu da kullanacağımı zannediyorum. Söyleyeceğim şeyler var çünkü.
+       <br/>
+       <br/>
+       -Bu kadar çok konuşan birinin daha söyleyecek neleri olabilir ki?
+       <br/>
+       <br/>
+       Birinin konuşması, ancak bazı insanların konuşmasını istemelerine bağlıdır. Eğer talep olmasa, konuşma şansım olmazdı. Aşağı yukarı otuz yıldır kamuoyunun gündemindeyim, bu kadar kalmak da kolay değil. Bir sürü insan geldi, saman alevi gibi gelip toplumu meşgul ettiler. Sonra da çekip gittiler. Benimki aşağıda ve düzgün bir seyir halinde devam ediyor.
+       <br/>
+       <br/>
+       -Neden aşağıda?
+       <br/>
+       <br/>
+       Eğer, bir çok insanın ön plana çıkarılması için gösterilen gayretin birazı bana sarfedilse, flaş bir isim haline gelecektim. Hatta engellenmesem, daha iyi bir konumda olabilirdim. Geri itildiğimin farkındayım. Kimse düşüncelerimi eleştirmedi, ancak daha fazla konuşmam hoş karşılanmadı. Beni yok saymak daha uygun geldi birtakım insanlara.
+       <br/>
+       <br/>
+       -Bu insanlar otuz yıl boyunca sürekli iktidarda mıydı? Sizi sevenler hiç mi iktidara gelip, önünüzü açmadı?
+       <br/>
+       <br/>
+       Hemen hemen olmadı diyebilirim. Farklı grupların öne çıktığı, etkin olduğu dönemler oldu. Ama ben bunlardan hiçbirine cazip gelmedim. İyi ilişkiler kurduğum insanlar, zamanla olumsuz tavırlar sergiledi. Benim çizgim muntazam ve tutarlı. Bunların beğenildiği zamanlar oluyor. Ama onlarla yanyana geldikten bir süre sonra bakıyorum, beni itiyorlar.
+       <br/>
+       <br/>
+       -Herkesin muhalif olduğu, yok saydığı bir ismin bütün bunlara rağmen hâlâ var olması ilginç değil mi?
+       <br/>
+       <br/>
+       Bütün hayatımı öğrenmeye ve öğrendiklerimi insanlarla paylaşmaya adadım. Herhangi bir art niyet ve çıkar uğruna hareket etmiyor, kimsenin sözcülüğünü yapmıyorum. Ve bunun kamuoyu açısından doğru anlaşılması için de bütün maddi ilişkilerimi kestim.
+       <br/>
+       <br/>
+       -İstihbarat anlamında mahir bir kaynaksınız yani?
+       <br/>
+       <br/>
+       Evet, öyleyim. Yanlışlar yapmışımdır ama çok ciddi hatalara düşmedim.
+       <br/>
+       <br/>
+       Önce karar verir, sonra içini doldururum
+       <br/>
+       <br/>
+       -Otuz yıldır istihbaratın dışında ama herşeyi doğruya yakın bildiğiniz iddiasındasınız. Bilgi nerden geliyor, ya da kendinizi nasıl besliyorsunuz?
+       <br/>
+       <br/>
+       Hiçbir somut bilgiye sahip değilim. Ortada dolaşan bilgilerden hareketle yorum yapıyorum. Eğer bir politika ya da operasyon var ise bunun tezahürleri olur. Bu tezahürlerden, olayın arkasındaki niyetleri algılamaya çalışırım. Kendi kendime bir metod icat ettim. İnsanlar der ki, x’leri bulursak y’yi çözeriz. Verileri biliriz buradan sonuçlara varırız. Ben de diyorum ki, buna gerek yok. Eğer sonucu biliyorsam, onu besleyen verilere ulaşabilirim.
+       <br/>
+       <br/>
+       -Önce bir olayın ne olduğunun adını koyuyorsunuz sonra da bu tezinizin altını dolduracak nedenlere ulaşıyorsunuz, öyle mi?
+       <br/>
+       <br/>
+       Evet sonuçları biliyorsam, onun altındaki gerekçeleri bulurum. Bu da benim hünerim. Eğer bir politika sadece konuşulmuş ve de hiçbir uygulaması olmamışsa, zeten o politika yok demektir. Ama bir politika var ise, bunun tezahürleri olacaktır ve ben bunu yakalarsam arkasını getiririm.
+       <br/>
+       <br/>
+       -Yanıldığınızı gördüğünüz zaman bunu kendinize itiraf eder misiniz? Yoksa bizim işimiz bu, herkes yanılabilir deyip geçer misiniz?
+       <br/>
+       <br/>
+       Yanılgılarım iki sebepten kaynaklanıyor. Birincisi, ben bütün insanların rasyonel hareket ettiğini farzediyorum. Falcı olsaydım geleceği okurdum. Olmadığım için diyorum ki, bu veriler karşısında rasyonel bir adam şöyle davranır. Ya kişi rasyonel davranmıyor, ya da onun rasyoneli benimkinden farklı oluyor. Mesela ben Körfez Krizi yaşanmadan ABD’nin Irak’taki rejimi devireceğini tahmin etmiştim. Ama savaş yaptı. İstikameti tayin edebiliyorum, fakat sonucu bilemem.
+       <br/>
+       <br/>
+       -Falcılar da emarelere bakıp gelecekle ilgili tahminlerde bulunuyor, istihbaratçılar da. Bu anlamda bir benzeşme yok mu?
+       <br/>
+       <br/>
+       Var tabii. Benim işim geleceği tahmin etmek. İstihbaratçılarla aramdaki birinci ihtilaf bu. Ben diyorum ki, siz geleceği tahmin edeceksiniz, olan biteni araştırmak, anlamak, ancak olacakları tahminde faydalı oluyorsa bir anlam ifade eder. Sürekli verileri araştırarak bir yere varamazsınız. Önceden bilmek gerekir. Çok evvelden beri Türkiye’nin ekonomik anlamda uzun süreli operasyona hazırlandığını ve 1980 darbesinin nedeninin bu olduğunu söyledim. Bunlar analize dayanır.
+       <br/>
+       <br/>
+       Bana metres muamelesi yapılıyor
+       <br/>
+       <br/>
+       -İstihbarat, provokasyon, eylem, casusluk denince akla gelen ilk isimlerden biri olmanızın nedeni nedir?
+       <br/>
+       <br/>
+       Yaptığım analizler genelde doğru çıkıyor. Çok kişi soruyor ama az insan atıfta bulunarak yazıyor. Bugün kamuoyunda çıkan beyanatlarım, aslında konuştuklarımın çok küçük bir kısmıdır. Hoşgörünüze sığınarak bir benzetme yaparsam, siyasetçiler ve medya benimle metres hayatı yaşarlar. Kapalı kapılar ardında çok severler ama, kollarına takıp dışarı çıkarmazlar.
+       <br/>
+       <br/>
+       -Belki de çok konuştuğunuz için inandırıcılığınızı yitirdiğinizi düşünüyorlar?
+       <br/>
+       <br/>
+       Olabilir. Benim bir sınırlamam yok. Birisi telefon açar, filan gazetedenim der. Bu gazete mevcut bile olmayabilir. Sormam, araştırmam. Çünkü benim düşüncelerim herkese açıktır. Soranın bir yabancı istihbarat servisi olması, hasım olması da farketmez. Söylediklerim sır değil, insan beyninin ürünleridir. Zaten şimdi alanım epey daraldı. Büyük medya ile herhangi bir ilişkim kalmadı. Andıç olayına kadar diğer televizyonlara da çıkıyordum. Mesela Aktüel Dergisinde haftalık yazılarım vardı, Andıç’tan sonra o yol da kapandı. Çok dar bir alanda konuştuğum için artık şikayet etmemeleri gerekir.
+       <br/>
+       <br/>
+       Artık normal olamam
+       <br/>
+       <br/>
+       -Normal bir insandan farklı mıdır yaşantınız? Sokakta, markette, evde ajanlar daha mı farklı davranır?
+       <br/>
+       <br/>
+       Kendi adıma o anlamda diğer insanlardan farklı değilim. Ama bir istihbaratçı normal hayat yaşayamaz. Bu bizden değil, dışarının bize bakışından kaynaklanır. Çevre ve toplum, bize normal bir insan yaşantısını çok görür. Hiçbir zaman buna izin vermezler.
+       <br/>
+       <br/>
+       -Pişman olduğunuz, keşke sıradan biri olsaydım ve bu kadar çok şeyi bilmeseydim dediğiniz zamanlar oldu mu?
+       <br/>
+       <br/>
+       Normal bir insan gibi yaşasaydım çok daha iyi imkanlara sahip olabileceğimi, çok daha verimli olabileceğimi düşünüyorum. Bu bir kaza gibidir. Bir insan trafik kazasına uğrayıp kolunu bacağını kaybederse, neden böyle oldu diye hayıflanmak yerine, içinde bulunduğu şartlarda mutlu olmayı öğrenmelidir. Ben öğrendim.
+       <br/>
+       <br/>
+       MİT’in en az konuşan adamıyım
+       <br/>
+       <br/>
+       -Türkiye’de devlet adına iş yaptığını söyleyenler, anı yazmaya meraklı değildir. Onlara göre, yaşadıkları kendileriyle beraber mezara gitmelidir. Siz ise tersini yaptınız ve konuştunuz. Neden?
+       <br/>
+       <br/>
+       Herkes bana diyor ki çok konuşuyorsun. Ben Milli İstihbarat Teşkilatı'nın en az konuşan adamıyım. MİT’in saklanması gereken sözleri vardır. Bunlar hakkında kamuoyunun önüne çıkıp da tek kelime söylemeyen adam benim. Ağzımdan kamuoyuna intikal etmiş bir kişinin ismi yoktur. Oysa, onlardan daha fazla adam tanırım. Hiçbir operasyonlarını açıklamadım. İstihbaratın teorik çerçevesini tartışırım. Birtakım analizler yaptım ama oturup da teşkilat hakkında hiç bir bilgi vermedim. Yani bu kadar çok konuşup, hiçbir şey vermemek önemli bir hünerdir, onu da söyleyeyim. MİT’in kendisi söyledi bunları. Kimse beni şikayet etmedi, çünkü hiç sır açıklamam, adetim değildir. Zaten sır saklayan adam hiç konuşmayan adam değildir.
+       <br/>
+       <br/>
+       -Manipüle eden adam mıdır?
+       <br/>
+       <br/>
+       Her şeyi söylediğini zannedersiniz, apaçıktır. Oysa en çok böyle sır saklanır. Herşeyi söylüyor diye başka bir şey aramak akıllarına gelmez. Konuşmayanı ararlar.
+       <br/>
+       <br/>
+       -Hâlâ çok büyük bir sır küpü olduğunuzu mu iddia ediyorsunuz?
+       <br/>
+       <br/>
+       Hiç dedikodu yaptığımı gördünüz mü? Kişi MİT hakkında roman yazıyor. Gittik balık aldık, peynir kuyruğuna girdik falan. Böyle yaparak teşkilat hakkında en büyük sırları ifşa ediyor. Diyor ki, biz aslında istihbarat yapmıyoruz. Kendi teşkilatını övdüğünü, çalışanların herbirinin bir kahraman olduğunu anlattığını düşünüyor. Bunların yasaklanması lazım, çünkü okuyanlar teşkilatın neyle uğraştığını, hangi düzeyde olduğunu görüyor.
+       <br/>
+       <br/>
+       -Sırlarınız sizinle mezara mı gedecek?
+       <br/>
+       <br/>
+       Gerçekten sır olması gereken şeyler mezara gider. Benim söylediklerim operasyonlardır, isim vermem. Operasyonları yazmamın nedeni de Türkiye’nin tarihine ışık tutmaktır. 27 Mayıs, 12 Mart nasıl oldu. 1980’in temelinde ne vardı. Bunların kamuoyu tarafından bilinmesi lazım. Çünkü bunlar öğrenildiği zaman ileride başkalarının yaptığı operasyonları engelleyebiliriz.
+       <br/>
+       <br/>
+       Avrupa-ABD çatışması benimle doğdu
+       <br/>
+       <br/>
+       -Bu kadar medyatik bir bir isim, medya ile tanışma öyküsünü de iyi hatırlar herhalde?
+       <br/>
+       <br/>
+       Birgün Yeni Gündem Gazetesi'nden birisi aradı ve ‘Herkes sizin hakkınızda yazıyor, sizin de elbet söyleyeceğiniz şeyler olabilir’ dedi. 1980’lerin ortaları. O zamana kadar konuşmadım. Gündemde olmam, benim hakkımda yazılan şeylerden kaynaklanıyordu. İlk beyanatım orada çıktı ve bir operasyon olduğunu söyledim. O günden beri devam etti.
+       <br/>
+       <br/>
+       -Size ne sorsalar, sanki Türkiye’nin hiç etkisi yokmuş gibi bütün olayları Avrupa ve ABD arasındaki güç savaşına getiriyorsunuz. Karanlık olayları açıklamak bu kadar basit mi?
+       <br/>
+       <br/>
+       Bu kavramlar benimle doğdu. Benden evvel yoktu. İşte askerler içerde birtakım bozukluklar görürler, onun için darbe yaparlar, ülke uçuruma gider. Bunlar tamamen Batı içi operasyonlardır. Türkiye’nin karşılaştığı problemlerin temelinde bu kavga vardır. Yabancıları yol yapan mühendise benzetiniz. Dağ olursa yokuşlu yol, ova olursa düz yol yaparlar. Yani sizi nazar-ı itibare alırlar. Biz bir dağız ve yolun nasıl yapılması gerektiğini belirleyenler dışarıda.
+       <br/>
+       <br/>
+       -Yani herşey planlı programlı yürüyor. Biz ne yaparsak yapalım bu oyunun dışına çıkamıyoruz?
+       <br/>
+       <br/>
+       Evet. Türkiye’nin tavrı basit bir tavırdır, reflekstir. Yabancılar geliyorsa, tabii ki elini tokat atar gibi sallarsın. Bunu savunma kabul etmek yanlıştır. Reflekslerimizi mukavemet olarak gösteriyor ve yanlış yapıyoruz.
+       <br/>
+       <br/>
+       -Sizin tezinizle bitirelim. ABD ile Avrupa’nın Türkiye üzerine yaptıkları kavgada Avrupa hiç iktidar oldu mu?
+       <br/>
+       <br/>
+       1960 ihtilaliyle Amerika’yı epeyce gerilettiler. 70 ihtilali İngilizler’in tamamen ele geçirme operasyonuydu. Ama Amerika’nın mukavemetiyle karşılaştı ve berabere bitti. 80 büyük ölçüde, çünkü hiçbir zaman yüzde yüz diyemezsiniz, Amerikandır. Son dönemde ABD geriliyor idi, ekonomik operasyonla mevzilerini tekrar almaya başladı. Bunu yaparken de Türkiye’yi sahiplenmek, sömürmek için yapmıyor. Ekonomiyi kontrol ettiği zaman, siyaseti kontrol edeceğini biliyor.
+       <br/>
+       <br/>
+       E-mail osmaniridag@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13106), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214655/http://www.aksiyon.com.tr:80/detay.php?id=13106)

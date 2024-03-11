@@ -1,0 +1,114 @@
+# Bakü-Ceyhan için diyet mi isteniyor?
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050415113937im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050415113937im_/http://aksiyon.com.tr/resim/438/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İsrail, 55 yıldır kapalı olan Musul-Hayfa petrol boru hattının açılması için harekete geçmeye hazırlanıyor. Kerkük-Yumurtalık hattına alternatif olabilecek bu güzergah için İsrail"in Türk inşaat firmalarına teklifte bulunması, Bakü-Ceyhan için destek veren Musevi lobisinin diyet istemesi anlamına mı geliyor?
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İsrail, ABD"nin Irak operasyonu öncesinde ve sırasında sessiz kalmayı başaran nadir ülkelerden biri. Ancak, savaşın sona ermesiyle birlikte İsrail, Ortadoğu"daki varlığını pekiştirecek önemli adımlar atmaya hazırlanıyor şimdilerde... Kuşkusuz bu adımlardan en önemlisi, 55 yıldır kapalı tutulan Musul-Hayfa petrol boru hattının yeniden faaliyete geçmesi için fikir egzersizlerine başlanmış olması.
+   <br>
+    <br>
+     Musul-Hayfa petrol boru hattının tekrar hayata geçirileceğine ilişkin tartışmalar ilk kez ABD"nin Bağdat"a girdiği 9 Nisan 2003 tarihinde İsrail Enerji ve Altyapı Bakanı Josef Paritzky tarafından gündeme getirildi. Paritzky"nin, uzmanlardan sözkonusu hattın durumu ile ilgili bir değerlendirme raporu istediğine ilişkin haberlere ABD Enerji Bakanlığı"nın da benzer çalışmalar yürüttüğü bilgisi eklendi.
+     <br>
+      <br>
+       Dengeleri değiştirebilir
+       <br>
+        <br>
+         Musul"daki petrol yataklarından Hayfa"ya uzanan 591 kilometrelik hat, bölgenin ilk petrol boru hattı güzergâhlarından biri. Musul-Hayfa petrol boru hattını devreye sokma çabalarının sadece bölgesel dengeleri değil, uluslararası dengeleri de değiştirme potansiyeline sahip olduğu belirtiliyor. Irak petrolünün, Basra Körfezi-Süveyş Kanalı güzergâhı üzerinden piyasaya sürülen Suudi petrolünden daha ucuza pazarlanmasını sağlayacak projenin, aynı zamanda bölgenin en hayati sorunlarından biri olan Arap-İsrail çatışmasına barışçıl çözüm bulmak için bir zemin hazırlayacağına dikkat çekiliyor.
+         <br>
+          <br/>
+          Enerji uzmanı Necdet Pamir, Irak"tan başlayıp Suriye topraklarına, oradan da İsrail"in kuzeyindeki Hayfa Limanı"na ulaşan petrol boru hattının "güvenlik" gerekçesiyle uzun süredir kullanılamadığını hatırlatıyor. Petrol ihtiyacının tamamını ithalat yoluyla karşılayan İsrail için bu projenin hayatî önem taşıdığına işaret eden Pamir, "İsrail petrol ithalatı faturasını bu projeyle azaltma imkanına kavuşacak" değerlendirmesinde bulunuyor ve yılda 5 milyon varil ham petrolün Hayfa"ya taşınmasını sağlayacak boru hattının işlemeye başlamasının bölge dengelerini alt üst edecek bir gelişme olduğunu vurguluyor. Necdet Pamir"e göre, Irak petrolünün İsrail üzerinden piyasaya sürülmesi enerji sektöründe küresel dengeyi değiştirecek bir gelişme. Çünkü proje, İsrail"i tanımayan Arap devletleri ve İran"ın egemenliğindeki Basra Körfezi-Süveyş Kanalı hattını devre dışı bırakıyor.
+          <br/>
+          <br/>
+          Kerkük-Yumurtalık"a rakip
+          <br/>
+          <br/>
+          Hattın devreye girmesinin Türkiye"yi de etkileyeceği belirtiliyor. Özellikle, Kerkük-Yumurtalık petrol boru hattının devre dışı kalma ihtimalinin, en azından öncelikli hat olma özelliğini yitirmesinin Türkiye"yi ekonomik olduğu kadar siyasi anlamda da derinden sarsacağı ifade ediliyor. Doğu Akdeniz enerji koridorunun Kerkük-Yumurtalık petrol boru hattından İsrail"e kayması ihtimali Ankara"da yakından ve kaygı ile takip ediliyor. Ancak, Necdet Pamir aynı görüşte değil. Pamir"e göre, Musul-Hayfa projesi Türkiye"yi ilk etapta olumsuz etkilemeyecek.
+          <br/>
+          <br/>
+          Kerkük-Yumurtalık boru hattının yıllık 70 milyon varillik kapasitesinin oldukça altında olan Hayfa güzergâhının gerçekçi olmadığına dikkat çeken Pamir, İsrail"in Yumurtalık"a rakip bir hat için en az 3 milyar dolarlık yeni bir yatırım yapması gerektiğini savunuyor. "Kerkük-Hayfa boru hattı ilk etapta İsrail için prestij ve petrol talebinin ucuza karşılanması anlamına geliyor" diyen Pamir, petrol üretimi olmayan İsrail"in bu hat sayesinde ucuz enerji temin edeceğini, bu ülkenin kısa dönemde Yumurtalık boru hattına rakip olmasının söz konusu olmayacağını vurguluyor.
+          <br/>
+          <br/>
+          İsrail"in meydan okuması
+          <br/>
+          <br/>
+          İsrail"in gündeme getirdiği boru hattı, İngiltere"nin 1930"larda inşa ettiği ikiz boru hattının parçalarından bir tanesi. İngiliz mandası döneminde biri Musul"dan Lübnan"ın Trablus kentine (Trablus-Şam hattı), diğeri Hayfa"ya uzanan (Hayfa hattı) iki boru hattı inşa edildi. 1948 yılında Arap-İsrail savaşları yüzünden sözkonusu hat kullanılamaz hale geldi. 1948"den beri kullanılmayan hattın ABD tarafından 5-6 ay gibi kısa bir sürede faaliyete geçirilebileceği belirtiliyor. "İsrail"in güvenliğini sağlamadığı için kullanılmaz hale gelen bir güzergâhın yeniden açılacak olması ekonomik açıdan ziyade politik ve stratejik anlamlar içeriyor" diyen strateji uzmanı Suat Parlar, boru hattının İsrail"in tüm Ortadoğu ülkelerine bir meydan okuması olarak algılanması gerektiğine işaret ediyor. Parlar, gelişmelerin, İsrail"in "Bu hattın güvenliğini artık ben tek başıma bile sağlayabilirim" iddiasının gün yüzüne çıkması olarak değerlendiriyor.
+          <br/>
+          <br/>
+          Musul-Hayfa Kissinger"ın fikriymiş
+          <br/>
+          <br/>
+          "Hayfa hattı"nın devreye sokulması aslında yeni bir fikir değil. 1980"de Irak-İran savaşı sırasında, İran"ın talebi üzerine Suriye, "Trablus-Şam hattı"nı kapattığında dönemin İsrail Başbakanı İzak Şamir, Irak"a petrolün Hayfa üzerinden ihracını önermişti. Ha"aretz muhabiri Akiva Eldar"a göre, dönemin İsrail Dışişleri Müsteşarı Hanan Bar-On, eski ABD Dışişleri Bakanı Henry Kissinger"ın fikir babası olduğu, Akabe Körfezi"ne açılacak bir Irak-Ürdün hattı görüşmelerine İsrail"in de katıldığını doğruluyor. Dönemin ABD Başkanı Ronald Reagan"ın danışmanı olan günümüzün ABD Savunma Bakanı Rumsfeld de bu görüşmelerde yer almıştı.
+          <br/>
+          <br/>
+          Amerikan istihbarat kaynaklarının The Observer"a yaptıkları açıklamalar da Kissinger ekibinin etkisini ortaya koyuyor. Eski bir CIA görevlisi "Bu boru hattının yeniden açılması, şu anda Bush yönetiminin güçlü kanadını oluşturan ve savaşı yöneten kesimin eskiden beri en büyük düşüydü. Böylelikle hem İsrail"in, hem de ABD"nin enerji ikmali güvence altına alınacaktı" derken ekibin gücünü ve niyetini ortaya koyuyor.
+          <br/>
+          <br/>
+          Ne var ki, projenin hayata geçirilmesi o kadar da kolay değil. Bunun önündeki en temel problem hattın Suriye topraklarından geçiyor olması. Geçmişte hattı kapatan Şam yönetiminin bugünkü konjonktürde de petrol hattının vanasını açması beklenmiyor. Diğer yandan, sözkonusu hattın Suriye üzerinden değil de İsrail ve ABD ile iyi ilişkilere sahip Ürdün"den geçmesi de bir ihtimal olarak ortada duruyor. ABD"nin eski Riyad Büyükelçisi James Akins"e göre, Ürdün"ün geçiş ücretleri alarak bu projeden büyük gelir elde etmesi gayet mümkün.
+          <br/>
+          <br/>
+          Musul petrolünü İsrail"e akıtmak için Washington-Tel Aviv ve Irak"ın müstakbel siyasi yöneticileri arasında görüşmeler yapıldığına ilişkin haberlerde bu konunun ele alınması; iki taraf temsilcilerinin Irak"ta yeni yönetime aday gösterilen Irak Ulusal Kongresi lideri Ahmet Çelebi ile yaptıkları görüşmelerde İsrail"in yeni Irak yönetimi tarafından tanınması halinde Çelebi"ye iktidar vaadinde bulunulduğuna dair iddiaların ayyuka çıkması projenin ne kadar ciddiye alındığını ortaya koyuyor.
+          <br/>
+          <br/>
+          "Türkiye"den Bakü-Ceyhan"ın
+          <br/>
+          <br/>
+          diyeti mi isteniyor"
+          <br/>
+          <br/>
+          Musul-Hayfa hattının tam kapasite ile faaliyete geçirilmesi Türkiye"yi ilk etapta ekonomik açıdan nasıl etkileyecek? Her ne kadar Enerji ve Tabii Kaynaklar Bakanı Hilmi Güler, "Hayfa hattının bizim için tehdit olması söz konusu değil. Bizim boru hattının önemini ortadan kaldırmaz" dese de bakanlığa sunulan bir dizi rapor projenin Türkiye"nin hayati çıkarlarına önemli darbeler vurabileceğini ortaya koyuyor. BOTAŞ tarafından sunulan "Gizli" ibareli bir rapora göre, Musul-Hayfa hattının devreye girmesi ile birlikte Türkiye ilk etapta yılda 200 milyon dolarlık bir zarara uğrayacak. Bir BOTAŞ yetkilisi, Irak petrolünün İsrail üzerinden taşınması konusunda ABD"nin izlediği stratejinin Türkiye"ye yönelik mesajlar içerdiğini dile getiriyor. Aynı yetkili, "ABD, enerji güvenliği ve taşımacılığı konusunda Türkiye"ye rakip çıkarmak istiyor" diyerek önemli bir konunun altını çiziyor.
+          <br/>
+          <br/>
+          Projenin ana hatları ile Washington yönetiminin Ortadoğu haritasına yaklaşımındaki "rejim değişikliği" söyleminin neredeyse bire bir örtüştüğüne işaret eden Bilgi Üniversitesi öğretim üyesi Dr. Ahmet K. Han, Türkiye"nin uzun süredir hayata geçirilmesi için büyük çaba harcadığı Bakü-Ceyhan Boru Hattı"nın ABD yönetiminin "oluru" ile tatlıya bağlandığını hatırlatıyor ve ekliyor: "Tarihin en büyük petrol boru hattı projelerinden biri olan Bakü-Ceyhan projesinin Türkiye lehine sonuçlanmasında ABD"deki Musevi lobisinin büyük rolü olduğunu herkes biliyor. Acaba Türkiye"yi ekonomik ve jeopolitik açıdan rahatlatan bu projeye karşı İsrail bir diyet istiyor olabilir mi?"
+          <br/>
+          <br/>
+          Ahmet Han"ın temas ettiği sorunun cevabını öğrenmek için aradığımız Botaş ve dışişleri bakanlığı yetkilileri iki olay arasında ciddi bir bağ olduğunu doğruluyor. Adının açıklanmasını istemeyen bir dışişleri yetkilisi, İsrail"in Musul-Hayfa hattı için Türk inşaat firmalarına teklifte bulunmasının da belirli bir amaca yönelik olduğunun altını çiziyor. Bakü-Tiflis-Ceyhan Petrol Boru Hattı"nın önemli bir kısmının Türk firmaları tarafından inşa edildiğini hatırlatan yetkili, İsrail tarafının Ankara"nın tepkilerini en aza indirmek ve hattın Türk tarafından meşruiyetini sağlamak için böyle bir öneri sunmuş olabileceğini dile getiriyor.
+          <br/>
+          <br/>
+          ABD"deki İsrail lobisinin kulislerde dile getirdiği "Bakü-Ceyhan sizin, Musul-Hayfa bizim" söylemi hatırlandığında İsrail"in Musul-Hayfa projesi konusunda çok hassas olduğu anlaşılıyor. Irak"ta Saddam rejiminin devrilmesinden sonra Amerikan medyasında yer alan Türkiye"nin jeostratejik öneminin azaldığına dair haberlerden sonra bu kez Kerkük-Yumurtalık hattının arka plana atılması ile jeoekonomik açıdan da zor durumda kalması durumunda Türkiye"nin izleyeceği politika merak ediliyor. AK Parti hükümetinin Suriye ile serbest ticaret anlaşması yapmaya hazırlandığı bir dönemde bir enerji havzasına dönüşmeye başlayacak olan Doğu Akdeniz"de nasıl bir strateji izleyeceğini zaman gösterecek.
+          <br/>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+  <br/>
+  <!---
+//-->
+  <script type="text/javascript">
+   <!--
+google_ad_client = "pub-3424544571203490";
+google_alternate_color = "FFFFFF";
+google_ad_width = 336;
+google_ad_height = 280;
+google_ad_format = "336x280_as";
+google_ad_channel ="";
+google_color_border = "FFFFFF";
+google_color_bg = "FFFFFF";
+google_color_link = "000033";
+google_color_url = "0000FF";
+google_color_text = "000000";
+//-->
+  </script>
+  <script src="http://web.archive.org/web/20050415113937js_/http://pagead2.googlesyndication.com/pagead/show_ads.js" type="text/javascript">
+  </script>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=2520), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050415113937/http://aksiyon.com.tr:80/detay.php?id=2520)

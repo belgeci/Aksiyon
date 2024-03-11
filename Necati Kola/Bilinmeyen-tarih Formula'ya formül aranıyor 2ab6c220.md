@@ -1,0 +1,85 @@
+# Formula’ya formül aranıyor
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005425im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005425im_/http://www.aksiyon.com.tr/resim/385/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Şu anda 16 ülkede düzenlenen Formula 1, Türkiye’nin de gündeminde. Bir taraftan FOA Başkanı ülkemize geliyor, bir taraftan turizmciler pistin Antalya’ya yapılması için bastırıyor, bir taraftan da sigara reklamı nedeniyle sağlık çevreleri Formula 1’e karşı çıkıyor. TOMSFED Başkanı Mümtaz Tahincioğlu ise 2006’dan itibaren Formula 1’de sigara reklamının olmayacağını belirterek bir an evvel kolların sıvanmasını istiyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Dünyada en fazla izlenen ve en çok para kazandıran spor sadece futbol değil. Basketbol ve tenisin yanı sıra Formula 1 de futbol kadar ilgi çekiyor ve başarılı sürücüler yıldız futbolculardan daha fazla para kazanabiliyor. Milyonlarca insan; Pele, Maradona, Hagi, Zidane, Figo, Owen, Beckham, Vieri (futbol), Michael Jordan, Kerim Abdulcabbar, Shaque O’Neil (basketbol), Martina Hingis, Serena Williams, Anna Kournikova, Jennifer Capriati, Andre Agassi, Pete Sampras ve Gustavo Kuerten (tenis) kadar pistlerde fırtına gibi esen Michael Schumacher, David Coulthard, Rubens Barrichello ve Mika Hakkinen’i de tanıyor.
+   <br>
+    <br>
+     Her yarışı 400 milyon kişi izliyor
+     <br>
+      <br>
+       Türkiye’deki tartışmalara geçmeden önce, tam anlamıyla bir sektör haline gelen Formula 1 hakkında biraz bilgi verelim. Dünyanın en fazla ilgi çeken sporlarından biri olan Formula 1, 17 Grand Prix’ten oluşuyor ve sezon martta başlayıp ekimde sona eriyor. Şampiyon, 17 yarışta elde edilen puanların toplanmasından sonra belli oluyor. Organizasyon için otomobil, lastik, petrol ve sigara şirketleri milyonlarca dolar harcarken, ev sahibi ülkeler de büyük gelirler elde ediyor. Mesela, Malezya, 2000 yılında yapılan Kuala Lumpur Grand Prix’inden sonra 170 milyon dolar kâr açıkladı. Diğer ülkelerin açıkladığı kâr bu kadar yüksek olmasa da kazanç ortalama 40—50 milyon dolar civarında.
+       <br/>
+       <br/>
+       Ortalama 150 bin kişinin çıplak gözle izlediği her Formula 1 yarışı, televizyon aracılığıyla birçok ülkede 400 milyona yakın kişi tarafından naklen izleniyor. Özel programları ve haber özetlerini seyredenlerle birlikte bu rakam 50 milyar kişiye ulaşıyor. Formula 1’in sırf televizyon geliri 5 milyar doları, reklam geliri ise 1 milyar doları buluyor. Formula 1’e katılan orta bütçeli bir ekip bile yılda 200 milyon dolar civarında para harcıyor. Bu bütçe, Ferrari ve BMW gibi büyük takımlarda milyar dolarlara yaklaşıyor. 17 ülkede düzenlenen Formula 1’de 11 takım birincilik için mücadele veriyor. Bu takımlara 6 sigara firması sponsorluk yapıyor. Türkiye’de de düzenlenmesi halinde Formula 1’den her yıl en az 30 milyon dolarlık bir gelir sağlanması öngörülüyor.
+       <br/>
+       <br/>
+       Amaç sigara reklamı mı?
+       <br/>
+       <br/>
+       Geçtiğimiz bir ay içerisinde, Türkiye’de Formula 1 düzenlenmesiyle ilgili gündem epey yoğundu. Bir taraftan gerekli altyapı tamamlandığı takdirde Türkiye’nin 2005 takvimine alınacağına dair teminat veriliyor, bir taraftan Formula 1 Düzenleme Kurulu (FOA) Başkanı Bernie Ecclestone ülkemizi ziyaret ediyor, bir taraftan İstanbul, İzmir ve Antalya arasında ev sahipliği için yoğun mücadele yaşanıyor, bir taraftan da sağlık çevreleri sigara reklamı yapılacağı gerekçesiyle organizasyona karşı tepkilerini belirtiyorlardı.
+       <br/>
+       <br/>
+       Bu yoğun gündem içerisinde en büyük tartışma, 1996 yılında yürürlüğe giren sigara reklamı yasağına rağmen, 6 sigara firmasının sponsorluk yaptığı Formula 1’in ülkemizde düzenlenmek istenmesi üzerine yaşandı. Demokratik Sol Parti (DSP) Bursa Milletvekili Hayati Korkmaz ve partili dört arkadaşı,  Formula 1 yarışlarının 4207 sayılı Tütün Mamullerinin Zararlarının Önlenmesine Dair Kanun’un kapsamından çıkarılması için yasa teklifi verdi. Sağlık çevrelerinin tepkisi ise fazla gecikmedi. Cerrahpaşa Tıp Fakültesi Göğüs Hastalıkları Hastanesi’nde toplanan çok sayıda hekim, Formula 1 yarışlarının amacının sigara reklamı yapmak olduğunu söylediler. Hekimler adına konuşan Marmara Tıp Fakültesi öğretim üyesi Prof. Dr. Elif Dağlı, Formula 1 yarışlarının üzerinde bu kadar durulmasının tesadüf olmadığını belirtti: ‘Sigara üreticileri, sigara reklamı yasağı olan ülkelerde en önemli reklam aracının Formula 1 yarışları olduğunu dile getiriyorlar. Sigara üreticileri bu yarışlar için yılda 300 milyon dolar kaynak ayırıyorlar. Daha fazlasını kazanmayı beklemeseler bu kaynağı niye ayırsınlar? Sigara firmaları özellikle 14—24 yaş arasındaki gençleri hedef alıyorlar. Yarış boyunca bir sigaranın adı 5 bin 933 kez görünüyor. Bu reklam değil de ne?’
+       <br/>
+       <br/>
+       TOMSFED: Sigara reklamı yapılmayacak
+       <br/>
+       <br/>
+       Sağlık çevrelerinden gelen buna benzer tepkilerin ardından Türkiye Otomobil ve Motor Sporları Federasyonu (TOMSFED) bir açıklama yaptı. Başkan Mümtaz Tahincioğlu imzasıyla yapılan açıklamada, ‘Türkiye’nin Formula 1 projesinde hiçbir tütün firmasının desteği ya da reklamı bulunmamaktadır’ denildi. ‘Bazı çevrelerin, ülke yararına olan bu projeyi asılsız ve doğru olmayan bilgilerle değerlendirerek kamuoyunu yanlış bilgilendirmelerinden rahatsızlık duymaktayız. Türkiye’deki tütün reklam yasağına uyan bir federasyon olarak sporcunun ve sağlıklı yaşamın yanındayız. Dolayısıyla, projelerimizde tütün reklamlarına izin vermemekteyiz. Avrupa Birliği’ne girmeye çalışan Türkiye’de Formula 1 yarışları düzenlendiği takdirde tütün reklamlarına yer verilmeyeceğinin garantisini verebiliriz. Şu andaki 4207 sayılı yasanın değiştirilmesi için herhangi bir çabamız ve başvurumuz da bulunmamaktadır.’
+       <br/>
+       <br/>
+       Bu arada, Avrupa ülkelerinde de sigara reklamı yasak; ancak Formula 1’de yarışan ekiplere, sigara firmalarıyla uzun vadeli anlaşmalar yaptıkları için bir ayrıcalık tanınıyor. Fakat FOA’nın aldığı karar doğrultusunda 2006 yılından itibaren Formula 1 yarışlarına ve ekiplerine sigara firmaları kesinlikle sponsor olamayacak.
+       <br/>
+       <br/>
+       Turizmciler çok istiyor
+       <br/>
+       <br/>
+       Sağlık çevreleri karşı çıksa da Formula 1’in ülkemizde düzenlenmesini isteyenlerin sayısı oldukça fazla. Bunların başında da spor camiası ve turizmciler geliyor. Toplam 1.5 milyon dolayında turist, birbirinden ünlü markaların ve sürücülerin kozlarını paylaştığı Formula 1 yarışlarını izleyebilmek için Grand Prix’lerin yapıldığı ülkelere gidiyor ve kişi başına ortalama 250 dolar kâr bırakıyor. Bu bakımdan turizmciler, Formula 1’in Antalya’da düzenlenmesini çok istiyorlar. Bu konu, geçtiğimiz günlerde yapılan Turizm Şurası’nın da en önemli maddelerinden biriydi. Ancak spordan sorumlu Devlet Bakanı Fikret Ünlü’nün gönlü İzmir’den yana olurken, TOMSFED Başkanı Mümtaz Tahincioğlu ise ağırlığını İstanbul’dan yana koyuyor. Antalya’da Formula 1 pistinin nereye yapılacağı henüz netleşmezken, İstanbul için Kemerburgaz, İzmir için de Selçuk’a bağlı Pamucak telaffuz ediliyor. Herşey, üst düzey devlet protokolüne 29 Nisan’da Ankara’da gerçekleştirilecek olan prezantasyondan sonra netleşecek.
+       <br/>
+       <br/>
+       Pistin 2004’te bitmesi gerekiyor
+       <br/>
+       <br/>
+       Peki, Formula 1’in ülkemizde düzenlemesine karar verildiği takdirde neler yapılacak? Öncelikle pistin nereye yapılacağı belirlenecek ve hemen ardından çalışmalara başlanacak. Formula 1 pisti, yaklaşık 80 milyon dolar harcanarak en geç Ekim 2004’e kadar tamamlanacak ve Türkiye 2005 takvimindeki yerini alacak. Türkiye’nin takvime alınmasında ise herhangi bir sıkıntı yaşanmayacak. Çünkü, Almanya’da yapılan iki Grand Prix’ten birinin takvimden çıkartılması söz konusu. Ayrıca, bölgedeki yoğunluk nedeniyle Avusturya Grand Prix’i de gözden düştü. FOA, Avrupa’daki yoğunluğu Türkiye aracılığıyla Formula 1’e oldukça uzak olan bölgelere kaydırmak istiyor. FOA’nın gündeminde olan diğer ülkeler ise Rusya, Lübnan, Çin, Mısır, Bahreyn ve Güney Afrika. Rusya, 2005 takvimine girebilmek için pist hazırlıklarına çoktan başladı.
+       <br/>
+       <br/>
+       Tahincioğlu: Bulunmaz bir fırsat
+       <br/>
+       <br/>
+       Formula 1’in ülkemizde düzenlenmesi için yoğun çaba sarf eden TOMSFED Başkanı Mümtaz Tahincioğlu, böylesine büyük bir organizasyonun Türkiye için bulunmaz fırsat olduğunu söylüyor: ‘Yapılan harcamalar kısa sürede geriye dönecek ve Türkiye hem çok büyük gelir elde edecek, hem de tanıtımını yapacak. Devlet ve özel sektör bu projeye artık ciddi bir biçimde destek olmalıdır. Bana göre İstanbul, İzmir ve Antalya, Formula 1’e ev sahipliği yapabilecek şehirlerdir. Ancak İstanbul daha ağır basmaktadır. Çünkü, Türkiye’deki mevcut sporcuların yüzde 80’i Marmara Bölgesi’nde bulunmaktadır.’
+       <br/>
+       <br/>
+       Ecclestone: Türkiye’de turizm patlar
+       <br/>
+       <br/>
+       Geçtiğimiz günlerde TOMSFED Başkanı Mümtaz Tahincioğlu’nun konuğu olarak Türkiye’ye gelen Formula 1 Düzenleme Kurulu Başkanı Bernie Ecclestone de bu organizasyon sayesinde Türkiye’nin turizm patlaması yaşayacağını iddia ediyor: ‘2004 yılı sonuna kadar pisti tamamladığı takdirde Türkiye’yi 2005 takvimine alacağımıza dair teminat mektubunu Türkiye Otomobil ve Motor Sporları Federasyonu’na gönderdik. Türkiye bu organizasyonu gerçekleştirebilecek kriterlere sahiptir. Şampiyonada yarışan tüm takımlar ülkenize gelmek istiyor. Türkiye bugüne kadar adeta kendini saklamış. Doğal güzellikleri ve iklimi ile büyüleyici bir ülkeniz var. Takvimdeki tüm ülkelerde olduğu gibi Türkiye’de de Formula 1 ile birlikte turizm patlaması yaşanacaktır. Böylece saklı kalan Türkiye ortaya çıkabilir. Ancak, öncellikle pistin yapılması gerekiyor. Mevcut diğer adaylar içinden (Çin, Mısır, Bahreyn, Güney Afrika) Türkiye’nin öne çıkabilmesini sağlamak için pistin tamamlanması çok önemli.’
+       <br/>
+       <br/>
+       E—mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11981), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005425/http://www.aksiyon.com.tr:80/detay.php?id=11981)

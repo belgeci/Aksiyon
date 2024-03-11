@@ -1,0 +1,115 @@
+# “Başbakanı halk seçsin”
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161548im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161548im_/http://www.aksiyon.com.tr/resim/339/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İlhan Kesici... Devlet Planlama Teşkilatı eski Müsteşarı ve eski milletvekili, ANAP’ın İstanbul Büyükşehir Belediyesi başkan adayı. Bugünlerde adı sık sık kulislerde ‘yeni oluşumlarla birlikte’ anılıyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ancak henüz tam olarak ne yapacağına karar vermiş değil. Gelişmelere bakıyor, arkadaşlarıyla istişarelerde bulunuyor, ekonomiyi takip ediyor.
+   <br>
+    <br>
+     Kesici, son gelişmelerle ilgili Aksiyon’un sorularına şöyle cevap verdi:
+     <br>
+      <br>
+       —Siyasetin yeniden yapılandırılmasından sık sık sözediyorsunuz. Bunu biraz açar mısınız?
+       <br/>
+       <br/>
+       Siyasetin yeniden yapılandırılması özü itibari ile şu demek; bizim siyasi yapımız 1961 Anayasası çerçevesine göre kurulmuştur. Bu eskidi. Bütün dünya burada yenilikler yaptı. Teorideki özü itibari ile temsili demokrasiye dayanır bizim demokrasimiz. Temsili demokrasi eski bir demokrasi anlayışıdır. 60’lardan bu yana adına katılımcı demokrasi denilen bir laf çıktı. Doğrudan demokrasi denilen bir yaklaşım çıktı. Medeni memleketler mevcut siyasi sistemlerine enjekte ettiler. Biz hem ithal edemedik bunları hem de 60’lardaki ve 70’lerdeki demokrasiyi de çok daha kötü uygular hale geldik. Bu yüzden temsili demokrasi normal bir temsili demokrasi vasfından bile uzaklaştı. Yeniden yapılandırılması demek, doğrudan demokraktik unsurların ithal edilmesi, katılımcı demokrasi unsurlarının ithal edilmesi demektir. Bunu daha somutlaştırabiriz ama.
+       <br/>
+       <br/>
+       —Başkanlık sistemini kastediyorsunuz, galiba...
+       <br/>
+       <br/>
+       Hayır, başkanlık sistemini kastetmiyorum. Başkanlık sistemi onlardan bir tanesi. Bu yeni dünyada ülkeler ya devlet başkanlarını ya da hükümet başkanlarını doğrudan seçecekler. Türkiye’nin şartlarında ben devlet başkanlarının doğrudan seçilmesinden ziyade hükümet başkanının doğrudan seçilmesinden yanayım. Yani cumhurbaşkanının parlamentodan, başbakanın halk tarafından doğrudan seçilmesinden yanayım. İki türlü seçilmesinden yanayım. Burada her türlü seçim, iki türlü olmalıdır. Doğrudan olmalıdır ve iki türlü olmalıdır. Mühendis odaları dahil barolar, tabib odaları, ziraat odaları, muhtar seçimi... ... Ne kadar seçim varsa Türkiye’de iki türlü olmalıdır. Doğrudan olmalıdır. Adına başbakanlık rejimi denilebilir. Daha dar yetkilerle cumhurbaşkanı devletin başkanı olur, parlamentodan seçilir ama halk da kendi başbakanını seçer. Doğrudan seçer, iki turlu seçer. Milletvekilleri aynı şekilde seçilmelidir. Doğrudan seçilmelidir, iki turlu seçilmelidir.
+       <br/>
+       <br/>
+       Yeni bir sistem getirilmeli
+       <br/>
+       <br/>
+       —İki turlu olmasının özel bir durumu var mı?
+       <br/>
+       <br/>
+       Tabii. İki turlu olmasının özel durumu şudur; biz ve bize benzeyen ülkelerde önce herkes kendi gönlündekini olduğu gibi ifade etme hakkına sahiptir. Yani benim birinci tercihim şudur diyebilmelidir. Birinci turda bunu göstermelidir. İkinci turda da üstünde mutabık kalınması gereken yerde mutabık kalınmalıdır. Bu bakımdan gelenlerin usulü ile gidebilir olmasını hızlandırmak lazım.
+       <br/>
+       <br/>
+       —Tansu Hanım’ın teklifi de buydu. En fazla 5 kongre kalabilmeliler genel başkanlar. Sonra gitmeliler. Bu görüş çerçevesinde mi sizin bu düşünceniz?
+       <br/>
+       <br/>
+       Tansu Hanım’ın görüşlerinin hiçbirini referans olarak almam. Bunlar İlhan Kesici’nin görüşleridir. 5 kere ile filan olmaz. Türkiye’de her gelinen yer ya sadece bir kere 5 yıllık olmalıdır veya iki kere 3’er yıllık olmalıdır. Dördüncü nokta, siyasi sistemde bu adı olan kendisi olmayan yasama ve yürütmenin mutlak bir şekilde birbirinden ayrılmasıdır.
+       <br/>
+       <br/>
+       —Siyasetin yeniden yapılandırılmasından önce devletin yeniden yapılandırılması lazım galiba. Yoksa bunlar paralel mi?
+       <br/>
+       <br/>
+       Tabii paralel demek lazım. Ama devleti yapılandıracak olan şey hükümetlerdir. Bu yüzden siyasetin yapılandırılmasını öne alıyorum. Yoksa devletin yeniden yapılandırılması ile ilgili bizim devletimizin elinde, Türkiye’ye kafa yoran insanların aklında çok bilgi vardır.
+       <br/>
+       <br/>
+       Derviş’in programı nasıl program?
+       <br/>
+       <br/>
+       —Kemal Derviş’in ortaya koyduğu programı kısaca değerlendirebilir misiniz?
+       <br/>
+       <br/>
+       Kemal Derviş Bey’in ortaya koyduğu program bizim 2000 yılının başından itibaren yürürlüğe konmuş olan 18. IMF ile yapılmış olan stand—by anlaşmasının reddiyesidir. Hiçbir benzerliği yoktur. Aksine tam bir reddiyedir. Birinci programın yanlışlığının tam bir beyanıdır. Şeker Kanunu bu olmuş, Merkez Bankası Kanunu bu olmuş, bunlar program olamaz. Bunlar Türkiye’de yapılacak bazı işlerdir. Uygulamaya koydukları IMF programının bir tane belkemiği vardı. Çapa da denilebilir, çıpa da denilebilir. Bunun en belirgin tarafı dövizdir. Dövizin bir çıpaya bağlanması şeklidir. Yani enflasyon oranı ne olursa olsun, onun altındaki bir bant içerisinde mümkün olduğu ölçüde baskı altına alarak yürütülmesidir. Derviş’in söylediğinin can damarı da bu çıpanın söküldüğüdür. Şimdi ona oynak kur, dalgalı kur diyorlar. Dalgalı kur dediği, kur politikasının olmamasıdır. Merkez politikasının söylediği çok istisnai durumlar dışında dövize müdahale edilmemesi... Bu 01/01/2000’in bir gün öncesine dönmek demektir. Yani 2000 yılında uygulanmış olan sonunda patlamış olan programın reddiyesi demek bu demektir.
+       <br/>
+       <br/>
+       Derviş ne yapar?
+       <br/>
+       <br/>
+       —Çok kısaca, Kemal Derviş’in geliş şeklini nasıl yorumluyorsunuz?
+       <br/>
+       <br/>
+       Kemal Derviş’in geliş şekli bizim için malum değildir. Benim için meçhuldur. Bizim bildiğimiz, döviz patlamıştır, IMF Başkan Yardımcısı Fisher, sayın Başbakan’a; “Madem siz bu işi götüremiyorsunuz, bir önceki adamımızın da bizim de yanlışımız oldu” demeye getirmiştir. Fisher’in görevinden ayrılmasında Türkiye’deki programın başarısızlığa uğramasının büyük bir etkisi olduğunu düşünüyorum.
+       <br/>
+       <br/>
+       —IMF ile yapılmış olan anlaşmayla egemenlik haklarımız ihlal edilmiş oldu mu sizce?
+       <br/>
+       <br/>
+       Türkiye 17 kere imzalamıştır. Hepsinde de maliye bakanı ile Merkez Bankası’nın imzası vardır. Ortalama bir sayfalık bir metindir. Bu metinde denir ki; “Sayın IMF Başkanı, teknik heyetimizin de mutabık kaldığı gibi sizinle şu kadarlık ve şu sürelik bir stand—by anlaşması imzalamaya karar verdik. Gösterdiğiniz ilgiye çok teşekkür ederiz”. Altındaki metin bir ektir. Mektubun altında da bulunmaz. Yani para politikaları falan, zaten teknik heyetler onu konuşmuştur. Üstünde mutabık kalınan şeylerdir. Ne devlet gayri ciddilik eder, konuşulanı reddeder, ne de IMF’ciler gayri ciddilik eder konuşulanı reddeder. Mesela hükümet taahhüt etti ki, Mart 2001 tarihine kadar Şeker Kanunu çıkacak. Bunu söylediği tarih 1999’dur. Nisan 2001 tarihinin sonuna kadar Merkez Bankası Kanunu çıkacaktır ve şu istikamette çıkacaktır, dedi. Bu parlamento iradesinin töhmet altına alınmasıdır. Çıkarmazsa benim parlamentom özgür diyebilirsiniz. Özgürse adam diyor ki o zaman; size para vermiyorum. Türkiye’nin sıkıntısı budur. Türkiye’yi patlatan budur. Bütün bunlar egemenlik haklarının para ile ihlal edilmesi demektir. Kimsenin kimseyi kandırmasına gerek yoktur. Kendi halkımız istedi diye yapıyoruz, IMF için yapmıyoruz diye kimse kimseyi kandırmasın. Bunlar işin palavra bölümüdür.
+       <br/>
+       <br/>
+       Birinci tehdit
+       <br/>
+       <br/>
+       —Türkiye’de birinci tehdit sizce nedir?
+       <br/>
+       <br/>
+       Tehdit sınıflandırması karışık bir iş ama bence ekonomidir.
+       <br/>
+       <br/>
+       —Atatürk ilke ve inkılapları, kısacası rejim tehlikede mi?
+       <br/>
+       <br/>
+       Ben tehlikede görmüyorum.
+       <br/>
+       <br/>
+       —Size göre mevcut sistemde MGK (Milli Güvenlik Kurulu) nereye oturuyor?
+       <br/>
+       <br/>
+       O ufak bir şeydir. Tabii lafı boğar. Şu ne filan diyoruz. MGK, dünyanın her ülkesinde vardır ve de olmalıdır.
+       <br/>
+       <br/>
+       e mail: a. oksuz@aksiyon. com. tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12980), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161548/http://www.aksiyon.com.tr:80/detay.php?id=12980)

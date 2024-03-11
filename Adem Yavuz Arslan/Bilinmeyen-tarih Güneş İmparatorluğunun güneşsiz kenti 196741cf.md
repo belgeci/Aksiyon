@@ -1,0 +1,55 @@
+# "Güneş İmparatorluğu"nun güneşsiz kenti
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302113744im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302113744im_/http://www.aksiyon.com.tr/resim/311/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir haziran akşamı sırtımda çantamla Heathrow’a indiğim zaman önümde keşfedilmesi gereken bir şehir vardı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ben Cengiz Çandar gibi şehir koleksiyonu yapmıyordum ama yaşadığım bir şehri görmeye, anlamaya ve ruhunu yakalamaya çalışırdım ve şimdi önümde yeni bir ‘hedef şehir’ vardı. Herkes gibi benim de zihnimde bir kaç simge vardı Londra hakkında. Big Ben, Buckhingam Sarayı, kırmızı otobüsler, siyah taksiler ve soldan akan trafik. Ama daha havalimanına adım attığım andan itibaren hergün yeni şeyler buldum bu şehirde. Bir bakıma tezatlar kentiydi burası. Hem statükocu, sıkı gelenekçi hem de hiç bir sosyal kuralı kabul etmeyecek kadar hovarda.
+   <br>
+    <br>
+     Öncelikle sakin ve tutucu yapısı dikkatimi çekmişti. Öyle ya hergün daha da büyüyen trafikle boğuşan, kalabalıkların koşarak yürüdüğü, her geçen gün çehresinin değiştiği ve gürültüsüyle insanı yıpratan bir şehirden yeşillikler içinde, gürültüsüz, sakin ve şeklini yüzyıldır hiç değiştirmemiş bir şehire gelmiştim. Gelişimini yüz yıl önce bitirmiş olmasından olsa gerek, bu şehir 21. yüzyılın izlerini pek taşımaz. Göğü delen ve birbiri ile yarışan gökdelenler yoktur bu şehirde. Tüm binalar kırmızı tuğladan yapılmış ve yaşlıdır. Binalar güneş batmayan imparatorluğun gururunu taşırmışçasına ihtişamlıdır ve bir o kadar da süslüdür. Binaların dışı her zaman İngilizdir. Hiç bir gücün binalardaki İngiliz hakimiyetini değiştirmesine de izin verilmemiştir. Binaların dış şeklini değiştirmek yasaktır. Birbirine yakın ve süslü binaların arasında delhizler, çıkmaz sokaklar bilinmeyen Londra’ya ulaşmanız için her zaman davetkârdır. Her farklı sokakta farklı bir Londra bulursunuz. Ama bu şehir statiktir, belki yüz yıl önce nasılsa şimdi de öyledir.
+     <br>
+      <br>
+       Londra dünya genelinde kozmopolit şehir sıfatını hak eden nadir şehirlerden birisidir. Güneş batmayan imparatorluğun başkentidir ve Güneşin batmadığı her ülkeden insanlar vardır burada; Hintlisi, Çinlisi, Türkü, Kürdü, Afrikalısı, İtalyanı, Latin Amerikalısı... Renkliliği; farklılıkları bir zenginlik olarak kabul etmesindendir. Bu yüzden de demokrasinin beşiğidir. Finans merkezi niteliğindeki City bölgesi sanki New York; Soho, Çin; Dalston, Türkiye; Tottenham, Afrika; Stamford Hill, İsrail. Tabii bu kadar çok uluslu olunca doğal olarak da bir gurme şehridir burası. Dünyanın tüm markaları, tüm mutfakları Londra’dadır adeta. Queensway’in Hint ve Müslüman lokantaları, Dalston ve Newington’un Türk Kebab Shopları, Soho’nun Çin Restoranları, Tottenham’ın Afrika mutfağı ve irili ufaklı yüzlerce değişik ülke mutfağı... Aklınıza gelebilecek her türlü sebze ve etin aklınıza gelmeyecek yöntemlerle yemek olarak hazırlanmış halini görmeniz ve bulmanız mümkün.
+       <br/>
+       <br/>
+       Tabii bir de müzeler ve tiyatrolar şehridir Londra. Her köşeyi döndüğünüzde bir tiyatro ya da bir müze çıkar karşınıza davetkâr bir tavırla. Meşhur Ritz Oteli her zaman İngiliz sosyetesinin gözde mekanıdır, Harrods da Ritz’den geri kalmaz işin içine alışveriş girince.
+       <br/>
+       <br/>
+       Ritüeller şehri
+       <br/>
+       <br/>
+       Bu şehrin ritüelleri değişmez ve katıdır, gelenekçi yapısı gibi. “Yabancı dil’in Metropolü” dür ve buraya her gelen, önce Big Ben’i, Buckhingam Palace’ı, Westminister Abbey’i, London Eye’i ziyaret etmeli, Hyde Park’a gitmeli ve nutuk dinlemelidir. Olmazsa olmazdır; Tower Bridge’de, St. Paul’de, Oxford Circus’da ve tabii ki Piccadily Circus ve onun partneri Leicester Square’de fotoğraf çektirmek. İtiraf etmek gerekirse ben buralarda hiç fotoğraf çektirmedim. Ben buralarda oturup Londra’yı anlamaya çalıştım, insanları gözlemledim ve en önemlisi kare kare işledim objektifimle. Hergün Holborn Station’da metrodan çıkıp British Museum’un önünden geçtim, ünlü filozof Russell’in adını taşıyan meydana çıktım defalarca. (Burada metroya neden tüp dendiğini de hiç anlamamışımdır zaten. Yeri gelmişken söyleyeyim İngilizler hep farklı olmakla övünen bir millettir. Tarihleriye gurur duyarlar. Hatta kendilerini Avrupalı bile saymazlar, kıta Avrupa’sına hep uzaktırlar. Tersten işleyen trafik değil sadece kıta Avrupa’sından farklı olan).
+       <br/>
+       <br/>
+       Bu yolda hergün defalarca elindeki harita ile müze arayan turistlere British Museum’u tarif ettim ama hiç gitmedim. Müzeleri sevmedim hiç bir zaman. Bana ruhu alınmış cansız bir bedeni hatırlatır hep. Ama hakkını yemeyelim müzeler Londra'yı Londra yapan simgelerdendir. Burası aynı zamanda bir parklar şehridir de. Hatta burada parklar hayatın bir parçası niteliğinde. Ne zaman güneş çıksa ya da çıkmaya niyetlense parklar cıvıl cıvıl oluverir. Biraz önce aristokrat İngiliz geleneklerini savunan, ciddi insanlar birden bire herşeyi bir kenara bırakıp çimlere bırakır kendini. Güneşi bulduğu sürece de kalkmaz. Metro da hayatın önemli parçalarından biridir burada. Binlerce insan yerin altında ayrı bir dünyayı temsil ederler. Ve Londra merkezinde her sabah ve akşam inanılmaz bir dinamizm vardır o karanlık delhizlerde.
+       <br/>
+       <br/>
+       Londra’nın olmazsa olmazlarından birisi de Leicester Square ve publardır. Sudan çok alkollü meşrubat tüketilir ve bu meşrubatlar sudan dahi ucuzdur. Günlerden cuma ve cumartesi ise Leicester Square’e çıkan tüm yollar tıklım tıklımdır en güzel kıyafetlerini giymiş kızlı—erkekli gruplarla. Sabah saatlerine kadar sürer buralarda eğlenceler. Londra’yı anlatmak diğer şehirleri anlatmaktan da zordur. Herkes farklı bir Londra’da yaşar aslında. Türk bölgesinde yaşamışsanız Londra Türk’tür, Tottenham’da yaşamışsanız Afrikalı, Quensway’da Arap, Soho’da Çinli. ‘Koyu tenli’ler hakimiyeti ele geçirmiştir ‘soluk tenli’lerin memleketinde. Ama herşeye rağmen bu şehirde keşfedecek çok şey vardır, görülüp yaşanılmalıdır.
+       <br/>
+       <br/>
+       E—mail: ademyavuz@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13710), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302113744/http://www.aksiyon.com.tr:80/detay.php?id=13710)

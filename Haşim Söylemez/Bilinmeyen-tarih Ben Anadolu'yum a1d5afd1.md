@@ -1,0 +1,274 @@
+# “Ben Anadolu’yum”
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227160954im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227160954im_/http://www.aksiyon.com.tr/resim/353/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Murat Kekilli... “Bu akşam ölürüm...” şarkısıyla bir anda Türkiye’nin gündemine bomba gibi düştü. Kekilli’yi gündemin ortasına oturtan onun parçasının ve sesinin güzelliğinden çok, insanları etkilemesi oldu. 200 kişinin intiharını ona yüklediler.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu tartışmalar birkaç ay sürdü. Ama Murat Kekilli, İstanbul’a ve bu gereksiz, saçma tartışmalara daha fazla dayanamadı, herşeye sünger çekip gitti. Küstü İstanbul’a, daha doğrusu insanlara. Kendi deyimiyle insanların iki yüzlülüğüne. İnzivaya çekildi. Sadece çalışmaları için İstanbul’a geldi. Bunun dışında hep kendi toprağında, doğup büyüdüğü memleketi Adana’da kalmayı yeğledi. Aslında Kekilli istese de İstanbul’da ya da insanların hayatı menfaatlaştırdığı başka bir yerde yaşayamazdı. O kendini bulacağı, yapaylıktan uzak, kendi halinde mütevazı bir insan olmayı tercih ediyor. Bu yüzdendir ki, kendisine teklif edilen milyon dolarları, dizi filmleri, reklamları elinin tersiyle itti. Herkes yapımcısından Mercedes, Jeep ya da BMW isterken o sadeliğini burada da gösterip Wolksvagen Golf marka arabayı tercih etti.
+   <br>
+    <br>
+     Kekilli şu anda Tekir Yaylası’nda kendi çabalarıyla yaptırmış olduğu evinde yaşıyor. Zorunlu işler haricinde buradan hiç ayrılmıyor. Elinde gitarı ya evinin balkonunda ya da ormandaki çam ağaçları arasında şarkısını çalıyor, kendi sesini kendisi dinliyor. Tam istediği gibi herşey doğal. İnsanlarla ilişkileri de çok farklı, kimisinin oğlu, kimisinin ağabeyi, kimisinin de arkadaşı. Tekir’de herkese selam veriyor, 7 ‘den 70’e herkes onun bu tavrından ve duruşundan çok memnun. Kim olursa olsun yolda kalan herkesi arabasına alacak kadar samimi ve tevazu sahibi. Kısaca doğanın ortasında inzivada Kekilli.
+     <br>
+      <br>
+       Murat’ın evine misafir olduk, küçücük bahçesine dikmiş olduğu çam ağaçlarını, çamların ne kadar uzun sürede büyüdüğünü, ne kadar yararlı ağaçlar olduğunu anlattı. Bir ağacı kurumuş diye günlerce üzülmüş, olayın etkisinden kurtulamamış. Ve eğer günün birinde Kekilli yaşamını tam manasıyla rayına oturtup “ferah”a erip mutlu bir yuva kurarsa doğacak çocuklarının isimlerini şimdiden hazırlamış. Kız olursa; Su, erkek olursa; Toprak. Çocuklarına ismini verecek kadar suya ve toprağa aşık bir insan. Sadece bunlar değil Kekilli’yi farklı kılan. Fikir bazında da marjinal fikirlere sahip. Felesefeyi hayatın kendisi olarak yorumluyor ve Big–Bang Teorisi’nin yanlış yorumlandığını söyleyecek kadar da derin bir bilgiye sahip.
+       <br/>
+       <br/>
+       Aksiyon Dergisi olarak Murat Kekilli ile Adana’nın Tekir Yaylası’nda hem yeni kasetinde yer alan şarkılarına eşlik ettik, hem de özel bir söyleşi yaptık. Hayat felsefesinden, fırsatları bir kenara bırakıp döndüğü mütevazı yaşantısına, Arabi’den Hegel’e, ilgilendiği Big–Bang Teorisine kadar herşeyi konuştuk.
+       <br/>
+       <br/>
+       İnzivada mutluyum
+       <br/>
+       <br/>
+       —Bir anda zirveye çıktınız, sonra sessizliğe büründünüz, hayata mı küstünüz, yoksa ortama alışamadınız mı?
+       <br/>
+       <br/>
+       Mutlulukla alakalı birşey. Ben buralarda mutluyum. Yani yaşantının kendisi. Ben İstanbul’un yaşantısını kaldıramadım. Şehrin gürültüsü değil, insanların yaşantısındaki kalite beni rahatsız etti. Genel olarak almıyorum. İstanbul’da çok küçük de olsa bir zümre var, bu zümre, müzik alemine, sanat alemine örnek teşkil ediyormuş gibi görünüyor. Ve bütün Türkiye böyle yaşıyormuş gibi gösteriliyor. Türkiye günlük–güneşlik, insanların sorunları, kaygıları yokmuş gibi gösteriliyor. Açlık yok, ekonomik sorun yok gibi.
+       <br/>
+       <br/>
+       —Diğer sanatçılar bundan pek rahatsız oluyormuş gibi gözükmüyor, siz niye rahatsız oldunuz?
+       <br/>
+       <br/>
+       Ben bu toplumun bir ferdiyim. Toplumun içinde olmayan bir insan ancak ben rahatsız olmuyorum diyebilir. Ben bu gidişattan rahatsız oluyorum. Ekonomik kaygıları onlar güdüyorsa benim de gütmem lazım. İnsanım, o zaman toplumun bu kaygılarını benim de hissetmem insanlık vazifemdir.
+       <br/>
+       <br/>
+       —Eğer İstanbul’da kalsaydınız, belki manevi değil ama maddi olarak çok büyük kazanç sağlayacaktınız.
+       <br/>
+       <br/>
+       Çok doğru. Benim kaygım yok. Ben insanların kaygılarını birebir yaşıyorum. İstanbul’da cenazen olursa kimsenin haberi olmaz. Bir evde ölürsün insanlar ancak kokudan rahatsız oldukları için senin öldüğünün farkına varırlar. Burada ilişkiler çok farklı, ekonomik sorunlar var, diğer sorunlar var, benim bile su sorunum var, burada yaşayanlar gibi. Bu sorunlarla boğuşmak, bağırıp çağırmak beni mutlu ediyor. Doğal olacak, yapaylaştığı zaman ben rahatsız oluyorum. Mekanik bir insan olup çıkıyorsunuz. Ben mutluluğu burada buldum. İstanbul’da yaşantılar ve kaygılar çok farklı.
+       <br/>
+       <br/>
+       —Peki bu tavrınız nereye kadar devam edecek?
+       <br/>
+       <br/>
+       Benim tavrım, ben mezara girene kadar devam edecek. Ya hep beraber cennete gireceğiz, ya da dünyayı cehenneme çevireceğiz.
+       <br/>
+       <br/>
+       —Ya müzik dünyası sizin bu tavırlarınızdan dolayı sizi sınırlarının dışına atarsa.
+       <br/>
+       <br/>
+       Kendi seçenekleri. Ben terkedilmişlikle karşı karşıya kalacağım diye yaşantımdan taviz veremem. Bu benim yaşantım.
+       <br/>
+       <br/>
+       Benim ışıklarım var
+       <br/>
+       <br/>
+       —Doğru yerde doğru insanlarla karşılaşırsam çok büyük porjelere imza atabilirim demişsiniz. Karşınıza hiç mi doğru insan çıkmadı?
+       <br/>
+       <br/>
+       Böyle bir söylemim var. Ama bu herkes için geçerli. Veriler hazır, önemli olan doğru insanların karşınıza çıkması. Ama orada doğru insanlar yok diye birşey yok. Musa Eroğlu, Cem Karaca, Moğollar, Fikret Kızılok, rehmetli Barış Manço bunlar hep benim için doğru insanlar. 68 kuşağı bana doğru geliyor, çünkü; idealleri var(dı). Bunlar benim takip ettiğim ışıklarım.
+       <br/>
+       <br/>
+       —Işıklarınızdan Cem Karaca, bir taraftan Nazım Hikmet’i ağzından düşürmezken, Necip Fazıl’ı da göğe çıkarıyor.
+       <br/>
+       <br/>
+       Hayat bir çelişkidir. Bu, doğru bir çelişkidir. En güzel insan birisinin inancına saygı gösteren insandır. Bir insan bir başkası onun fikrini taşımıyor diye çok rahat düşman olabiliyor. İnanılmaz bir ego tatmini var burada. Karşındakini dinlemeden, kendisinin haklı olduğu net yargısı kadar kötü birşey yoktur. Bütün fikirlere saygılı olmak gerekiyor.
+       <br/>
+       <br/>
+       Basından çok korkuyorum
+       <br/>
+       <br/>
+       —Medyadan niye bu kadar uzaklaşıyorsunuz?
+       <br/>
+       <br/>
+       Medya niye benden uzaklaşıyor sence?.
+       <br/>
+       <br/>
+       —Bilemiyorum. Belki Anadolu’yu ön plana çıkardığınız içindir.
+       <br/>
+       <br/>
+       Doğru, Anadolu benim içimde. Onlar için demek ki Anadolu yanlışmış. Onların yaşantısı İstanbul içindir. Onlara mutluluklar diliyorum. Dolar 2 milyon olsa göbek atacaklar, ben bunun için geldim. Burada doların fırlama ihtimali yok. Birisinin cebinde dolar çıksa yüzüne tükürürler. Kaygıları farklı. Taban benzese de temel tamamen farklı.
+       <br/>
+       <br/>
+       —Anlaşılan medyadan çok korkuyorsunuz.
+       <br/>
+       <br/>
+       Basın doğru işler yapsın. Madem bu ülkede birinci güçler, o zaman doğru işlerle uğraşsınlar. Ben nasıl korkmayayım. İsteseler bir gecede herşeyi değiştirirler. Niye olumsuzluklarla uğraşmıyorlar. İşlerine geleni yapıyorlar. Canavarlar. Ben korkarım. Hiçbir güvenim yok. Ailemle televizyon izleyemez oldum.. Bir iki gazete ancak okuyabiliyorum.
+       <br/>
+       <br/>
+       —Size birisi çıkıp köyün delisi derse ne dersiniz?
+       <br/>
+       <br/>
+       Doğrudur. Ben bir deliyim. Bu köyün delisiyim. Allah herkesi deli etsin o zaman. Delilikle akıllılığa çokluğa göre karar veriliyor. Hoşuma da gidiyor deli demeleri. Ben delilikten gocunmuyorum. Tarihteki birçok delinin aslında deha olduğu daha sonra anlaşılmıştır. İnsanlar çekip geldim diye bana deli diyorlar. Dizi çekecek, reklamlara çıkacakken, işi kıvıracakken yapmadı, çekip gitti diyorlar.
+       <br/>
+       <br/>
+       —Bana Murat ile Murat Kekilli arasındaki farkı anlatabilir misiniz?
+       <br/>
+       <br/>
+       Daha önceki Murat Kekilli de kahve köşesine oturup, okey oyunuyordu, şimdiki de. Şu anda bir değişiklik yok. Aslında kahve kültürü bana ters ama zaman yettiği kadarıyla takılıyorum. Sadece isimde bir uzama oldu. Yaşantımda çok büyük bir farklılık yok. Yaşantımdan taviz verecek değilim.
+       <br/>
+       <br/>
+       —Duruş, konum ve tavırlarınız bakımından ideolojiyi bir tarafa bırakırsak sizi Yılmaz Güney’e benzetiyorlar.
+       <br/>
+       <br/>
+       Yılmaz Güney’i çok iyi bilirim. Benim sevgililerimden biri. Benim ışıklarımdan biridir de. Benim güttüğüm kaygıları o yıllar önce gütmüştü. Aynı düşünceleri paylaşıyoruz. Tabii ideolojisini bir kenara bırakarak.
+       <br/>
+       <br/>
+       Haftada 50 bin dolar teklif ettiler
+       <br/>
+       <br/>
+       —Yılmaz Güney’deki bakışın sizde olduğunu fark edenler size dizi teklifinde bile bulunmuş.
+       <br/>
+       <br/>
+       Film benim hakım değil. İhanete en büyük gerekçe. Sendeki bakış Yılmaz Güney’den sonra gelen en etkili bakış dediler. Bana haftada 50 bin dolar teklif ettiler. İstediğin mankenle oynacaksın, senaryo hazır, sen evet de tamam. Kabul etmedim. Ben sadece müzik yapmak istiyorum dedim onu da kursağımda bıraktınız dedim. Yaptığımız bu işten bir ekmek yiyip branşlaşabilirsek mutlu olurum. Teklifleri geri çevirdiğim için pişman değilim, olmayacağım da.
+       <br/>
+       <br/>
+       —Piyasaya çıkan herkes ben sanatçıyım deyip, herşeye soyunuyor, siz bunlardan daha iyisiniz, neden bu teklifleri geri çevirdiniz?
+       <br/>
+       <br/>
+       Biz ilk defa piyasaya çıkacağımız zaman, önüne gelen sanatçıyız diyor eleştirisini kendimize yönelttik ve cevabını kendi kendimize verdik. Çok korktuk, bunlar da kimmiş demelerinden. Sadece müzik yaptığımıza inanıyoruz. Sanatçı değiliz. Gerçek bir sanatçı olmayı isterim. Herkes sanatçı olamaz. Bu yakıştırma insanlar tarafından olur. Kültürü, birikimi, zaman dilimini aşmak lazım. Benliğinle karşı karşıya geldiğin zaman ben diyebilmelisin. Ben diyen şeytanın cennetten kovulmasına benzemesin. Yani benliğini aşmalısın. İnsanlar beni çok sevdi. Doğal ve yalın olduğum için. Bu insanları hayal kırıklığına uğratıp, piyasadakiler gibi olmam. Bu yüzden şimdi sadece müzik yapacağım.
+       <br/>
+       <br/>
+       —Değişik yararlı etkinliklerde varsınız, TEMA, kimsesiz çocuklar yararına, belki yarın insanlık için önemli olan başka etkinliklerde bulunacaksınız, sizin gibi başkaları da var bu etkinliklerde ama başka türlü, yani ekmek köfte misali.
+       <br/>
+       <br/>
+       Adana’da poliklinik yaptıracaklar, kaç para alırsın dediler. Sadece elemanlarıma verin yeter dedim. Sözleşmeye imza attım. Bizim yanımızda birkaç sanatçı daha vardı, onlar paralarını aldılar. Benim ismim verilecekti polikliniğe. Verilip verilmediğini bilmiyorum, dönüp bakmadım bile. Hayır işinde her zaman varım.
+       <br/>
+       <br/>
+       İntiharlar polis kayıtlarında doğrulandı
+       <br/>
+       <br/>
+       —Çok hümanist tavırlar ve görüşler sergiliyorsunuz, ama 35 kişinin intiharı ile suçlandınız. Burada bir çelişki yok mu?
+       <br/>
+       <br/>
+       35 değil 200 kişinin intiharı sözkonusu. Bu polis kayıtlarında doğrulandı. Bunu ilk defa söylüyorum. Olaylar doğru, intihar teşebbüsü, intiharlar, hepsi doğru. Nedenle araç arasında çok fark var.
+       <br/>
+       <br/>
+       —Siz intiharlarda araç mı oldunuz?
+       <br/>
+       <br/>
+       Araç değilim. Bir yaprağı bile incitmekten korkarım. Bunun hesabını bir şekilde verirsin.. Hem bu dünyada, hem öbür dünyada. Çıplak ayakla toprağa basarken aman toprağı incitmeyeyim diye korkuyorum. Hele ilkbaharda doğuma gebe olduğunu düşünerek toprağı incitecekmiş gibi basarım. Vakaları polis arkadaşlar doğruladılar. Gel de dehşete düşme. Bu ülkenin “Makber” gibi bir şarkısı var. “Bu akşam ölürüm” şarkısı yazılmış daha sonra sevgilisi karşılık vermeyince şarkıyı yazan intihar etmiş diye uydurmalar ortalığa yayıldı. Bu yüzden dinleyenler intihar ediyormuş.
+       <br/>
+       <br/>
+       —Anadolu benim diyorsunuz, Anadolu nerenizde?
+       <br/>
+       <br/>
+       Dağa, ağaca değil, ruha hitab etmek lazım. Bazı şeyler anlatılmaz. Sevgi anlatılmaz, aşk anlatılmaz. Seni seviyorum diyor, böyle sevgi olmaz. Onu söylerken onun kabarcıkları başka olur.
+       <br/>
+       <br/>
+       —Sevgi nedir o zaman?
+       <br/>
+       <br/>
+       Sevgi tarif edilmez aslında. Bazen bir bakıştır, bazen bir dokunuştur, eksiltmektir, çoğaltmaktır, bir yerden alıp bir yere koymaktır. Tam karşılığı herşeydir.
+       <br/>
+       <br/>
+       Ben ağıtçı olabilirim
+       <br/>
+       <br/>
+       —Müziğinizde Anadolu’nun etkisi nedir?
+       <br/>
+       <br/>
+       Anadolu demek toprak demek. Ve o toprağın özü demek. İstanbul da bu coğrafyada ama Anadolu deyince İstanbul aklıma gelmez. Dağlar, ovalardır ve üzerindeki duygulardır Anadolu. Müziğimin kaynağı da budur.
+       <br/>
+       <br/>
+       —Müziğinizi nasıl tarif ediyorsunuz?
+       <br/>
+       <br/>
+       Benim bir tarzım yok. Ben sadece müzik yapıyorum. Yeri geldiğinde halk müziği yapıyorum, yeri geldiğinde aşk var, yeri geldiğinde sertleşiyoruz, benimle uğraş diyor. Yeri geldiğinde arabeskleş öl benim için diyor. Ruh nereye itiyorsa o şekilde müzik yapıyoruz. İnsanlar “ağıtçı” diyor. Çukurova’da ağıt çok yaygındır. Bundan etkilenip söylüyorlar. Ağıt ama tam ağıt değil. Benim kesin bir tarzım yok.
+       <br/>
+       <br/>
+       —Anadolu Rock diye birşey var...
+       <br/>
+       <br/>
+       Benimle bir ilgisi yok. Anadolu Rock’un babaları var. Moğollar, Haluk, Teoman, Kıraç gibiler bu işi çok iyi yapıyorlar.
+       <br/>
+       <br/>
+       —Müziklerinde belirgin bir isyan yok...
+       <br/>
+       <br/>
+       Belirgin olmasa da var. Ama sorunlarla her zaman boğuşuyorum. 21. yüzyıl insanlığın en büyük aybı. İnsanlar dünyanın hemen hemen her yerinde açlıkla boğuşuyor. Kapitalizm olduğu sürece bu hep böyle devam edecek. Açlık kadar kötü birşey yok. Bazıları bu kanla besleniyor. Sistemlerin tamamı bozuk. Ben bu dağların çocuğuyum, karşı koyarım.
+       <br/>
+       <br/>
+       —Yörük müsün?
+       <br/>
+       <br/>
+       Evet ben bu dağların yörüğüyüm.
+       <br/>
+       <br/>
+       —Bu dağlarda Karakeçili yörükleri var.
+       <br/>
+       <br/>
+       Çok doğru ben Karakeçili yörüğüyüm. Çocukluğum çadırlarda geçti. Kamyonlara doluşup yaylalara gider, orada yazı yaşardık. Çadırlarda yaşayıp doğayı tamamen içimizde hissederdik. Hamallık yaptım. Hem çalıştım, hem okulla gittim.
+       <br/>
+       <br/>
+       —Elazığ’la bir bağlantınız var mı?
+       <br/>
+       <br/>
+       Çok yaklaştınız, bunu hiçkimse bilmez. İlk defa söylüyorum. Benim babam Çukurovalı, Ceyhanlı, annem ise Malatyalıdır.
+       <br/>
+       <br/>
+       —Felsefeye ilginiz olduğunu biliyoruz, nereden kaynaklanıyor bu ilgi?
+       <br/>
+       <br/>
+       Felsefe insanın yaşantısı, birikimi, hayata bakışıdır. Muhyiddin Arabi’yi severim, Feridüddin Attar. Nasıl insan olabilirimin çıkarımları var. Eğer insan insan olmazsa dünya bugünkü halini alır. Demek ki; felsefeden yoksun bir dünya var, ya da sayıları çok az. Yani kendi felsefesini oluşturmuş olanların sayısı yeterli değil. Bugünkü halden hiç kimse memnun değil. Yöneticiler bile memnun değil. Özeleştiri vakti çoktan geçti. İngiltere batacak, Arjantin gitti, Almanya tökezliyor. Tarih kölelerin efendilerine başkaldırmalarıyla doludur. Bir gün mazaallah bir başkaldırırsa ortada hiçbirşey kalmaz. Doğrusunu istersen o günü merakla bekliyorum. Kölelerin başkaldırışını.
+       <br/>
+       <br/>
+       —Siz köle misiniz?
+       <br/>
+       <br/>
+       Evet ben bir köleyim. Siz sakın özgür olduğunuzu düşünmeyin. Hiçbirimiz özgür değiliz. Eğer bir insan bana biz üniversitenin kapısından içeriye giremiyoruz diyorsa, kazanmış olduğu hakkı elinden alınıyorsa, özgürlükten konuşmak yanlış olur. Birçok şey karıştı. İyi insanla kötü insan karıştı. Evet ben efendilere karşı mücadele veren, verecek bir köleyim, hamalım.
+       <br/>
+       <br/>
+       Keşke kıyamet kopsa
+       <br/>
+       <br/>
+       —Hamallıktan insanları derin düşüncelere götürecek kadar bir felsefi boyuta nasıl vardınız?
+       <br/>
+       <br/>
+       Felsefe bir gecede oluşmadı. Topyekün bir birikimdir. Yaşadığım mahalle şimdi teksas. İnsanlar bir ekmeğin peşindeler. Eğer burası düzelirse, tüm dünyanın düzeleceğine inanıyorum. Oranın düzelebileceği hiç aklıma gelmiyor. Umutsuzluk ile umut arasında bir çizgideyim.
+       <br/>
+       <br/>
+       —Çok karamsarsınız.
+       <br/>
+       <br/>
+       Karamsar değilim. Aradayım. İnşaallah düzelir diyor insanlar. Neye göre diyor bilemiyorum. Bir gün tam düzelecek diyorum, ertesi gün geliyor kesin düzelmez diye bir düşenceye dalıyorum. Bu benim kişisel bir özelliğimden kaynaklanmıyor. Hal durumundan kaynaklanıyor. Hem içten hem dıştan ülkeye çomak sokuyorlar. Tahtakale diye uyduruk bir yer var. İki beyefendi oturmuş bugün ne yapalımı tartışıyor, bugün doları yükseltelim, ertesi gün geliyor, hadi garibanları sevindirelim diye dolar düşsün diyorlar. Televizyonu açıyorum gülüyorum, gülmemek için açmıyorum, ağlanacak halimize gülecek değilim. Hiçbir kavim hep beraber kıyameti bu kadar istememişti. Kıyamet kopsun, bir an önce gelsin de kurtulalım diye.
+       <br/>
+       <br/>
+       —Hegel–Arabi arasında bir bağ kuruyorsunuz...
+       <br/>
+       <br/>
+       Üniversiteden bir dekan abimiz bana sordu “Biz daha bunun araştırması içindeyiz, bundan emin değiliz, sen nereden bu kanıya vardın” dedi. Hocam dedim Arabi’nin 70 deve yükü kitabı vardır, hepsi kayıp sadece bir deve yükü kitabı bulundu dedim. Bunlar o dönemde Doğu felsefesinin etkilenmesinden, ellerinde kitapların olmasından dolayıdır. Zaten Batılı düşünürler ve bilim adamları Doğudan çok etkilenmişlerdir. İlk önce dinsel felsefeler. Bunlar mistik Doğu kökenli. Hegel okunduğunda Arabi’den etkilendiği ortadadır. Bir tek farkı zaman. Mutlak bir etkileşim var.
+       <br/>
+       <br/>
+       —Big–Bang Teorisine inanıyorsunuz.
+       <br/>
+       <br/>
+       Herşey nokta ucu kadar bir iğneydi. Bir boşluk içindeydi. O patladı. Bu toz bulutu halinde sürekli dönüp, soğuyup kütle olup gezegenler, yıldızlar oluştu. Biz hatayı büyük patlamada yapıyoruz. Herşey bir boşlukta oldu. Bu yanlış, zaman ve o boşluk da o noktanın içindeydi. Patlar patlamaz boşluk içinde oluştu. Biz hatayı burada yapıyoruz. Zamanın etkileşimi olabilmesi için bir güce, bir enerjiye ihtiyacı vardır. Bu noktayı plak duvarına kadar getirebiliyorlar. Tahminleri de plak duvarına kadar. Bunların hepsi teori. Ama önemli olan bütün bunları hareketlendirecek güç.
+       <br/>
+       <br/>
+       —Bütün bunlar sizi yaratıcıya daha da mı yaklaştırıyor ki, Allah’la dertleşiyorum diyorsunuz?
+       <br/>
+       <br/>
+       Herşey aşkla. Kendimi yanlız hissediyorum. Bu yüzden Allahımla dertleşiyorum. Seviyorum demekle olmaz. Aşığım deyip bir ağaca dokunmak değildir, eğer gerçekten seviyorsan dokunursun. Ben bir nevi lisan—ı halimle dua ediyorum. Böyle şeyleri tam olarak anlatamazsınız. Tepkiler, hareketler aslında bunun kısmen dışa vurumu oluyor. Metafizik çok ayrı bir alem. Ama burada taşları çok iyi oturtmak gerekir. Yoksa yaratıcıya isyan başlar.
+       <br/>
+       <br/>
+       —Son olarak şunu sormak istiyorum, yeni kaset ne zaman çıkıyor ve yine insanları etkileyecek parçalar var mı?
+       <br/>
+       <br/>
+       İki yıldır hazırlanıyoruz. 20 parça var, sadece 10 tanesini kasete aldık.  Ekibimle çok iyi çalıştık. Ekim başında kaset çıkacak. “Padişahın kızı”, “Seni çılgın” 10 parçadan sadece ikisi.
+       <br/>
+       <br/>
+       e’mail: hsoylemez@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12860), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227160954/http://www.aksiyon.com.tr:80/detay.php?id=12860)

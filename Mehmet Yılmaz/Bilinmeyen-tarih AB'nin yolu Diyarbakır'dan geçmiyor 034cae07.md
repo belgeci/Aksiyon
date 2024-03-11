@@ -1,0 +1,60 @@
+# AB'nin yolu Diyarbakır'dan geçmiyor
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050405050318im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <font class="content">
+    Mesut Yılmaz, “AB’nin yolu Diyarbakır’dan geçer.” demişti vakti zamanında. Üyelik yolunda reformların yapılması gerektiğini vurguluyordu bu sözüyle. Yasalar değişti, AB müzakere tarihi verdi. Peki, “yol” hakikaten Diyarbakır’dan mı geçti? Pek sayılmaz…
+   </font>
+   <br/>
+   <p>
+    <font class="content">
+     Ancak, yolunu özellikle Diyarbakır’a düşürenler var. Son üç ayda Avrupa’dan otuzun üzerindeki heyet bu tarihi şehri ziyaret etti. Başbakan Erdoğan, “Gelenler Diyarbakır’ı ziyaret ediyor devamlı, neden acaba?” diyerek rahatsızlığını ortaya koydu.
+     <br>
+      <br>
+       Sık ziyaretlerden rahatsız olan sadece başbakan değil. Diyarbakır Büyükşehir Belediyesi Başkan Vekili Yusuf Akgün, gelen heyetlerle meşgul olmaktan çalışmaya fırsat bulamadıklarını dile getiriyor, “Mesaimizin büyük bir kısmını AB oluşturuyor.” diyerek...
+       <br>
+        <br>
+         Bugün Diyarbakır ‘siyasi turistler’in ilgi odağı. Herkes, inancına göre kenti belli bir kalıba sokmaya çalışıyor. Yazılanlar, çizilenler anlamaya çalışmaktan ziyade şehrin politize olmuş siciline bir çentik atmaya yönelik genelde.
+         <br>
+          <br>
+           Aksiyon, bir süredir toplumsal okumalar yapmaya, sosyal dokunun parçalarını içinde bulundukları şartları dikkate alarak incelemeye çalışıyor. Bu hafta, bu tür kapsamlı dosyalarımıza bir yenisini daha ekliyoruz. Diyarbakır’ı mercek altına aldığımız dosyamızda şehrin ruhunu yakalamaya çalıştık. Sokak aralarındaki hayatı, kentin dünden bugüne değişimini, yarınlara nasıl hazırlandığını inceledik. Bakalım, bir tür “şehir portresi” diyebileceğimiz çalışmamızı beğenecek misiniz?
+           <br>
+            <br/>
+            ***
+            <br/>
+            <br/>
+            Dünya, ruhların örselendiği bir felaketi yaşıyor. Endonezya açıklarında meydana gelen deprem ve sonrasında ortaya çıkan tsunamide on binlerce insan hayatını kaybetti. Bilanço hayli ağır. Kapak dosyamızda son felaketin ışığında tsunami gerçeğini ele alıyoruz.
+            <br/>
+            <br/>
+            ***
+            <br/>
+            <br/>
+            Son bir not okurlarımıza... Aksiyon, okurlarının büyük desteği ile uzun zamandır en çok satan dergi. Aynı zamanda en fazla okunan da... Birileri, kendilerinin en fazla sattığını ilan etse de bu gerçeği değiştirmesi mümkün değil. Kaldı ki Aksiyon, habercilik konusunda kendisiyle yarışıyor ve her hafta en iyi dosyaları yayımlayabilmenin heyecanını yaşıyor.
+            <br/>
+            <br/>
+            İçerdeki heyecanı okurlarımızın da paylaştığını düşünüyoruz. Her hafta düşüncelerini, tenkit ve önerilerini bizimle paylaşan okurlarımızın görüşlerini “Okur Hattı” sayfalarında okuyorsunuz. Fikirlerin rahatça dile getirildiği bu sayfaları demokratik bir platforma dönüştürmek niyetindeyiz. Eli kalem tutan herkesi, görüşlerini bizimle paylaşmaya davet ediyoruz.
+            <br/>
+            <br/>
+            İyi haftalar.
+            <br/>
+           </br>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </font>
+   </p>
+  </p>
+ </font>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=19351), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050405050318/http://aksiyon.com.tr:80/detay.php?id=19351)

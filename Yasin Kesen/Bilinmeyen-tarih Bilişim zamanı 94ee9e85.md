@@ -1,0 +1,55 @@
+# Bilişim zamanı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Almanya Hannover’de yapılan CeBIT fuarlarının bir uzantısı olarak Türkiye’de Hifaş fuarcılık tarafından gerçekleştirilen Bilişim Fuarı ve Etkinlikleri 4—9 Eylül arasında Tüyap Beylikdüzü Fuar alanında gerçekleştirilecek.
+   <br/>
+   <br/>
+   Bu yıl onuncusu yapılacak olan Bilişim Haftası, her yıl Eylül ayının ilk haftasını, bir teknoloji şovuna ve gelecek senaryolarının oluşturulduğu muhteşem bir şölene dönüştürüyor.
+   <br>
+    <br>
+     Avrasya bölgesinin en büyük bilgi ve iletişim teknolojileri fuarı olan etkinliğe katılacak ülkeler arasında İngiltere, Almanya, Fransa, İtalya, Hollanda, Yunanistan, Bulgaristan, Avusturya, Belçika, İsrail, Tayvan, Birleşik Arap Emirlikleri ve A.B.D gibi gelişmiş ülkeler de yer alıyor.
+     <br>
+      <br>
+       Geçen yıl 12 ülkeden 48 firmanın katıldığı fuara bu yıl 15 ülkeden 100 firmanın katılması bekleniyor. Avrasya’nın Bilişim Platformu niteliğindeki bu etkinliğe gelecek yıllarda uluslararası firmaların katılımının daha da artması bekleniyor.
+       <br>
+        <br>
+         Türkiye gibi genç nüfusun ve bilgisayar teknolojilerinin kullanımının artacağı bir ülkenin ideal bir pazar olduğunun farkında olan bilişim devleri, bu fırsatı kaçırmamak için mutlaka sahneye inecektir.
+         <br/>
+         <br/>
+         Ekonomik kriz ile birlikte iyice durgunlaşan yerli bilişim sektörü de, fuarı bir kıvılcım olarak beklemekte, işlerinin açılması için fuarı azami derecede verimli hale getirmeyi amaçlamakta. Her yıl bilgisayar sektöründeki canlılığın fuar sonrasında yani hem tatil bitiminde hem de yeni ürünlerin tanıtılmasıyla başlaması, aylardır daralan bilgisayar firmaları için adeta bir umut ışığı olmuş durumda.
+         <br/>
+         <br/>
+         Fuarın azami sayıdaki ziyaretçisine karşın aynı paralellikte getiri sağlayamama ihtimali de firmaları korkutmuyor değil. Fuar yerini Pazar günü gezmesi niteliğinde değerlendirmeyi alışkanlık edinenlerin çokluğu da rahatsız edici.
+         <br/>
+         <br/>
+         Teknolojinin son ürünlerinin sergilendiği bu fuar, en azından bu kültür edinmek için iyi bir fırsat olarak değerlendirilmeli, amaçsız bakışlar içinde standlar arasında dolaşılıp fuar terkedilmemeli.
+         <br/>
+         <br/>
+         Nice Bilişimlere...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 8 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12874), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151308/http://www.aksiyon.com.tr:80/yazdir.php?id=12874)

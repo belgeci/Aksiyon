@@ -1,0 +1,82 @@
+# 19 Mart sendromu İdama 'ince' ayar
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225163328im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225163328im_/http://www.aksiyon.com.tr/resim/379/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İdam kalksın mı kalkmasın mı tartışmaları koalisyonda ilginç bir tartışmayı gündeme getirdi. Ortaklar şimdilik konuyu buzdolabına kaldırdılar. Hedef, idamı orta vadede tamamen kaldırmak...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Koalisyonun ikinci büyük ortağı MHP'nin  lideri, Başbakan Yardımcısı Dr. Devlet Bahçeli de esasen çok şaşırmıştı. Kapalı grupta yanına oturan Meclis Grup Başkanvekili, Erzurum Milletvekili İsmail Köse’ye bunun sebebini soruyordu; “Niçin şimdi gündeme getirildi, bu konuda ayrıntılı bir not beliyorum”. Köse, öteki grup başkanvekilleri Mehmet Şandır ve Koray Aydın’la birlikte geniş bir not hazırlayarak Genel Başkana sunmuşlardı. Not konunun tam anlamıyla ‘siyasi yatırım’ olduğunu ima ediyordu. Notta ‘idamın tamamen kaldırılmasını gündeme ağırlıklı olarak taşıyan ANAP lideri Başbakan Yardımcısı Mesut Yılmaz ve arkadaşlarının konuyu seçim yatırımı olarak gördüklerine ilişkin’ değerlendirmeler vardı. Bahçeli bu notu aldıktan sonra nihai kararını verdi ve konuştu; “Böyle bir şeye kesinlikle gelemeyiz.” Bahçeli, konu üzerinde birkaç açıklama yaptı ve kendisine verilen notlara pek de göndermede bulunmadan “Böyle bir zamanda, idamın tamamen kaldırılması konusunun niçin gündeme getirildiğini ne ben ne de partim anlayabilmiş değiliz” ifadelerini kullandı. Konu, sadece iki parti arasında süren bir tartışma olarak kalmamış, Meclis’te grubu bulunan öteki partilere de sirayet etmişti. Neticede, bayramlaşmak için partisinin Bahçeli semtinde bulunan genel merkezine gelen DSP lideri ve Başbakan Bülent Ecevit de, Devlet Bahçeli’ye sunulan nota adeta göndermede bulunarak bir açıklmada bulunmuş ve ‘Daha öncelikli konuların konuşulması lazım gelen böyle bir dönemde konunun gündeme getirilmesini doğru bulmadıklarını’ kaydetmişti. Ecevit’in burada söylediği önemli bir cümle daha vardı; “Evet, Sayın Bahçeli haklıdır.” Peki böylesi önemli bir gündem maddesi nasıl ortaya atılmıştı? Konunun önemli ayrıntıları esasen yaklaşık üç yıl öncesine dayanıyor..
+   <br>
+    <br>
+     Helsinki Zirvesi’ne 30 kala...
+     <br>
+      <br>
+       Koalisyon liderlerinin, Helsinki Zirvesi’ne 30 gün kala yaptıkları zirvede, sürpriz bir şekilde idam cezasının kaldırılması gündeme gelmişti. Verilen haberlerde, idam cezasının kaldırılması ve demokratikleşmenin masaya yatırılacağı MGK benzeri özel bir devlet zirvesinin de gündemde olduğu bildiriliyordu. Bu amaçla Cumhurbaşkanı Demirel’e zirve teklifinin götürüldüğü ve Köşk’ten yanıt beklendiği kaydedildi. Başbakan Ecevit, Başbakan Yardımcısı Devlet Bahçeli ile ANAP Genel Başkanı Mesut Yılmaz’ın gerçekleştirdikleri 6.5 saatlik görüşmede, Avrupa Birliği ile ilgili gelişmeler ve İstanbul’daki  AGİT toplantısının ele alındığı ve bu çerçevede AB’nin Kopenhag Kriterleri üzerinde durulduğu kaydediliyordu.
+       <br/>
+       <br/>
+       Adalet Bakanı Hikmet Sami Türk ile insan haklarından sorumlu eski Devlet Bakanı Mehmet Ali İrtemçelik de toplantıda liderlere bilgi sunmuşlardı. İrtemçelik, Türkiye’nin Avrupa Parlamentosu’na idam cezasını kaldırma konusunda geçmişte taahhütte bulunduğunu hatırlatarak, “Bu cezayı kaldırırsak, Türkiye olarak çok rahatlarız. Helsinki öncesi büyük bir dezavantajı da ortadan kaldırmış oluruz. Zaten dünyada, 1983’ten bu yana idam cezasını uygulamayan bir ülke olarak biliniyoruz” sözlerini sarfetmişti.
+       <br/>
+       <br/>
+       Evet, idam görüşüldü
+       <br/>
+       <br/>
+       12 Kasım 2001 Cuma günü Başbakan Bülent Ecevit başkanlığında gerçekleşen liderler zirvesinde de yine idam konusu gündemdeydi. Avrupa İnsan Hakları Mahkemesi’nin Türkiye’yi de bağladığını söyleyen Başbakan Ecevit, zirvede yetkili bakanların, Avrupa ülkelerinde idam cezasının uygulanıp uygulanmadığı ve nasıl uygulandığı konusunda bilgi sunduğunu söyledi.
+       <br/>
+       <br/>
+       İnsan haklarından sorumlu eski Devlet Bakanı Mehmet Ali İrtemçelik de bir açıklama yaparak, idam cezasının TBMM tarafından uygun bir zamanda kaldırılmasının ‘makul ve yerinde olacağını’ bildirmişti. Liderler zirvesine idam cezasının kaldırılması yolunda bir rapor sunan İrtemçelik, yaptığı açıklamada şunları belirtmişti; “Mensubu olduğumuz Avrupa Konseyi camiasındaki yeknesak uygulamaya paralel olarak, idam cezasının Türk hukuk sisteminin de dışında bırakılması yolundaki düşünce ve girişimler yeni değildir. İnsan hakları ve demokrasi alanındaki standartlarımızın yükseltilmesi bağlamında atılması esasen gereken adımlar meyanında, idam cezasının kaldırılması konusunun da TBMM’nin iradesiyle belirlenecek uygun bir vadede sonuç vermesi makul ve yerinde olacaktır.”
+       <br/>
+       <br/>
+       İdam cezası kaldırılmalı...
+       <br/>
+       <br/>
+       İdamın kaldırılması koalisyon ortaklarının gerçekleştirdikleri zirve toplantılarında ağırlığını korurken Türk kamuoyunda da konu sıcak tutuluyordu. Yapılan bir kamuoyu araştırmasında deneklerin idamın kaldırılıp kaldırılmamasına ilişkin sorulara verdikleri cevaplar şu şekildeydi: Hayır kaldırılmamalı %53,5. Evet kaldırılmalı %38,3. Kadın ve erkek denekler  arasında fazla bir fikir farkının olmadığı görülen araştırma sonuçlarına göre gençler, orta yaş ve üstüne göre daha yüksek oranda  idam cezasının kaldırılmasından yana bir tutum sergiliyorlardı. Eğitim seviyesi yükseldikçe idam cezası kaldırılmalı diyenlerin oranı da artıyordu. Özellikle siyasi tercihlerinin DSP ve CHP olduğunu söyleyen denekler idam cezası kaldırılmalı derken; siyasi tercihleri DYP, MHP ve ANAP olan denekler ise idam cezasının kaldırılmasına karşı olduklarını belirtmişlerdi.
+       <br/>
+       <br/>
+       BM: İdam ve OHAL kaldırılsın!
+       <br/>
+       <br/>
+       İdamın kaldırılması konusunun koalisyon ortakları arasında ciddi bir sorun olarak başgöstermesinden hemen önce de, 27 Ocak 2002’de, Birleşmiş Milletler Türkiye’ye ‘idamın ve Olağanüstü Hal uygulamasının ve  köy koruculuğu sisteminin kaldırması için’ çağrıda bulunmuştu. Birleşmiş Milletler İnsan Hakları Komisyonu Kanun Dışı ve Yargısız İnfazlar Özel Raportörü Asma Jahangir’in 19 Şubat—1 Mart 2001 tarihleri arasında Türkiye ve Kuzey Irak’a yaptığı incelemenin sonucunu aktaran rapor, Cenevre’de açıklanmıştı. BM Özel Raportörü Bangladeşli Asma Jahangir, 31 sayfalık raporunda, Türkiye’de yıllarca yapılan insan hakları ihlallerini çok sayıda örnekle saydıktan sonra, tavsiye bölümünde demokratikleşme için idam, OHAL ve köy koruculuk sisteminin kaldırılmasını, cezaevi sorununun “iyi niyetle” çözülmesini, insan hakları ihlallerinin durdurulması için “bağımsız” bir komisyon kurulmasını, insan haklarını ihlal edenlerin yargılanmasını önermişti.
+       <br/>
+       <br/>
+       BM raporunda, Türkiye’de idam cezasının halen kaldırılmadığına da dikkat çekilmiş, idamın tamamen kaldırılması için hükümetten “acil adımlar atması”, var olan idam kararlarının uygulanmaması için moratoryumu sürdürmesi ve Avrupa İnsan Hakları Sözleşmesi’nin (AİHS) idamın kaldırılması ile ilgili 6. Ek Protokolü’nü imzalaması talep edilmişti.
+       <br/>
+       <br/>
+       19 Mart sendromu
+       <br/>
+       <br/>
+       Raporun hemen ardından da konu Türkiye’de birinci gündem maddesi olarak yeniden tartışılmaya başlandı ve ANAP lideri Mesut Yılmaz, idamın Türkiye’de tamamen kaldırılmasına yönelik bir teklifi Kurban Bayramı öncesinde müzakereye açtı. Tartışmalardan sonra varılan uzlaşma ise ‘konunun daha geniş bir zaman dilimine yayılmasıydı.’ Ortaklar konunun hassasiyetine binaen idamın tamamen kaldırılmasını orta vadede varılması gereken bir hedef olarak görüyorlar ancak Türkiye’nin de 19 Mart 2002’de kritik bir dönemeci bulunuyor. Bu tarihte Türkiye’nin AB’ye giriş müzakerelerinin başlayıp başlamayacağı belirlenecek. Bunun için en azından bu tarihe kadar ‘Savaş, yakın savaş tehdidi ve terör suçları dışındaki’ suçlarda idamın kaldırılması için Adalet Bakanlığı tarafından hazırlanan ve Bakanlar Kurulu’nda bulunan tasarının Meclis’ten bir an önce geçmesi gerekiyor. Bunun için gerekli mutabakat da var zaten...
+       <br/>
+       <br/>
+       Ad okunarak...
+       <br/>
+       <br/>
+       Son bir not ise idam konusuyla paralel olarak tartışılan terörist başı Abdullah Öcalan’ın idam edilmesiyle ilgili. MHP içindeki şahinler grubundan Çorum Milletvekili ve eski Bakan A. Haluk Çay, Aksiyon’a verdiği özel değerlendirmesinde, Öcalan hakkındaki idam dosyasının halen Başbakanlıkta beklemesine anlam veremediğini belirtiyor ve şu teklifi yapıyordu; “Biz aynı düşünen arkadaşlar olarak dosyanın Meclis Genel Kurulu’ndaki oylamasının açık ve ad okunarak yapılmasını teklif edeceğiz. Bakalım kaçamak davranmak isteyen parti liderleri ve politikacılar ne yapacaklar merak ediyorum.”
+       <br/>
+       <br/>
+       Çay’ın ve arkadaşlarının teklifi kabul edilir mi? Ne dersiniz?
+       <br/>
+       <br/>
+       E—mail: a.oksuz@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12502), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225163328/http://www.aksiyon.com.tr:80/detay.php?id=12502)

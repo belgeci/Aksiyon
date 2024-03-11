@@ -1,0 +1,89 @@
+# 'En azından bir müsteşarlık istiyoruz'
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   (TÜBİSAD) Başkanı Erol Bilecik:
+“Telekom’un hâlâ özelleştirilmemiş olması, birçok gelişmenin önünü kapatıyor. Artık paraya bakılmaksızın, gerekirse bir dolar karşılığında satmak ve ondan 20 milyar dolarlık gelir sağlamanın yolunu aramak gerekiyor.”
+   <br/>
+   <br/>
+   Yeni hükümet, büyük beklentilerle yola çıktı. Hızlı bir başlangıç yaptı. Yoğun tempo ile Avrupa Birliği için koşturdu. Görüşmeler sürecinde genelde olumlu tepkiler aldı. Diğer tüm icraatler için de aynı gayret sarfedilirse, kısa zamanda ülkenin düzlüğe çıkabileceğine dair görüşler dile getirildi.
+   <br>
+    <br>
+     Bu süreçte ister istemez herkes gözünü Avrupa’ya dikti. İç gündemden biraz uzaklaşmış oldu. Müzakere süreci bittiğinde ise, topyekün millet olarak herşeyin bıraktığımız gibi olduğu yerde durduğunun farkına vardık. Şimdi de aynı tempoyu içerideki öncelikli sorunlarımıza yoğunlaştırmamız gerekiyor. Öncelikli problemler arasında ilk sırayı tutan ekonomiyi bir an evvel ayağa kaldırmamız gerekiyor.
+     <br>
+      <br>
+       Bilişim sektörünün de öteden beri, genel piyasa koşulları nedeniyle sıkıntıları sürüyor. Bilgi toplumu hedefine ulaşmak için, ihmal edilmemesi gereken bir noktada bulunuyor. Buna karşın gerek ithal edilen ürünlerle ilgili gerekse eğitim, e—devlet, iletişim gibi konularda bakanlıklar arasında koordinasyon sorunu yaşanabiliyor. Bilgi toplumu hedefinin tek bir merkezden destek alarak gündeme taşınması ve gümrük sorunlarının kökten çözümü için de zaman zaman “Bilişim Bakanlığı” teklifleri gündeme geliyor.
+       <br>
+        <br>
+         Türkiye Bilgi İşlem Hizmetleri Derneği (TÜBİSAD) Başkanı Erol Bilecik ile, hem gündemdeki sorunları hem de geleceğe yönelik beklentileri konuştuk.
+         <br/>
+         <br/>
+         – Hem bir işadamı hem de bir sivil toplum kuruluşu temsilcisi olarak söyler misiniz, Türkiye’de bilişim ve internetin gelişmesi için neler yapılmalı?
+         <br/>
+         <br/>
+         Herşeyin temelinde sanki Telekom’un özelleştirilmesi var gibi. Ne yazık ki her aşamada bunun getirdiği sonuçlarla başbaşayız. Telekom’un özelleştirilmesi bu işi daha kolaylaştırabilirdi. Maliyetlerin düşmesine ciddi katkı sağlayabilirdi. Altyapı problemleri bir bütün olarak daha farklı bir bakışla, daha farklı maliyetlerle, daha farklı bir süreçte çözümlenebilirdi. Rekabetçi bir yapının ortaya çıkması gerekiyordu.
+         <br/>
+         <br/>
+         – Telekom’un özelleştirilmesi çok konuşuldu fakat pek de umut görülmüyor gibi sanki?
+         <br/>
+         <br/>
+         6—7 yıl önce Telekom’un özelleştirilmesi için 10 milyar doları beğenmezken belki de şu anda 1 dolar karşılığında satmak gerekiyor. Aynı yıllarda Meksika, 20 milyar dolar karşılığında telekom hizmetlerini özelleştirmişti. Fakat biz, naz yaparken o treni kaçırdık. Artık bence paraya bakılmadan bir an evvel özelleştirmenin yapılması gerekiyor. Çünkü hakikaten ülkenin önünü tıkıyor mu tıkamıyor mu onu değerlendirmek gerekiyor. Bir dolar mukabilinde satılması teklifini bile ciddi anlamda düşünmek gerekiyor aslında. Bunun getireceği faydayı hesap etmek gerekiyor. Bir dolara satıp 20 milyar dolar getiri sağlanabilir mi diye bakmak daha isabetli olacaktır bundan sonraki dönemde.
+         <br/>
+         <br/>
+         Nihayetinde, teknik altyapıyı çözen bir yapının olması gerekiyor. İşin yazılım ayağında, alınabilecek bir sürü yol var. Bazı gerçekleri de kabul etmek gerekiyor. Kalıcı olarak gelecek müteşebbis ruhlu yabancı yatırımcının bazı şeyleri temiz görmesi gerekiyor. Telekom’un genel yapısına baktığımızda ben bu tür oyuncuların gelebilme ihtimalini biraz daha zor görüyorum.
+         <br/>
+         <br/>
+         – Yabancı bilişim şirketlerinin yatırımları konusunda iyi bir Hindistan örneği var. Türkiye bu konuda niçin fırsatları kaçıran bir noktada duruyor?
+         <br/>
+         <br/>
+         Aslında bu oldukça derin bir mesele. Dünyada üç tane tipik örnek var. Bir tanesi İsrail, ikincisi Hindistan ve üçüncüsü de Malezya. Yazılım ihracatı konusunda kişisel olarak şöyle bir hissiyatım da var. Yeni hükümetin bakanlarından birinin Sayın Kürşat Tüzmen olması sanki 2003 ve sonrasında Türkiye’nin yazılım ihracatı konusunda bazı şeylerin değişebileceğini çağrıştırıyor. Sayın Bakanımızın bilişim sektörü adına çok büyük bir şans olduğunu düşünüyorum. Yüzyüze görüşmelerimizde Türkiye’nin kurtuluş noktalarından bir tanesinin yazılım ihracatı olduğunu ifade etmesi, birçok şeyin ileriye yönelik olarak değişebileceğinin işaretidir diyorum.
+         <br/>
+         <br/>
+         Bu noktada, özel sektörün tek başına hareket etmesi zaten mümkün değil. Devletin bu alanda özel sektörle birlikte çalışmalar yapması gerekiyor. Teknoparklar ve üniversiteler bazında bu konuyu teşvik edici birçok karar alınabilir. Bizim, kalifiye insan kaynağı problemimiz olduğuna inanmıyorum. 60’tan fazla şehirde bulunan üniversitelerimizin bilgisayarla ilgili bölümlerinden her yıl binlerce genç mezun oluyor. Bu potansiyel çok iyi biçimde değerlendirilebilir.
+         <br/>
+         <br/>
+         Donanım üretimi açısından baktığımızda treni kaçırdığımız kesin. Çok büyük üreticilerin, üretim haritalarına baktığımızda artan rekabet yüzünden Asya’da bir tane, Avrupa’da bir tane ve Amerika’da bir tane merkezde toplandığını görüyoruz. Dolayısıyla bu tabloya bakarak, IT üreticilerinin Türkiye’ye gelip yatırım yapmalarını beklemek karşılıksız bir sevda olur. Bu durumu analiz ederek, yazılımcı profesyonellerimizi iyi yönlendirip özel sektörü de teşvik ederek yazılım ihracatında ciddi gelişmeler kaydedebiliriz.
+         <br/>
+         <br/>
+         İsrail gibi nüfusu 3—4 milyon olan bir ülkenin 3 milyar doları aşkın bir yazılım ihracatı potansiyeli bulunuyor. Hükümetin de bunu özel bir disiplin ile desteklemesi sayesinde bunu başarmış olsalar da, ben bunun bizde de gerçekleşebileceğini düşünüyorum. Bu açıdan baktığımda Sayın Kürşat Tüzmen’in dış ticaretle ilgili bir bakanlıkta bulunmasını büyük şans olarak görüyorum.
+         <br/>
+         <br/>
+         Teknoparklar ve üniversitelerdeki çalışmaların teşvik edilmesi ile 5—10 yıl içerisinde yazılım ihracatı açısından dışa açılan çok farklı bir penceremiz olacağına inanıyorum.
+         <br/>
+         <br/>
+         Merkezi İsrail’de bulunan 350 tane ciddi ölçekteki yazılım şirketinin Amerika’da önemli bir pazara sahip olduğu örneği var. Dolayısıyla bunun bir rüya olmadığını düşünüyorum.
+         <br/>
+         <br/>
+         Aslında tüm bu koordinasyon eksiklikleri bizi şöyle bir adrese götürüyor. Eğer Türkiye, bilgi toplumu olma yolunda bir adım atmak istiyorsa, buna dayalı bir yapı kurmak istiyorsa, bir bilişim bakanlığının kurulması gerekiyor. Bugün eğer Tarım ve Köyişleri Bakanlığı varsa, Sanayi Bakanlığı varsa, Turizm Bakanlığı varsa bilişim bakanlığının da olması gerekiyor. 12 milyar dolarlık bir ciro hedefiyle Turizm Bakanlığı belli bir öneme sahipse, 5 milyar dolar yazılım ihracatı yapması beklenen bilişim sektörünün de bir bakanlık desteğine ve düzenlemesine ihtiyacı bulunuyor. Bu, her sektörün bir bakanlık istemesi gibi birşey değil. Tekstil bakanlığı, otomotiv bakanlığı istemek gibi birşey değil bu. Bilgi toplumu olacaksak, bilişim bakanlığı, olmazsa olmaz denilebilecek bir ihtiyaç. Eğer bugün için bu mümkün değilse, en azından bir “bilişimden sorumlu müsteşarlık” ile başlanabilir.
+         <br/>
+         <br/>
+         – Ya e–devlet?.. Sizce yapılan çalışmalar hangi aşamada?
+         <br/>
+         <br/>
+         Yapılan çalışmalara, haliyle yeterli demek mümkün değil. Ancak bir başlangıç denilebilir. Özellikle 2000 yılı ve sonrasında önemli gösterge sayılabilecek gelişmeler oldu. Aslında “e—devlet” yerine “e—dönüşüm” demek daha doğru olabilir. Özel sektörde iş yapma şeklinin değişmesi, eğitimin e—eğitime dönüşmesi, sağlık hizmetlerinin e—sağlık şekline dönüşmesi. Bu bir süreç haliyle. Çok olumlu adımların atıldığı bir süreç yaşıyoruz.
+         <br/>
+         <br/>
+         Yeni hükümet büyük umutlarla kuruldu. Tek partili bir hükümet olması nedeniyle, ülke için de çok büyük bir şans. Hükümetten ana beklentimiz, bilişim politikalarının çok net ve seri biçimde hükümet politikaları içinde yer alması. Seçim bildirgelerinde yer alan bir çok maddenin hükümet programında yer almadığı görülüyor. Sektör olarak, bunların telafi edilmesini bekliyoruz. Bakanların önemli bir kısmının bilişime yatkınlığını eğitim ve bilişimdeki sorunlara hassas yaklaşabilecekleri için bir şans olarak görüyorum.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 149 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2256), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043619/http://www.aksiyon.com.tr:80/yazdir.php?id=2256)

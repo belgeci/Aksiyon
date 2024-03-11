@@ -1,0 +1,76 @@
+# Değişim onlarda donmuş
+
+*Meral Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119040530im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119040530im_/http://www.aksiyon.com.tr/resim/493/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Göçlerle farklı coğrafyalara savrulmuşlar. Yüzyıllar geçse de giyimden dini değerlere hiçbir özelliklerinde zerre kadar değişmeye yanaşmamışlar.
+  <br>
+   1740-1962 yılları arasında Manyas ve Akşehir Gölü kıyılarında yaşayan Don Kazakları "değişim" kavramına pabucunu tersten giydiren bir irade göstermiş.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu hikaye en başından değişmeme ve direnme üzerine kurgulanmış bir tarih gibi. Kazakistan Kazaklarıyla hiç bir ortak yönü olmayan Don Kazakları, dinlerinden ve özgür yaşantılarından ödün vermektense Rusya"daki evlerini barklarını bırakıp, hoşgörü atmosferinde yaşamak için 1740"lı yıllarda Manyas dolaylarına yerleşiyor. Bir grup Kazak da 1883 yılında Romanya"dan göç ederek Akşehir Gölü kıyısına yerleşiyor. Balıkçılıkla uğraşan, tatlı su balıkçılığına dair bilinenleri Türklere öğreten Kazaklar, Kocagöl ve civar köylerde Türk komşularıyla mutlu mesut yaşarken tersine göç etmek durumunda kalıyor. Göçün en bariz sebebi ise evlenme sıkıntısı yaşamaları. O yıllarda bazı gazetelere de konu olan Kazakların bu sorunu dini yaşamlarının bir sonucu olarak karşılarına çıkmış. Kendi aralarında yedi göbek evlenme yasağı olan Kazaklar, Türklerle evliliğe de yanaşmayınca ciddi bir açmaza girmiş. Krug adındaki meclisleri ve dinleri gereği sadece Ortodokslarla evlenmelerine müsaade edilen Kazaklar Rusya"ya döndükleri zaman evlilik sıkıntısını kısmen aşsalar da eski yurtlarında umdukları hayatı bulamamış.  Anadolu"da iki yüzyıl boyunca kültürlerini dondurmuşlar fakat anayurtlarına döndüklerinde her şeyi değişmiş bulmuşlar.
+   <br>
+    <br>
+     Yüzyıllar içinde giyimden dini değerlere ve sıradan yaşantıya kadar zerre değişmeyen Don Kazakları"nın değişim olgusu karşısında böylesine güçlü kalması onların hikayesini oldukça orijinal kılıyor. Göl kenarında yaşayan insanları fotoğraflamak için yolu Manyas"a düşen fotoğrafçı ve araştırmacı Servet Somuncuoğlu bir zamanlar buralarda bütün hayatı balıkçılık olan Don Kazakları"nın hikayesiyle karşılaşmış. 220 yıl göl kenarlarında yaşadıktan sonra 1962"de tekrar Rusya"nın Don bölgesine göç eden Kazaklar hakkında bulduğu her bilgi kırıntısı merakını daha da artırmış. Rusya ve Orta Asya coğrafyasının özelliklerini yansıtan, Ortodoks dinine mensup bu insanların göçlerle savruluşunun peşinde 4 yıl iz sürmüş. Çarlık Rusyası, Osmanlı"nın son dönemleri ve Cumhuriyet"in ilk yılları derken kendisini 300 yıllık bir tarihte bulmuş.
+     <br>
+      <br/>
+      Servet Somuncuoğlu"nun adım adım bilgiye ulaşıp kitaplaştırdığı "Don Kazakları"nı okurken kendinizi Somuncuoğlu"nun arabasının arka koltuğunda oturur gibi hissediyor, her olaya birlikte tanık oluyorsunuz. Somuncuoğlu, göç eden  Kazakların önemli bir kısmını Rusya"da bulmuş. Bu köyleri "sosyolojik bir laboratuvar " olarak nitelendiriyor. Göç dalgası gündeme geldiği zaman İstanbul"a yakın olan Kazaklarla İstanbul"a uzakta oturanlar ciddi bir yol ayrımına giriyor.
+      <br/>
+      <br/>
+      Rusya"ya dönen Kazaklar fakir, Amerika"ya göç edenler zengin olmuş
+      <br/>
+      <br/>
+      Manyas Kazakları Rusya"ya, Akşehir"dekiler Amerika"ya göç ediyor. Amerika"ya gidenler zenginleşirken, ana yurdu tercih edenler hayal kırıklığı yaşıyor. Somuncuoğlu"na göre, Manyas civarındaki Kazaklar propagandalardan etkilendi ve Rusya"yı tercih etti. Amerika"ya giden Akşehir Kazakları daha özgür karar verdi.
+      <br/>
+      <br/>
+      Kitaplaştırdığı bulgular daha çok Rusya"ya geri giden Kazaklara ait. Kazaklar Rusya"da kilise cemaatine göre yerleştiriliyor. İki farklı kiliseye mensup olan Kazaklar için iki ayrı köy oluşturuluyor. Kitapta,  Kazaklardan başka Kars"tan göç etmiş Malakanlar da yer alıyor. İki grubun bazı ortak özellikleri var. Bir kere Malakanlar da, Kazaklar da Çarlık Rusya"sı tarafından sevilmiyor. İnançlarına bağlılar, devlete asiler ve özgürlüklerine aşırı düşkünler. Göç sebepleri de benzer özellik taşıyor.
+      <br/>
+      <br/>
+      Kars"ın Rus işgaline maruz kaldığı dönemde Malakanlar süt içmek ve dinlerinde radikal olmak gibi suçlarla Kars"a sürülüyor. Çarlık Rusyası Malakanlara niye süt yüzünden takmış bilemiyoruz ama Malakan Rusçada süt içen anlamına geliyor. Malakanlar halen her gün süt içiyor.
+      <br/>
+      <br/>
+      Dışarıya kapalı bir yaşam tarzları var. Aynı köyde Kazakların evinde misafir olurken Malakanların kapısını aralamakta zorluk çekiyor Somuncuoğlu. "Malakanlar radikal muhafazakâr bir toplum. Hiç bir şekilde değişim taraftarı değiller. Evlerine bile yabancı kabul etmiyorlar. İbadetleri gizli. Kazaklar Ruslarla evlenmiş fakat Malakanlar bu tür evlilik yapan çocukları reddediyor. İçinde 5 bin yıl öncesinin din anlayışına dair bilgiler olan ve Güneş adını verdikleri bir kitapları var" diyor.
+      <br/>
+      <br/>
+      İçleri ağlayarak gitmişler
+      <br/>
+      <br/>
+      Somuncuoğlu farklı coğrafyalarda bulunan birçok Kazak aile ile görüşmüş. Göç yıllarını yaşayanların içinde derin bir Türkiye hasreti olduğunu belirten Somuncuoğlu gördüğü tabloyu şu şekilde özetliyor: "Şu anda 50 ve üzeri yaş grubunda olan Kazakların ve Malakanların hepsi Türkçe biliyor. Hatta çocuklarına Türkçe öğretenler bile var. Türkiye"den geldiğimizi duyunca boynumuza sarılıp ağlayanlar oldu. Sohbet ederken cüzdanlarındaki Türk bayrağı, Atatürk resmi ya da askerlik fotoğrafını gösteriyorlar. Ayrıca ibadet ve sosyal yaşantılarında bizden çok şey almışlar. Mevlit okutuyor, sünnet merasimi yapıyorlar... Bir masal bu belki ama yeniden Türkiye"ye gelip yaşamayı çok arzu ediyorlar. Çünkü Türkiye"de yaşarken özgürlük sorunları olmamış. Maddi durumları fena değilmiş. Hatta göçe karar verildiği zaman malını mülkünü satıp parayı harcaya harcaya bitiremeyenler olmuş. Rusya"ya dönüşten sonra göçe sebep olanlara yıllarca beddua edildiği söyleniyor. Amerika"ya gidenler arasında da Türkiye özlemi çekenler var. Kars"tan Amerika"ya göç eden Vasil Denisenko, görüşmelerimizde "Kars"ın bir sokağına Amerika"yı değişmem" diyordu."
+      <br/>
+      <br/>
+      Göç hikayesi içinde romanlara konu olacak kahramanlara da rastlamış Somuncuoğlu. Mesela herkes giderken kalan Valedo ve Anna çiftinin tarihi fonksiyonu onun için çok önemli. Manyas"ın Kocagöl köyünde yaşayan çift, şimdiye kadar göç hakkında kimseye konuşmamış. "Bu kitabı bir roman formatında yazacak olsaydım, kahramanlarım Valedo ve Anna olurdu. Göç öncesi Kocagöl"de arkadaş olan ve farklı ülkelere dağılan 3 genç kızın uzun bir süre mektuplaşması, aşk hikayeleri var. Türkiye"den başlayarak farklı ülkelerde Don Kazaklarının haritasını veren bu kitapla göçün savurduğu insanların tekrar kucaklaşmasını isterim. Keşke Kültür ve Turizm Bakanlığımız bir imkan oluştursa ve Kazakların Türkiye"deki köylerini bir kez daha görmelerini sağlayabilse. Buraların özlemini çekiyorlar. Çoğunun bu yolculuğu karşılayacak parası yok" diyor.
+      <br/>
+      <br/>
+      İnsan sıcağı
+      <br/>
+      <br/>
+      Don Kazakları kitabının kendisine çok farklı ufuklar açtığını belirten Servet Somuncuoğlu, farklı milletlere ait göç gruplarının hikayesini de yazmayı planlıyor. Fotoğraf ve yazıları Atlas Dergisi"nde de yayınlanan Somuncuoğlu"nun yayına hazır birbirinden renkli çalışmaları var.
+      <br/>
+      <br/>
+      "Göl İnsanları" "Şimdi Dem Zamanı" (Çay ve çay kültürünü işliyor), "Dört Mevsim Bir Balıkçı" (Dere balıkçısı ile dört mevsim yapılan fotoğraf çalışması), "Otantik Anadolu Evleri", "Doğa Çiçekleri" yazarın araştırdığı konular arasında.
+      <br/>
+      <br/>
+      Her ne kadar göçle savrulan Kazakların asi ve radikal yaşantısını dört yıllık bir araştırmayla kitaplaştırmış olsa da yazar Somuncuoğlu temelde "insan" unsurunun peşine düşmüş. "İnsan sıcağını yakalamak istedim" diyor. Çocukluğunun geçtiği Manyas civarında yolda gördüğü bir köylü ahbabını arabaya alıp sohbet ederken "Kazak köyü" sözüne dikkat kesilmesi de bu sebepten olsa gerek. Yoksa, buralarda adı sanı kalmamış Kazaklar için bu kadar çaba neden sarf edilmiş olsun ki?
+      <br/>
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11488&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119040530/http://www.aksiyon.com.tr:80/detay.php?id=11488&yorum_id=1)

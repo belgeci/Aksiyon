@@ -1,0 +1,70 @@
+# Beyin göçünü durdurma enstitüsü
+
+*Yasin Uygur Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050115213740im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050115213740im_/http://www.aksiyon.com.tr/resim/522/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yurt dışında eğitim gören yaklaşık 50 bin Türk öğrenci var. Her 100 öğrenciden 59’u iyi eğitim ve iş imkanları nedeniyle ülkeye geri dönmüyor. Yüksek Araştırma Enstitüsü, Türk bilim adamlarına ve genç beyinlere uygun ortamlar hazırlayıp beyin göçünü tersine çevirmeyi hedefliyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bilim adamlarına sağlanan imkanların yetersiz olması herkesçe bilinen bir sorun. Türk hükümetlerinin, çok sayıda insanın ABD’deki üniversitelere gitmesindeki payı büyük oldu ve beyin göçü eskisi kadar fazla olmasa da bugün de devam ediyor. Beyin göçünün engellenmesi ve bilim adamlarına araştırma imkanlarının sağlanması ise devlet kuruluşlarının ve özel kuruluşların malî açıdan desteklenmesi Türkiye’nin batı standartlarına ulaşması ve uluslararası alanda bilgi toplumu olması ile eş değerde. Bu husus, özellikle Avrupa Birliği üyeliği sürecinde büyük öneme sahip.
+   <br>
+    <br>
+     Bugüne kadar hiçbir hükümetin Türk bilim adamlarına ve genç beyinlerine doğrudan sağlamadığı imkanları yakın zamanda kurulması planlanan yüksek araştırma enstitüsü gerçekleştirmeye hazırlanıyor. Benzer örnekleri dünyada çok az olan enstitü ile gelecek vaat eden yüksek lisans ve doktora öğrencilerine geniş araştırma imkanlarının sağlanması hedefleniyor. Ayrıca, dünya çapında araştırmacıları bir araya getirerek, birbirlerini anlayabileceği ve birlikte projeler üretebileceği bir bilim dili oluşturmalarını sağlamak da amaçlanıyor.
+     <br>
+      <br>
+       Her 100 öğrenciden 59’u geri dönmüyor
+       <br/>
+       <br/>
+       Türkiye beyin göçü en fazla olan 32 ülke içinde 24’üncü, yurt dışına en çok öğrenci gönderen ülkeler arasında ise 11’inci sırada bulunuyor. Son 12 yılda Milli Eğitim Bakanlığı’nın bursuyla yurt dışına giden 1991 öğrencinin 769’u (yüzde 38), Türkiye Bilimsel ve Teknik Araştırma Kurumunun bursuyla giden öğrencilerin ise yüzde 21’i geri dönmedi. Her 100 öğrenciden 59’u iyi eğitim ve iş imkanları nedeniyle yurt dışındaki kuruluşlara ya da üniversitelere kaptırılıyor.
+       <br/>
+       <br/>
+       Türkiye’de beyin göçü ilk kez 1960’lı yıllarda tıp doktorları ile başladı. Doktorları, mühendisler ve bilim adamları izledi. ABD’de 3 bin 600 Türk doktoru bulunuyor. Bunlardan sadece 90’ının Türkiye’ye dönmüş olması, beyin göçünün ne kadar büyük boyutlarda olduğunu gösteriyor. Halihazırda 24 bini Almanya’da, 15 bini ABD’de olmak üzere 50 binden fazla Türk öğrenci yurt dışında eğitim görüyor. Bu ülkeleri İngiltere, Kanada, Belçika, Avustralya, Fransa ve G. Afrika izliyor.
+       <br/>
+       <br/>
+       Beyin göçünü tersine çevirmeyi amaçlayan yüksek araştırma enstitüsü benzeri kurumların işlevi sosyal bilimlerde ya da doğa bilimlerinde en can alıcı soruları üreterek bunların etrafında araştırmayı teşvik etmek ve yeni teoriler üretmek. Türk akademisyenlerinin dünyaya açılmasında önemli bir rol üstlenmesi beklenen enstitü, Avrupalı araştırmacılarla sınırlı kalmayarak Ortadoğu ve Orta Asyalı araştırmacılar için bir cazibe merkezi olmaya aday.
+       <br/>
+       <br/>
+       Aranan en önemli şart ilginç konu çalışmak
+       <br/>
+       <br/>
+       İstanbul merkezli kurumda çalışabilmek için önemli bir şart aranıyor: Daha önce keşfedilmemiş, yeni ve çok ilginç bir konu üzerinde araştırma yapmak. Böylece yeni ve orijinal fikirlerin üretilmesi öngörülüyor. Katılımcılara verilecek 9 aylık sürenin sonunda elde edilecek araştırma sonuçlarının paylaşılması sayesinde hem Türk toplumunun bilgi seviyesi yükselecek hem de Türkiye’nin uluslararası yayınlara yaptığı katkı önemli oranda artacak.
+       <br/>
+       <br/>
+       Enstitünün kuruluş işlemlerini yürüten ve Berlin’de kurulan Avrupa’nın ilk Yüksek Araştırma Enstitüsü Wisenschaftskolleg’de bir buçuk yıl kadar araştırma yapan Boğaziçi Üniversitesi Tarih Bölümü Öğretim Üyesi Prof. Dr. Huricihan İslamoğlu, bilimsel üretimin azlığını bilim adamlarının tembelliklerine atfetmenin yanlış olacağını söylüyor. İslamoğlu’na göre, Türk bilim adamları ABD ve diğer Batı Avrupa ülkelerinde doktora çalışması sırasında gayet önemli araştırmalara imza atıyor. Türkiye’ye döndüklerinde ise uluslararası dergilerde yayın yapıyorlar; ancak bu yayın hayatı ikinci ya da üçüncü yılın sonunda kesiliyor. Araştırma ve onun sonucu ortaya çıkan yayınların araştırmacıların bir araya gelerek kafalarındaki soruları tartıştıkları, formüle ettikleri ortamlarda oluştuğunun altını çizen Huricihan İslamoğlu, Türk akademisyenlerin ders vermekten birbirleri ile konuşmaya ve tartışmaya vakit bulamadıklarını dile getiriyor.
+       <br/>
+       <br/>
+       Bugün Türkiye’de akademisyenlerin genelde bireysel çalışmayı tercih etmelerinden ötürü üniversiteler arasında bir iletişimsizlik söz konusu. Seminer ve sempozyum gibi faaliyetlerin azlığı bu iletişimsizliği körüklüyor. Ayrıca, farklı düşünce yapısına sahip gruplar arasında yeteri kadar diyalog olmaması da bilginin paylaşımını engelliyor.  Yüksek Araştırma Enstitüsü sayesinde genelde üniversiteler, özelde de akademisyenler arasındaki iletişimsizliğin azalacağı tahmin ediliyor.
+       <br/>
+       <br/>
+       İstanbul'daki Enstitüyü kurma girişimi Berlin'deki Wissenschaftskolleg'in desteği ile gerçekleştiriliyor. Bu girişimin ilk adımı olarak 5-6 Kasım, 2004 tarihlerinde Boğaziçi Üniversitesinde, Enstitü girişimini yöneten Huricihan İslamoğlu tarafından "İktisadi Reform, Hukuk, Toplumsal Adalet" konulu bir uluslararası konferans düzenlendi. Bu konferansın amacı, İstanbul'daki Enstitünün araştırma alanlarından birisi olacak olan hukuk, iktisat ve siyasetin kesiştiği bir alanın tanımlanmasıydı. Konferansta, hukuki kurallar tarafından kurgulanmakta olan yeni piyasa düzenlerinin, aynı zamanda siyasetin de alanları olduğu, bu yüzden de hukuk, iktisat ve siyasetin birbirleri ile ilişkili olarak düşünülmesi gerektiğinin önemine değinildi.
+       <br/>
+       <br/>
+       Yüksek araştırma enstitülerinin geçmişi
+       <br/>
+       <br/>
+       İlk yüksek araştırma enstitüsü ABD’de Princeton Üniversitesi’nde 1933 yılında Albert Einstein ve arkadaşları tarafından kuruldu. Enstitü, 1930’lar ve 1940’lar Nazi Almanya’sından kaçan Avrupalı bilim adamları için bir çalışma ortamı oluşturmayı amaçlıyordu. Enstitü, kısa zamanda Avrupalı bilim adamlarının Amerikalı meslektaşlarıyla bir araya geldiği ve fikir alışverişinde bulunduğu bir merkez haline geldi. İkinci Dünya Savaşı sonrası dönemde Princeton Üniversitesi’ndeki enstitünün ilkeleri gerek ABD gerekse bu enstitüyü örnek alarak kurulan diğer kurumlar tarafından benimsendi. Bu ilkeler bağımsızlık ve uluslararası nitelikler olarak tanımlanıyor. Bağımsızlıktan anlatılmak istenen, devletin siyasi yaptırımlarından olduğu kadar ekonomik güç odaklarının baskılarından da uzak olmak. Uluslararası olma özelliği ile de farklı ülkelerden gelen bilim adamlarının karşılıklı fikir alışverişinde bulunabilecekleri bir ortam tanımlanıyor.
+       <br/>
+       <br/>
+       Avrupa’da kurulan ilk yüksek araştırma enstitüsü ise, Berlin’de 1980’li yılların başında kurulan Wisenschaftskolleg oldu. Bu enstitü 1991’de iki Almanya’nın birleşmesi ile Avrupa’nın en önemli merkezi haline geldi. Enstitü maddi olarak en baştan beri Alman Devleti (özellikle Eğitim Bakanlığı) ve Berlin Belediyesi’nden destek görüyor.  Araştırma alanları hukuk, ekonomi, yönetişim bilimi, biyoloji, fizik ve felsefe gibi konuları içeriyor. Bu amaçla her yıl kırk kadar araştırmacı/akademisyen, bilim adamı dokuz aylık bir süre boyunca enstitüye davet ediliyor. Araştırmacıların yarısı Almanya’nın çeşitli akademik kuruluşlarından, diğer yarısı ise Doğu ve Batı Avrupa’dan, Ortadoğu ve ABD’den seçiliyor. Şu anda kurulu olan diğer yüksek araştırma enstitüleri ise ABD, Macaristan, Romanya, Hollanda, İsveç, Rusya ve Mali’de bulunuyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18884&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050115213740/http://www.aksiyon.com.tr:80/detay.php?id=18884&yorum_id=1)

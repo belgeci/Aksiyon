@@ -1,0 +1,49 @@
+# “Beni sevgisiz ve duasız bırakmayın”
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302174145im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302174145im_/http://www.aksiyon.com.tr/resim/309/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir ilkbahar günü tanıştığı sevgiliyi terketmeye karar verdiğinde, sadece beş günlük eroini kalmıştı cebinde. Beşinci günün sonunda iki seçeneği vardı Sümeyra K.’nın. Ya terkettiği bencil sevgiliye geri dönecek ya da ölümcül krize girecekti
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sümeyra, ölümü pahasına da olsa birincisini asla tercih etmeyecekti... Son bir şans istedi insanlardan umutsuzca: “Kurtarın beni!” Aksiyon bu sessiz çığlığı kapağına taşıdı. Sümeyra, sokaklarda kıvranan onbinlerce gencin acısı olup haykırdı gazete bayilerinden.
+   <br>
+    <br>
+     Umutsuzca atılan çığlık Edirne’de, İstanbul’da, İzmit’te, Hakkari’de, Kayseri’de, Tatvan’da, Ankara’da, Frankfurt’ta, Berlin’de yankılandı. Aşçı yardımcısından müteahhidine, fizik öğretmeninden emeklisine, ev hanımına kadar herkes koştu Sümeyra’yı kurtarmak için. Uzanan yardım elleri, onu hayalle gerçek arasındaki çirkin çizginin bu tarafına çekiverdi. Balıklı Rum Hastanesi Vakfı Anatolia Klinikleri’nin de jestiyle Sümeyra tedavi altına alındı.
+     <br>
+      <br>
+       24 saat doktor ve hemşire gözetimi altında yoğun tedavi programı uygulanmaya başlandı. Kriz dönemi atlatıldıktan sonra ilaç ve psikoterapiye başlandı. Doktorlar, tedaviye son derece olumlu cevap veren Sümeyra’nın günde 10 gram eroin çektiğine inanamıyor. Psk. Metin Afat, “Sümeyra gerçekten eroini beyninde bitirmiş. Buna inandık” diyor. Doktorları yakın bir zamanda taburcu etmeyi düşünüyor.
+       <br/>
+       <br/>
+       Daha dün umutsuzca ölümü bekleyen bu insan hakkında duyduklarımız en az siz duyarlı insanlar kadar bizi de heyecanlandırdı. Onu ziyaret edip gözlerindeki ışığı kendimiz de görmek istedik. Anatolia Klinikleri’nin güvenlik duvarını aşmak mümkün olmadı. Gizliliği ve alanındaki başarısından dolayı ünlülerin de tedaviye geldiği hastanenin kurallarını biz de ihlal etmedik. Sümeyra ise kendisini hastaneye yatıran kişi aracılığıyla duyarlı insanlara şu mesajı gönderdi:
+       <br/>
+       <br/>
+       “Doktorlarım bana başarabileceğimi söylüyor. Gerek bedenim, gerek zihnim olumlu sonuç veriyor. Ben zaten beynimde bitirdim onu. Damarlarımda da can çekişmekteymiş. Bu inanılmaz destek sürdükçe inşaallah onu yeneceğim. Tedavi nasıl olsa biter ama sonrası çok önemli. Asıl destek çıkacağım o yalnızlığımda olmalıdır. Hastaneden çıktığımda tek ihtiyacım bu olacak. Sakın ellerimi bırakmasınlar. Bu zaferime yetecektir. Herkese ve herkese selam ederim. Allah biliyor ki, sevgiyle yenilir her lanetli zorba. Ben de içimdeki bu şeytanı hepinizin sevgisiyle yeneceğim. Bunu başarmalıyım... ve mutlaka başaracağım. Beni sevgisiz ve duasız bırakmayın.” Dergimizin haber merkezine e—maille, telefonla, faksla ulaşan insanlar, onu zaten bırakmak niyetinde değil.
+       <br/>
+       <br/>
+       Ancak uzmanlar arındırmanın, eroin bağımlılığına tek başına çözüm getirmediği uyarısında bulunuyor. Bir önlem olarak hastane çıkışından önce deri altına koruyucu bir kapsül yerleştirilmesi düşünülüyor. Fiyatı 1000 dolar civarındaki bu kapsülü taktırabilirse eroinden hiçbir zevk almayacak. Hastaneden çıktıktan sonra da terapilerinin aksatılmadan yapılması gerekiyor. Sümeyra, Anatolia Klinikleri’nden ayrıldıktan sonra tedavisinin diğer aşamalarının yapılabilmesi için sessiz çığlığına kulak veren insanların duyarlığını bekliyor.
+       <br/>
+       <br/>
+       mydurukan@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13767), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302174145/http://www.aksiyon.com.tr:80/detay.php?id=13767)

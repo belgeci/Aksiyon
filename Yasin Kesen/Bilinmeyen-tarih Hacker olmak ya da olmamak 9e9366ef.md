@@ -1,0 +1,67 @@
+# Hacker olmak ya da olmamak
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Hack ile crack birbirine kardeş iki terim. Hack, bir web sitesini veya troja vasıtası ile birisinin bilgisayarını ele geçirmek anlamına geliyor. Crack ise ücretli programların şifresinin kırılması ve e—mail şifrelerinin kırılması anlamında kullanılıyor. Kardeşlikleri ise her ikisinin de illegal olmasından kaynaklanıyor.
+   <br/>
+   <br/>
+   Amerika’da bu iki işi resmi iş olarak yapan ve bundan kazandığı parayla geçimini sağlayan insanlar var. Fakat, bizim bugüne kadar duyduğumuz türden icraatta bulunmuyorlar. Yazılım firmaları,  hazırladıkları programdaki açık noktaları tespit etmeleri için bu kişileri para karşılığında çalıştırıyor. Yani, aslında orada bu kişiler illegal kullanımları engellemek üzere çalışıyorlar. Bu söylediklerimiz crackerlar içindi.
+   <br>
+    <br>
+     Amerika’daki hackerlar için de durum pek farklı değil. Onlar da büyük sitelerin server’larındaki açıkları tesbit ederek nasıl hack’lenebileceklerini site sahiplerine haber vererek para kazanıyorlar.
+     <br>
+      <br>
+       Gelelim yerli hackerlara. Para kazanmak dahil hiçbir amacı olmayan, sadece nefsi tatminden ibaret bir heves olarak bu işle uğraşan bir sürü “boş” insan var. Öyle ki, bizim hackerlar zaman zaman Türk’lerin adını kötüye çıkaracak kadar ileri gidiyorlar.
+       <br>
+        <br>
+         Amazon’un Türkiye’ye kitap satışlarını bir ara durdurmasının sebebi illegal kredi kartı kullanımından başka bir sebepten olmamıştı. Kanada’daki bir kısım hosting firmalarının artık Türklere server kiralamamasının sebebi de yine birilerinin illegal icraatları neticesinde ortaya çıkmıştı.
+         <br/>
+         <br/>
+         Yine, ICQ kullanıcılarının da en çok korktuğu bizim hackerlar. Çünkü akılda kalması kolay icq numaralarını hack etmek de bizimkilerin başta gelen faaliyetlerinden..
+         <br/>
+         <br/>
+         Bu olayların sebebini kanuni boşluk olmasına bağlayanların yanısıra ComputerLife’da yazan Dr.Hakkı Öcal gibi aile terbiyesine bağlayanlar da var! Ben de açıkçası böyle düşünüyorum. Zira, ailesinden adam akıllı terbiye almış insanların hayatlarında yapacağı işler arasında bir nevi hırsızlık da sayılabilecek illegal işler bulunmaz.
+         <br/>
+         <br/>
+         Nasa’dan ekrana yansıyanlar
+         <br/>
+         <br/>
+         Uzay çalışmaları ve bilim alanında çalışmalar yapan Nasa’nın bütün çalışmalarını http://science.nasa.gov adresinden takip edebilirsiniz. Ay’ın, Mars’ın son çekilmiş fotoğrafları, Merkür’ün yüzeyiyle ilgili resimler ve bilgiler, güneş üzerindeki patlamalar ve fotoğrafları, solar fırtına uyarısı ve bilgileri ve haziran’da gerçekleşecek olan atmosfere meteor girişleri ile ilgili detaylı bilgiler bu sitede.
+         <br/>
+         <br/>
+         Bu dünya hepimizin
+         <br/>
+         <br/>
+         Çevre haftasını daha yeni geçirmemize rağmen etrafınıza bir baksanız çevreyi olumsuz etkileyen bir sürü etken mutlaka gözünüze çarpar. Gelecek nesiller için tek mirasımız olacak çevrenin korunması için internette bir sürü site var. www.oneworld.org ve www.inepo.org bu sitelerden bazıları. One World’de kampanyalarla ilgili duyurular ve çevreyi kirletenler ve mücadele için yapılması gerekenler duyuruluyor. Inepo’da ise Fatih Koleji’nin organize ettiği Çevre Proje Olimpiyatına katılan ülkeler ve projeleriyle ilgili bilgiler yer alıyor.
+         <br/>
+         <br/>
+         Deniz köpüğü fotoğraf sergisi
+         <br/>
+         <br/>
+         www.ada.com.tr/denizkopugu, bir denizci olan Uğur Okçu’nun gittiği ülkelerde çektiği resimleri biraraya topladığı sitesi. Hindistan, Panama Kanalı ve İstanbul Boğazında çekilmiş resimlerde oriinal kareler yakalanmış. Sitede ayrıca, depremde çekilmiş fotoğraflar da arşivlenmiş. Beşiğe dönen topraklarımızda ihmal edilmemesi gereken bir gerçek olarak ihmal edilmemiş.
+         <br/>
+         <br/>
+         Gitmeye fırsat bulamayacağımız yerleri, Uğur Okçu’nun objektifinden görmeye değer...
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 14 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=14290), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222044050/http://www.aksiyon.com.tr:80/yazdir.php?id=14290)

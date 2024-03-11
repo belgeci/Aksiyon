@@ -1,0 +1,73 @@
+# Gezi siteleri makul bulunuyor
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   CPulse adlı bir Amerikan Turizm firmasının 6580 gezi sitesi üzerinde yaptığı araştırmaya göre internet kullanıcıları gezi sitelerinin yerinde strateji ile yapılandığını söylüyor.
+   <br/>
+   <br/>
+   CPulse’ın kardeş firması Gartner Group, geçen yıl web sitesinden 33 milyon müşteriye hizmet vermiş. Tamamı bilet satın almak için gelmeyen bu müşterilerin kalan kısmı da aradıkları bilgiye ulaşabilmiş. Gezi sitelerinde verilen hizmetlerle ilgili istatistiklerin biraraya getirilmesi ile yapılan tahminlere göre ise internet üzerinden turizm hizmeti satın alacak kişi sayısının 3 yıl içinde 4 kat büyüyerek 29 milyar dolara ulaşması bekleniyor.
+   <br>
+    <br>
+     CPulse firması, cirolarının yükselmesindeki etkenin, kendileri ile bağlantıya geçen müşteriye, gidecekleri yerde yapabilecekleri küçük veya büyük çaplı turlar da teklif ettiklerini ve birçok müşterinin bu tavsiyeleri dikkate alarak daha fazla hizmet satın aldığını belirtiyor.
+     <br>
+      <br>
+       Müşteri memnun ayrılıyor
+       <br>
+        <br>
+         Gezi sitelerinin faaliyeti bir “hizmet satışı” olduğu için müşterilerin memnun kalması çok büyük önem taşıyor. Sonuçta bir mal veya ürün pazarlanmadığı için, müşterinin elinde fiziki olarak tutabileceği birşey olmuyor. Bu nedenle müşterinin seyahati boyunca keyif alması gerekiyor. Bunun farkında olarak hizmet veren gezi sitelerinin yaptıkları araştırmalar da kendileri açısından sevindirici sonuçlar veriyor. Hizmet verilen müşterilerin %82’si yaptığı seyahati ve verilen hizmeti “çok iyi” buluyor ve bundan sonraki seyahatlerini bu yolla gerçekleştirmeyi tercih edeceklerini ifade ediyor.
+         <br/>
+         <br/>
+         Lokal gezi siteleri de iyi iş yapıyor
+         <br/>
+         <br/>
+         Bir kısım büyük gezi siteleri küçük gezi sitelerine pek şans tanımasalar da veriler küçük gezi sitelerinin de iyi iş çıkardığını gösteriyor. Belli bir bölgeye veya şehire yönelik turistik faaliyetler organize eden gezi sitelerine internet kullanıcıları şu gözle bakıyor: “Lokal hizmet vermek o alanda uzmanlaşmış olma avantajını sağlar.”
+         <br/>
+         <br/>
+         Birleşmeler beklenebilir
+         <br/>
+         <br/>
+         Reklam giderleri nedeniyle zaman zaman zor duruma düşen e—ticaret sitelerine online gezi hizmeti pazarlayanlar da dahil. Kusursuz hizmet vermede ciddi rakiplerle karşı karşıya kalan bazı firmaların rakipleriyle birleşerek reklam giderlerini yarıya düşürmeyi planladıkları ve kârlılık oranlarını artırmayı hedefledikleri söyleniyor...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         İnternet.com’da yerimizi aldık
+         <br/>
+         <br/>
+         Dünya internet endüstrisini biraraya toplayan www.internet.com’da Türkiye de yerini aldı. Türkiye’ye ait bölümde Türkiye’deki internet sektöründeki günlük gelişmelerle ilgili haberler yayınlanacak. Koç.net’in sponsorluğunda hazırlanan sitede, e—business, teknoloji, finans, İSS, web developer, forum, röportaj, araştırma ve fuar—seminer duyuruları bulunuyor.
+         <br/>
+         <br/>
+         İnternet sektörümüzle ilgili farklı kaynaklardan yayınlanan tutarlı—tutarsız haberlerin bundan böyle bu site aracılığı ile tamamen tutarlıya dönüşmesini bekliyoruz... (turk.internet.com)
+         <br/>
+         <br/>
+         Büyükerman da web sitesi açtı
+         <br/>
+         <br/>
+         TBMM’nin renkli kişiliklerinden Eskişehir Bağımsız Milletvekili Nail Büyükerman Netteyim.net’de bir web sitesi açtı. Cumhurbaşkanlığı ve TBMM Başkanlığı seçimlerine aday olmasıyla kamuoyuna kendisini duyaran Büyükerman şimdi de internette.
+         <br/>
+         <br/>
+         “www.mmailbuyukerman.netteyim.net” adresiyle ulaşılabilen sitede, Büyükerman, ziyaretçilere düşüncelerini aktarıyor.  Büyükerman sitesinde gazetelerden arşivlediği kendisiyle ilgili haberleri de bulunuyor. Sitede, İstiklal Marşı, Gençliğe Hitabe, özgeçmiş, çalışmalar, konuşmalar, mektup ve şiirler ile resimler de bulunuyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13646), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151441/http://www.aksiyon.com.tr:80/yazdir.php?id=13646)

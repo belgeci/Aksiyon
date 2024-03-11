@@ -1,0 +1,109 @@
+# “Mecburen solcuyuz!”
+
+*Mehmet Demirci Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302230217im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302230217im_/http://www.aksiyon.com.tr/resim/297/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye’de kaç mizah dergisi olduğunu biliyor musunuz, ya da bu dergilerin toplam tirajlarının ne kadar olduğunu tahmin edebiliyor musuz? Büyük bir çoğunluğunuzun bu soruya hayır dediğini duyar gibiyim.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Evet Türkiye’de sayıları bir elin parmaklarını geçmeyecek kadar mizah dergisi ve bu dergilerin toplam 120 bin tirajı var. Bu dergilerin içinde bir tanesi var ki toplam tirajdan en büyük payı alıyor. Leman dergisi, 120 binlik mizah dergisi tirajının 100 binlik kısmını elinde tutuyor. Konumuz Leman dergisi değil ama Leman dergisi ile özdeşleşmiş olan "uçuk kaçık" çizer Bahadır Boysal (kendisi uçuk kaçık olduğunu kabul etmiyor). Çizdikleri ile bir yandan hayran kitlesini bir yandan da kızdırdıklarını artıran Bahadır Boysal’a çoğunlukla kızdırdıklarının sorularını sorduk. Meğer dışarıdan bakıldığında "kural tanımaz" imajı uyandıran Bahadır Boysal’ ın da kendi kuralları varmış.  Aslında görülen o ki teoride de pratikte de başka bir Bahadır Boysal yaşıyor.
+   <br>
+    <br>
+     ***
+     <br>
+      <br>
+       — Çizdiklerinizle bazı kesimleri üzüyorsunuz, özellikle de Müslümanları. Sanki bir alıp verememe durumu varmış gibi görülüyor. Bir kininiz filan mı var, ya da ona benzer bir şey mi sözkonusu?
+       <br/>
+       <br/>
+       Benim kimseye karşı kinim yok. Böyle bir şey sözkonusu bile olamaz. İçinden geldiğim yapı belli, Anadolu’ dan geliyorum. Sadece aşırılıklara karşıyım. Herşeyin aşırısının zararlı olduğu düşüncesine ben de katılıyorum. Bu ülkede kimse benim tercihlerimi sorgulamıyorsa, ben de kimsenin tercihlerini sorgulamam. Zaten buna hakkım da yok.
+       <br/>
+       <br/>
+       — Leman dışarıdan bakıldığı zaman tamamen ideolojik bir dergi ve başkalarına yaşam hakkı tanımayan bir üslûbu varmış gibi gözüküyor. Bu sizi nasıl etkiliyor?
+       <br/>
+       <br/>
+       Belki bir dönem böyle bir şey düşünülebirdi fakat şu an öyle olmadığını düşünüyorum. Leman Türkiye gibi bir dergi. Leman binasında insanlar Ramazan geldiği dönemde iftar sofrası kurarlar, iftarlarını yaparlar ama bunların hiç biri dışarı yansımaz. Leman ister istemez bazı olaylar karşısında sol kulvarda yer alıyor. Burda muhalif olmak adına solda yer almak daha mantıklı. Hele bir de sanatçıysan, karikatürle, resimle ilgileniyorsan bunlar solda daha değerli kabul ediliyor. Aslında işin siyasi boyutu beni pek ilgilendirmiyor. Bu dergi içinde herkes görüş olarak özgür. Derginin genel eğilimini orada çalışan herkese mal etmek de yanlış bir düşünce. Aslında ortada olması gereken düşünce mizahçılık. İnsanların kafalarının açılması gerekiyor.
+       <br/>
+       <br/>
+       — Size karşı çevrenizden gelen tepkiler nasıl, özellikle yakın çevrenizden. Çünkü Anadolu’nun küçük bir kasabasından İstanbul’a gelmiş birisiniz.
+       <br/>
+       <br/>
+       Ben kendime karşı dürüstsem herhangi bir sorun yok demektir. Yani ‘şöyle bir kriter vardı bu kritere neden uymadın’ gibi lafların benim için hiçbir önemi yok. Millet Ay’a gidiyor. Bizim sorguladığımız şeylere bakın. Bir de ben yalnız yaşayan biriyim, kendi adıma sorduğum sorular duvara çarpıp bana geri dönüyor. Bu yüzden kendime karşı dürüst olmam kaçınılmaz. Onun dışında şöyle olma da böyle ol gibi laflar daha önce dediğim gibi beni hiç ilgilendirmiyor. Yani kendi içinde tutarlıysan eyvallah. Topluma karışabiliyorsan, haksızlığa karşı tepki oluşturabiliyorsan sorun yok demektir. Doğru da, yanlışda tektir, herhangi bir düşünce yapısına mal edemezsin. Doğruyu ya da yanlışı anlamak için illa da sağcı ya da solcu olmaya gerek yok. Aslında hiçbir şey eskisi gibi de değil, herşey değişiyor. Bütün kavramlar birbirine girmiş durumda.
+       <br/>
+       <br/>
+       — Çizdiklerinizde fazlaca cinsellik vurgusu var. Bu kolaya kaçma gibi bir şey değil mi?
+       <br/>
+       <br/>
+       Şiddet, cinsellik, para bunlar her daim varolan şeyler. Hoollywood sinemasından tutun da Türkiye’ deki sinemaya hatta dizi filmlere kadar girmiş bir durumda. Bu belli bir formül, kimse bunu inkar edemez. Okuyucu bana dair birşeylere ulaşmak istiyorsa cinselliği ve şiddeti aşıp muhakkak gelir. Benim için cinsellik bir amaçtan ziyade bir araç. Söylediklerimi kamufle eden bir araç. Ben kağıt üzerindeki cinselliği zararlı bulmuyorum.
+       <br/>
+       <br/>
+       — Çizer olarak illa da bir mesaj verme gibi birşey sözkonusu mu? Çünkü çoğu zaman çok rahat ve eğlencelik şeyler de çiziyorsunuz.
+       <br/>
+       <br/>
+       Ben kendi adıma sokaktaki ilişkileri anlatmaya çalışıyorum. Sokaktaki kavga, gürültü beni ilgilendiriyor. Siyasi birşeyler çizmek, yazmak çok ağdalı ve arabesk geliyor. Bunlar zaten bizim dergide yeterince var. Bu tarz şeyler gerçekten arabesk ve ucuz iştir. Kavgası, gürültüsü, enteli, magandası ile sokaktaki her şey beni ilgilendiriyor. Ben bu toplumun entel kısmındayım yok maganda kısmındayım, yok seks kısmındayım  diye  bir şey yok. Ben kendimi Doğu ile Batı arasında gidip gelen sade bir Türk vatandaşı olarak görüyorum. Kalkıp da ülkenin doğu kısmını veya maneviyatını aşağılama gibi birşey sözkonusu değil.
+       <br/>
+       <br/>
+       — Çizdiğiniz şeyler internetle fazlaca haşır neşir olduğunuz duygusunu uyandırıyor. En azından kahramanınızın ismi “Sanal Simge” fakat evinizde bilgisayar göremedim. İnternet sadece kahramanınızın isminde mi yaşıyor?
+       <br/>
+       <br/>
+       Bilgisayar ile yeterince haşır neşirim dediğiniz gibi. O yüzden eve almak istemiyorum. İnternette ilişkiler çok karışık,  çok farklı şeyler yaşanıyor o alemde.  Dışarı çıkmak gerekirken tam tersi oluyor. İnsanlar eve kapanıyor ve daha soğuk şeyler yaşıyorlar.
+       <br/>
+       <br/>
+       — Sanal Simge neyi temsil ediyor ve nasıl bir kahraman? Bu arada yeni proje tamamen Sanal Simge üzerine mi kurulu?
+       <br/>
+       <br/>
+       Sanal Simge karmaşık bir kişilik. Çizerken çiziyorsun da anlatırken zorlanıyorsun, doğaçlama bir karakter olduğunu söyleyebilirim. Birkaç kişinin ortaya koyduğu bir karakter. Yeni dergi sadece Sanal Simge’ yi kapsamıyor. Kendince yeni kahramanlar da ortaya koyacak; Batman gibi, Superman gibi. Avrupai bir havası olacak. İstanbul’ un karışık durumunu anlatacağız. Sonbahara doğru herşey daha da netleşecek.
+       <br/>
+       <br/>
+       — Sizi takip eden fanaktik kitleyi kimler oluşturuyor?
+       <br/>
+       <br/>
+       17 ve 22 yaş arası beni sıkı takip ediyor. Eskiye oranla illa da mesaj vereyim düşüncesinden ben de uzaklaşıyorum. Herkes değişiyor, köşe yazarları bile. Yaptığın şey sokaktaki adamı ilgilendiriyorsa içinde çok cinsellik olmuş veya şiddet olmuş pek önemi yok.
+       <br/>
+       <br/>
+       — Sokaktaki insanı çizdiğinizi söylüyorsunuz ama çizdiklerinizde sıradan insanı aşan deneyimler var. Marjinal olduğunuzu kabul etmiyor musunuz?
+       <br/>
+       <br/>
+       Ben kendimi  marjinal  biri olarak görmüyorum.  Bence bu tabirin tek sebebi var: Bizim hayatımızda mesai denen kavramın olmaması. İşimiz sürekli gözlem yapmak ve bunları aktarmak. Klasik manada marjinal, uçuk kaçık denilen  şeyler  sadece İstiklal Caddesi ve civarı için geçerli. Ne uçukluğu düşünüyorum ne de enteresan olmayı.  Doğrusu marjinal olmak ve marjinal kalmak kötü bir şey bence. Ben her an değişiyorum, herşeyi oturup tartışabilirim.  Bunun gibi bir ürünün okunması ve algılanması kolaysa o da marjinal değildir. Cumhuriyet gazetesi veya Akit gazetesi marjinaldir fakat Leman dergisi marjinal değildir.  Leman bunu aştı. Bu tarz tartışmalara gerek yok. Bir sağ var bir de sol; sağdakiler şunu diyor, soldakiler şunu diyor tarzı tartışmalar zaman kaybıdır.
+       <br/>
+       <br/>
+       — Leman’ ın alternatifi olmamasını neye bağlıyorsunuz?
+       <br/>
+       <br/>
+       Bu işler yetenek meselesi. Kendine güvenen insanların bu piyasaya girmeleri gerekiyor. Kimsenin kimseye karıştığı yok. Bu noktada şu düşünülebilir; demek ki yetenekli adam yetişmiyor.
+       <br/>
+       <br/>
+       — Leman’ ın bir tekel olduğu düşüncesi için ne diyeceksiniz?
+       <br/>
+       <br/>
+       Leman keşke tekel olmasaydı, keşke başkaları da olsaydı. Bu sektörde bir rekabet olsaydı. Bu durum istemeyerek meydana gelen bir durum. Piyasada özellikle Leman’a dair önyargılar çok fazla. Son bir iki yılda tesbit ettiğim bir şey var, siyasi çizgiden uzaklaşılmaya çalışılıyor. Mesaj verme kaygısından da uzaklaşma var. Leman ve Lemanyak’ta bu ayrım gözüküyor. Ben Leman için daha kafa yorucu şeyler çizmeye çalışıyorum, Lemanyak için ise daha rahat ve hafif şeyler çiziyorum ve Lemanyak daha fazla ilgi görüyor. Artık güldürürken düşündürme gibi bir olaydan uzaklaşma başladı.
+       <br/>
+       <br/>
+       — Kendinizi rahatlıkla demokrat biri olarak tanımlayabiliyor musunuz?
+       <br/>
+       <br/>
+       Evet, ben demokrasiye inanıyorum. Başörtülü insanların da üniversitelere girmesi gerektiğini düşünüyorum. Ortada bir yanlışlık varsa mücadele etmek gerekiyor. Doğru veya yanlış bellidir ve ortadadır.
+       <br/>
+       <br/>
+       E—mail: mehmet.demirci@usa.net
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14094), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302230217/http://www.aksiyon.com.tr:80/detay.php?id=14094)

@@ -1,0 +1,70 @@
+# Popstar'a karşı Alaturka
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040930043834im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040930043834im_/http://www.aksiyon.com.tr/resim/501/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  TRT, Emel Sayın ile Ahmet Özhan’ın sunuculuğunu üstlendiği Alaturka adlı bir yarışma düzenliyor. Bu yarışmayla TRT nostalji mi yapıyor, Türk Sanat Musikisi’ne çıkış yolu mu arıyor yoksa özel televizyonlarla rekabet etmeyi mi amaçlıyor pek belli değil.
+ </font>
+ <p>
+  <font class="content">
+   Özel televizyonların ‘pop’ star aradığı müzik yarışmalarına bir yenisi daha ekleniyor. Türkiye Radyo ve Televizyon Kurumu TRT, ‘Alaturka’ adıyla Türk Müziği (Türk Musikisi ya da Türk Sanat Müziği) beste yarışması düzenleyeceğini açıkladı geçtiğimiz hafta. 13 hafta boyunca ekranlardan yansıtılacak yarışmayı Emel Sayın ve Ahmet Özhan birlikte sunacak. Türk Müziğinin bu iki önemli ismi programlar sırasında repertuvarlarındaki eserlerden örnekler de verecek.
+   <br/>
+   <br/>
+   Medyanın pek ilgi göstermediği bu yarışma ile Türk Musikisinin eski günlere dönmesi mi hedefleniyor, yoksa bir nostalji mi yapılıyor pek belli değil. Zira, bir zamanlar toplumun geneli tarafından beğenilerek dinlenen Türk Müziği artık eskisi gibi ilgi görmüyor. Bu sebeple, TRT’nin Alaturka yarışmasını proje haline getirme niyeti ile bunu hayata geçirme konusundaki tavrı, söz konusu müzik türünün geleceği adına büyük önem taşıyor. Yarışma ile yapılmak istenen, Türk Müziği konusunda yeniden nostalji rüzgarları estirmek ise, bunun yanlış olduğu ortada. Nitekim, bu rüzgarı çıkarttığı seri kasetlerle Muazzez Ersoy yeterince tüketti zaten. Yok eğer özel televizyonlar ile bir şekilde rekabet amacıyla bu işe girişilmiş ise, daha öncelikli kulvarlar yarış sırası beklerken Alaturka’nın isabetsiz bir tercih olduğundan rahatlıkla söz edilebilir.
+   <br/>
+   <br/>
+   Ayvalar çiçek açsa da yaz gelmeyebilir
+   <br/>
+   <br/>
+   Doğrusu, bu yarışmayı organize edenler, ‘Acaba kayda değecek mi?’ ve “Türk Sanat Müziği üzerindeki örtüyü kaldırabilecek mi?” sorularının muhatabı. “Bir yangının külü yeniden yakılamayacaksa” yol yakınken dönülmesinde fayda var. Tıpkı bazen teşhiste geç kalınan kanser hastalarına bıçak vurmamanın, vurmakdan daha akıllıca ve insani bir davranış olması gibi. Aksi takdirde, Türk Musikisinin alnına farkına varılmayarak ebediyyen ‘veda busesi’ kondurulmasına ivme kazandırılmış olur. O zaman, ‘ayvalar çiçek açsa da’ artık ‘yaz gelmeyebilir. ‘Senede bir gün’ bile ümidimiz kalmayabilir. Herşeye rağmen TRT’nin Alaturka’sı Türk Sanat Müziği ve onu sevenler adına önemli bir adım ve atılım.
+   <br/>
+   <br/>
+   Türk Müziği; aranmayan, varlığıyla yokluğu belli belirsiz ancak bir vesileyle hatırlandığında sanki hep berabermişçesine hakkında saatlerce konuşulan ‘eski dostlar’ gibi aslında. Sadece, ‘O ağacın altını şimdi anıyor musun?’ demek yeterli, bir düzine sanat müziği eserini takılmadan hatırlamak için. Bu eserler halkın duygu ve düşüncelerinin tercümanıydı bir anlamda. Bugün, ‘Duydum ki unutmuşsun, gözlerimin rengini’ dizesinin geçtiği eserle anlatılanları, günümüz pop parçalarının hangi biriyle ifade etmek mümkün? ‘Beraber yürüdük biz bu yollarda’ ile başlayan nakarattaki nezaketi ve letafeti şimdi mumla aramıyor muyuz?
+   <br/>
+   <br/>
+   TRT sanatçısı olmak
+   <br/>
+   <br/>
+   Çok öncelere, Müzeyyen Senar’lı dönemlere değil, 15—20 yıl gerilere gittiğimizde de hayatın orijinindeydi sanat musikisi. Zekai Tunca’lar, Necdet Tokatlıoğlu’lları, Mustafa Sağyaşar’lar, Yaşar Özel’ler, Ahmet Özhan’lar, Yıldırım Gürses’ler, Emel Sayın’lar, Yüksel Uzel’ler, Muazzez Abacı’lar, Güzide Kasacıları dinlerdi insanlar. Altın Kelebek ödüllerini o dönemi yaşayanlar bilir. Yılın bestesi, güftesi ve yorumcusu seçilir, bir yıl sonrası iple çekilirdi. O yıla onlarca eser damgasını vururdu. Bir yıl, Zekai Tunca’nın ‘Seni görmem imkansız, rüyalarım olmasa’ sözleri mırıldanırken, bir başka yıl Necdet Tokatlıoğlu’nun ‘Güneşi durduracak bir sevgi istiyorum’ dizesi söyleniverirdi her akla geldiğinde. Halk konserlerinde ya da TRT programlarında Mustafa Sağyaşar, ‘Karam’ı okumadan gönderilmezdi. Hatta o dönemlerin siyasetine de renk verirdi sanat müziği. Partiler, seçim kampanyalarında halkın dilindeki musiki eserlerini kullanırlardı. Futbolseverler takımlarını coşturmak için sanat müziği eserlerinden uyarlamalar yapardı.
+   <br/>
+   <br/>
+   Türk Sanat Müziği zirvedeyken, radyo ve televizyon yayıncılığı TRT’nin tekelindeydi. Sanatçı yok, TRT sanatçısı kavramı vardı. Bu kurumun kadrosunda değilseniz ya piyasada yoktunuz ya da plak sektöründe kendinizi kabul ettirmek zorundaydınız. Besteci, saz sanatçısı ve güfteciler için de aynı durum geçerliydi. Kurum, sanatçılarını imtihanla alır, sektör ise plak yapacağı sesleri dağ, bayır ve inşaatlarda keşfederdi. Elbette, TRT sanatçısı olabilmenin en temel şartı, kurumun onayladığı müzikle uğraşıyor olmanızdı. Tersi durumda mikrofon ve ekranlar size kapanırdı. Orhan Gencebay, Ferdi Tayfur ve İbrahim Tatlıses olsanız da böyleydi. TRT; kural, denetim ve kısıtlama demekti. Televizyon çekiminde sanatçının hareket edeceği dairenin yarıçapı bir metreyi geçmezdi.
+   <br/>
+   <br/>
+   Özel televizyonlarla gelen seviye düşüklüğü
+   <br/>
+   <br/>
+   1990’larda olayın rengi tamamiyle değişti. Özel radyo ve televizyonlar kurulunca bütün müzik türlerine ve bunları icra edenlere adeta gün doğdu. Bazı kanallar sadece müzik yayını yapıyordu. Bu özgürlük ortamı ve denetimsizlik kültürel erozyona yol açtı. Yozlaşma aldı başını gitti. Mevsimlik starlar ve eserler dönemi başladı. Ruhun gıdalarından biri kabul edilen müzik sanatında kalıcılık, derinlik, etik değer, ahlak, seviye ve kalite adına her şey, ikinci plana itildi. Televizyonlar, pop star ve benzeri yarışmalarla star arayışında perakendecilikten toptancılığa terfi etti. TRT’nin Alaturka’sı işte tam bu noktada devreye giriyor. Dileğimiz, kısa devre yapmadan ümit edilen amaca ulaşabilmesi.
+   <br/>
+   <br/>
+   TRT Genel Müdürü Şenol Demiröz’e bir de Türk Sanat Musikisi yorum yarışması düzenlemesini öneren Ahmet Özhan, Alaturka yarışmasını yıllarını verdiği müzik dalının yeniden eski günlerine dönebilmesi için bir çıkış yolu olarak görüyor. Özhan’a göre, öncelikle kavram kargaşasını gidermek gerekiyor. Yarışmaya konu olan müzik türünün adı Türk Müziği. Bu, popüler Türk müziği ve klasik Türk müziği diye iki kola ayrılıyor. Popüler batı müziği ise tamamen ayrı bir dal. Herhangi bir kısıtlama olmamalı; isteyen besteci popüler, isteyen besteci de klasik tarzdaki Türk Müziği eserleriyle elemelere katılabilmeli. Eserin gitar ya da tambur ile icra edilmesi önemli değil; “içeriği genel Türk yapısına uygun olsun ve etik değerleri desteklesin” yeter.
+   <br/>
+   Yeni neslin ‘sound’ anlayışı
+   <br/>
+   <br/>
+   Ahmet Özhan’a göre Kayahan ve Sezen Aksu gibi isimler de Türk Müziği bestecisi. Çünkü onların eserleri de hicaz, nihavent vs... Kullanılan enstrümanlarda fark söz konusu sadece. Yeni nesil, tambur ve ud sesi yerine daha ziyade yoğun sesler duymak istiyor. Özhan, yarışmanın en büyük faydasının yüzlerce, belki de binlerce yeni eserin ortaya çıkmasına fırsat vermesi olduğunu söylüyor. Amaç, kesinlikle diğerlerine benzemek, pop idoller üretmek değil; “Türk’ün düşünce ve duygu tarzını ortaya koyabilmek.” Özhan, Türk Müziği dalında yorumcu yarışması  da yapılması halinde, kıyıda köşede kalmış nice yetenekli gencin kendilerini ispat etme fırsatı bulabileceğini düşünüyor. Kanaati, yetenek yüzde 90 belirleyici. O da doğuştan varolan, Allah’ın bazılarına lütfettiği bir meziyet.
+   <br/>
+   <br/>
+   Beste yarışmasına katılmak isteyenlere ağustos ayının başına kadar süre tanındı. Önce il elemeleri yapılacak. Amatör ya da profesyonel besteciler elemelere dilerse üç eser de gönderebilecek. TRT radyolarında şarkı yayınına başlanmasının 76’ncı yılı dolayısıyla, teslim edilen yeni bestelerden 76’sı finale kalacak. Finalde eserleri TRT’nin kadrolu ya da sözleşmeli sanatçıları seslendirecek. Eserlerin elenmesinde pop star yarışmalarındaki gibi oluşturulan jüri ile halk oyları belirleyici olacak. Birinciye 50, ikinciye 35, üçüncüye ise 25 milyar; ilk 16’ya giren diğer 13 eser sahibine de 10’şar milyar Türk Lirası ödül takdim edilecek. TRT, yarışmanın final bölümünü 10 Eylül—5 Kasım 2004 tarihleri arasında gerçekleştirmeyi planlıyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Sacit AKDAĞ, 15-Temmuz-2004
+> Destekliyorum: 
+> Yazı içeriğinde anlatımını bulan ve "popüler olan yöntemin kullanılmasıyla, unutulmaya yüz tutanı ayağa kaldırmaya yönelik çalışma" olarak tanımlanabilecek  bu projenin, kültürümüzün en önemli parçalarından olan müziğimizin tanıtımı, genç kuşaklar arasında  özendirilerek yaygınlaştırılması için, hem de tam zamanında olmak üzere yararlı olacağı kanısındayım.       Fikir sahiplerini kutluyorum.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12303&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040930043834/http://www.aksiyon.com.tr:80/detay.php?id=12303&yorum_id=1)

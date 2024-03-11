@@ -1,0 +1,68 @@
+# 'Evraklarıma dokunmayın'
+
+*Fuat Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050116193922im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050116193922im_/http://www.aksiyon.com.tr/resim/491/54.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Geçtiğimiz yıl Ağustos ayında İstanbul"daki muayenehanesinde kafasına tek kurşun sıkılarak öldürülen Musevi Diş hekimi Yasef Yahya"nın, çantasındaki 250 milyon lirayı alan infazcıya son sözü, "Parayı alın, ama evraklarıma dokunmayın" oldu.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hür ve Kabul Edilmiş Masonlar Derneği"nin İstanbul Yakacık"taki şubesi 9 Mart 2004 akşamı, masonlar toplantı halinde iken iki canlı bomba tarafından basıldığında, herkesin aklına yine El Kaide geldi. Çünkü daha dört ay önce iki sinagogu, İngiltere Başkonsolosluğu"nu ve HSBC bankasını vuran 15-20 Kasım saldırıları meydana gelmişti.
+   <br>
+    <br>
+     Ancak, mason derneği saldırısından sonra, yaralı olarak yakalanan canlı bomba Engin Vural"ın üzerinden çıkan silah bu olaya yeni bir boyut kazandırdı. Çünkü yapılan balistik inceleme, tabancanın 21 Ağustos 2003 tarihinde Musevi diş hekimi Yasef Yahya"nın öldürülmesinde kullanılan silah olduğunu ortaya çıkardı. Mason derneği saldırısının iki canlı bombasından biri olan Engin Vural, ifadelerinde, "Bombaları Adem Çetinkaya hazırladı. Silahı da o verdi" deyince yakalanan Adem Çetinkaya, "Yasef Yahya"yı ben öldürdüm" itirafında bulundu. Peki Çetinkaya, diş hekimi Yahya"yı neden öldürmüştü ve o gün Yahya"nın muayenehanesinde neler yaşanmıştı? Adem Çetinkaya, DGM dosyasındaki ifadesinde o gün yaşananları ayrıntılarıyla anlatıyor.
+     <br>
+      <br/>
+      Yasef Yahya nasıl öldürüldü?
+      <br/>
+      <br/>
+      İstanbul"daki 15-20 Kasım bombalama eylemlerini yapan kişiler, Afganistan"daki El Kaide kamplarında yetişmişti. Mason derneği canlı bombası Engin Vural ve Yasef Yahya"nın katil zanlısı Çetinkaya ise, Pakistan"ın Keşmir bölgesindeki "Laçkiri Tayba" kampında eğitim gördüklerini belirtiyorlar. Adem Çetinkaya ifadelerinde, 2000 yılı başlarında Pakistan"daki bu kampa gittiğini, üç aylık eğitimden sonra savaş bölgesinde Hintli güçlere karşı Pakistanlılarla birlikte savaştığını söylüyor. "Benimle birlikte cepheye gelen arkadaşlar şehit oldu" diyen Çetinkaya, üç ay savaştıktan sonra kampa geri geldiğini, bir ay sonra da Türkiye"ye döndüğünü ifade ediyor.
+      <br/>
+      <br/>
+      Pakistan"a gidişi öncesinde pazarlamacılık yaptığını, dönüşünden sonra maddi sıkıntıya girdiğini belirten Çetinkaya, ilk olarak 2003 yılı başında Mercedes arabasını satmak için gazeteye ilan veren bir kişiyi iki arkadaşıyla birlikte fidye amacıyla kaçırdıklarını, ancak polisin takibi üzerine bu şahsı yolda bırakıp kaçtıklarını belirtiyor. Yasef Yahya"yı, Şişli"deki muayenehanesinin önünde asılı tabeladan öğrendiklerini anlatan Çetinkaya, iki ay kadar muayenehanenin etrafında dolaşıp çevreyi kontrol ettiklerini ve olay günü hasta gibi Yahya"nın yanına gittiklerini ifade ediyor. "Elimizdeki çantalarda iki silah, iki susturucu, iki-üç tane kadın çorabı, naylon çamaşır ipi, doktor eldivenleri ve ambalaj bandı vardı" diyen Çetinkaya muayenehaneye girmesinden itibaren yaşananları şöyle anlatıyor:
+      <br/>
+      <br/>
+      "İyi günler dileyip, dişlerimi tamir ettirmek istediğimi, kaç liraya yapabileceğini sordum. Yasef Yahya beni koltuğa oturtarak dişlerime baktı. Daha sonra dişçi koltuğundan ayrılıp yazıhane kısmına geçtik. Bu sırada iki arkadaşımdan biri Yahya"ya silahı doğrultarak, "Kıpırdama, yere yat" dedi. Bunun üzerine çantamdaki eldivenlerimi elime takıp tabancamı çıkarttım ve Yahya"ya doğrulttum. İki arkadaşım Yahya"nın ellerini iple bağlarken, paraların nerede olduğunu sordum. "Çantamda. Paralarımı alın ama evraklarıma dokunmayın" dedi. Çantayı aldım ama içine bakmadım. Sonra yazıhane içindeki lavabo kısmına Yahya"yı sürükledik. Yahya"nın kafasına susturucu takılmış silahla bir el ateş ettim. Yahya"nın sesi kesilip öldüğünü anladığımızda oradan ayrıldık. Yahya"nın çantasından çıkan 250 milyon lirayı aramızda bölüştük."
+      <br/>
+      <br/>
+      Kavacık ormanındaki kovalamaca
+      <br/>
+      <br/>
+      Çetinkaya ve arkadaşlarının Yahya"yı öldürmeye giderken yanlarında kadın çorabı da götürmüş olmalarının sebebi, etkisiz hale getirdikleri Yahya"nın ağzını ve gözlerini kapatmaktı. İlginç olan, olaydan sonra para çantasını aldıkları halde Yahya"nın kolyesine, saatine ve yüzüğüne dokunmayışlarıydı. Buna karşılık, Yahya"nın "dokunmayın" dediği evraklarını ve cep telefonunu alıp götürmüşlerdi. Yasef Yahya cinayetinden sonra, cemaat mensubu bir başka işadamı da sıkıştırılmaya başlanmış, hatta bazı cemaat üyeleri sıranın kendilerine geldiğini düşünerek yurtdışına çıkmayı tercih etmişti. Bir cemaat üyesinden telefon tehditleriyle yüklü miktarda para istenmiş, paranın Kavacık ormanlarında bir noktaya bırakılması söylenmişti. Polis o gün belirtilen saatte ormanda operasyon yapmasına rağmen tehditçilere ulaşamamıştı.
+      <br/>
+      <br/>
+      Adem Çetinkaya, ifadesinde bu olayı da anlatıyor. Yahya"nın evraklarını incelediğinde, Musevi cemaatine ait "İhtiyarlara Yardım Derneği"ni ve bu derneğin üye listesini gördüğünü belirten Çetinkaya, ilk olarak listedeki Yaşar Natan"a e-mail atarak, "Doktor Yasef Yahya"yı biz öldürdük. Üçyüz bin dolar vermezseniz sizi de öldürürüz" dediklerini belirtiyor. Bir süre sonra Natan"ı telefonla aradıklarında oğlunun "Babam hayatta değil" demesi üzerine bu sefer Ziya Tarablus isimli kişiye yöneldiklerini belirtiyor. Kavacık ormanında içinde para olan poşeti bekledikleri sırada, arabadan inip poşeti yere bırakan kişilerin oradan ayrılmaması üzerine şüphelendiklerini belirten Çetinkaya, "Bunun üzerine bu şahısların MOSSAD mensubu olabileceklerini düşünerek ortaya çıkmadık ve telefon görüşmesi yapmadık. Bir müddet sonra bu gelen şahıslar para poşetini alıp oradan ayrıldılar. Bu olaydan sonra, dernek üyesi Kohen soyadlı kişiyi vurmaya karar verdik. Bu şahsın işyerini araştırıp görmüştük. Ancak daha sonra bu konu kapandı."
+      <br/>
+      <br/>
+      O akşam mason derneğinde ne oldu?
+      <br/>
+      <br/>
+      Adem Çetinkaya"nın o gün "MOSSAD elemanları" olarak gördüğü kişiler İstanbul polisiydi. Çetinkaya ve arkadaşları o gün yakalanabilse mason derneği saldırısı önlenmiş olacaktı. Çünkü mason derneği bombalarını yapacak olan kişi Adem Çetinkaya"ydı. 9 Mart 2003 akşamı, Adem Çetinkaya"nın yaptığı bombaları üzerlerine bağlayıp birer tabancayla mason derneğine gelen Nihat Doğruel ve Engin Vural"ın hedefi, masonların toplantı halinde olduğu salona ulaşmaktı. Ama bunu başaramadılar. Nihat Doğruel üzerindeki bombaları erken patlatıp öldü. O patlama sırasında Engin Vural da bir kolunu kaybetti ve üzerindeki bombaları patlatamayıp yakalandı. Engin Vural, dosyadaki ifadesinde o akşam yaşananları şöyle anlatıyor:
+      <br/>
+      <br/>
+      "Loca"nın önüne geldiğimizde, güvenlik görevlisi olduğunu görünce yan taraftan dolandık ve orada bulunan demir kapı üzerinden atlayarak binanın önüne geldik. Bu sırada birisi bize doğru gelerek "Hop, ne yapıyorsunuz?" diye bağırarak üzerimize yürüyünce panikledik. Nihat Doğruel ile birlikte bize doğru gelen şahsa ateş ettik. Bu sırada Nihat camı kırarak içeriye girdi. Onun girdiğini görünce, ben de kırılan camlardan içeriye girdim. Nihat içeride sendelemiş, silahını yerden almaya çalışıyordu. Bu sırada bombaları ateşlemiş olacak ki, birden büyük bir patlama oldu. Ben, elimin koptuğunu farkettim. Nihat"ın üzerindeki bombanın bu şekilde patlamasıyla, benim üzerimde bulunan bombanın kablolarının da yandığını, o arada kolumun da koptuğunu anladım. Benim üzerimdeki bombalar ise patlamamıştı."
+      <br/>
+      <br/>
+      Engin Vural, mason derneği saldırısını neden organize ettiklerini ise şöyle anlatıyor: "İstanbul"da 15-20 Kasım"da meydana gelen eylemleri, masum insanların ölmesi sebebiyle tasvip etmedik. Böyle bir eylem yapılacaksa Türkiye üzerinde emelleri olan Masonlara karşı yapılması gerektiğini düşündük."
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11427&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050116193922/http://www.aksiyon.com.tr:80/detay.php?id=11427&yorum_id=1)

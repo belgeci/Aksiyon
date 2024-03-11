@@ -1,0 +1,49 @@
+# Sırada kim var?
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Daha birkaç hafta önce DEP"lileri yeniden yargılayan mahkemenin aynı kararında ısrar etmesini eleştirmiş ve siyasetin yargıya müdahale etmemesi gibi yargının da siyasetin önünü açması gerektiğini söylemiştik.
+   <br/>
+   <br/>
+   AİHM kararıyla ikinci kez yargılanan DEP"li vekillerin 10 yıldır cezaevinde bulunmaları ve bir yıl sonra tahliye edilecek olmaları nedeniyle serbest bırakılmasının Türkiye"yi daha demokrat ve çağdaş bir ülke yapacağını da ifade etmiştik. Şimdi ise şu soruyu sormanın tam zamanıdır; "Acaba sırada Apo mu var?" Milyonlarca insanın kafasındaki "acaba" sorusunun satırlara yansımasından başka bir şey değil bu soru. Çünkü Yargıtay 9. Ceza Dairesi"nin, 8 Temmuz"daki duruşma gününü beklemeden 10 yıldır cezaevinde bulunan eski DEP"liler Leyla Zana, Hatip Dicle, Orhan Doğan ve Selim Sadak"ı tahliye etmesinin ardından yaşananlar bunları akla getiriyor.
+   <br>
+    <br>
+     Tahliye sonrası açıklama yapan DEHAP Diyarbakır İl Örgütü, AKP hükümetinin ayrımsız siyasi genel af çıkarmasını istedi. Diyarbakır Büyükşehir Belediyesi Konukevi önünde toplanan yaklaşık 500 kişi basın açıklamasından önce "Öcalan"a özgürlük" ve Kürtçe "Be Serok Jiyan Nabe" (Başkansız Yaşam Olmaz), "Biji Serok Apo" (Yaşasın Başkan Apo) sloganları attı.
+     <br>
+      <br>
+       9. Ceza Dairesinin kararı AİHM kararı üzerine yapılan yeniden yargılama sonrası temyiz aşamasında verilen ilk tahliye kararı olma özelliğini taşıyor. Daire Başkanı Hasan Gerçeker, hukuka göre karar verdiklerini söyleyerek; "Kararımızda elbette uyum yasaları, Avrupa İnsan Hakları Sözleşmesi ve Anayasa değişikliği de etkili oldu ama tek başına belirleyici olmadı" diye konuştu.
+       <br>
+        <br>
+         8 Temmuz"da aynı daire daha önce belirlediği gibi temyiz duruşmasını yapacak. Sanıklar kendi savunmalarını yapabilecekler. Duruşmalı oturumun ardından, karar duruşmasının yapılacağı tarih ilan edilecek ve temyiz başvurusunun sonucu o tarihte açıklanacak. 9"uncu Ceza Dairesi, Yargıtay Cumhuriyet Başsavcılığı"nın mahkumiyet kararının bozulması yönündeki görüşüne katılırsa, yargılamada başa dönülecek ve DEP eski milletvekilleri, DGM"lerin yerine kurulacak olan Ağır Ceza Mahkemesi"nde yargılanacaklar. 9"uncu Ceza Dairesi, DEP"liler hakkındaki mahkumiyet kararını onarsa, Yargıtay Başsavcılığı karara itiraz edebilecek. Bu durumda nihai kararı Yargıtay Ceza Genel Kurulu verecek. Sonuç: Karar, Türkiye"nin önünü açması ve insan hakları, demokratikleşme bakımından son derece isabetli ve doğru. Ancak başta da belirttiğimiz gibi "acaba" sorularının önünü açması bakımından da anlamlı.
+         <br/>
+         <br/>
+         Ben de isterim...
+         <br/>
+         <br/>
+         Bir zamanlar çok meşhur olan "Ben de isterem" şarkısını şimdi ana dilinde yayın talebi olanlar için kullanmak gerekecek. Anadilde yayın, Türkiye"de yaşayan diğer etnik grupları da harekete geçirdi. Önceki hafta Denizlili bir iktisatçı TRT"den Yörük Türkmen lehçesinde yayın yapılmasını istemişti. Bu haftaki talep Lazlardan geldi.
+         <br/>
+         <br/>
+         Saadet Partisi Genel Başkan Yardımcısı Mehmet Bekaroğlu, ana dilinin "Lazca" olduğunu belirterek, TRT"ye Lazca yayınların ne zaman başlayacağını sordu. Üstelik bunu noter kanalıyla yaptı. TRT sadece Boşnakça, Arapça, Kirmanca, Çerkezce ve Zazaca yayın yapılacağını açıklamıştı. İlk haftaki yayınlar ne Kürtleri ne de Boşnakları memnun etti. Çerkezler ise memnundu. Kürtler baştan savma yapıldığı için itiraz ederken Boşnaklar azınlık muamelesi görmekten, rahatsız olduklarını söyledi. Bosna-Hersek Dostları Vakfı Başkanı Saffet Erdem, vakfın ve diğer göçmen derneklerinin Boşnakça yayın talebinin bulunmadığını ifade ederek; "Türkiye"yi parçalamak ve her bir parçayı sömürge yapmak isteyenlerin tehlikeli dayatmalar peşinde olduğunu" öne sürdü.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 727 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11583), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050221153504/http://www.aksiyon.com.tr:80/yazdir.php?id=11583)

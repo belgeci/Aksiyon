@@ -1,0 +1,88 @@
+# Neo-cinsiyetliler
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ne erkek, ne kız; üçüncü cinsiyet Türkiye’de giderek artıyor. Tıp bunun sebebini henüz bulamazken, geliştirdiği psikolojik yaklaşım metodları ile sıkıntılı ailelere çare olacak çözümler sunuyor
+   <br/>
+   <br/>
+   Türkiye’de doğum oranları her geçen gün azalıyor. Doğum oranları azalırken cinsiyet değişikliklerinde ise önemli farklar ortaya çıkıyor. Erkek çocuk doğumlarındaki oran azalırken, kız çocuklarının dünyaya gelme oranı ise artıyor. Erkek ve kız cinsiyetinde böyle bir tablo ortaya çıkarken, çok ilginç doğum vakaları da meydana geliyor. Ne erkek, ne kız olarak dünyaya gelen çocukların oranı ise son 5 yılda her yıl yüzde 100 artmış. Tıp bunun sebebini henüz çözemezken, din olayı yüzyıllar öncesinden hukuksal bir platforma oturtmuş durumda.
+   <br>
+    <br>
+     Çift cinsiyetliler artıyor
+     <br>
+      <br>
+       Halk arasında çift cinsiyet ya da yeni tabirle neo—cinsiyet olarak tanımlanan bu tür doğum vakaları tıp dünyasında hermaphrodite olarak isimlendiriliyor. Burada sözünü ettiğimiz, kişinin kendisini çift cinsiyetli olarak hissetmesi  değil, iki cinse ait uzuvlarla doğması. Bu tip doğumlar Türkiye’de konunun uzmanlarını şaşırtıyor. Artışlar iki iken dört oluyor, ya da dört iken sekiz. Rakamlar küçük ama nadir görülen bu vakaların her yıl artması düşündürücü. Aslına bakılırsa bu artış Türkiye için çok büyük bir oranı teşkil ediyor. Çünkü, dünyada sadece her 20 bin doğumdan biri çift cinsiyetli olarak gerçekleşiyor. Türkiye’de bu konunun resmi olarak istatistiki verileri olmasa da, hastahaneler gizli kalmak kaydıyla bu doğum vakalarının çetelesini tutuyor. İstanbul Avrupa yakasında ismi bizde mahfuz bir hastahanede son beş yılda katlanarak çift cinsiyetli doğumlar meydana geldi. Birinci yılda iki vaka ile karşılaşan hastahane yetkilileri, beşinci yılda ise 10 vaka ile karşılaştı. Bir başka büyük hastahanede ise rakamlar daha da korkunç boyuta ulaşmış durumda. Bu hastahane beşinci yılında 14 çift cinsiyetli doğum vakası ile şaşkına döndü.
+       <br>
+        <br>
+         Dr. Kemal Çevik, çift cinsiyetli doğum vakalarının Türkiye’de yabana atılacak cinsten olmadığını vurguluyor. Çevik sadece konuya dikkat edilmesini istemiyor, bu konu üzerine çalışma yapacak bir birimin oluşturulması gerekteğinin de altını çiziyor. Çevik devamla şunları söylüyor: “Arkadaşlarımdan duyduğum kadarıyla bu vakalar her geçen gün artıyor. Ben de meslek hayatımda bu tür doğum vakaları ile karşılaştım. Eskiden bir vaka gerçekleştiğinde çok konuşulurdu. Ama şimdi normal karşılanıyor, genç doktorlar bile alıştılar. Bu artış hiç normal değil.”
+         <br/>
+         <br/>
+         Türkiye’de her geçen gün nüfus artıyor, bunun için çift cinsiyetli doğumların oranlarında bir artışın olması doğaldır görüşünü doktorlar kabul etmiyor. Eskiden mahalle ebelerinin yaptırdığı doğumlar şimdi hastahanelerde gerçekleşiyor, bu yüzden bu vakalar gizli kalıyordu yorumu da yine uzmanlar tarafından inandırıcı bulunmuyor. Dr. Yasemin Büyükbakan bu tarz yorumları kabul etmenin doğru olmayacağını vurguluyarak; “Bunlar gerekçe olarak ileri sürülebilir ama ne derece doğru olur bilinmez. Yalnız bu tür doğum vakaları her ne sebepten olursa olsun bir hastahaneye uğruyor. Yani yine gizli olmaktan çıkıyor. Eskiden nüfus azdı ama bu vakalar nüfusa göre nadir oluyordu. Şimdi ise neredeyse sıradanlaşmış durumda. Bu tür gerekçeler mantıklı değil. Bu olayı iyi değerlendirip etüd etmek lazım” diyor.
+         <br/>
+         <br/>
+         Akraba evlilikleri mi, hormonlar mı?
+         <br/>
+         <br/>
+         Çift cinsiyetlilerin sayısındaki artışın nedeni şimdilik meçhul. Ama uzmanlara göre kesin olan bir sebep var; akraba evlilikleri. Uzmanlar akraba evliliklerini gerekçe olarak gösteriyorlar ama net ve yegane sebep olarak kabul etmiyorlar. Yani bilim bu konuda henüz yeteri bilgiye sahip değil. Çift cinsiyetli vakaların artması değişen çevre şartlarına bağlandığı gibi; yenilen gıdalardan, radyasyon dalgalarına kadar birçok etken sebep olarak gösterilebilir görüşü ağırlık kazanıyor. Cep telefonları, televizyon, hamburger, yenilen domates bile bu konuda şüpheli birer etken olarak yorumlanıyor. Aslında çift cinsiyetli doğumların genetik sebebe bağlanması Türkiye’de pek geçerli gözükmüyor. Çünkü; Türkiye’de akraba evlilikleri her geçen yıl azalırken, veriler de tam tersi çift cinsiyetli doğumların arttığını belirtiyor. Ayrıca çift cinsiyetli doğumların doğu bölgelerine nazaran batı bölgelerinde daha çok olması bu tezi çürütüyor. Akraba evliliklerinin doğu bölgelerinde yaygın olduğu konusunda hemen hemen herkes hemfikir.
+         <br/>
+         <br/>
+         Sultan Hospital Hastahanesi Kadın—Doğum Uzmanı Dr. Esra Çebi, çift cinsiyetli doğumlarda tıp biliminin sadece genetik sebep konusunda bilgiye sahip olduğunu belirtiyor. Çebi, bu olayı sadece akraba evliliklerine bağlamanın da yanlış olduğunu vurgulayarak; “ Tıp sadece şu anda bu sebebi kısmen biliyor. Hormonlu yiyecekler, meyveler, sebzeler, televziyon, arabalar, cep telefonları, radyasyon yayan tüm aletler birer sebep olabilir. Ama bu konuda yüzde yüz kesin bir etken söylemek yanlış olur. Bu konun daha çok araştırılmaya ihtiyacı var. Bu bilgiler sebebi ortaya koyma açısından yetersiz” diyor.
+         <br/>
+         <br/>
+         Çocuğunu hastahanede bırakanlar var
+         <br/>
+         <br/>
+         Büyük hayallerle bir çocuk sahibi olmak için çaba sarf eden çiftler doğumlardan sonra çift cinsiyetle karşılaşınca şoka giriyor. Hatta bazı aileler böyle bir durumla karşılaştıklarında çocuklarını hastahanede bırakıp gidiyorlar. Psikolojik olarak bunalıma giren çiftler, ne kız ne erkek olan bebeklerinin öldürülmesini bile istiyorlar. Dr. Erdal Kesiç bu tür olaylarla zaman zaman karşılaştıklarını belirtiyor. Kesiç: “Ebeveynler çocuklarının böyle olduğunu duyunca hastahaneyi terk ediyorlar. Kaç defa gidip aileleri geri getirdik. Çocuklarını almak istemiyorlar. Bunu bir ayıp, bir yüz kızartıcı şuç gibi algılıyorlar. Halbuki bu tıbbi bir vaka. Biz bunu ailelere anlatamıyoruz” diyor.
+         <br/>
+         <br/>
+         Çift cinsiyetli çocukları olan Kodakoğlu ailesinin babası yaşadıklarını ve duygularını şöyle anlatıyor: “Böyle bir çocuğumuz olduğu için çok üzüldük. Özellikle eşim ilk başta bunu kabul etmekte çok zorlandı. Ama evladımızdı, Allah’ın verdiği bir can idi, yapacak bir şey yoktu. Canımız sıkıldı, psikolojik olarak olumsuz etkilendik; sonra buna alışmak zorunda kaldık. Bu sefer ailenin diğer fertlerine durumu anlatamadık. Konuyu açtığımızda ise bayağı garipsendi, toplum bu konuda çok katı. Olaya mantıklı bakmakta zorlanıyor. Çocuğum 4 yaşına geldiğinde ameliyat ettirdik ve şu anda çok güzel bir kıza sahibim. Geçmişte yaşadıklarımızı da unuttuk.”
+         <br/>
+         <br/>
+         Üniversiteler ameliyat ediyor
+         <br/>
+         <br/>
+         Çift cinsiyetli olarak doğan çocukların, daha sonra istedikleri bir cinsiyeti tercih etme hakları bulunuyor. Buna aileler ve konunun uzmanları karar veriyor. Yalnız Türkiye’de çift cinsiyetliler her yerde ameliyat edilemiyor. Sadece bazı büyük üniversitelerin tecrübeli doktorları bu cerrahi operasyonları gerçekleştirebiliyor. Çünkü, bu ameliyat kalp ameliyatı kadar hassasiyet, dikkat ve tecrübe gerektiriyor. Sadece üniversite hastahanelerinde yapılan bu tür ameliyatlarda yüklü bir parayı gözden çıkarmak şart. Estetik statüsünde yer alan operasyonun tamamlanması için en az 5 milyar liraya ihtiyaç var.
+         <br/>
+         <br/>
+         Dr. Esra Çebi, bu ameliyatlarda oldukça hassas olmak gerektiğini vurguluyor. Çebi: “Bu ameliyatlar sadece birkaç üniversite hastahanesinde gerçekleştiriliyor. Her doktor da bu ameliyatı gerçekleştiremez. Çünkü bu işi bilmek, yani tecrübe sahibi olmak gerekiyor. Yoksa yapılacak bir yanlış çocuğun geleceğini olumsuz yönde etkileyebilir. Bir damarı yanlış kesmek ya da bir organı keserken öteki organa zarar vermek gibi riskleri bulunuyor” diyor.
+         <br/>
+         <br/>
+         İş sadece cerrahi müdahale ile bitmiyor, bir de psikolojik olarak iyi etüd edilmesi gerekiyor. Çocuğun duygusal yönden hangi tarafa meyilli olduğu psikolojik olarak da önem taşıdığı için küçük çocukların erkek mi yoksa kız mı oldukları konusunda şaşırtıcı davranışlar sergiledikleri belirtiliyor. Psikolog Sevim Taş yapılacak yanlışlığın bir ömür problem olabileceğini belirterek: “Çocuk çok küçük yaşta yanlış eğilim sergileyebilir, aldatıcı davranışlarda bulunabilir. Bunun için çocuğun ameliyat yapılmadan önce belirli bir yaşa gelmesi ve davranışlarının netleşmesinin beklenmesi şart. Yoksa ince davranışta bulundu diye erkek organı kesmek içinden çıkılmaz bir durumu ortaya koyabilir” şeklinde konuyu yorumluyor.
+         <br/>
+         <br/>
+         Din hünsa diyor
+         <br/>
+         <br/>
+         Sözlükte kırılıp bükülmek manasına gelen kadınsı davranışlar gösteren erkek anlamında bir sıfat olan hünsa tabirini kullanan din, bu konumdaki insanların durumunu hukuksal platforma oturtmayı da ihmal etmemiş. İslami öğreti ve gelenekte, erkek ve kadın olarak her cinsin kendine has özelliklerinin korunması ve kendi yönünde geliştirilmesi esas alınmış, kişinin kadınlık veya erkeklik özelliklerini tam olarak taşıdığı halde karşı cinse benzeme özentisi içine girmesi kınanmış, cinsiyet farklılığını koruyucu ve sağlıklı bir cinsi gelişmeyi temin edici bir dizi tedbir alınmıştır. Bundan dolayı Hz. Peygamber (a), kadına benzemeye özenen erkeklere veya erkeklere benzemeye çalışan kadınlara lanet etmiş ve bu tipler için bazı yaptırımlar uygulamıştır. Ancak bu tür ruhi—ahlaki bozukluğun sözkonusu kişilere farklı dini ve hukuki hükümlerin uygulanmasını gerektirmeyeceği ve haklarında tabii cinsiyetleriyle ilgili hükümlerin geçerli olacağı açıktır. Buna karşılık bir kimsenin biyolojik olarak hem kadınlık hem de erkeklik özelliği taşıması veya cinsiyetinin belirsiz olması farklı bir durum olup çok ender rastlanan bu tür yapısal bozukluklar İslami gelenekte tabii karşılanmış ve tâbi olacağı dini ve hukuki hükmü belirleyebilmek için bazı kriterler kullanılması, bazı uyarımların yapılması yoluna gidilmiştir.
+         <br/>
+         <br/>
+         Peygamberimiz mirastaki pay alımını açıklarken idrarın geldiği organa göre hüküm verileceğini belirtiyor. Hünsanın halvet, dokunma ile abdest bozulması, ezan okuma, cenazeyi yıkama, cenazesinin yıkanması ve kefenlenmesi, imamet, cemaatle namaza iştirak konularında da benzeri bir ihtiyatın izlendiği görülür. Hünsanın erkeklere ve kendi durumunda olanlara imamlık yapmasının sahih olmayacağı konusunda ittifak vardır. Hac ve umrede ihram konusunda kadının hükümlerine tâbi olur. Şahitlik konusunda ise hünsa kadın gibi muamele görür. Gazeteci–Yazar Ahmet Şahin, hünsa konusunda dinin bütün durumları değerlendirdiğini belirterek: “Toplumun bu konuda yanlış yorumlar yapmaması gerekir. Biyolojik olarak dünyaya gelen insan Allah’ın yaratığıdır. Önemli olan yanlış yorumlanmaması” diyor.
+         <br/>
+         <br/>
+         Çift cinsiyet vakaları Türkiye’de her geçen gün artmaya devam ediyor. Genetik ya da başka bir sebepten  meydana gelen bu tür doğumlar hem tıp dünyasını, hem de kamuoyunu şaşkına çeviriyor. Sebep ne olursa olsun yaşanılan bu vakalar birer mesaj içeriyor ve bu mesajın yabana atılmaması gerekiyor.
+         <br/>
+         <br/>
+         e—mail:hsoylemez@hotmail.com
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 12 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12085), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228023318/http://www.aksiyon.com.tr:80/yazdir.php?id=12085)

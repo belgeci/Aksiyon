@@ -1,0 +1,52 @@
+# Etiler değişiyor Türkiye aynı
+
+*Yasin Aras Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302105836im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302105836im_/http://www.aksiyon.com.tr/resim/311/14.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  "Sahnede eşcinselleri seviyorlar. Çünkü adam şarkıyı dinlerken eşini kıskanmıyor. Kadın da adamın kendisinden güzelini görmemesine memnun oluyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bugün bizde sahne alan şarkıcılar Zeki Müren’in değişime uğramış olanları. Yolu biz açtık ama, şimdi suyunu çıkardılar. Biz gay şarkıcı arıyorduk, şimdi her gay şarkıcı olmaya kalktı. Gay taklidi yapıp sahneye çıkan erkekler var. Gay işletmeciler bile çıktı.” Eğlence mekanı sahibi İzzet Çapa’nın bu sözlerinden anlaşıldığı gibi, eğlence sektörünün son gözdeleri “efemine” tavırlı, halk dilinde “yumuşak—dönme” olarak adlandırılan kişiler. Seslerindeki akustik acayiplik, davranışlarındaki sıradışılık ve terbiyesiz olmadaki performansları sayesinde bugün pek çok eğlence mekanını ele geçirip sahne alan bu kişilerin getirdiği rahatsızlık en sonunda, İsmail Türüt’ün sarfettiği; “Etiler’de yumuşaklar, Tarabya’da uşaklar” cümlesiyle su yüzüne çıkmıştı. İlginç olan kamuoyunda meşhur olan isimlerin büyük çoğunluğunun Etiler’i tercih ediyor olmaları. Arto’nun namı ve taklitleri (kimin kimi taklit ettiği de belli değil) Tarabya’ya kadar uzandı. Ve bir dönem Maksim’de ünlü assolistlerin eşliğinde eğlenen, göbek atan, dans eden eğlence meraklıları, şimdi kendilerine hakarete varan cümleler sarfeden, yumuşak şarkıcıların nağmeleriyle eğlenmeye başladı. Peki ne oldu da Maksim, Caddebostan tarzı gazinolar yerini, ne tam erkek, ne de tam kadın olan şarkıcıların sahneye çıktığı mekânlara bıraktı?
+   <br>
+    <br>
+     Öteki Türkiye’de değişen bir şey yok
+     <br>
+      <br>
+       Aslında toplumun alt kesiminde değişen bir şey yok. Onlar eskiden de, ne Maksim’i, ne de Caddebostan’ı biliyorlardı. Başkalarının yanında gösteriş için katlanmak zorunda oldukları zaman dışında, Ankara havasıyla misket oynamayı, Ege ritmleriyle Zeybek yapmayı, Erzurum’un Bar’ı ve Karadeniz’in kemençesi eşliğinde eğlenmeyi tercih etmişlerdi. Şimdi de çok fazla değişen bir şey yok. Yine aynı tarzda eğleniyorlar. Bu yüzden hâlâ Ümit Besen, Cengiz Kurdoğlu’nun kasetleri, yumuşak şarkıcılardan daha çok satıyor. Ancak televizyonlarda ve dizilerdeki eğlence mekanlarında bu isimler hiç geçmiyor.
+       <br/>
+       <br/>
+       Arz mı talep mi tartışmalarını bir kenara bırakırsak şu anda en çok izlenen ve sevilen sunucu olarak gösterilen Mehmet Ali Erbil’in yumuşak hareketlerle beğeni toplaması, neredeyse her dizide böyle bir karakterin yer alması, televolelerde bu isimlerin görünmesi, izleyicinin ilgisini ister istemez bu yöne çekmeye yetti. Artık o hale geldi ki Fatih Ürek, Aydın, Cihan ya da Arto’nun olmadığı bir televole izlemek imkansız oldu. Eskiden toplumun öcü gibi baktığı bu insanlar şimdi evlerimizin davetsiz konukları oldular. Gelişen teknoloji, değişen şartlar ve hangi çağda yaşıyorsunuz baskısı bu insanları meşrulaştırmakla kalmamış, örnek alınması gereken insanlar haline getirmişti.
+       <br/>
+       <br/>
+       Eşler birbirini kıskanmıyor
+       <br/>
+       <br/>
+       Etiler’le özdeşleşen gay şarkıcıların tabanda ne kadar sevildiği tartışmalı iken eğlence dünyasının temsilcilerinin büyük kısmının onları tercih ettiği su götürmez bir gerçek. Ve bu da toplumun eğlence anlayışındaki değişme gibi algılanıyor. Oysa değişen çok fazla bir şey yok. Gaziantep Üniversitesi’nden Yrd. Doç. Dr. Haluk Savaş’a göre gay şarkıcıların beğenilmesinde “kıskançlık” önemli bir rol oynuyor; “Sahnelere çıkan bu tip insanlar özellikle bayanların daha çok ilgisini çekiyor. Karşısında erkek görünümlü biri var ama kadınsı davranışları öne çıkıyor. Bu durum, orada veya televizyonda seyreden açısından da; kadın erkek ilişkilerinde birtakım tepkileri ortadan kaldırıyor. Çünkü seyredilen kişi, cinsiyet kimliği açısından her iki tarafa zarar verecek bir boyutta görülmüyor. Toplumun ahlaki değerlendirmelerine girmeden bir kadın açısından bakıldığında, karşısında sohbeti hoş bir varlık var, sonuçta bir erkek ama maço değil.” Haluk Savaş’ın psikolojik tespitinin dışında sözkonusu gerçeklerin ortaya çıkmasında şov dünyasının farklılık esası üzerine kurulu olması da önemli bir rol oynuyor. Farklılığı olmayan birşeyin, uzunca bir süre yaşama şansı yok çünkü. Ya çok çok iyi bir sanatçı olacak, ya da çok farklı bir nokta bulup çıkış yapacak. Bu farklılıklar bir kaç kanalda olabiliyor. Efemine tiplerin göbek kıvırması, sahnede vurgu yaptıkları, bahsettiğimiz o çıkışı sağlamak için oldukça önemli bir etken. Yani göbek kıvıran, efemine olsun ya da olmasın, bunu vurgulama ihtiyacı hissediyor. Farklılığı sesle vurgulayamayacaklarına göre, (Bu en zor olanı, çünkü çoğunun sesi iyi değil) bedenleriyle vurgulamayı tercih ediyorlar.
+       <br/>
+       <br/>
+       Saded: Yumuşak şarkıcıların eğlence sektöründe tutulmasının getirdiği rant o kadar göz kamaştırıcı ki, söylenildiği gibi cinsel kimliği yerinde olan bazı delikanlılar ranta ortak olabilmek umuduyla efemine kılığına girmeye başlamışlar. Tabii bu bilinen Türkiye’nin eğlence anlayışı. Ancak Öteki Türkiye hâlâ misket havasıyla göbek atıp zeybekle oynamayı ve halay çekmeyi tercih ediyor.
+       <br/>
+       <br/>
+       E—mail: hundez@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13718), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302105836/http://www.aksiyon.com.tr:80/detay.php?id=13718)

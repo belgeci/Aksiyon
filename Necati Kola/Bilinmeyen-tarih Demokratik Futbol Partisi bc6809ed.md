@@ -1,0 +1,71 @@
+# Demokratik Futbol Partisi
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040930043742im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040930043742im_/http://www.aksiyon.com.tr/resim/384/8.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Geçtiğimiz haftalarda yapılan G.Saray ve Beşiktaş kongreleri, büyük kulüplere başkan olmanın ne kadar önemli ve zor bir iş olduğunu bir kez daha gösterdi. Ayrıca kullanılan oy sayısı, ortaya konulan somut projeler ve tanıtım kampanyaları ile de siyasi partilere örnek olacak mesajlar verildi
+ </font>
+ <p>
+  <font class="content">
+   Mart ayı, her iki yılda bir futbol kulüplerimizin kongre ayıdır. Geçtiğimiz bir ay içerisinde Fenerbahçe, Galatasaray ve Beşiktaş kulüpleri, olağan kongrelerini gerçekleştirerek başkanlarını seçtiler. Aziz Yıldırım’ın karşısına herhangi bir adayın çıkmadığı Fenerbahçe kongresi tek parti iktidarından izler taşırken, Galatasaray ve Beşiktaş kongrelerinde büyük bir rekabet yaşandı. Her iki kulübün başkan adayları siyasi partilere taş çıkartacak bir reklam kampanyası yaparak projelerini anlattı. Özel seçim büroları kurarak, televizyon, gazete ve internet ortamından faydalanıp hedef kitlelerinden oy istediler. Yarış öyle bir hale geldi ki Beşiktaş kongresinde tansiyon iyice yükseldi ve gece yarısından sonra sandalyeler havada uçuştu, adaylar birbirlerini hile yapmakla suçladı. Son kongreler bir kez daha gösterdi ki, bir siyasi partiye genel başkan olmak kadar, üç büyük kulüpten birinde başkanlık yapmanın da ekonomik ve sosyal getirisi oldukça fazla. Küçük takımların ise getirisi daha az olduğu için taliplisi de az oluyor. Büyük kulüplerden birinde başkan olabilmek için sadece zengin olmak yeterli olmuyor. Zenginlikle birlikte iyi PR yapılması, projelerin anlatılması ve Anadolu’nun karış karış dolaşılması gerekiyor. Son kongreler bu gerçeklerle birlikte kulüp başkanlarının siyasi parti genel başkanlarından daha demokratik bir sistemle işbaşına geldiklerini de gösterdi...
+   <br/>
+   <br/>
+   Genel seçim gibi kongre
+   <br/>
+   <br/>
+   Fenerbahçe kongresinde 2 bin 300, Galatasaray kongresinde 3 bin 500, Beşiktaş kongresinde de 7 bin 700 civarında üye oy kullandı. Öyle ki 8 bine yakın üyenin oy kullandığı Beşiktaş kongresinde rey tasnifi sabaha kadar sürdü. Televizyonlar, aynen genel seçimde olduğu gibi açılan sandık sayısını, hangi adayın kaç oy aldığını ve kimin önde gittiğini her saat başında kamuoyuna duyurdular. Birçok taraftar da seçimin sonucunu merak ederek sabaha kadar ekran karşısından ayrılmadı. Yukarıdaki rakamlar, bin 200 civarında delegenin oy kullandığı siyasi parti kongrelerine göre oldukça fazlaydı. Bir de siyasi partilerin en küçük beldeye varıncaya kadar teşkilatlandıklarını düşündüğümüzde, bu rakam daha da komikleşiyor.
+   <br/>
+   <br/>
+   Futbol kulüplerinin kongreleri ile siyasi partilerin kongrelerini karşılaştırırken şu noktaya dikkat çekmeden de geçmek olmaz. Siyasi partilerde delege sistemi var. Yani, her parti üyesi kongrelerde oy kullanamıyor. Üyeler, sadece ilçe ve il yönetimlerini belirleyebiliyorlar. Belirlenen yönetimler, yani delegeler, Ankara’ya giderek kongrede oy kullanıyorlar. Fakat sayıları bin 200 civarında olan bu delegeler, oylarını pek özgürce kullanamıyor. ‘Delege Ağası’ olarak tabir edilen kişiler, kongre öncesinde delegelerle temasa geçip onların hangi adaya oy vermesi gerektiğini söylüyor. Sorun çıkaran ilçe ve il yönetimleri ise feshediliyor ve kendilerine oy verecek yeni bir yönetim oluşturuluyor. Futbol kulüplerinde ise böyle bir sistem yok. Adaylar projelerini ve vaatlerini sunuyorlar. Üyeler özgür bir şekilde oylarını kullanıyor ve sandıktan çıkan sonuca saygı gösteriliyor.
+   <br/>
+   <br/>
+   Adaylar birbirlerine saygılıydı
+   <br/>
+   <br/>
+   Galatasaray ve Beşiktaş kongrelerinde şahit olduğumuz güzel olaylardan biri de adayların birbirlerine saygılı olmaları ve eleştiri ölçüsünü kaçırmamalarıydı. Galatasaray kongresinde iki aday vardı: Mehmet Cansun ve Özhan Canaydın. Cansun, son derece saygılı davrandığı rakibinden söz ederken cümleye ‘Özhan abi’ diye başlıyor; Özhan Canaydın da Cansun’dan bahsederken ‘Kardeşim’ diye hitap ediyordu. Bu iki aday arasındaki centilmenlik, kongre öncesi, esnası ve sonrasında da devam etti. Galatasaray Lisesi’nde gerçekleştirilen ve yemek yemeye bile fırsatın olmadığı kongrede, Mehmet Cansun ile Özhan Canaydın bir sandviçi birlikte paylaştılar. Bu tablo, kongre üyelerinden oldukça alkış aldı. Bu kadar olmasa da aynı centilmenlik Beşiktaş’ta da yaşandı. Serdar Bilgili ve Hasan Arat, demeçlerinde birbirlerini kırıcı sözler sarfetmemeye özen gösterdiler. Her iki aday da projelerini anlatmak ve üyeleri etkilemeye çalışmakla meşgul oldu. Zorlu kongre öncesinde Serdar Bilgili örnek bir davranışta da bulundu. Seçim bürosunun önünde yer alan ve Hasan Arat’ın resminin bulunduğu bilboardı, ‘Birileri kırar, sonra benden bilirler’ diyerek özel olarak koruttu.
+   <br/>
+   <br/>
+   Seçim bitti, dostluk devam ediyor
+   <br/>
+   <br/>
+   Son derece zorlu geçen kongreler öncesinde hiç bir aday favori değildi. Özhan Canaydın, geçerli 3 bin 496 oyun 2 bin 89’unu alarak; Serdar Bilgili de geçerli 7 bin 363 oyun 4 bin 78’ini alarak başkan seçildiler. Kongreden sonra Özhan Canaydın, Mehmet Cansun’un listesindeki Abdürrahim Albayrak ile devam etme kararı aldı. Çünkü, Albayrak görevini çok iyi yerine getiriyordu ve futbolcular da memnundu. Takımın başarısı için gerekli olan da buydu. Canaydın, Futbol Şubesi’nin başına yeni bir isim atamak yerine, tercihini Abdürrahim Albayrak’tan yana kullandı. Bu, özellikle siyasi partilerin örnek alması gereken bir davranıştı. Sandık başında rakibiyle birlikte dostça görüntüler veren Serdar Bilgili de kongre rekabetinin geride kaldığını belirterek Hasan Arat ile iyi ilişkilerini sürdürmek istediğini ve Beşiktaş’ın birlik beraberlik içinde yoluna devam etmesi gerektiğini söyledi.
+   <br/>
+   <br/>
+   Her adayın projesi vardı
+   <br/>
+   <br/>
+   Futbol kulüplerinin kongreleriyle siyasi partilerin kongreleri arasında benzerlikler de vardı elbette. Bu benzerliklerden biri proje ve vaatlerdi. Adaylar, daha önceki kongrelerde pek görmediğimiz bir şekilde projelere büyük önem vermişlerdi. Bu proje ve vaatleri genel olarak şu şekilde özetlemek mümkün: Stadyumlar yenilenip modern bir hale getirilecek, amatör branşlara da önem verilecek, Beşiktaş ve Galatasaray radyo—televizyonu kurulacak, tesisleşmeye önem verilecek, en az üç—dört tane süper yabancı yıldız transfer edilecek, Beşiktaş ve Galatasaray dünya kulübü yapılacak, sürekli başarılı olunarak takım tutma yaşına gelmiş çocukların Beşiktaş ve Galatasaray’ı tutmaları sağlanacak, gelir—gider dengesi sağlanıp borçsuz bir yapı oluşturulacak, Fulya’ya iş merkezi inşa edilecek, Galatasaray Adası kiralanarak yüksek gelir sağlanacak...
+   <br/>
+   <br/>
+   Seçim taktikleri de aynıydı
+   <br/>
+   <br/>
+   Adayların seçim taktikleri de hemen hemen aynıydı. Televizyonlarda canlı yayınlara çıkıldı, gazetelerin spor servisleri ziyaret edildi, gazete ayrımı yapmaksızın takım muhabirlerinin talep ettikleri özel röportajlara vakit ayrıldı, dört ve beş yıldızlı otellere seçim büroları kuruldu, Anadolu’nun çeşitli yerlerindeki Beşiktaş ve Galatasaray dernekleri ziyaret edildi, üyelerle tek tek temas kurulmaya çalışıldı, projelerin ve vaatlerin yer aldığı broşürler bastırıldı, kongre üyelerine dağıtılmak üzere eşantiyonlar hazırlandı, İstanbul’un en işlek yerlerindeki bilboardlar kullanıldı, gazetelere reklamlar verildi, siyasilerle ve işadamlarıyla görüşüldü, kongre öncesinde adaylar adına internet siteleri kuruldu ve bu sitelerde adaylar ile projeler hakkında detaylı bilgiler verildi.
+   <br/>
+   <br/>
+   Bütün ortak taktikleri sıraladıktan sonra Serdar Bilgili’nin özel taktiğine değinmemek olmaz. Bilgili, iki yıllık başkanlık döneminde kulübe iki bine yakın yeni üye kaydetti. Herkes Hasan Arat’ın kazanacağına kesin gözüyle bakarken, Serdar Bilgili hiç kimsenin umamayacağı bir şekilde kendinden emindi. Nitekim, 14. sandığa kadar Arat’ı geriden takip eden Bilgili, 15. sandıkta rakibini hem yakaladı, hem de 117 oy farkla geride bıraktı. Genel sonuçlara göre de Arat’a 793 oy fark attı.
+   <br/>
+   <br/>
+   Beşiktaş kongresinde kavga da vardı
+   <br/>
+   <br/>
+   Kulüp kongrelerinde, daha doğrusu tam 20 saat süren Beşiktaş’ın kongresinde siyasi partilerin kongrelerinde yaşanan kavgalar da vardı. İlk olarak, oylamanın başladığı saatlerde Hasan Arat’a ait turuncu renkli oy pusulalarının bazılarında mühür ve isimlerin olmadığı görülünce salonda bir karmaşa yaşandı. Sonra, oy verme işlemine son vermek için kapılar kapatıldığında Sicil Kurulu önünde arbede yaşandı, bazı panolar devrildi. Kongredeki en büyük kavga ise sabaha karşı saat dörtte Beşiktaş Başkanı Serdar Bilgili’nin salona girmesiyle yaşandı. Arat’ı destekleyen bir grup ile Bilgili’yi destekleyen bir grup kavga etti. Çıkan olaylarda sandalyeler ve çöp kovaları adeta havalarda uçuşurken, güvenlik güçleri olayları büyümeden önledi. Ayrıca, kongrenin yapıldığı Akatlar Spor Salonu’nun bazı bölümlerinde boş viski ve bira şişelerinin çokluğu dikkat çekti. Bir spor kulübünün kongresinde içki şişelerinin ortalıkta dolaşması ve alkollü kişilerin olay çıkarması oldukça yadırgandı.
+   <br/>
+   <br/>
+   E—mail: kolaca@hotmail.com
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12060&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040930043742/http://www.aksiyon.com.tr:80/detay.php?id=12060&yorum_id=1)

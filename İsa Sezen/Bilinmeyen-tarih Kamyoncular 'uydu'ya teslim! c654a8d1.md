@@ -1,0 +1,44 @@
+# Kamyoncular 'uydu'ya teslim!
+
+*İsa Sezen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041015050232im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041015050232im_/http://www.aksiyon.com.tr/resim/513/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Irak’ta Türk kamyon şoförlerinin rehine alınması ya da öldürülmesi üzerine Uluslararası Nakliyeciler Derneği harekete geçti. Araçların konumlarını bildiren Araç Takip Sistemi kuran dernek, daha şimdiden sistemi 147 kamyona monte etti.
+ </font>
+ <p>
+  <font class="content">
+   Gün geçmiyor ki Türk kamyon şoförlerinin Irak’ta hayatını kaybettiğine ya da rehine alındığına dair haberler gelmesin... Türkiye’den Irak’ta iş yapan firmalara malzeme taşırken ölüm riski ile karşı karşıya bulunan kamyon şoförlerinin hayatlarını garanti altına alacak somut tedbirler henüz alınmış değil. Ne Türk hükümeti ne de Irak’taki Amerikan işgal güçleri ve Bağdat’taki yönetim, bu konuda kesin bir çözüm üretti. Geçtiğimiz günlerde Suriye güzergâhının da güvenli olmadığının ortaya çıkmasıyla birlikte Türk kamyon şoförlerini Irak’ta çok daha zor günler bekliyor.
+   <br/>
+   <br/>
+   Ancak, hiçbir tedbir alınmıyor da değil... Kamyon şoförlerini uydulu takiple korumak, alınan kısmi tedbirlerden biri meselâ. Kamyonlara takılacak taksimetre büyüklüğündeki elektronik karakutu, haberleşme uydusu aracılığıyla aracın bütün hareketlerini nakliye şirketinin merkezine iletecek. Böylece, olağanüstü durumlarda aracın bulunduğu koordinat Irak’taki yerel güvenlik güçlerine bildirilerek önlem alınması sağlanacak. “Araç Takip Sistemi” adı verilen uygulama, Irak’a taşımacılık yapan yirmiye yakın kamyon şoförünün rehine alınması, bazılarının öldürülmesi üzerine Uluslararası Nakliyeciler Derneği (UND) Teknoloji Merkezi tarafından Irak’a giden kamyonlara monte edilmeye başlandı. Bugüne kadar Irak’a taşımacılık yapan 147 kamyona yerleştirilen sistem sayesinde, uydu ve cep telefonu teknolojisi kullanan araçların dünyanın her yerinde konumları, hızları ve bütün hareketleri izlenebiliyor. Sistem, Habur sınırından itibaren Irak’ın 30-40 km içine kadar çalışıyor. Ancak, Irak geçici yönetiminin uydu alıcılarının girişine izin vermemesi nedeniyle sistem Zaho’ya kadar kullanılabiliyor.
+   <br/>
+   <br/>
+   UND Teknoloji Merkezi Genel Müdürü Ahmet Türköz, Irak geçici yönetiminin Türkiye ziyaretinde kamyonlara uydu alıcılarının takılmasına izin verilmesi için görüşme yapacaklarını söylüyor. Gerekli iznin verilmesi durumunda Irak’ta Türk şoförlerini rehine olarak alıkoyma olaylarının en az seviyeye ineceğini belirtiyor. Türköz’ün verdiği bilgiye göre, Türkiye’den Avrupa ve Asya’ya taşımacılık yapan bin 200 TIR’a sistem monte edilmiş durumda. Türkiye’de tüpgaz ve su bayileri ile ambulans ve taksilerde kullanılan sistem, Avrupa ve Amerika’da çok yaygın. Sistemin araç başına maliyeti 800 doları geçmiyor.
+   <br/>
+   <br/>
+   ABD Savunma Bakanlığı’nın askeri amaçlı kullandığı haberleşme uyduları 1984 yılında sivillerin de kullanımına açıldı. Bu tarihten sonra Amerika ve Avrupa gibi ülkelerde GPS adı verilen haberleşme uydularının katkısıyla araç konum bilgilerinin karşılıklı alışverişi yaygınlaşmaya başladı. Araç Takip Sistemi şoförle sürekli diyalog halinde olması gereken nakliye şirketleri tarafından yoğun ilgi gördü. Avrupa’da uluslararası firmaların çoğunda bulunan sistem, Türkiye’de 2000’li yılların başında kullanılmaya başladı.
+   <br/>
+   <br/>
+   Araç Takip Sistemi, diğer adıyla Mobil Veri Sistemi araçların bütün hareketlerinin dijital haritalar yoluyla izlenerek raporlanmasını sağlıyor. Sistem hareket halinde olan objenin bütün fonksiyonlarını algılayıcı sensörler yardımıyla izleyerek anlık raporlama imkanı sunuyor. Dünyada da yaygın olan bu sistem, GPS haberleşme uydularını ya da cep telefonu operatörlerinin radyo paket sistemi olan GPRS’i kullanmak suretiyle çalışıyor. Taksimetreye benzer elektronik karakutunun takıldığı araçlar nakliye şirketinden ya da UND’nin merkezinden izlenebiliyor. Bu izleme, aracın üzerine konulan 12 santimetre büyüklüğündeki çanak anten sayesinde gerçekleşiyor. 892 nakliye şirketinin üye olduğu Uluslararası Nakliyeciler Derneği, 2001 yılında bünyesinde kurduğu teknoloji merkezinde bu sistemi nakliyecilerin hizmetine sundu. Araç takip sisteminin kullanımı nakliyeciler arasında kısa sürede yayıldı ve 3 yılda bin 200 TIR’a cihaz monte edildi. UND Teknoloji Merkezi nakliyecilerin dışında başka sektörlerden de talep görünce ATS’nin kullanım alanı yaygınlaştırıldı. Bir süre sonra okul ya da şirketlere taşımacılık yapan servislere de takılmaya başlayan sistemi, bankalar, hem parayı hem de zamanı daha iyi yönetmek için nakil araçlarındaki para torbalarının içine yerleştirerek kullanmaya başladı. 3 yıl içinde 220 şirkete ait 3 bin 500 araca takılan Mobil Veri Sistemi, Romanya ve Arnavutluk’ta faaliyet gösteren yabancı nakliye şirketlerinin araçlarına da monte edildi.
+   <br/>
+   <br/>
+   Irak’a taşımacılık yapan 7 firmaya ait 147 araca ATS sistemi monte edilirken, FMF adlı nakliye şirketi 86 aracına bu cihazı taktırdı. Irak’a 24 yıldır taşımacılık yapan Martaş Nakliye şirketi ise 105 aracından 32’sine ATS’yi taktırdı. Martaş A.Ş’nin sahibi Ali Çiçekli, son aylarda Irak’ta yaşananlardan endişe duydukları için cihazları taktırma ihtiyacı hissettiklerini söylüyor. Geçtiğimiz yıl Birleşmiş Milletler Gıda Teşkilatının Irak’a yardım amaçlı gönderdiği 120 bin ton hububat ve bakliyatın taşımacılığını üstlendiklerini anlatan Çiçekli, “ATS’yi aracı daha iyi kontrol etmek, onun nerede ne yaptığını bilmek amacıyla yerleştirdik. En büyük sıkıntımız cihazın Irak’ın 30-40 kilometre içine kadar ancak çalışması. Uydu alıcılarının Irak’a sokulmasını istiyoruz. Böylelikle diğer araçlarımıza da sistemi yerleştirebileceğiz” diyor.
+   <br/>
+   <br/>
+   Ahmet Türköz, geçici yönetimin, haberleşme uydularıyla bağlantıyı sağlayacak uydu alıcılarının takılmasına izin vermesi durumunda Araç Takip Sistemi’nin Irak’a giriş çıkış yapan bütün araçlara takılabileceğini dile getiriyor. Cihazlar sayesinde rehine alma olaylarının da azalabileceğine dikkat çeken Türköz, “Aracın önceden belirlenen konaklama mekanları dışında durması halinde sistem hemen devreye giriyor ve merkezi uyarıyor. Aracın durdurulup şoförün rehine olarak alıkoyulması durumunda o bölgeye en yakın güvenlik gücünün aracın durdurulduğu güzergaha yönlendirilmesi sağlanabilir. Bizim sistemle ilgili tüm altyapımız hazır. Irak da haberleşme uydularının kapsamında. Eğer Irak geçici yönetimi uydu alıcılarının ülkeye girişine izin verirse ATS’yi tam anlamıyla uygulabiliriz. Önümüzdeki ay Türkiye’yi ziyaret edecek Irak geçici yönetimi yetkililerinden bu konuyla ilgili gerekli iznin verilmesini isteyeceğiz” diyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16478&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041015050232/http://www.aksiyon.com.tr:80/detay.php?id=16478&yorum_id=1)

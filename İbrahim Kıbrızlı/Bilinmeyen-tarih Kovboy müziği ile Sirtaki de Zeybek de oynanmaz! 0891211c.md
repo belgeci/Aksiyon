@@ -1,0 +1,76 @@
+# Kovboy müziği ile Sirtaki de Zeybek de oynanmaz!
+
+*İbrahim Kıbrızlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031441im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031441im_/http://www.aksiyon.com.tr/resim/362/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kıbrıs sorunu, Ada’da yaşayan her iki toplumun sorunu olmanın ötesine geçmiş bulunuyor. Çözümün ise, Ada’nın garantör devletleri olan Türkiye ve Yunanistan’ı da aşan bir nitelik kazandığı anlaşılıyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Dışişleri Bakanı İsmail Cem’in zeybeğine, sirtaki ile karşılık veren yakın dostu Yunanistan Dışişleri Bakanı Yorgo Papandreu, Kıbrıs Rum kesiminin Avrupa Birliği üyeliğine kesin gözü ile bakıyor.
+   <br>
+    <br>
+     Papandreu’ya göre; ‘Türkiye, ya bu sürece olumlu katkıda bulunacak, ya da gelişmeleri olduğu gibi kabul etmek zorunda kalacak’.
+     <br>
+      <br>
+       Bakan Cem’e göre ise, ‘Türkiye, Kıbrıs konusunda bedel ödeme pahasına radikal kararlar almak durumunda kalabilir’. Daha açıkçası, Kıbrıs’ın mevcut yapısının korunması noktasında zorda kalındığı takdirde, başka çıkış yolu kalmayan Türkiye, son çare olarak Kıbrıs’ı ilhak edebilir.
+       <br/>
+       <br/>
+       Peki, bu iş uygulamada da bu kadar kolay mı?
+       <br/>
+       <br/>
+       Hem Türkiye’de hem de Kuzey Kıbrıs Türk Cumhuriyeti’nde yapılacak referandum ile Kıbrıs’ın Türkiye’ye ilhakı kağıt üzerinde teknik olarak kökünden halledilebilir gibi görünüyor. Tabii, ne kadar demokratik görünürse görünsün böylesine tek taraflı uç bir uygulamaya başta ABD olmak üzere İngiltere, Fransa ve özellikle Federal Almanya ile Rusya Federasyonu’nun sessiz kalmayacakları bilinen bir gerçek.
+       <br/>
+       <br/>
+       Gerek Ada’daki Türk ve Rum kesimlerinin gerekse İngiltere, Türkiye, Yunanistan gibi garantör devletler ile başta Birleşmiş Milletler ve Avrupa Birliği olmak üzere uluslararası kuruluşların Kıbrıs’taki ihtilafların çözümüne dönük ortak noktaları olduğu söylenemez.
+       <br/>
+       <br/>
+       Yunanistan’ın özel gayretleri ile AB’nin almış olduğu tek taraflı bir karar doğrultusunda Kıbrıs Rum kesimini, AB üyeliğine kabulü yönündeki ısrarlı yaklaşımı sorunun çözümsüzlüğüne doğrudan etki eden en önemli faktör.
+       <br/>
+       <br/>
+       AB ve BM’nin Kıbrıs sorunu ile ilgili taraflardan herhangi birini mağdur etmeyecek, garantör devletlerin de katılacağı somut bir yaklaşım getirememeleri, kapsamlı bir anlaşmanın yapılması için yürütülen müzakerelerden sonuç alınmasını geciktiriyor.
+       <br/>
+       <br/>
+       Tüm doğrudan veya dolaylı taraflar için Kıbrıs’ı bu kadar önemli ve vazgeçilmez kılan gerekçelerin bilinmesi, bu karmaşık ve çok taraflı uzlaşmazlıkların temel nedenlerinin teşhisi bakımından gerekli.
+       <br/>
+       <br/>
+       Ada’da sağlıklı bir siyasal yapının kurulmasına müsaade etmeyen temel faktör, Ada’ya hakim olan tarafın bir diğerine siyasal üstünlük sağlamasının ötesinde aranmalı. Ancak, bu takdirde çözümsüzlüğün gerekçeleri daha net anlaşılabilir.
+       <br/>
+       <br/>
+       Kıbrıs’ı vazgeçilmez kılan gerekçelerin ilk sırasında kuşkusuz Kıbrıs Adası’nın Akdeniz coğrafyasındaki jeo—stratejik konumu geliyor.
+       <br/>
+       <br/>
+       Ada’ya hakim olan tarafın, Akdeniz’in kontrolü bakımından hayati öneme sahip siyasal ve ekonomik getirisi yüksek ‘merkezi bir üs’ kazanmış olacağı açık. Bu üs marifetiyle de bu gücün; Kuzey Afrika kıyıları ile Süveyş Su Yolu’nu, Balkanlar ve Boğazları, Kafkasya ve Hazar Bölgesi’ni, Orta Doğu’yu, Arap Yarımadası’nı stratejik olarak denetleme şansını yakalayacağı kesin.
+       <br/>
+       <br/>
+       Kıbrıs’ı siyasal olarak ele geçiren tarafın aynı zamanda da, dünya enerji ve petrol yatakları ile bunların dış pazarlara ulaşım ve dağıtım yollarını kontrolü altına alma ayrıcalığına sahip olacağını ifadeye bile gerek yok, zaten...
+       <br/>
+       <br/>
+       Ada’da yaşayan her iki toplumun aralarında ihtilafa yol açan nedenlerin çözümü noktasında esnek ve uzlaşmacı bir yaklaşım içine girmedikleri biliniyor. Bundan sonra girmeleri durumunda ise sonuç muhtemelen yine de değişmeyecek.
+       <br/>
+       <br/>
+       Sorun, Kıbrıs Adası’nda yaşayan her iki toplumun sorunu olmanın ötesine geçmiş bulunuyor. Çözümün ise, Ada’nın garantör devletleri olan Türkiye ve Yunanistan’ı da aşan bir nitelik kazandığı anlaşılıyor. Her iki devlet bakımından Ada’nın farklı açılardan vazgeçilmez jeopolitik önemi olsa da sonuç itibarıyla durum bu.
+       <br/>
+       <br/>
+       Kabul edelim veya etmeyelim, kendilerini bu filmin baş rol oyuncuları zannedenlerin filmin gerçek senaryosunda figüran olarak bile herhangi bir rolleri yok. Kıbrıs’taki çözümsüzlüğün çözümü Akdeniz’de yerleşik bir üs arayan bir başka devletin istediği doğrultuda tüm hızıyla gelişirken, onlar sirtaki oynamaya, zeybek oynamaya devam etsinler. Karşılıklı dosluk ziyaretlerini sürdürsünler.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12385), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031441/http://www.aksiyon.com.tr:80/detay.php?id=12385)

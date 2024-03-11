@@ -1,0 +1,86 @@
+# Maliye Özal'dan rövanş alıyor
+
+*Ahmet Dinç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041106201605im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041106201605im_/http://www.aksiyon.com.tr/resim/448/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  AB uyum yasaları çerçevesinde hazırlanan Kamu Mali Yönetimi ve Mali Kontrol Kanunu tasarısı, içten içe süren güç ve iktidar mücadelesini su yüzüne çıkardı. AB uyum yasalarının hazırlanması süreci, birçok kanunun yeniden ve öncekinden çok farklı içerik ve kapsamlarda yazılmasını gerektiriyor.
+ </font>
+ <p>
+  <font class="content">
+   Bu durum, en kestirme ifadeyle “taşların yerinden oynaması” demek oluyor. Yerinden oynayan taşlarla yeni binalar yapılmaya çalışılırken, mimariye kimin, hangi gücün şekil vereceği tartışmaları içten içe yaşanıyor. Hemen her kanunun hazırlanması amansız bir güç mücadelesine sahne oluyor. Güç mücadelesinin tarafları, ülkemizin bilinen, yerleşmiş, kanıksadığımız odakları.
+   <br/>
+   <br/>
+   Mücadelenin en yoğun yaşandığı kanunlardan biri, bugünlerde Meclis gündemine gelmesi beklenen Kamu Mali Yönetimi ve Mali Kontrol Kanunu. Tasarı, devletin hemen bütün kurumlarının mali açıdan yönetimini ve kontrolünü ilgilendirdiği için, oldukça hayati önem arzediyor.
+   <br/>
+   <br/>
+   AB istedi, Maliye tersini yaptı
+   <br/>
+   <br/>
+   AB, Türkiye’deki mevcut Mali Yönetim ve Kontrol Yasası’nın gereğinden fazla merkeziyetçi bir görüntü arzettiğini, Maliye Bakanlığı bürokrasisinin diğer bakanlıklar ve kurumlar üzerinde aşırı etkin olduğunu ve  vurgulayıp, bu yapının değiştirilmesini istedi.
+   <br/>
+   <br/>
+   Gerçekten de Özal sonrası süreçte Maliye bürokrasisi adım adım birçok devlet mekanizmasının mali kontrolünü ele almıştı. Turgut Özal, Maliye Teftiş Kurulu’nu devlet mali teftiş mekanizmalarının dışına itmiş, pasifleştirmişti. Bunun sebepleri ilgili kişiler ve kurumlarda çok tartışıldı, hâlâ konuşulmaya devam ediyor. İhtimaller arasında Özal’ın, merkeziyetçi yapıyı kırıp, tıpkı bugün AB’nin istediği tarzda bakanlıklara ve kurumlara dağıtılmış ademi merkeziyetçi bir sistem oturtmak istemiş olabileceği var. Bir diğer nedense, IMF ve Dünya Bankası gibi, artık hangi amaç için var oldukları daha çok insan tarafından farkedilen global kuruluşlarda eğitim vs. için Türkiye’den giden memurların büyük kısmının Maliye bürokrasisi içinden seçiliyor olması gerçeği.
+   <br/>
+   <br/>
+   Özal zamanında kamu maliyesi hususunda var olan aktörler ve faktörler bugün için de fazlasıyla bulunuyor. Tasarı üzerindeki çekişmenin tarafları arasında, mali yönetim ve kontrolün tamamen Maliye Bakanlığı’na verilmesini savunan Maliye bürokrasisinin bulunduğu apaçık ortada.
+   <br/>
+   <br/>
+   Yenisi daha tekelci
+   <br/>
+   <br/>
+   AB’nin, “merkeziyetçiliği yok edin” diyerek yolunu açtığı tasarı çalışmasını Maliye Bakanlığı yürüttü. Tasarının hazırlanması aşamasında diğer bakanlıklar ile Hazine başta olmak üzere devletin değişik kurumları, Maliye’ye tasarı konusunda öneriler, hatta eleştiriler iletti, ancak bunların hiçbiri dikkate alınmadı. Geçtiğimiz hafta başında, yani 23 Haziran’da tasarı Meclis’e sevkedilmek üzere Bakanlar Kurulu’nun gündemine getirildi. Ancak diğer bakanların yoğun eleştirileri üzerine, tasarının önümüzdeki salı gününe kadar gündeme getirilmesinin ertelenmesine karar verildi.
+   <br/>
+   <br/>
+   Bu direnme/erteleme üzerine, bazı kurum ve kuruluşlar da tasarıya karşı sessiz ve derinden yürüttükleri itirazı yüksek sesle dillendirmeye karar verdi. Devlet birimlerinde bakanlıklarda görev yapan yaklaşık 3 bin müfettişi bünyesinde toplayan Devlet Denetim Elemanları Derneği (DENETDE), tasarının sakıncalarını ihtiva eden bir çalışma başlatıyor. Çalışmanın sonucu bütün bakanlıklara gönderilecek, ardından da basın toplantısıyla kamuoyuna duyurulacak ve perde arkasındaki mücadele bir anlamda alenileşmiş olacak. Konu, bütün kurumlar ve bakanlıklardaki müfettişleri yakından ilgilendirdiği için, DENETDE yakın takipte. Başkan Atılay Ergüven, “Bu tasarı gerekli reform niteliklerini karşılamaktan uzak, tek yanlı hazırlanmış, Maliye’nin görüşlerini yansıtan ve Maliye’ye daha geniş yetkiler veren bir kanun tasarısı görünümündedir” diyor. Ergüven’in asıl bombardımanı şu sözlerinde: “Maliye bürokrasisi, devlet teşkilatı üzerinde kaybettiği kontrol ve tahakkümü, bugünlerde kanun değişiklikleri ile yeniden kazanmaya ve diğer denetim birimlerini saf dışı bırakmaya çalışmaktadır. Dar çıkar ve nüfuz hesapları ile hareket eden maliye bürokrasisi, bu amacını, Ulusal Program revizyon metni içine gizleyerek gerçekleştirmek istiyor.”
+   <br/>
+   <br/>
+   Tasarıda neler var?
+   <br/>
+   <br/>
+   Başbakanlık Teftiş Kurulu ve Hazine tasarının birçok maddesine itiraz ediyor. Maddeler arasına ustaca gizlenmiş ifadelerin, devlet maliyesini ve denetimini Maliye bürokrasisine vereceği, diğer bakanlıkların adeta ikinci bir başbakan gibi Maliye Bakanı ve üst düzey yöneticilerinden emir alır hale gelebileceği söyleniyor. Özellikle 61. maddenin ikinci fıkrasında yer alan, “Genel bütçe kapsamındaki kamu idarelerinin muhasebe hizmetleri Maliye Bakanlığı’nca yürütülür” ifadesi tepki görüyor. Zira bugüne kadar Maliye bürokrasisi sadece kendi bakanlığının denetimini yapabiliyor ve bir de özel sektörün vergi incelemesini gerçekleştirebiliyordu. Bakanlıkların ve kamu kuruluşlarının teftiş birimleri, 61. maddenin, Maliye dışındaki bütün kuruluşların teftiş/denetim birimlerini saf dışı bırakacağını ve tekelleşme tehlikesi doğuracağını ileri sürüyor.
+   <br/>
+   <br/>
+   Tasarıda kurulması önerilen İç Denetim Koordinasyon Kurulu, Maliye Bakanlığı bünyesinde, Bakanlığa bağlı ve tamamen onun kontrolünde görülüyor. Oysa AB standartlarına göre bu kurulun “bağımsız” olarak kurulması gerekiyor. Ayrıca çoğunluk esasına göre karar alacak kurulda başkan ve 7 üyeden 4’ünün Maliye temsilcisi olması öngörülüyor.
+   <br/>
+   <br/>
+   Ayrıca tasarının kanunlaşmasından sonra bakanlıklardaki ve kurumlardaki mevcut denetim birimleri mali denetim yapamayacak; bu işi sadece Maliye denetçileri yapabilecek. Tasarının geneline bakıldığında, Özal döneminde güç kaybeden Maliye bürokrasisinin bütün kamuyu, yani devleti kontrol etmesi, yani Özal’dan kalan rövanşı alması kaçınılmaz görünüyor.
+   <br/>
+   <br/>
+   ELEŞTİRİLEN MADDELER
+   <br/>
+   <br/>
+   Tasarıda, bakanlıklar tarafından eleştirilen ya da değiştirilmesi istenen bazı maddeler:
+   <br/>
+   <br/>
+   Madde 2: İkinci fıkrada AB fonları ve yurtdışından sağlanan kaynakların kullanımı, Anayasa’ya göre onaylandıktan sonra kanunlar üzerinde hüküm ifade eden ayrı ve özel anlaşmalara göre yapıldığından bu hüküm uluslararası kredi işlemlerinde büyük sıkıntılara neden olabilecek.
+   <br/>
+   <br/>
+   Madde 6: “Hazine Birliği” başlığı ve madde içindeki aynı ibare, “gelir, gider, tahsilat, ödeme, nakit planlaması, borç yönetimi” gibi kavramsal çerçevede bütçesel işleri kapsadığından “Bütçe Birliği” şeklinde değiştirilmesi isteniyor.
+   <br/>
+   <br/>
+   Madde 16, 17 ve 18: Reformun en önemli ve stratejik ayağı olan bütçeleme ve bütçe hazırlama süreçlerinde, mevcut hantal ve etkisiz sistemde aslında hiçbir değişme olmadığı gözlemleniyor. İlgili kamu idarelerinin ön kriterlere ve rehbere uygun olarak düzenleyip gönderdiği bütçeleri üzerinde Maliye Bakanlığı ödenek ve program olarak ne gibi bir işlem yapacaktır, ödenekleri yine tek taraflı kesip istediği gibi mi düzenleyecektir, süreç belirsiz.
+   <br/>
+   <br/>
+   Madde 30: İkinci fıkranın ilk cümlesinde “Genel idarenin tüm gelir ve giderleri ile borç ve mali imkanlarının tespiti, takibi ve denetiminin yapılabilmesi amacıyla”, son cümlesinde “Bunların her türlü mali işlemleriyle ilgili belge ve hesap durumları ile borçlanma ve borç ödeme imkanları üzerinde inceleme yaptırmaya,” ibareleri; bu denetim ve inceleme yetkilerinin ne Sayıştay’da, ne Başbakanlık Teftiş Kurulunda, ne de İç Denetçi ile İç Denetim Koordinasyon Kurulunda olmadığı, bir kısım yetki ve inceleme görevinin 4749 sayılı Kanun ile Hazine Müsteşarlığında bulunması karşısında kesinlikle madde metninden çıkarılması isteniyor. Aksi takdirde tam bir yetki karmaşası, mükerrer denetim ve merkeziyetçi bir mali yapı ortaya çıkacağı Maliye Bakanlığı’nın tüm bakanlık ve kamu idareleri üzerinde ikinci bir Başbakanlık olacağı ileri sürülüyor.
+   <br/>
+   <br/>
+   Madde 45: Madde metninde geçen “Maliye Hazinesi” devlet adına tek hazine olduğu, bunun da Maliye, Başbakanlık veya Bayındırlık ve İskan Bakanlığı hazinesi olamayacağına göre sadece “Hazine” olması gerekmektedir.
+   <br/>
+   <br/>
+   Madde 76 (Eski 67.md): Bu maddede; “Maliye Bakanlığı teşkilat ve görevleri hakkında kanun” ifadesiyle Maliye Bakanlığı yetkileri artırılıp güçlendirilirken, Geçici 6. madde ile de bu alandaki uluslararası anlaşmaların ve kanunların gözden geçirileceği ve bu kanuna aykırı tüm hükümlerinin geçersiz olacağı belirtilmektedir.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=2761&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041106201605/http://aksiyon.com.tr:80/detay.php?id=2761&yorum_id=1)

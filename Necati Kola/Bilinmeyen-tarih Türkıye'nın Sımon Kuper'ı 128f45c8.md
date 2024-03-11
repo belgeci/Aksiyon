@@ -1,0 +1,52 @@
+# Türkıye’nın Sımon Kuper’ı
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095107im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095107im_/http://www.aksiyon.com.tr/resim/387/84.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Eski milli eldivenlerden Fatih Uraz’ın Zaman Kitap’tan çıkan Kaleciyi Vurun adlı kitabı, İngiliz yazar Simon Kuper’in 22 ülkeyi dolaşarak yazdığı Futbol Asla Sadece Futbol Değildir’in Türkiye versiyonu
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fatih Uraz... 30 yıldır futbol camiasının içinde. Hacettepespor’da başlayan kalecilik serüveni, Samsunspor, Beşiktaş ve Milli Takım’da devam etti. 20 Ocak 1989 tarihinde Malatya deplasmanına giden Samsunspor’un otobüsündeydi ve sağ taraftaki koltukların dördüncü sırasında uyuyordu. Takım arkadaşı Mete’nin ‘Vuruyoruuuz’ çığlığıyla uyandı, birkaç saniye içinde koltuklara sıkışıp bayıldı, gözlerini açtığında hastanedeydi.
+   <br>
+    <br>
+     Mete, öleceğini rüyasında gördü
+     <br>
+      <br>
+       Aslında, dört futbolcunun (Mete, Tomiç, Muzaffer, Nasır) hayatını kaybettiği bu kazayı Mete rüyasında görmüştü: “Ağustos 1988’de kamp için Uludağ’daydık. Bir sabah Mete tek başına oturuyordu. Fatih sana bir şey anlatacağım, dedi. Ben de anlat, dedim. Dün gece bir rüya gördüm, dedi: ‘Sen ve ben ölümü bekliyorduk. Sen la havle vela kuvvete gibi bir şeyler söyledin, kurtuldun. Ben ise kurtulamadım.’ Ben de ‘Bana Samsun’a dönünceye kadar müsaade et. Ben bu rüyanın yorumunu öğrenip sana söylerim’ dedim. Daha sonra Samsun’a döndük, ilim sahibi olduğuna inandığım bir hocaya gittim, rüyayı anlattım. O da ‘Bu bir çağrıdır’ dedi.”
+       <br/>
+       <br/>
+       Kaleci canınız nasıl kurtarıyor?
+       <br/>
+       <br/>
+       Kitapta buna benzer hikmet verici anılar da var, komik hikayeler de, ‘Burası Türkiye’lik kıssalar da... Kitaba ad olan ‘Kaleciyi Vurun’ emri de ‘Burası Türkiye’lik hikayelerden. Fatih Uraz futbola yeni başlamış genç bir eldiven. Hacettepe Genç Takımı’nın yedek kalecisi. DSİ ile yaptıkları önemli maça kulüp başkanı (İnci Baba) da geliyor. Maçta 1–0 mağluplar ve rakip keleci bir türlü gol yemiyor. Başkan, en sonunda dayanamıyor ve adamlarına emri veriyor: Kaleciyi vurun. Neyse ki üç–beş dakika sonra o gencecik kaleci golü yiyor da canını kurtarıyor. Kitapta buna benzer onlarca anı var.
+       <br/>
+       <br/>
+       ‘Değişen hiçbir şey yok’
+       <br/>
+       <br/>
+       Zaman Gazetesi spor yazarı Fatih Uraz, birçok anısında kahramanların ismini vermekten ısrarla kaçınmış. Mesela, ‘Kaleciyi vurun’ emrini İnci Baba’nın verdiğini herkes tahmin etse de Uraz kesinlikle odur ya da değildir demiyor. Uraz, isim vermemesinin sebebini ise şöyle açıklıyor: ‘Türk insanı çok unutkan ve kendisine bir zarar geleceğinde ben böyle bir şey söylemedim, diyor. Bir de benim vurgulamak istediğim şu: 70’lerde olanlar şimdi de oluyor.’
+       <br/>
+       <br/>
+       O gün yaşananlarla bugün yaşananlar arasında hiç fark yok mu gerçekten? Uraz, ‘Takımlar, isimler, mekanlar değişiyor; ama olaylar yine aynı, zihniyet yine aynı. Değişen hiçbir şey yok. Değişen sadece sahalar, toplar, formalar ve para’ diyor. Uraz’ın bu kitabı yazmaktaki amacı ise futbolun kirli yüzünün herkes tarafından bilinmesi. ‘Amacım, insanlar bu kitabı okusun, Simon Kuper’in de dediği gibi futbolun sadece futbol olmadığını görsünler. Çünkü futbol, göründüğünden çok farklı olan bir şey. Yaşananların çoğu da sadece bizim insanımıza mahsus.’
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11836), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095107/http://www.aksiyon.com.tr:80/detay.php?id=11836)

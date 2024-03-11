@@ -1,0 +1,106 @@
+# Yüzde 3 direncini aşacağız
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040309035125im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040309035125im_/http://www.aksiyon.com.tr/resim/473/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Faizsiz bankacılık ekonomik krizin ve İhlas Finans’ın yaralarını sarmayı başardı. 5 finans kurumu arasında şube sayısı, hizmet çeşitliliği topladığı fonlar ve büyüme hızı ile dikkat çeken kurumlardan biri de Asya Finans oldu. 43 şube sayısı ve 670 milyon dolarlık mevduat büyüklüğü ile ikinci büyük finans kurumu. Asya Finans Genel Müdürü Ünal Kabaca bankanın kurulduğu 1996 yılından bu yana şiddetli ekonomik krizlerle karşılaştığını, bu sebeple sistem içinde hak ettikleri yere henüz gelemediklerini belirterek 2004 yılında yeni şubeler açarak, hizmet çeşitliliği ve Körfez sermayesinin de sağlayacağı ivme ile hızlı büyüme trendinin devam ettirileceğini söylüyor.
+ </font>
+ <p>
+  <font class="content">
+   Beşiktaş Spor Kulübü Kongre üyesi olan Ünal Kabaca ara sıra tuttuğu takımı izlemeye gitmesine rağmen vaktinin çoğunu işyerinde geçiriyor. En büyük lüksünün ailesi ile haftada bir dışarıda yemek olduğunu ifade ediyor. Hiç televizyon seyretmiyor. Hatta, Popstar yarışmacılarından Bayhan hakkındaki görüşlerini sorduğumda ‘Kim?’ diyor, ‘Şu bizim Nevzat Bayhan mı?
+   <br/>
+   <br/>
+   —Finans kurumlarının fon kullandırma maliyeti niçin yüksek?
+   <br/>
+   <br/>
+   Toplanan mevduatın kesintiler çıktıktan sonra ancak yüzde 84’ünü kullanabiliyorsunuz. 28 günlük bir kâr payı ile maliyetlendirme anlamında diğer bankaların verdiklerinden yüksek bir kâr payı verdiğimizi söyleyebilirim. Kâr payı bir türev aslında. Kullandırma maliyeti düştükçe kredi talep edene de daha düşük oranlar yansıyacaktır.
+   <br/>
+   <br/>
+   —Ne zaman düşer?
+   <br/>
+   <br/>
+   Kredi maliyetlerimiz 2004 yılının içinde düşer ama en düşük olamayız, bu böyle bilinmeli. Ne zaman Türkiye’nin en büyük 3 bankası arasına gireriz o zaman en düşük kredi kullandıran kuruluş olabiliriz. Düşük oranlı kredileri verenler de büyük bankalar.
+   <br/>
+   <br/>
+   — Nakit girişi hızlı büyüse, fonları çeşitlendirme konusunda ÖFK burada altından kalkabilir mi?
+   <br/>
+   <br/>
+   Tabii kalkabilir. Mesele arz talep meselesi. Kaynak girişi yüksek olduğu takdirde o zaman kullandırma maliyeti de düşer. Zaten büyümede hızlı. Finans kurumları toplamda dolar bazında yüzde 40, TL bazında yüzde 32—33 büyüdü
+   <br/>
+   <br/>
+   —ÖFK’ların toplam mevduatta yüzde 3 barajının altına sıkıştığını görüyoruz. Doğurgan bir sistemse durmaması gerekiyordu. Bu direnç noktası niçin aşılamıyor?
+   <br/>
+   <br/>
+   Asya Finans, 7 yaşını doldurdu. 1997 yılından itibaren içeride ve dışarıdaki en büyüğü Uzakdoğu’da meydana gelen iç ve dış ekonomik krizlerle boğuşuyoruz. Bankaların da rakamları aşağılara geldi ama genel bir kaynak çıkışı olmadığı için çok fazla hissedilmedi. Bizde İhlas Finans’tan dolayı ciddi bir kaynak çıkışı yaşandı. Kurumlar topladıkları fonların yüzde 50’sini kaybetti. Sistem içindeki payları yüzde 1.5’lere düştü. 2003 yılını 5 finans kurumu 2.7 gibi bir rakamla kapatacak. Geçmişte tek tük şube açılırdı. Albaraka ve Faysal zaten yıllarca birkaç şube ile yetinmişler. İhlas Finans’ın yüksek fon toplamasını ben biraz da dağıtım kanallarının fazlalığına bağlıyorum çünkü 35 şubesi vardı. Şu anda Finans kurumlarının toplam şube sayısı orta ölçekli bir bankanın mesela Şekerbank’ın şube sayısına yetişemiyor. Zannediyorum 2004 yıl sonu itibarı ile yüzde 3 kesinlikle aşılır ve  mevduat toplamının genel içindeki payı 3.3 ile 3.5 arasında gerçekleşir.
+   <br/>
+   <br/>
+   —Faizsiz sistemin uluslararası sisteme entegre olması noktasında İsviçre Basel Komitesi’ne üye vermesi ve burada temsil edilmesi gerektiği yönünde görüşler var. Bu görüşleri önemsiyor musunuz?
+   <br/>
+   <br/>
+   Muhasebeleştirmeye yönelik Basel kriterleri bütün bankacılık kesimine empoze ediliyor. Entegre olma hadisesini verilerin aynı süzgeçten geçirilerek ortaya konması şeklinde anlıyorum. Bir şirketin ya da ülke bankalarının bilançoları ile diğer ülke bankalarının bilançoları aynı kriterler üzerinden değerlendirildiğinde ortaya çıkan sonucu doğru okumak mümkün oluyor. Basel bunu sağlıyor ve bu anlamda AB standardıdır. Bankalar ve finans kurumlarının uymak zorunda olduğu kriterler Basel gibi uluslararası standartların derlenip toparlanmış halidir.
+   <br/>
+   <br/>
+   —Basel yönetim kuruluna girilebir mi?
+   <br/>
+   <br/>
+   Basel’i takip edecek olan biz değiliz, otoritedir, yani BDDK’dır.
+   <br/>
+   <br/>
+   —Teoride faizsiz sistem Batı ülkelerinin sermaye birikimini değerlendirmeye aday. Ama sürekli mali anlamda buradan oraya akım oluyor?
+   <br/>
+   <br/>
+   Bankacılık bir birikim. Bankacılığın türevleri yüz yılı geçkin sistemlerden geliyor. Faizsiz bankacılık ise 1970’li yılların başında ortaya çıktı. Dolayısı ile kısa sürede bu tip bir gelişme beklemek mümkün olmadığı gibi doğru da değil. Bugün ekonomik, siyasi ve kültürel anlamda her şey yine Batı’dan çıkıp bize geliyorsa bankacılık da bu bütünün bir parçası. Emekleme dönemindeyiz. İçeride yüzde 3’lük bir blok var, henüz onu aşamamışken dışarıya ne ihraç edebiliriz? Önce ayaklarımız üzerine sağlam basmalıyız.
+   <br/>
+   <br/>
+   —Körfez sermayesi ile hoş bir hayal kurulmaya başlandı ve 1 trilyon dolar gibi dev bir rakamdan bahsediliyor. Gerçekten körfez sermayesi Türkiye’ye getirilebilir mi?
+   <br/>
+   <br/>
+   Bu tamamen güvenle ilgili. Arap ülkelerinde şunu müşahede ettim; çok ciddi ve sasabırla bir çalışma yapmak gerekiyor. Devletin bu konuda üst bir strateji geliştirip takip etmesi çok çok önemli. Yoksa mesafe alınamaz. Geçmişte arkası getirilmeyen başarısız girişimler olmuş. Bir hevesle başlamak yerine ortak bir proje ile gidilmeli. Körfez sermayesi ülkelerin raitingine bakıyor ve bu raitingleri kimlerin verdiği belli. S&amp;P, Fitch gibi şirketler. Türkiye’ye yatırım için önce ülke notuna bakıyorlar. Körfez sermayesini idare edenler de Batılılar. Tepe yöneticiler arasında Arap pek yok. Bir Arap bankasını ziyarete gitseniz karşınıza ya bir İngiliz ya da Amerikalı birisi çıkar.
+   <br/>
+   <br/>
+   —Bu sermaye kilitli diyorsunuz?
+   <br/>
+   <br/>
+   Çok kolay olmadığını söylüyorum. Türkiye’de paranın getirileri gelişmiş ülkelere göre çok daha yüksek. Bahreyn Merkez Bankası Başkanı Bahreyn’de 370 civarında bankanın faaliyet gösterdiğinden bahsetti. Bahreyn dediğiniz yer 600 bin nüfuslu bir yer. Ama bankacılığının 100 milyar dolar gibi aktif toplamı var. Tam bir finans merkezi haline getirmişler. 70 milyonluk Türkiye’nin de topladığı fonlar 100 milyar dolar.
+   <br/>
+   <br/>
+   İspanya, İngiltere ve ABD’de konut fiyatları artıyor. Bu konutları allayıp pullayıp Araplara yüksek fiyattan satıyorlar. Kısa süre önce bir olan fiyatlar üç katına çıkmış. Enron ve Arthur Anderson skandalı oldu ABD’de. Bunlar borsada işlem gören halka açık şirketlerdir. Piyasaya iyi sunulmuşlardı ve fiyatları çok yüksekti. Skandal ortaya çıkınca değerleri çok düştü. Soruyorum, orada batan paralar kimlerindi?
+   <br/>
+   <br/>
+   —Körfez’de bu kadar potansiyel varsa, Asya Finans getirmek için ne yapacak?
+   <br/>
+   <br/>
+   2004 yılında Körfez sermayesi için yürüttüğümüz çalışmalarda önemli bir artış olacak. Ciddi bir muhabir ağımız var. Daha çok portföy Batı ülkeleri ağırlıklı. Yeni yılda muhabir ağımızı Körfez ülkelerine de kaydıracağız. Asya Finans’ın Arap sermayesini getirme noktasında önemli bir payı olacağına inanıyorum. Dış ilişkiler volümü Asya Finans’ta sürekli bir artış gösteriyor.
+   <br/>
+   <br/>
+   —Raiting şirketleri güvenilir mi?
+   <br/>
+   <br/>
+   Raiting şirketleri kayıt üzerinden ve daha çok ülkenin kendi durumu ile ilgilenerek çalışma yapıyor. Ülkenin makro ekonomik değerleri, bu değerlerin ileride nelerden etkileneceği üzerinden neticelere varıyorlar. Firmalarda da yine ülke notu önde geliyor. Firma belki Batılı bir ülke şirketi ile kıyasladığınızda çok iyi bir durumda olabilir ama ülke notundan dolayı diğer firmaya göre puanı daha kötü oluyor. Raiting şirketleri hata yapabilir, belki güvenilirliği de tartışılabilir ama genel bir göstergedir. Kurumun alacağı kararlarda raiting şirketlerinin puanlaması dikkate alınıyor. Araplar tamamen raiting şirketlerine bel bağlamış durumda. Asya Finans bu şirketlerin değerlendirmelerinde sapmalar olsa bile Fitch’ten not aldı.
+   <br/>
+   <br/>
+   —Yabancı bankaların Türkiye’ye gelmesine nasıl bakıyorsunuz?
+   <br/>
+   <br/>
+   Yabancı bankalar istila edip geçiyor. Yabancı bankalar sistemi ele geçirdiğinde, oranları dayattığında yapacak hiçbir şeyin kalmaz. Yerli bankaya mutlaka ihtiyaç var. Biz bizim halimizden anlarız.
+   <br/>
+   <br/>
+   —Yabancı bankalar sistemde en fazla hangi oranda olmalı?
+   <br/>
+   <br/>
+   Tamamen gelişmelere bağlı ama oranlarını artıracakları kesin. Hipermarketin yanında köşedeki bakkal durumuna düşebiliriz. Ama işini iyi yapıp kendisini kabul ettiren bakkallarda çıkabilir. Türkiye enflasyon sorununu halledip ekonomisini istikrara kavuşturduğunda ve AB kriterlerini gerçekleştirdiğinde yabancı bankaların kayıtsız kalamayacağı dünyanın en büyük ekonomilerinden birisine sahip. Birçok ülkede bankacılık sistemini ele geçirmiş durumdalar. Sadece Türkiye bunun dışında idi.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3325&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040309035125/http://www.aksiyon.com.tr:80/detay.php?id=3325&yorum_id=1)

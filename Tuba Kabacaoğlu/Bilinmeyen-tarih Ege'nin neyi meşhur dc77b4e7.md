@@ -1,0 +1,70 @@
+# Ege'nin "ney"i meşhur
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040514093945im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040514093945im_/http://www.aksiyon.com.tr/resim/486/74.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Müziğin bir aşk olduğuna, insanları oradanoraya savurabilme kudretini barındırdığına, yaşattığı huzura tanık olmak, inanmak istiyorsanız Girit’ in Houdetsı köyüne gitmeniz ya da  en azından bu haberi okumanız yeterli...
+  <br>
+   <br/>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   Bembeyaz saçlarının ardında kocaman bir yaşanmışlığı, müzik uğruna oradan oraya savrulmuşluğu gizliyor sanki. İrlandalı anne-babanın biricik oğlu Ross Daly hayata ilk selamını 1949 yılında İngiltere’de verir. Viyolonseli dört yaşında şaşırılacak kadar kısa bir sürede çalmayı öğrenir. Küçük yaşlardan itibaren iyi bir müzik kulağına sahiptir. Bunun en büyük mimarı profesyonel olarak piyano çalan annesinden başkası değildir. Müzik aletlerine duyduğu ilgi viyolonseli öğrenmesiyle bitmez. Çünkü, ona göre müzik sonsuzdur. 11 yaşında klasik gitarı, 15 yaşında iki yıl özel ders alarak Hindistan sitarını çalmayı öğrenir. Tanıştığı Afgan arkadaşlarından etkilenerek ‘rebab’a da merak sarar. Ve öğrendiklerini pekiştirebilmek adına Afganistan’da iki yıl yaşar.
+   <br/>
+   <br/>
+   Girit’te canlanan müzik hayatı
+   <br/>
+   <br/>
+   1975’te birçok ülke dolaşmış bir kişidir artık. Bizim haberimize konu olan olay da o yıl gelişmeye başlar. Girit’e turistik amaçlı gider. Daha önce hiç görmediği Girit kemençesi ilgisini çeker ve öğrenmek için çalışmalara başlar. Uzun süre Girit’te kalır. Ara sıra Türkiye’ye de gelir ve hemen hemen tüm şehirleri gezip görür. Türk müziğine hayran olur ve bu alanda da bir şeyler yapmak ister. Bu arada Talip Özkan, Ömer Erdoğdular ve Necati Çelik gibi profesyonel müzisyenlerden tambur, ud, ney, saz, kanun dersleri almayı ihmal etmez. Ross, her ne kadar İngiltere doğumlu, İrlandalı anne ve babanın oğlu olsa da sanki daha çok ‘Doğulu’ gibidir. Daly’nin hayatını şekillendiren, gittiği her yerde nasıl yaşaması gerektiğini öğreten şey müziktir. Müzik, onun hayatında ilk yıllarda annesiyle birlikte başlamışsa da zaman içinde kendi yetenek, beğeni ve müziğe bakış açısıyla şekilden şekile girerek sonu gelmeyen bir serüven olarak karşısında durur.
+   <br/>
+   <br/>
+   Ülke ülke dolaşmayı hayatına tarz edinen Ross’u Girit’teki yaşam da sıkmaya başlar. Kalabalık, gürültü, stres rahatsızlık vermeye başlamıştır. Yaşanmışlığın da vermiş olduğu bir “es” ihtiyacı ile Girit’ in Houdetsı köyüne taşınır.
+   <br/>
+   <br/>
+   Okula adım adım...
+   <br/>
+   <br/>
+   Sessiz, küçük, samimi ilişkilerin hakim olduğu Houdetsı köyü Ross’un hayatının geri kalanını müzikle geçirebilmesi ve yılların yorgunluğunu atabilmesi için ideal bir mekandır. Ömrünün neredeyse tamamını müziğe adayan Daly, birbirine çok benzeyen Girit ve Türk müziğini icra eder. Türk müziğine meraklı olan halk da ona kayıtsız kalmaz. Ross kendi üzerinde taşıdığı tüm renkleri Giritli insanlarla da paylaşmak ister. Bunun için en iyi metod da okul açmaktır. Daha önce İngiltere’den arkadaşı olan Nıkos Kazanizakıs’in, Girit Belediye Başkanı’nın ve Avrupa Birliği’nin de yardımıyla istediği okulu açar. Okulun amacı, ırk, ülke, müzik türü gözetmeden herkesin gelip müzik eğitimi alabilmesini, Türk müziğinin dünyada tanınmasını sağlamak, milletler arasında kültür alışverişini gerçekleştirebilmek ve her milletin müzik arşivini oluşturabilmektir.
+   <br/>
+   <br/>
+   Belediyenin okul için bağışladığı tarihi bina üç yıl içinde Ross’un da yoğun çalışmaları neticesinde restore edilir. 2000 yılının haziran ayında okul açılır. Okula ilk etapta Girit ve Yunanistan’dan özellikle de Atina’dan birçok kişi ney, ud, bağlama, kanun gibi Türk müzik aletlerini çalmayı öğrenmek için gelir. Asırlarca Girit’in idaresine sahip olmuş Osmanlıların kültür izleri, aynı topraklarda yaşayan insanlar tarafından silinmemiştir. Okula ilginin bundan başka da açıklaması yoktur. Ross’un haricinde Türkiye’den ud sanatçısı Necati Çelik, ney ustadı Ömer Erdoğdular, bağlama için Mehmet Erenler ve kanun dersleri için de Halil Karaduman giderler. Bu okul Girit’in soğuk ve elverişsiz hava şartlarından dolayı sadece haziran - ekim ayları arasında açıktır.
+   <br/>
+   <br/>
+   Okul, açılışından bugüne çok gelişir. İlk etapta sadece Türk müziği ağırlıklı ve Yunan öğrencilerden oluşan yapı her dönemde farklılaşır. Okulun ünü, internet aracılığıyla tüm dünyadaki müzikseverlere ulaşmaktadır. Bununla orantılı olarak da her geçen yıl Yunanlıların haricinde eğitim seminerlerine Hindistan, Afganistan, İran, Azerbaycan, Arabistan, Bulgaristan ve İspanya’dan müzikseverler katılır. Kimileri yaşadıkları ülkelerinde doktor, avukat, öğretmen, öğrencidir. Herkes kendine yeni pencereler açma çabasındadır.
+   <br/>
+   <br/>
+   Açılan sezonla birlikte gelen kişiler hangi ülke müziğinin eğitimini almak istiyorsa gruplara ayrılıyor. Bu gruplar Hint, Afrika, Türk, Afganistan, Yunan-Girit, İran, İspanyol müziği eğitimi almak isteyen kişilerden oluşuyor. Seçtikleri müziği en iyi yapan müzisyen ülkesinden çağırılıyor. Öğretmenler gözetiminde on gün sabahtan akşama kadar hatta geceleri de devam eden dersler veriliyor. Gruplar en fazla yirmi kişiden oluşuyor. Çünkü soru cevap şeklinde ilerleyen bir eğitim politikaları var. Öğrenciler isterlerse tüm müzik türlerinin seminerlerine de katılabiliyor. Ross’a verilen eğitimi ve öğrencilerin hangi şartlarda yaşadıklarını, neler yaptıklarını soruyoruz. Ross, “Bir seminerde Mehmet Erenler vardır ve bağlama çalmak isteyenler katılır, bir seminerde de Afgan Halid Amman öğrencilere rebab çalmasını öğretir. Genelde öğrenciler hazırlıklı geliyor. Hiçbir çalgıyı çalmayı bilmeyen öğrenci yok denecek kadar az. Bu eğitimin öğrencilere maliyeti haftalık 200 Euro. Öğrenciler köyün içinde Girit ve Türk motifleriyle restore edilmiş tarihi Rum evlerinde kalıyor. Tüm yemek ihtiyaçları da okul tarafından karşılanıyor. Maddi destek Birleşmiş Milletler’den geliyor. Böylece maddi anlamda hem öğrenciler için cazip oluyor hem de Birleşmiş Milletler’in desteğini almış olmak birçok kişi için referans oluyor” diyor.
+   <br/>
+   <br/>
+   Hayalindeki bu projeyi gerçekleştirmiş olmaktan dolayı çok mutlu olduğunu belirten Ross etapta yapacaklarının şekillenmesinin zamanlarını aldığını ve tüm köy halkının inkar edilemeyecek büyüklükte olduğunu da ekliyor: “Herkes kendi müziğinin haricinde bir müzik dalını öğrenmeye çalışıyor. Artık hiçbir ülke tek değil. Kültürüyle, müziğiyle tam bir mozaik hakim. Köy halkı da bundan çok mutlu. Köydeki kilisenin papazları da ara ara seminerlere katılıyor. Türk müziğini fazlasıyla araştırıyor, seviyorlar.”
+   <br/>
+   <br/>
+   Türkiye’den eğitim vermek için giden öğretmenlerden ud sanatçısı Niyazi Çelik, öğrencilerin Osmanlı müziği olarak gördükleri Türk müziğine kendi müziği gibi sahip çıktığını söylüyor. Çelik, “Yunan, Hint, Afgan, İspanyol öğrenciler Türk müziği eserlerini biliyordu. Ben başlıyordum devamını getiriyorlardı. Bu kadar donanımlı olacaklarını hiç düşünmemiştim. Hem kilise hem de Mevlevi ayinlerini biliyorlardı” diyor. Derslerde tercümanlık yapan Necati Çelik’in oğlu Celalettin Çelik’in gözlemleri ise şöyle: “Onlar bizim müziğimize Osmanlı sanatı diye sımsıkı sarılıyor ve derin bir müzik geçmişin olduğu için kendinizi şanslı hissetmelisiniz diyorlar.”
+   <br/>
+   <br/>
+   Ud seminerine papazlar da katılır. Niyazi Çelik; “Papazlarla aramızda güzel bir iletişim oldu. Bizi bir gün kiliseye davet ettiler. Dikkatimizi çeken en önemli olaylardan birisi de papazın Osmanlı İmparatorluğunun batış sebeplerini araştırıp dört parmak kalınlığında kitap yazmış olmasıydı. Onu tanıtıp gösterdi.”
+   <br/>
+   <br/>
+   Okulda ney dersi veren Ömer Erdoğdu, ney seminerine gelen öğrencilerin hepsinin ney üflemeyi bildiklerini fakat bizdeki tasavvuf kültürü ve ruhundan yoksun olmanın dezavantajını yaşadıklarını belirtiyor. “İlk gün belki tepki verirler ya da dikkat dağınıklığına sebep olur diye ‘Ya Resulallah’ kelimesini okumadım geçtim. Anında eksiklik olduğunun farkına vardılar. Derste neyle tekbiri üfledim. Hemen ‘Bu tekbir’ dediler. Şaşırmamak elde değil” diyerek aktarıyor izlenimlerini.
+   <br/>
+   <br/>
+   Erdoğdu, ilerleyen günlerde bütün öğrencilerine tasavvuf ruhuna sahip olmaları açısından neyzen Niyazi Sayın’ın kasetlerini dinletir. Öğrencilerin huşu içinde dinlemelerinden etkilenerek kafası yerde ağlamaya başlar. Parça bittikten sonra kafasını kaldırdığında tüm öğrencilerinin de ağladığının farkına varır. Ney öğrencileri seminer boyunca farklı halleriyle dikkat çeker. Ömer hoca, bunun nedenini de “Benim tek idealim ney ruhunu aşılamak, ruh inceliğini kazandırmaktı. Verdiğim eğitim bu yöndeydi ve etkisini de fazlasıyla gördük” diye açıklıyor.
+   <br/>
+   <br/>
+   Şirin ve sakin Houdetsı köyü açılan bu müzik okulu sayesinde farklı bir kimliğe bürünmeye başladı. Artık orada sadece Giritliler değil, birçok milletten  insanlar da yaşıyor. Geceleri evlerine çekilen öğrencilerin sabahlara kadar süren müzik çalışmaları onları hiç rahatsız etmiyor. Hepsinin geldiği ülkeden getirdiği bir rengi, götürecekleri bir ‘tını’sı var.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11299&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040514093945/http://www.aksiyon.com.tr:80/detay.php?id=11299&yorum_id=1)

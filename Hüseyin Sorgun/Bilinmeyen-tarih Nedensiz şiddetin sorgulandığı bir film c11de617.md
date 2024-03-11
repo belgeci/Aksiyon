@@ -1,0 +1,56 @@
+# Nedensiz şiddetin sorgulandığı bir film
+
+*Hüseyin Sorgun Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040911042234im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040911042234im_/http://www.aksiyon.com.tr/resim/502/74.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Fil/Elephant, Amerika’da bir dönem yoğun seyreden okul şiddetini konu edinen bir film. Adı yanıltmasın, filmin içerisinde ‘fil’den bahsedilmiyor. Sanal dünyada kurgulanan şiddeti tatsız ve tuzsuz bulan bir gencin, “haz” peşindeki öldürme tutkusu, filmin konusu.
+ </font>
+ <p>
+  <font class="content">
+   “Bir fili beş kör nasıl tarif eder?” sorusunun karşılığında beklenen ironi herkesin malumu. Çünkü her görmez, fili dokunduğu oranda tanımlar. Bu hafta gösterime giren Elephant/Fil, Amerika’da ciddi anlamda sorun oluşturan, gençlerin neden olduğu okul dehşetlerinin izdüşümünde ilerleyen bir film. Yönetmen Gas Van Sant, şiddetin kökenini deşifre ederken, örnekten hareketle bir tanım yapmaktan öte, dokunduğu noktaları birleştirip bir durum tespiti yapmayı yeğliyor. Bir okul atmosferinde seçilmiş karakterlerden yola çıkarak ilerleyen film, bu karakterleri çevresinden yalıtarak (çevrenin etkisinden soyutlayarak olmasa da) ve bir birey olarak kurguya dahil ediyor. Bir lisede, sıradan, olağan ve rutin bir gün gerçekleşen olayların failleri, şiddetin simülasyonunu gerçeklik zemininde sınayan iki gençten başkası değil. Sant, burada bir yorum sunarak, şiddetin temeline ‘sorun’ları değil de öykünmeyi yerleştiriyor.
+   <br/>
+   <br/>
+   Türkiye’de ve dünyada, bilgisayar oyunlarının çocuk psikolojisi üzerindeki olumsuz etkileri bir dönem oldukça yoğun bir şekilde tartışıldı. Sanal dünyada kurgulanan şiddet (içerikli oyunlar), acıma duygusundan yoksunluğu bir yana, öldürme güdüsünü tetiklediği için, “gerçek” ile “sanal” arasındaki psikolojik ayrımsamayı ortadan kaldırıyor. Bu anlamda, ekranda gördüğü ‘sivil’leri öldüren bir “avcı” için; bu durumun ‘gerçek’ini yaşamak, bir arzuya dönüşebiliyor. Bu arzunun nesnesi durumundaki ‘insan’ın ‘gerçek’liği çok da önemli olmuyor. Av simülasyonu başladığı andan itibaren, ‘avcı’nın yapması gereken tek şey, ‘hedef’leri yok etmekten başkası değil. Hedefin gerçekliğini sorgulamak gibi bir nokta ise bu av/avcı düzeneğinin epey uzağında kalıyor.
+   <br/>
+   <br/>
+   Okulda kaos
+   <br/>
+   <br/>
+   Bir lisede yaşamlarına iliştiğimiz gençlerin çoğu sorunlu tipler. Gündelik yaşamın içerisinde “kalıcı” olandan uzakta kurguladıkları gerçekliğin ortasında boğulan bu gençler için, alabildiğine özgür ama alabildiğine sıkıcı; alabildiğine imkanlı ama alabildiğine yoksun bir ortamda var olmak, varlıklarını gerekçelendirdikleri şeyle doğrudan ilintili kuşkusuz. Bu olumsuzluk alt katmanda ilerlerken, alkolik babasıyla başı dertte olan John; fotoğraf tutkusunun peşi sıra yaşamdan kareler yakalamaya çabalayan Elias; futbol antrenmanını bitirip kız arkadaşı Carrie ile buluşmaya giden Nate; okulun üç uçarı kızı Britanny, Jordan ve Nicole; matematik derslerinde başarılı ve adı ‘inek’e çıkmış olan Michelle... Sorunlu ancak ilintilendikleri yaşama tutunmaya çabalayan bu gençlerin arasından filizlenen, Alex ve Eric, verili zamanın dışında kendi zamanlarını yaşamaya çabalayan ve hayatın kurgusuna kendi kurgularını dayatma niyetinde olan iki çocuk... Okuldan yakaladığımız bu karakterlerin birlikteliğinde gelişen kurgu, bir döngü dahilinde hepsini bir kaosun ve şiddetin içine alırken, kurgunun sahibinin ne yapmak istediğine dair bir soru gizemini korumayı sürdürüyor.
+   <br/>
+   <br/>
+   Şiddetin nedensizliği
+   <br/>
+   <br/>
+   Fil, gerekçeden soyutlanmış ve bir simülasyonun izdüşümünde, şiddetin ve ölümün ‘hazzı’nın arayışını anlatıyor. Sanal dünyada tatsız, tuzsuz ve lezzetsiz bir “öldürme” eyleminin eksik hazzını ‘gerçeklik’le kapatmak isteyen, şiddete uyarılmış ama tatminsiz bir gencin kurgusundan başkası değil yaşananlar. Bu arayışı besleyen bir öfke de var kuşkusuz. Herkesin bir kenara attığı, horladığı, dışladığı bir “insan” psikolojisinin dışa dönük öfkesinden de bahsedebiliriz. Bu dışa dönük öfke, ilkin sanal dünyada eskizlerini yaptığı bir kurguyu, kendi gerçekliğinin sorgulandığı bir alanda yeniden kurguluyor. Burada her ne kadar büyük nedenler bulunabilirse de, işin püf noktası şiddetin nedensizliğinde yatıyor. Okulu kana bulayan, birçok kişinin ölümüne neden olan bu kovalamacanın temelinde, kuşkusuz uyarılmış ancak tatmin edilmemiş bir şiddet arzusunun nedensizlikle malul eyleme dönüşmesi yatıyor.
+   <br/>
+   <br/>
+   Fili tarif etmekten de zor!
+   <br/>
+   <br/>
+   Fil, bir okul filmi. Özellikle Amerika’da hızla tırmanan ve artış gösteren okuldaki şiddet olayları üzerine geliştirilen bir proje. Şiddetin nedenlerini araştırırken, bir ‘tanım’lama yapmaktan öte, durumu gözler önüne seren, serinkanlı bir film. Bir birey olarak gençler filmde yer alırken, sorunlu bir çevrenin kuşatıcılığı da ihmal edilmiyor. Sorunlu baba; olmayan ebeveyn ve kaba okul görevlilerinin halelediği genç yaşamlar, birbiri ardına çözülmeye uğrarken, bu çözülmüşlüğün içerisinde filizlenen bir gerçeklik arayışının şiddetle buluşması anlatılıyor. Dolayısıyla, böylesi çok faktörlü bir konuyu serinkanlı anlatabilmek, bir fili “körü körüne” tarif etmekten zor bir anlam taşıyor.
+   <br/>
+   <br/>
+   Yönetmenin başarısı, “kötü” tiplemesinin içerisine herhangi bir “karakter” yerleştirmeden, ‘durum’u “kişileştirmeden” anlatabilmesinde. Belki sinema hazzına sekte vurmak pahasına biraz sıkıcı bulunabilecek; belki karakterlerin üzerinde fazla durmamasından ve “iyi” ile ‘kötü’nün unsurlarını bir sıfat olarak belirli karakterlerin üzerinde yoğunlaştırmamasından ötürü “kahramanı” eksik bulunabilecek bir film. Ancak, gençlerin sığ, sıradan, rutin bir yaşamın içerisindeki tavır alışlarını, ustalıklı bir sinema diliyle anlatmasından ötürü seyre değer. Hiçbir “yarım” tarif, Fil’in kendisinden daha gerçekçi olamaz. Şiddetin kendisi, simülasyonundan daha gerçek ve ürkütücüdür.
+   <br/>
+   <br/>
+   Elephant/Fil; simülasyon ile gerçeklik arasındaki “arada kalmışlığı” gözler önüne seren ilginç bir film. Tercih, elbette ki “gerçeklik”ten yana oluyor.
+   <br/>
+   <br/>
+   Sonu trajik ve acı olsa da!..
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12616&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040911042234/http://www.aksiyon.com.tr:80/detay.php?id=12616&yorum_id=1)

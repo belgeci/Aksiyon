@@ -1,0 +1,88 @@
+# Ekonomi ABD’yi tehdit ediyor
+
+*Yasin Uygur Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050124192354im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050124192354im_/http://www.aksiyon.com.tr/resim/520/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dolar, Euro karşısında tarihi düşüşüne devam ediyor. Bush seçimden galip çıktı, fakat ekonomik göstergeler aleyhine çalışıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   ABD’nin bütçe ve dış ticaret açığını kapatamaması durumunda küresel bir ekonomik krizin meydana geleceği ileri sürülüyor.
+   <br>
+    <br>
+     George W. Bush, ikinci dönem için başkanlık koltuğuna oturmayı başardı; ama önümüzdeki dört yılda neler yapacağı büyük bir tartışma konusu. Afganistan ve Irak’taki siyasi istikrarsızlık dünya barışını tehdit ediyor. Terörün ve siyasi belirsizliğin nasıl sona ereceğini de şimdiden kestirmek mümkün değil. Başta Amerikan halkı olmak üzere bütün dünyanın asıl merak ettiği konuların başında ise  Beyaz Saray’daki yönetimin nasıl bir ekonomi politikası izleyeceği geliyor.
+     <br>
+      <br>
+       Cumhuriyetçi hükümet, son dört yılda ekonomi alanında izlediği politikalarla büyük tepki ve endişelere yol açtı. Gelinen süreçte doların sürekli değer kaybetmesi, cari işlemlerde yaşanan büyük boyutlardaki dengesizlik ve bütçe açığının her yıl giderek artması dünyanın diğer büyük güçleri ve ABD’ye ihracat yapan bütün ülkeler için tehlike çanlarının çalmasına sebep oldu. Ekonomistlerin birçoğu, cari işlemler ve bütçe açığına karşı önlem alınmadığı taktirde küresel bir krizin ortaya çıkabileceğini belirtiyor.
+       <br/>
+       <br/>
+       Son yıllarda izlenen ekonomi politikaları Amerikan halkının hayat standardını olumsuz yönde etkiliyor. ABD İstatistik Bürosu’nun yaptığı araştırmaya göre 1,3 milyon Amerikalının gelir düzeyi yoksulluk sınırının altında. Halkın yüzde 45’inin sağlık sigortası bile yok. Mevcut işsizlik oranı ise yüzde 7. Bu oran, Demokrat Başkan Bill Clinton döneminde yüzde 4 seviyesindeydi. Rakamlar, Bush hükümetinin son dört yılda istihdama yönelik politikalarında yetersiz kaldığını gösteriyor. Yaklaşık 300 bin kişiye yeni iş imkanı oluşturulması beklenirken, bu rakam sadece 30 bin olarak gerçekleşti.
+       <br/>
+       <br/>
+       Tarihin en büyük bütçe açığı
+       <br/>
+       <br/>
+       Clinton döneminde bütçe açığı kapatılırken, ABD’nin şu anki bütçe açığı 412 milyar dolar civarında seyrediyor. ABD Hazine Bakanlığı bu rakamın ülke tarihinin en büyük bütçe açığı olduğu görüşünde. Özellikle, savunma maliyeti sürekli artan ABD’nin Irak’ta istikrarlı bir yönetim kuramaması halinde, harcamaların daha da artacağı, bunun da ekonomide atılması gereken iyileştirme çalışmalarını geciktireceği ve zorlaştıracağı belirtiliyor. Dolayısıyla, borsasının yükselmesi ve faizlerin düşmesi çok zor gözüküyor.
+       <br/>
+       <br/>
+       Savunma harcamalarındaki artış, Amerikan dış ticaretini de olumsuz yönde etkiliyor. Her ay yaklaşık 50 milyar dolar açık veren ABD dış ticaretindeki dengesizlik giderek büyüyor. ABD’nin yaptığı toplam ithalat, ihracata oranla çok daha yüksek seviyelerde bulunuyor.
+       <br/>
+       <br/>
+       Dış ticaretteki açık, cari işlemler dengesini de bozuyor. Cari açık 2003 yılı itibariyle 540 milyar dolar iken, şu anda 570 milyar dolar civarında. Bu rakam, ABD Gayri Safi Milli Hasılası’nın yüzde 6’sına denk geliyor. Cari açık seviyesi bu kadar yüksekken, 2004 yılı büyüme hızının yüzde 3,5 olması, gelir gider dengesi arasındaki uçurumun gittikçe artmasına sebep oluyor. Dengenin sağlanabilmesi için borsanın yükselmesi, faizlerin düşürülüp, dış ticaret açığının kapatılması gerekiyor.
+       <br/>
+       <br/>
+       Şüphesiz, bütün bunların gerçekleştirilmesi için ABD’nin ekonomi politikalarını, özellikle de Ortadoğu ve dünyanın geri kalan kısmına yönelik dış politikasını yeniden düzenlemesi gerekiyor. Bununla birlikte, halkın yüksek tüketim oranının düşürülmesi, bireylerin sosyal güvenlik ve sağlık harcamalarının kontrol altına alınması gerekiyor. Dolayısıyla, bir vergi artırımı zorunlu hale geliyor. Uzmanların gerekli gördüğü bütün bu unsurlara karşılık Bush’un seçim kampanyasında verdiği iki önemli söz, vergi indirimlerini sürekli hale getirmek ve sosyal güvenlik sistemini özelleştirmek şeklindeydi. Oysa, vergi indirimleri tüketimi azaltmayacak, aksine artıracak. Ronald Reagan döneminde gerçekleştirilmeye çalışılan vergi indirimleriyle büyümeyi artırma politikası başarısızlıkla sonuçlanmıştı.
+       <br/>
+       <br/>
+       Amerikan ekonomisinin kötü gidişatından etkilenen yalnızca ABD halkı değil. Büyük ekonomiler ve ABD ile dış ticari ilişkisi olan bütün devletler de bundan olumsuz yönde etkileniyor. Bunun nedeni ise çok açık. Bu ülkelerin ABD’ye yatırım yapmasının yanında ihracat oranı bakımından Amerikan ekonomisine bağımlı olması, dış ticaretlerini ABD’deki gelişmelere göre şekillendirmelerine yol açıyor. Dünya ekonomisinde dış ticari dengeler, enflasyon, faiz oranları ve ülke ekonomilerinin büyüme oranları doların gidişinden etkileniyor. Bu bakımdan, ABD ekonomisi ne kadar kötü durumda olursa olsun küresel büyümenin motoru olarak görülüyor. Dolayısıyla, Amerikan ekonomisinin düzelmemesi durumunda küresel bir krizin meydana geleceği tahmin ediliyor.
+       <br/>
+       <br/>
+       Dört trilyon dolar borç
+       <br/>
+       <br/>
+       ABD’deki iç talep artışı gittikçe büyüyor. Bu da ithalatın ihracattan büyük olmasına ve haliyle dış ticarette ve cari işlemlerde açığın meydana gelmesine sebep oluyor. Bu durum karşısında ABD ekonomi politikalarının izlediği yol ise dışarıdan borçlanarak ve yabancı sermaye girişine izin vererek, dış açığı dengelemek ve cari açığı azaltmak. Ancak, bu politikalar ABD ekonomisinin sürekli borçlanmasına ve bütçe açığının derinleşmesine yol açıyor.
+       <br/>
+       <br/>
+       Nitekim, ABD’nin 1987 yılında dış borcu yokken, şimdi 4 trilyon dolar civarında borcu bulunuyor. ABD’ye ihracat yapan ülkelere bakıldığında bunların daha çok Doğu Asya ve Avrupa ülkeleri olduğu görülüyor. Bu ülkeler sürekli büyüme gücü kazanmak için ekonomilerini ABD’ye yaptıkları ihracata bağımlı hale getiriyor. Bu da kendi halklarının harcamalarından kısıp, tasarruflarını ABD’nin tüketimini finanse etmek için kullanmalarına sebep oluyor. Bu sürecin böyle devam etmesi ABD ile ticari ilişkileri olan ülkelerin Amerikan ekonomisinin iflas etmesini göze alamamasından kaynaklanıyor. Ancak yine de akıllara, bu ülkelerin kendi halkının harcamalarından ne kadar daha tasarruf edebileceği sorusu geliyor.
+       <br/>
+       <br/>
+       Princeton Üniversitesi Öğretim Üyesi ve Uluslararası İlişkiler Merkezi üyesi Prof. Dr. Richard Falk, ABD ekonomisinin çok kırılgan olduğunu ve her an iflas edebileceğini düşünüyor. Falk, dünya ekonomisinin Amerikan ekonomisi tarafından güçlendirilmeye ihtiyacı olduğunu dile getiriyor. Dünya ekonomisinin geleceği açısından Irak savaşının “kilit” olduğunu söyleyen Falk, Irak’taki işgalin Ortadoğu’da diğer ülkeleri içine alacak şekilde genişlemesi durumunda, hem Amerikan ekonomisinin hem de dünyanın büyük bir bölümünün ekonomik durgunluğa gireceğinin altını çiziyor.
+       <br/>
+       <br/>
+       Euro, dolara alternatif olabilecek mi?
+       <br/>
+       <br/>
+       ABD ekonomisinde faiz oranlarının artması doların düşüşünü de beraberinde getiriyor. Doların değer kaybetmesi başta AB ve Doğu Asya gibi büyük pazarları olumsuz yönde etkiliyor. Çin, Güney Kore, Tayvan ve Japonya gibi ülkeler paralarını dolara paralel olarak endeksliyor. İleriye dönük olarak Doğu Asya ve Avrupa ülkelerinin ABD’nin dış ticaret açığını ne zamana kadar finanse edecekleri bilinmiyor. Ekonomistlerin birleştiği bir nokta var ki o da belli bir süre sonra bu ülkelerin vatandaşlarının talepleri karşısında ABD’ye yaptığı yatırımları durduracak olması. Bu da dolarda sert bir düşüşe ve faizlerin önemli oranda artmasına sebep olabilir.
+       <br/>
+       <br/>
+       Uzun döneme ilişkin ABD ve dünya ekonomisiyle ilgili bu kötü senaryolar yazılırken, Euro’nun dolara alternatif olabileceği üzerinde duruluyor. Euro, dolara karşı 1999-2001 yılları arasında değer kaybederken, son üç yılda yaklaşık yüzde 36 oranında değer kazandı. Ancak, bir çok iktisatçı uzun vadede Euro’nun doları dengeleyebilmesi için gerekli siyasi ve maddi şartların bulunmadığını düşünüyor. Euro’nun değer kazanması ekonomik büyümeyi engelleyici olarak görünüyor. Sebep olarak da ihracatın zorlaşması gösteriliyor. Ancak, doların seyri bu şekilde devam ederse Euro’nun karşısında hep alt sınırda olacak.
+       <br/>
+       <br/>
+       Frankfurt Avrupa Üniversitesi ekonomi profesörü Hans Jurgen Wagener, Avrupa ekonomisini ABD’den sonra ikinci büyük güç olarak tanımlıyor. Ancak, Avrupa’nın ABD’yi ekonomik olarak dengelemesinin kısa dönemde çok zor olduğunun altını çiziyor. Wagener’e göre Avrupa ülkeleri Amerikan ekonomisinin gidişatından diğer ülkeler gibi etkileniyor, yani doğrudan ABD ekonomisine bağlı olarak hareket ediyor. Hans Jurgen Wagener, ABD ekonomisinin iflas etmesi durumunda dünya dengelerini Avrupa ekonomisinin kontrol edemeyeceği görüşünde. Bu yüzden de, Amerikan ekonomisinin kötü durumuna rağmen küresel ekonomiyi derinden etkileyen gücünün devam ettiğini kaydediyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Nevzat Kamanlı, 25-Kasım-2004
+> bir hata: 
+> “Ekonomi ABD'yi tehdit ediyor” yazısındaki şu cümle kanaatimce hatalıdir: "ABD ekonomisinde faiz oranlarının artması doların düşüşünü de beraberinde getiriyor." Ülkeler,  paralarının değer kaybetmesini önlemek için faizleri yükseltirler. Tabii faizleri yükseltmenin tek amacı bu değildir; ama önemli bir işlevi budur faizlerin. Zaten Türkiye’de de “TL çok değerli, faizleri düşürelim” diye Merkez Bankası’na sürekli çağrılar yapılmaktadır. Ekonomiyle ilgili yazılar yazarken, böylesi çok bariz hatalardan kaçınmak için, ekonomik değişkenler arasındaki ilişkiler konusunda bir makroiktisat kitabına bakılması yararlı olur kanaatindeyim.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18270&yorum_id=2355), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050124192354/http://www.aksiyon.com.tr:80/detay.php?id=18270&yorum_id=2355)

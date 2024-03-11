@@ -1,0 +1,49 @@
+# İnternet şirketlerinden kriz fırsatçılığı
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ekonomik bunalımlardan bir türlü kurtulamayan memleketimiz, 22 Şubat’ta hediye edilen son “dalgalı kur” muhabbeti ile yine bir şok yaşadı. Cebinde parası olmayan için ilk etapta çok problem olmadı belki.
+   <br/>
+   <br/>
+   Yani parasını değerinde koruyabilmek açısından... Fakat cebinde TL’si olup bir de dolar üzerinden borcu olanların canının çok yandığı kesin.
+   <br>
+    <br>
+     Peki ya internet kullanıcıları, sadece internet dolayısı ile ne kadar etkilendiler? 2 milyonun üzerindeki internet kullanıcısı, aylık olarak kredi kartlarından kesilen ücretler karşılığında bu hizmetlerden faydalanmaya çalışıyorlardı. Ticari kuruluşların hemen hepsi kriz günlerinde kepenk kapatırken internet şirketlerinin hiç sesi soluğu çıkmıyordu. Sebebi ise yeni yeni anlaşılmaya başladı.
+     <br>
+      <br>
+       Doların tavan yaptığı gün abonelerinin kartlarından tahsilat yapma fırsatçılığını akıl eden internet şirketleri, belki bu ay için %40’lık bir ciro artışı sağladılar. Ancak bu fırsatçılığa tepki göstermek isteyen birçok insanın aboneliklerini iptal edeceğine kesin gözüyle bakılıyor. Hele hele kriz öncesi günlerde fiyat ayarlaması yaparak bağlantı ücretlerine %43 oranında zam yapan İxir’in bu şartlarla ayakta kalmaya devam edemeyeceği konuşuluyor. Hergün battı ya da batıyor söylentilerini duyduğumuz İxir gibi şirketlerin kısa zaman sonra piyasadan silineceği yorumları yapılıyor.
+       <br>
+        <br>
+         Telekom’un da krizi fırsat bilip hemen zam yapmasına ise ben diyecek herhangi birşey bulamıyorum.
+         <br/>
+         <br/>
+         Bir de dolar üzerinden 36 ay taksitle internetli bilgisayar alanlar var. 500 bin civarında olduğu tahmin edilen bu kişilere de 2 yıl daha “sabır” dilemekten başka bir yorum yapamayacağım...
+         <br/>
+         <br/>
+         Eller interneti bedava kullanırken, bizde tekelleşmeye doğru gidişat hızlanıyor. İnternetimizin sonu hayrola...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 7 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=13241), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151324/http://www.aksiyon.com.tr:80/yazdir.php?id=13241)

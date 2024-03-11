@@ -1,0 +1,72 @@
+# Bütün dünya İran'lıydı
+
+*Nefise Kuhnavard Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050119040408im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050119040408im_/http://www.aksiyon.com.tr/resim/474/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  "Cumartesi günü dünyanın birçok ülkesinden gelen uçaklar Kerman havaalanına indi. Gerçi biz gazetecilerin heyecanlanmaması gerekiyordu ama gördüklerimiz bırakın depremzedeleri, bizi bile duygulandırdı. Bam"da bulunan herkes o gün İranlıydı. Bunu gözlerimizle gördük." Portakal ve hurma ağaçları, evlerin önündeki bahçelerde duruyor. Fakat ne evlerden eser var ne de evlerin sahiplerinden. Her şey bir önceki geceden farklı değildi ve insanlar hiçbir şeyden habersiz uyuyordu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ne var ki saatler cuma sabahı 5.28"i gösterdiğinde onlar için her şey sıradan olmaktan çıktı. "Kerman eyaletinin Bam kentinde meydana gelen 6.3 büyüklüğündeki depremde binlerce insan yaralandı, ölü sayısından henüz bir haber yok." Portakal ağaçlı bahçelerin evlerinde uyuyakalan ve bir daha hiç uyanmayan on binlerce insan, İran radyo ve televizyonunun sabahın ilk saatlerinde verdiği bu haberi duy(a)madı. Aradan birkaç saat geçtikten sonra haberler sadece yaralıları değil ölümleri de rakama döktü. Önce 10 bin dediler, ardından 20 bin, bir süre sonra 50 bini geçeceği, 100 bini bulacağı tahminleri yapıldı. İlginç olan, verilen rakamlar neredeyse şehrin bütün nüfusuna tekabül ediyordu. Ama sonuçta nüfusun yarısına yakın insan hayatını kaybetti.
+   <br>
+    <br>
+     Neden bu kadar ağır?
+     <br>
+      <br>
+       Bilim adamlarına göre can kaybının bu kadar çok olmasının nedeni evlerin standartların dışında inşa edilmesiydi. Bam kentinde binaların çoğu kerpiç ve çamurdan yapılmıştı. Aslında bu kaçınılmaz bir tercihti. Çöl havasının hakim olduğu kentte kerpiç evler beton evlere tercih ediliyordu. Çölde gündüzler çok sıcak, geceler ise çok soğuk oluyor. Kerpiç ya da çamurdan yapılan evler günün sıcağını keserken, içeride dışarıya göre nispeten serin bir hava meydana getiriyor. Aynı şekilde soğuk gecelerde sıcağı duvarlarda saklama özelliğine sahip bulunuyor.
+       <br/>
+       <br/>
+       Facianın bu kadar yüksek olmasının bir nedeni de depremin tatil gününe rastlamasıydı. İran"da cuma günleri resmi tatil olduğu için insanlar sabah işe gitmeyeceklerini düşünüp daha ağır ve rahat uyumuştu. Deprem bölgesinde gözlerimizle gördük ki cesetlerin büyük kısmı yatakların içinden çıkarıldı. Gördüğümüz diğer manzara her evde neredeyse 8-9 kişinin olmasıydı. Sanki bu insanların yaşamları deprem öncesi de felaketti. Tahran"dan Bam"a gelen gazeteciler olarak biz de yaşadığımız ve gördüğümüz şehirlerle burayı karşılaştırdık. Biz dahi böylesine farklılıktan şaşırdık, acaba yabancılar ne düşünmüştü? İran"a ilk defa gelen ve sadece virane şehri görenlerin bazılarıyla konuştuğumuzda bütün İran"ın böyle olduğunu düşündüklerini gözlemledik. Acı verici gerçek şu ki, ülkenin zenginliği birkaç büyük eyalet arasında paylaşılmış. Diğer şehirlere zenginlik yansımamış.
+       <br/>
+       <br/>
+       Suç kimin?
+       <br/>
+       <br/>
+       Akla birçok soru işareti gelmiyor değil. Allah burada yaşayanlara akıl vermiş, düşünsünler ve hayatlarını daha da iyileştirsinler diye. Ama onlar kentin deprem bölgesinde olduğunu bilerek önlem almamış. Oysa İran daha önce benzer faciaları fazlasıyla yaşamıştı. Bu felaketlerden alınması gereken dersler vardı. 1990"da İran"ın kuzeyindeki Hazer bölgesinde Rudbar kentini vuran 7.8 büyüklüğündeki depremde yaklaşık 40 bin insan hayatını kaybetmişti. Orada da facianın büyük olmasının nedenleri buradakiyle aynıydı. Ama herkes yine devleti suçlamayı tercih ediyor. Rudbar depreminden sonra evlerin depreme dayanıklı imal edilmesiyle ilgili kanunlar parlamentonun gündemine gelmişti. Kanunlardan birinde, "Bundan sonra yapılan evlerde depreme karşı önlem alınmazsa belediye binanın yapılmasına izin vermeyecek" deniyordu. İran devleti de komşu ülkeler gibi davranıp olağanüstü dönemlerde gündeme getirilen konuları bir süre sonra unutuyor. Bazıları Bam kentindeki evlerin çoğunun eskiden yapılmış olduğunu iddia ediyor ama gördüğümüz kadarıyla çok sayıda bina 8-10 yıllıktı. Bu binalar da diğerleri gibi yıkılmıştı. Mesele burada bitmiyor, aslında durum Bam ve benzer küçük şehirlerle sınırlı değil. Tahran ve diğer büyük kentlerde de aynı eksiklik göze çarpıyor. Uzmanlar şiddetli bir depremin Tahran"ı vurması halinde şehrin haritadan silinebileceğini belirtiyor. Peki kim suçlu? Belki yavrularını ve yakınlarını kaybetmiş insanlara göre artık bu sualin cevabının bir önemi yok. Ama yaşayanlar için var. Çünkü hiç kimse yıllar sonra benzer bir acıyı yaşamak istemiyor. Deprem bazı efsaneleri de beraberinde getirdi. Depremzedelerin ve İranlı gazetecilerin konuştuğu konu depremin "doğal" olmadığı şeklinde. Nükleer denemelerin fayları tetiklediği iddia ediliyor.
+       <br/>
+       <br/>
+       2 bin yıllık tarih viran oldu
+       <br/>
+       <br/>
+       Arg-e Bem(Bam Kalesi) de depremin kurbanı olurken, 13 mimar adayı öğrenci ve bekçiler de hayatlarını kaybetti. Her yıl yerli yabancı yüz bin turistin ziyaret ettiği ve dünyanın en büyük kalesi olan yer kerpiç, çamur, saman ve palmiye ağacından inşa edilmişti. Kale ve etrafındaki surlar 224-651 yıllarında İran"a hükümranlık eden Sasaniler döneminde yapılmış. İslamiyetin İran"a girmesinden sonra kaleyi saran surların içine bir de cami inşa edilmiş. Safevilerin yeni binalar eklemesiyle 180 bin metrekare alanı bulan kale, 1815 metre uzunluğunda, 6-7 metre yüksekliğinde surlarla çevrilmişti. İçinde pazarlar, camiler, meydanlar, askeri kışlalar, bir kervansaray, ahırlar ve Dört Mevsim olarak bilinen hükümdarlara ait konut bulanan kale, aynı zamanda İpek Yolu"nun merkezlerinden biri olma özelliğini de uzun yıllar sürdürmüş. Kalenin önemi 1722"de Afgan istilasıyla azalırken, 1932 yılına kadar askeri kışla olarak kullanılmış. Kalenin yerle bir olması en çok tarihi eser meraklılarını ve arkeoloji uzmanlarını üzecek. Çünkü geriye o muhteşem binadan birkaç surdan başka bir şey kalmadı. Depremde kalenin bekçisi olan ağabeyini kaybeden Muhammed kaleyle şehri özdeşleştiren duygularını şöyle anlattı bize; "İyi ki ağabeyim öldü. Çünkü o kaleye âşıktı. Aslında bu kale Bamlıların hüviyetiydi, şehrin namusuydu."
+       <br/>
+       <br/>
+       ABD aleyhine slogan yok
+       <br/>
+       <br/>
+       Amerika Birleşik Devletleri uçağının Kerman havaalanına indiği haberini duymak biz gazetecilerin yoğun ilgisini çekti. Kameramanlar ve fotomuhabirleri uçağın kuyruğunda yer alan ABD bayrağına zoom yaptı. İranlı devrimcilerin ABD"nin Tahran büyükelçiliğini basmasının ardından iki ülke arasında diplomatik ilişkiler kesilmiş, İran"a karşı yaptırımlar uygulanmıştı. İşte o Amerika"nın yardıma gelmesi ilgiyi artırdı. İran"da Amerika büyük şeytan olarak görülürken, Amerika da İran"ı şer ekseninde sayıyordu. Burada ABD bayrağı yakılması ya da aleyhte sloganlar atılması sıradan kabul ediliyor. Ama bu kez sloganlar yoktu. Amerika Dışişleri Bakanı Colin Powell İran"la irtibat kurma istediklerini söyledi. İran başlarda Amerika hatalarını düzeltsin demesine karşın, Haşimi Rafsancani bu ülkeden olumlu davranışlar gördüklerini açıkladı. Şimdi İran"da cevabı en çok merak edilen soru şu? Acaba Bam depremi iki ülke arasındaki ilişkilerde de deprem meydana getirecek mi? Buna rağmen 24 yıllık savaşın unutulması da zor görünüyor. Özellikle İran, Irak savaşı sırasında ABD"nin Saddam Hüseyin"e olan desteğini unutmuyor.
+       <br/>
+       <br/>
+       Dünyanın yanımızda olduğunu gördük
+       <br/>
+       <br/>
+       Devrim sonrasında yaşananlar İran"ın kendini dünyadan soyutladığı gibi bir izlenim ortaya koymuştu. Dünyanın kendilerine sırt çevirdiğini düşünen İranlılar deprem sonrası yaşananları görünce şaşkınlıklarını gizleyemedi. Cuma sabah saat 9.30"da önce Türkiye, ardından Rusya yardıma koşan ilk ülkeler oldu. Rusya iki yardım uçağı gönderirken, Türk Kızılayı olağanüstü durum ilan etti. Cumartesi günü dünyanın birçok ülkesinden gelen uçaklar Kerman Havaalanına indi. Gerçi biz gazetecilerin heyecanlanmaması gerekiyordu ama gördüklerimiz bırakın depremzedeleri, bizi bile duygulandırdı. Çok sayıda kurtarma ekibi havaalanına geldi. Bam"ın karayolu kapalı olduğu için saatlerce burada beklemek zorunda kaldılar. Soğukta ve açıkta uyuyup acımızı paylaştılar. Onlardan biri de Ukraynalı Mikayil"di; "Burada zor şartlar altında kalmamız sorun değil. Önemli olan şimdi binlerce insanın enkaz altında yardım beklemesi. Keşke bir an önce oraya gidebilseydik" diyordu. Mikayil gibi düşünen ve Kerman Havaalanına gelen çok sayıda arama kurtarma uzmanı birkaç gün havaalanında bekledi.
+       <br/>
+       <br/>
+       Buna rağmen 30 ayrı ülkeden gelen yardım uçaklarını görmek biz İranlıların moralini birazcık olsun düzeltti. Gördüğümüz sahne zihnimize 11 Eylül"den sonra çok sık kullanılan (Bugün hepimiz Amerikalıyız) cümlesini getirdi. Bam"da bulunan herkes o gün İranlıydı. Bunu gözlerimizle gördük.
+       <br/>
+       <br/>
+       Depremde ilk şok atlatıldıktan sonraki can kaybı sayısı da yüksekti. Bunun nedeni ise yolların kapalı olması ve yeterince uçak, helikopter bulunmamasıydı. Yaralılar önce Kerman ve diğer kentlere transfer edildi. Ama maalesef pek çok insan havaalanında uçak beklerken hayatını kaybetti.  Birkaç gün boyunca havaalanı trajik bir oyunun gösterildiği tiyatro sahnesine dönmüştü. Ayrıca yardımların dağıtılmasında sorun yaşanması da can kaybının artmasına neden oldu. İran"da önümüzdeki ay içinde parlamento seçimleri yapılacak. Bam depremi siyasetin rengini etkileyecek gibi görünüyor. Cumhurbaşkanı Hatemi eleştirilerin odak noktasındaki isimlerden biri. Deprem muhafazakarların işini kolaylaştıracak gibi görünüyor.
+       <br/>
+       <br/>
+       *İran"da çıkan Hemşehri Gazetesi yazarı Nefise Kuhnavard deprem günü bölgeye gitti ve gördüklerini Aksiyon için yazdı.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=10010&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050119040408/http://www.aksiyon.com.tr:80/detay.php?id=10010&yorum_id=1)

@@ -1,0 +1,100 @@
+# “İnsanlar 70’lere dönmek ıstıyor!”
+
+*Nihal Bengisu Karaca Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214058im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214058im_/http://www.aksiyon.com.tr/resim/340/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dört mevsim tabloları, çağlar atlası, apartman topuk, kalemtraş kuyruğu, Eurovision şarkı yarışması, Efektör Korkmaz Çakar, isim—şehir—hayvan, mandolin kursları, lizözler, lohusa şerbetleri, kandil geceleri, regülatörlü eski televizyonlar, cep fotoromanları, “tüp çikolata”lar, “kalbin kadar temiz defterinden bana yer ayırdığın için”ler ve daha neler neler.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tunç bugünden geriye dönerek, yeniyetme bir genç kızın gözünden, olanca masumiyetiyle bakmış o yıllara, gördüklerini artık bir şekilde yazıya dökülmek için heyecanlanan hatıraların yardımseverliğiyle kitaba dönüştürmüş. Yazar geçmişin gelecek karşısındaki güçsüzlüğünü bilen ve zamandan bir parça bir şeyler yakalayabilme umuduyla kağıda kaleme sarılan bir vakanüvisin titizliğini çağrıştıran soğukkanlı bir ayrıntı denizi ile çıkıyor karşımıza. Ancak mizahın ve hüznün satır aralarına sızmasına izin veriyor, duyguların dışlanmadığı bir konsept oluşturuyor. Ortaya tam da YKY’nin üstbaşlığına yaraşır bir alaşım çıkıyor: Yaşantı. “Bir Maniniz Yoksa Annemler Size Gelecek”i daha da özel kılan dönemin siyasi karabulutlarına bilinçli olarak uzak durmuş, alternatif bir 70’li yıllar çalışması olması. Kitap, çok yakın zamanlara kadar otoritenin elinde bir Demokles’in kılıcı olarak bulanan “70’lere döneriz haaa!” korkutmasına, 70’lerde yaşanan acıya bigane kalmayan ama bu acıları da rahatsız etmek istemeyen yazarın elinde müstehzi bir gülüş gibi... Öte yandan günümüz değerler sistemi içinde para ile organik bir ilişki kurmak durumunda olan ve tüm yitirmelere rağmen hâlâ sahici bir şeylerin arzusunu taşıyan “cilalı Tüketim devri” insanına bir ütopya gibi geliyor anlatılanlar. Tunç’un posta kutusundaki maillerin çoğunun bankacılardan ve yatırımcılardan gelmiş olması bir tesadüf olmasa gerek...
+   <br>
+    <br>
+     —Kitap için herhangi bir arşiv çalışması yapmadığınızı söylüyorsunuz; aileden, akrabalardan da mı yardım almadınız?
+     <br>
+      <br>
+       Hayır hiçbir şekilde yardım almadım.  Benim zihnimde çok tuhaf bir yapılanma var, içinde kendim olan şeyleri pek hatırlamıyorum. İlkokuldaki sınıfımı da, öğretmenimi de hatırlamıyorum ama çağlar atlasını, mevsimler tablosunu çok iyi hatırlıyorum. Sadece yayınevinden “biraz da resim olsa” gibi bir talep geldiğinde gidip o dönemin dergilerini taradım, resim bulmak amacıyla.
+       <br/>
+       <br/>
+       Yazdım, özgürleştim
+       <br/>
+       <br/>
+       —Kitaba yoğun bir ilgi var, az önce üç haftada 18 bin sattığını söylediniz. Bu ilgi normal mi?
+       <br/>
+       <br/>
+       Kitabın ilgi göreceğini biliyordum ama bu kadarını ummuyordum doğrusu.  Gelen maillerden gördüğüm kadarıyla bu kitaba ilgi bir tıkanmışlıktan doğuyor, benim yaşıtlarım ve benden biraz daha genç olanlarda ümit kalmamış yarına dair. İnsanlar yarının onları bekleyen mutlu bir gün olduğuna inanmıyorlar. Herkes çok acıklı bir şekilde çocukluğundaki mutluluğu ve huzuru arıyor. İnsanın çocukluğundaki mutluluğu araması elbette bir tesadüf değil. Çünkü orada bugün aldığımız sorumlulukların hiçbiri yok, kriz yok, ülke problemleri yok. Bu kitap herkesi kendi geçmişine yolculuk yaptıran bir kılavuz kitap oldu. Kitabın ilgi görmesinde doğru zamanda yayınlanmasının da payı var. İnsanların mutsuz ve karamsar olduğu döneme denk geldi kitap.
+       <br/>
+       <br/>
+       —Türkiye’de insanların mimari ve ekonomik dayatmalar yüzünden olsa gerek bir tavanarası kültürü yoktur. İnsanların geçmişini kuşak kuşak  deşerek oradan kimi hatıralar ve kimi anlamlar çıkarıp bunları “giyecekleri”, belki geleceklerini bu anlamlar üzerine bina etmelerini sağlayacak bir zemin yok. Kitabı yazarken kendi kuşağınıza ve onların çocuklarına böyle bir zemin temin etmeyi bir kaygınız oldu mu?
+       <br/>
+       <br/>
+       Yazacağım şeylerle ilgili ontolojik bir kaygım vardı ama bu daha ziyade yazar kimliğimle alakalı bir şeydi. Ben kendime ait anıları saklayan biri değilimdir. Nesnelerle çok gerçekçi bir ilişki kuruyorum. Nesnelerle kurduğum bağın kendi anlamlarının dışında bir anlam yüklenmesine evimde bulundukları süre içinde fazla izin vermiyorum. Ama zihnim bambaşka çalışıyor. Kitapla ilgili ilgi çekici özellik şuydu, anlatılanlar aslında edebiyatta çok kolay kullanılacak malzemeler. Celal Üster kitap için “birkaç romanı ve yüzlerce hikayeyi taşıyacak bir cephanelik” demiş. Çok hoş bir tesbit. Ama bunlar bana edebiyatta kullanmak için çok ucuz bir malzeme gibi geliyor. Çünkü okuru çok çabuk tuzağa düşürür bu malzemeler, okuru çok çabuk duygulandırır, ağlatır. Ben edebiyatımın böyle tuzaklı bir edebiyat olmasını istemiyorum. Ama diğer yandan unutamadığım ve giderek benim parçam olan bu şeyler zihnime yük oluyorlardı. Kız kaçırmayı, düğünlerdeki hasır çelenkleri, telgraf okuma törenlerini, mevlid şekerlerinin o zamanki şekillerini biliyorum. Bütün bunların kayboluyor olması bende kimliğini kaybetme ve çıplaklaşma, fakirleşme duygusu yaratıyor. Ama yine de o dönem bizi mutlu eden şeylerin bugün olmamasına üzüntü ile değil bir tesbit, bir kayıt kaygısı ile yaklaştım kitabı hazırlarken. Kitabın bana iki yararı oldu; hem bu kaydı tutmuş oldum hem de bunlar artık edebiyatıma girmek için beni zorlayamayacaklar. Bu malzeme beni daha fazla itip  kakmaya başlamıştı,  çünkü yaşlanıyordum. Anılar giderek daha fazla benden olmaya başlıyorlardı, benden oldukları için de daha çok dışarı çıkmak istiyorlardı. Yazarak kurtuldum.
+       <br/>
+       <br/>
+       —Bunu farketmenize ve böyle bir kitabın özgürleşmenize katkısı olacağı fikrine nasıl kapıldınız?
+       <br/>
+       <br/>
+       Kıvılıcım çakmasına neden olan Abdülaziz Bey’in kitabıydı. “Osmanlıda Adet Merasim ve Tabirler” kitabı beni çok etkiledi, hem de çok şaşırdım. Şu Marlboro sigarasını tarif etmeye bugün hiç gerek yok, çünkü bu bilinen ve herkeste olan bir şey. Ama yarın olmayabilir ve olmayacaktır da zaten. Bunu bu kitap hissettirdi bana. Yazmam gerektiğini düşündüm.
+       <br/>
+       <br/>
+       Gelecek hatırlamayacak
+       <br/>
+       <br/>
+       —Bugünün çocukları ya da gençleri ihtiyarladıklarında Pokemon’u, Tom Raider ‘i ya da “Biri Bizi Gözetliyor Evi”nin kahramanlarını aynı şekilde mi hatırlayacaklar sizce?
+       <br/>
+       <br/>
+       Emin değilim. Bugün hiçbir şeyin kalıcılığı uzun sürmüyor. Nesneler ya da durumlar yaşamın içine çok fazla giremiyor, bir kuşaktan bir kuşağa aktarılamıyorlar.  Sözünü ettiğiniz şeylerin ömrü altı ay. Oysa kitapta da yer verdim, kadranlı telefonları düşünün bir, 1940’lardan başlayarak en az 15 yıl sürdürdüler hükümlerini. Dolayısıyla o nesne görüntüsüyle, kullanımıyla herşeyiyle bizim zihnimize kazındı. Bugün cep telefonlarını düşünün bir de, hangisini tarif edersiniz, ya da edebilir misiniz? Onlarca marka, yüzlerce model var. Artık hiçbir şey yaşamımıza öyle büyük bir coşku ve sevinçle girmiyor. Bir görüntüler silsilesi olarak geliyor ve geçiyorlar ve bırakın hayatımıza almayı izlerken bile zorlanıyoruz. Birini elde etmeye kalkmadan bir yenisi tezgaha çıkıyor.  Ne yazık ki bu insan ilişkilerinde de böyle. Her türlü soyut şey de çok çabuk biçim ve tanım değiştiriyor. Son on yılda inanılmaz bir yol gelinmiş. Yetişemediğimiz ve yetişemediğimiz için hırpalandığımız hayatın hızı durup ağlayarak geçmişe bakmamıza neden oluyor.
+       <br/>
+       <br/>
+       İki lambadan birini söndür!
+       <br/>
+       <br/>
+       —Örfle, adetle, toplumsal kimliklerle biçimlenmiş insan ilişkileri kitabın temel taşlarından biri. Ancak bu ilişkiler 80’lerde de henüz bu kadar erozyona uğramamıştı. 70’leri bu anlatılanların dışında özel kılan ne sizin için, yani tek bir durumla ifade etmek isteseniz hangi öge 70’leri temsil edecek güçte olurdu?
+       <br/>
+       <br/>
+       70’leri 80'ler ve 2000'den ayıran,  bugüne göre karakteristik kılan şey her fırsatta da vurguladığım gibi bir tutumluluk çağı olmasıydı. Bunun kökleri derine, cumhuriyetin kuruluş dönemlerindeki yoksunluğa kadar gidiyor. Bizim kuşağın asla katlanamadığı şeyler vardır, lambaların açık unutulması, yemeğin çöpe gitmesi gibi. 70’leri önceki yıllardan ayıran, gençler için anlamlı kılan şey ise bu dönemin renklenmeye başlamasıydı.  Bu çok önemli bir şey. 60’larda tek renk giysiler, ağırbaşlı tarzlar ön planda. 70’ler ise dünya çapında özellikle 68 gençliğiyle birlikte hareketlenen bir sürecin sonucu olarak renkli bir dönem. Bunu üstteki o siyasi karabulutu ayrı tutarak söylüyorum. Kıyafetlerde inanılmaz bir renklilik var, renkli sinema başlamış, renkli fotoğraf tek tük hayatımızda. Bana 70’leri bir önceki on yıldan ayıran, renklenme ve gündelik hayat anlamında gözlerin daha bir Batı’ya dönük olması gibi geliyor. Gidilmese ve görülmese bile küçük küçük pencerelerden Batı izleniyordu ve bu önceki yıllara oranla daha yoğun bir ilgiyle yapılıyordu.
+       <br/>
+       <br/>
+       —Bu kitap hangi kategoride yer alıyor, edebiyat mı, popüler tarih mi?..
+       <br/>
+       <br/>
+       Kitabın üzerinde “yaşantı” yazıyor. Bu bir dizi adı. Tabii böyle bir tür yok. Bizim yayınevimizin mektup, günlük, anı gibi metinleri yayınlarken kullandığı bir başlık ismi bu. Ama bu kitaba “yaşantı” adının çok iyi oturduğunu düşünüyorum. Edebiyat olarak bakıldığında türler arasındaki kesin ayrımların bizi zor duruma soktuğunu düşünüyorum. Sınırlar kalkmış durumda, bu bir öyküdür, bu bir makaledir, denemedir demek giderek güçleşiyor. Öyle metinler var ki denemeye benziyor ama öykü; romana benziyor ama deneme.
+       <br/>
+       <br/>
+       —Ben 80’lere ait olduğunu sandığım bazı şeylerin aslında 70’lerin özelliklerinden olduğunu gördüm. Şeyleri ve durumları belli bir döneme özgülerken tereddüt ettiğiniz oldu mu?
+       <br/>
+       <br/>
+       70’lerde 60’ların uzantıları olduğu gibi,  80’lerde yaygınlaşacak  şeylerin ilk örnekleri de vardı. Evlilik törenleri, arkadaşlık ilişkileri, mutfak alışkanlıkları 60’lardan devralınmış  şeylerdi tabii. Buna karşılık okul adetleri, dergiler, oyunlar vs 80’lerde sürmüş şeyler. Ama bir anlam farklılaşması var. Mesela okullarda hâlâ sosyal kollar var, ama bugünkü anlamı ile 60’lardaki ya da 70’lerdeki anlamı aynı değil. Ben bunun 70’lerde hissettiğim anlamını yazdım. Genelin algılamasını yansıtmaya çalıştım. Elbette kapsamın içinde 60’ları ve hatta 80’lerin ilk yarısını hatırlatan şeyler de var. Ama şunu kesin söyleyebilirim ki 85’ten sonrası farklı bir alem, oraya hiç girmedim.
+       <br/>
+       <br/>
+       —Dönemin siyasi olaylarına da hiç girmemişsiniz. Ne 12 Mart ne 12 Eylül. Bunların 70’lerin gündelik yaşantısında da belli etkileri olmuştur kuşkusuz, ama kitabınızda yoklar...
+       <br/>
+       <br/>
+       Bu bilinçli bir tercih. Birer cümle ile geçiştirdim. Bu konular hem çok yazıldı hem de 70’leri öyle anmak beni üzüyor. Terörle anılan bir on yıl olduğunu biliyoruz 70’lerin. Hatta 80’lerin sonunda ve 90’ların başında bu bir korkutma aracıydı, aman 70’lere döneriz ibaresi bir sopa gibi kullanıldı. Ben bu karanlık tablonun kitabıma girmesini istemedim. Çünkü tekil hikayelerden bahsetme zorunluluğu doğacaktı. Her evde neredeyse bir siyasi vardı ve bu hayatı olabildiğince karartmıştı. Kuyruklara da çok az bir yer verdim kitabın sonunda. Çünkü bütün bunlar beni gülümseten şeyler değil. Tarihçi olsaydım ciddi bir biçimde üzerinde çalışırdım.
+       <br/>
+       <br/>
+       — Buradan o günlere baktığınızda bir şaşırma duygusuyla irkildiğiniz oluyor mu hiç? Kimi şeylerin hâlâ devam etmesinden ya da kimi şeylerin ani bir biçimde dönüşmesinden doğan bir şaşırma.
+       <br/>
+       <br/>
+       Biz büyük bir kırılma yaşadık. Herhalde çok az toplumun başına gelmiştir bu. 80’lerin ilk yarısında yaşanan tam bir dönüşüm aslında. Bu illa kötüdür diye söylemiyorum, elbette dünyanın da bir dayatması vardı bu noktada. Ama herşeyimiz değişti. Devletle ilgili bu tip şeylerin çok azı  gündeme gelse  kıyamet kopardı bir zamanlar. Sistem o zaman da temiz değildi belki ama legalize etmezdi. Hortumlamaların, soygunun gündelik dile girdiği bir dönemdeyiz artık. Şaşırma duygusunu yitirişimize şaşıyorum desem sorunuza da cevap vermiş olurum. Bu derin alt üst oluş beni şaşırtıyor ve üzüyor. Okurlardan gelen tepkilerde de hep bunun altı çiziliyor, sevgiden, saygıdan, insan ilişkilerindeki çözülmelerden yakınıyor okuyucular, paranın bir değer olmadığını, para uğruna yitirilen değerleri anlatan cümleler var. Acımasız dünyanın tam ortasında olanlar, parayla kurulan ilişkinin değişimine her an tanıklık edenler yazıyor çoklukla.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12740), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214058/http://www.aksiyon.com.tr:80/detay.php?id=12740)

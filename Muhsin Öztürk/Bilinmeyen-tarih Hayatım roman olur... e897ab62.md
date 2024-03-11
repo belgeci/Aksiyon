@@ -1,0 +1,178 @@
+# Hayatım roman olur...
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227160937im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227160937im_/http://www.aksiyon.com.tr/resim/353/56.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Erje Ayden, uluslararası alanda faaliyet göstermiş Türk asıllı bir casus. Geçen yıl Türçeye çevrilen “Ayrılık Acısı” adlı romanı, Amerika’da yerleşmiş sivil hayatta yayıncı, sanatçı, yazar olarak hatırı sayılır bir yer edinen KGB ajanlarının merkezle olan sorunlarını ve korkunç akıbetlerini konu alıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kitabın yazarı Erje Ayden “Casus kökenli casusluk kitapları yazarı” kategorisine giriyor ve bizim bahsini ettiğimiz konuya tam oturan bir prototip. Konumuz da bu; hem casus hem de casusluk romanları yazanlar...
+   <br>
+    <br>
+     Konuyu daralttığımız bir gerçek; özellikle 19. yy’da ve 20. yy’ın ilk yarısında fazlasıyla örneklerine rastladığımız sanatçı ve seyyah casuslarla ilgilenmiyoruz. Sözünü ettiğimiz kişiler ünlü ressam, heykeltraş, seyyah kişilerin casusluğu ve ortaya koydukları ürünler değil; bizatihi casus olup casus romanlarını kaleme alan kişiler.
+     <br>
+      <br>
+       Kadrolu ya da kadrosuz
+       <br/>
+       <br/>
+       Genel polisiye başlığı içinde yer alan casusluk romanlarının yazarlarının büyük ölçüde gizli istihbarat kuruluşlarıyla organik bağı olduğu iddiası her şeyden önce ispatı zor bir iddia. Adı üstünde ‘gizli’. İstihbarat örgütlerinin en önem verdiği şey de zaten bu gizlilik; emekli olduktan ya da teşkilatla bir şekilde yollar ayrıldıktan sonra teşkilata, teşkilatın sahip olduğu bilgilere dair hiç bir açıklamanın yapılamayacağı konusunda teminatlar alındığı da bir gerçek. Zaten casus kökenli yazarlar olarak adı dolaşanlar ortaya çıkıp “Ben MI6’da ya da CIA’da, MİT’te çalıştım” demiyorlar ve demeleri de mümkün değil. Elbette kahramanları casuslar olan romanların yazarı bütünüyle casus kökenli değiller; fakat gizli örgütlerle ya da elemanlarıyla sıkı fıkı oldukları da bir gerçek. Gizli teşkilatlar ve casuslarla ilgili bilgilere ulaşmanın zorluğu bu ilişkiyi yani bazı bilgi kaynaklarının varlığını gerekli kılıyor. Ünlü yazar Frederick Forsyath, bir soru üzerine ne İngiliz gizli servisi SIS’in elemanı olduğunu ne de dışarıdan katkıda bulunduğunu söylüyor. “Ama şunu kabul ediyorum, işim gereği onlarla görüştüm hatta işbirliği içinde bulundum. Hatta zaman zaman bazı romanlarımda bazı paragrafların çıkarılması gibi fedakarlıklarda bulundum” demeden de edemiyor. Forsyth, savaş muhabirliği yaparken işsiz kaldığı bir dönemde yazmaya başladığı casusluk kitapları onu sadece kendi ülkesinin değil farklı ülkelerin istihbarat örgütleriyle karşı karşıya getirmiş. Hatta ‘işbirliği’ içinde bulunmuş. Kendisini Panama Terzisi, Köstebek, Gece Bekçisi gibi kitaplardan tanıdığımız ünlü İngiliz yazar John Le Carre, 2. Dünya Savaşı sırasında MI6’da çalışmış. Konunun ilgililerinin aklına gelen ilk isim de Le Carre oluyor zaten. Ünlü SAS romanlarının yazarı Gered De Willer’in CIA’da çalıştığı da ortada dolaşan iddialardan. Samerset Mauham’ın casusluğunu anlatan küçük bir risale bile yayınlanmış. Daha pek çok isim var. Bu isimleri açıklayan kişiler gibi bizim de aynı problemiz var; ispat etmek. Casus romanı yazarı casuslar herşeyden önce ispatı zor bir gerçek. Beyaz Balina Yayın Yönetmeni Latif Uğurtekin “Özellikle 1950—70 arasında yazılmış bir çok dedektiflik romanının yazarı şu veya bu şekilde CIA, Interpol, MOSSAD’la MI5, MI6 ile çok yakın ilişki içindeler. Bunlar emekli olduktan veya misyonları bittikten sonra bu anılarını yer kişi adlarını değiştirmek suretiyle yazmışlardır. Anılarını roman şeklinde yazmışlardır yani” diyor.
+       <br/>
+       <br/>
+       Misyon taşıyorlar
+       <br/>
+       <br/>
+       Erje Ayden’in istisna olmadığı ortada. Arşivinde 3 bine yakın polisiye bulunan Latif Uğurtekin’e göre casusluk kitapları yazarlarının yüzde 90’ı casus kökenli. Uğurtekin, uluslararası ‘gizli’ ilişkileri anlatan bu hafiye romanlarının sadece yazarın hayal gücüne dayanmadığını, büyük ülke olma iddiasını taşıyan devletlerin kendi reklamlarını ve iktidarlarını bu kitaplar yoluyla yaydığını söylüyor. “Şifre, mesaj veren ya da ülkelerin faaliyet gösterdiği ülkelerle ilgili başarısını ortaya koyan eserlerdir bunlar. Televizyonda oynayan görevimiz tehlikede ‘Yakalanırsanız biz sizi tanımıyoruz ama başarınız Amerika Birleşik Devletleri’nin başarısıdır’ diyen teyp örneğinde olduğu gibi yazarlar ülkelerinin muhteşemliğini ortaya koymakla yükümlüdür biraz. Dünyaya salt kültürel olarak değil siyasi ve askeri olarak da hükmettiğini anlatıyor bu kitaplar. Bu özellikler 60’lı 70’li yıllarda ortaya çıkıp, 80’li 90’lı yıllarda biçim değiştirmiştir. Daha modernize, daha lüks olmuştur, James Bond çağ atlamıştır yani.” Hollywood filmlerindeki dünyayı kurtaran Amerikalı figürü gibi bu misyonun farklı bir versiyonu galiba.
+       <br/>
+       <br/>
+       Casuslar, roman yazmak için birtakım okullarda eğitilmiyorlar şüphesiz. Latif Uğurtekin casus romanı yazarı casusların yazarlık kariyerlerinin iki şekilde geliştiğini söylüyor. Bazıları herhangi bir ajan gibi teşkilatın içinde eğitiliyorlar. Örgütün değişik kademelerinde yer aldıktan sonra ya emekliye sevk ediliyor ya da karşı istihbarat tarafından deşifre ediliyorlar. Yazma serüveni de burada başlıyor. Bazıları da teşkilatla ‘dışarıdan’ organik bağı olan yazar, oyuncu, sanatçı olarak görevlendirilmiş kişilerin içinden çıkıyor.
+       <br/>
+       <br/>
+       O kadar gerçek ki!..
+       <br/>
+       <br/>
+       Türkiye’de casusluk kitaplarının nadide ismi Osman Aysu. İlk casusluk kitabını yazdığında herkes onun MİT mensubu olduğunu düşünmeye başlamış. Fakat o bunu doğrulamıyor: “Türkiye’de o vasıfta bir kişi yok maalesef”. Osman Aysu kendisini de hesaba katarak, “Hem istihbarattan emekli olmuş ayrılmış, hem de roman yazan bir kişi bulamazsınız” diyor. Osman Aysu’ya göre iyi bir casusluk romanı yazmak için yazı yazma yeteneği, geniş hayalgücünün yanında ajanlık mesleği ve gizli teşkilatlar hakkında bilgi verecek kaynaklar gerekiyor. Latif Uğurtekin’e göre bu kitapları yazanlar gerçekten çok iyi bilgilere sahipler; “Dünya coğrafyasını, genel ve lokal siyaset biçimleri, siyasi ilişkileri, para birimleri, dilleri, bir sürü gizli örgütün çalışma tarzı vs.. ” Üstelik herhangi bir kurum gibi olmayan gizli teşkilatların işleyişini öğrenmek o kadar kolay değil... Bazı romanlar o kadar gerçekçi ki gündelik hayatta romandan hareketle siyasi analizlerin yapıldığına şahit oluyoruz. Sözgelimi Frederick Forsyth’ın İkon’unu okuyan bir kişi Rusya’daki mafya—siyaset ilişkisi ve geleceği üzerine geniş yorumlar yapabiliyor. Eserde yer alan ulaşılması zor bilgiler, dört kıtada meydana gelen olayların geçtiği yerlerle ilgili detaylı veri, romana yansıyan sosyal ve siyasal atmosferin gerçekliği “Acaba yazar casus mu?” sorusunu beraberinde getiriyor. Eğer casus yazarımız kendiliğinden itiraf etmez veya karşı güçler tarafından deşifre edilmezse bu soru soru olarak kalmaya devam ediyor.
+       <br/>
+       <br/>
+       Ülkemizde tanınmış polisiye yazarı Ahmet Ümit, bir cinayet romanı yazmak için cinayet işlemek gerekmediği gibi casusluk romanı için de casus olmaya gerek olmadığı görüşünde. Patasana’da arkeologların hayatını yazdığını, pek çok kişinin kendisinin arkeoloji eğitimi aldığını sandığını söylüyor. “Arkeolojiyle ilgili 40—50 kitap okudum, bir çok arkeologla uzun uzun konuşmalar yaptım. Bir romanı yazmak için ille de daha önceden bilgi sahibi olmak gerekmiyor” diyor. Casus romancıların varlığını kabul ediyor fakat genelleştirilmesine karşı. “Yazarın üslubunu belirleyen şey yazarın kişisel tarihidir” diyor. Polisiye romanı yazmaya başlamasını 80—90 arasında yaşadığı gergin hayata bağlıyor. 90’lardan sonra yazdıkları bu “gerginliği” yansıtınca doğal olarak kendisini polisiyenin içinde bulmuş.
+       <br/>
+       <br/>
+       Ahmet Ümit’in söylediği yazarın üslubunu yazarın kişisel hayatının belirliyor olması tam da bizim anlatmak istediğimiz şeyi özetliyor. Deşifre olmamış bir casus “hatıralarım” diye bir kitap yazamayacağına göre yazabileceği en uygun şey, kişi ve yer isimleri değiştirilmiş hafif erotizm sosu ile sunulmuş casusuluk romanları... “Bu gördüğünüz filmdeki kişi, yer ve olaylar hayal ürünüdür” açıklaması eserin gerçekliğini gizleme operasyonundan başka nedir ki zaten? ‘Operasyon mu?’ O da ne?...
+       <br/>
+       <br/>
+       Osman Aysu;
+       <br/>
+       <br/>
+       “Casus romanı yazmak için 14 yıl hazırlık yaptım”
+       <br/>
+       <br/>
+       —Casus—yazar yaşadıklarını mı yazıyor yoksa hayal gücünü mü kullanıyor?
+       <br/>
+       <br/>
+       Kanunlarımıza ve milli istihbaratın iç hizmet talimatnamesine göre belirli sırları, belirli bilgileri afişe etmek, bunu umuma duyurmak, kanun indinde suçtur. Milli İstihbarat’tan şu veya bu şekilde ayrılmış kişilerin bunları açıklamama mecburiyetleri vardır.
+       <br/>
+       <br/>
+       —Bilgilerinin mi yoksa mensubiyetin açıklanması mı yasaklanan?..
+       <br/>
+       <br/>
+       Bilgileri ve oradan öğrendiği dosya muhtevaları.. Siz de muhtemelen eski MİT elemanı diye düşünerek geldiniz. Hemen şunu söyleyeyim; şayet böyle bir dosyayı romanımda mevzu yapıp anlatırsam bu suç olur.
+       <br/>
+       <br/>
+       —Birebir bir dosya anlatımını kastetmiyorum zaten..
+       <br/>
+       <br/>
+       Ama bir insan haliyle bir şey bilmeden, bir teşkilat muhtevasını, nasıl çalıştığını bilmeden bunu yazamaz. Benim Havyar Operasyonu diye bir kitabım var. Ben bu kitabı neşrettim, ertesi gün Hürriyet’te benim MİT’e çalıştığım iddia edildi. Millet meraklı değil. MİT, Başbakanlığa bağlı bir kuruluş. Bunun bir kuruluş kanunu var. Biraz merak ediyorsanız Resmi Gazeteyi açarsınız, kuruluş kanununu tetkik edersiniz; kaç dairesi var, bu daireler nasıl çalışır...
+       <br/>
+       <br/>
+       —Hiç bir zaman bir kurumu anlamak için kuruluş kanununa bakılmaz ki?
+       <br/>
+       <br/>
+       Ama millet bunu da bilmiyor. Mesela o romanın sonunda, teşkilatın bütün daire müdürlerini topladım, sözde bir karar verdiler. Mesela Operasyon Dairesi Başkanıyla Hukuk Dairesi Başkanını bir araya getirdim. Tabii fiiliyatta hiç bir zaman böyle bir şey olmaz. Burada kaç masa var, kaç daire var, bunu anlasınlar diye yazdım. Ondan sonra bu adam MİT’çi dediler.
+       <br/>
+       <br/>
+       “Ben ajana benziyor muyorum?”
+       <br/>
+       <br/>
+       —Eğer MİT’le ilginiz varsa bu ilişki romanlarınıza nasıl yansıyor, onu konuşmak istiyorum?
+       <br/>
+       <br/>
+       Öyle bir geçmişim yok. Tipimden de anlarsınız zaten. (Muzip’çe) Herhalde bende istihbaratçı tipinden ziyade yazar tipi belirgin değil mi?..
+       <br/>
+       <br/>
+       —Başarılı bir istihbaratçı, istihbaratçı tipi çizmeyendir zaten...
+       <br/>
+       <br/>
+       Bakın bu bizde de yanlış anlaşılıyor. 1980’lerden sonra milli istihbaratın bünyesinde çok önemli değişiklikler oldu. Bi defa asker kökenliler büyük ölçüde elendi. Bir sivilleşme başladı. Bu arada bir harita mühendisi ve bir bilgisayar programcısı milli istihbaratta çalışır, onun da adı MİT elemanıdır yani ajandır. Ama halk beyninde bilinen ve esas merak edilen tip ise operasyon yürüten ajanlar. Bugün milli istihbaratın çok geniş bir kadrosu var fakat bunlar da gizlilik ilkesi gereği konuşmazlar. Son olarak şöyle cevap vermeliyim; eğer insan teknik olarak bazı bilgilere sahip olmazsa casus romanı yazmamalı.
+       <br/>
+       <br/>
+       —Peki siz nasıl yazıyorsunuz?
+       <br/>
+       <br/>
+       Ben birtakım imkanlar buldum. Bazı ağızları dinledim. Geçerli kaynaklar yakaladım. O kaynaklardan istifade ederek bilgi aldım. Mühim olan bilginin edinilmesi değil mi? Bir şekilde bilgi elde ediliyor...
+       <br/>
+       <br/>
+       —Sizin hayatınız hakkında çok bilgiye sahip değilim...
+       <br/>
+       <br/>
+       Çok bir şey bulamazdın zaten, ben hep böyle yuvarlak konuştum. Ama iyi bir reklam da oldu değil mi?
+       <br/>
+       <br/>
+       —Yine gizemli konuşuyorsunuz...
+       <br/>
+       <br/>
+       Mühim olan bunu becerebilmektir değil mi?.. İdare edebiliyorsan mesele yok
+       <br/>
+       <br/>
+       Ne kanaat uyandırdı sizde (eşi).
+       <br/>
+       <br/>
+       —Bilemiyorum...75 ile 89 arasında ne yaptığını açıklamıyor.
+       <br/>
+       <br/>
+       Şöyle söyleyelim; bir roman yazmanın pek kolay bir şey olmadığını kabul et. Ben de 75’ten 89’a kadar hep bir alt yapı kazanmaya çalıştım. Çok roman okudum, roman tekniklerini inceledim. Yabancı yazarları okudum...
+       <br/>
+       <br/>
+       —Bazı teknik ve coğrafi bilgiler var. İstihbarat metodlarından, silahların özelliklerine kadar pek çok kolay elde edilemeyen casusluk tekniği bilgileri... Bunları nasıl öğreniyorsunuz?
+       <br/>
+       <br/>
+       Mesela Lenin’in Mangası diye bir kitabım var. Orada, Kafkasya’daki eski Kızılordu tümeninin depolarından nükleer başlıklı manuel silahların yüz adedinin kaçırılmasıyla ilgili bir hikaye. İşin içinde pek çok ülke, pek çok istibarat örgütü var ve olaylar çok farklı coğrafyalarda gerçekleşiyor. Ben ne Moskova’yı ne de Londra’yı gördüm fakat romanda geçen yemek adlarından tutun da sokak adlarına kadar hepsi gerçektir. Demek ki Moskova’yı iyi bilen birisinden bilgi almışım. Bu kitap çıkınca Murat Birsel benimle ropörtaj yaptı ve Moskova’yı görmediğime inanmadı. Çok üstüme geldi. Saklıyorsunuz falan dedi. Ben şunu söylüyorum insan isteyince yapabiliyor. Frideris Forsyth’ın İkon’unda muhayyel bir isyan anlatılmıştır, benim ki de böyle. Aslında mühim olan her an böyle bir şeyin olabileceğini sezinleyebilmek.
+       <br/>
+       <br/>
+       —Tamam kabul sizin herhangi bir şekilde MİT’le bir bağlantınız olmadı, orada çalışmadınız. Peki yerli yabancı ajanların nasıl çalıştıklarını nasıl öğreniyorsunuz?
+       <br/>
+       <br/>
+       Bir ajan bulursunuz. Ondan bu bilgileri sızdırırsınız, sohbet ederek, konuşarak.
+       <br/>
+       <br/>
+       —Sohbet ediyorsunuz..
+       <br/>
+       <br/>
+       Ediyorum, ediyorum, başka türlü olmaz.
+       <br/>
+       <br/>
+       —Fakat mimik hareketleriniz ‘acaba’ dedirtiyor.  Peki casus romanı yazarı için herhangi bir istihbarat örgütünde çalışmış olması mı avantaj yoksa hayal gücüyle romanı yazması mı?
+       <br/>
+       <br/>
+       Bir insan çok iyi ve deneyimli ajan olabilir ama yazma kabiliyeti yoksa casusluğu bir anlam ifade etmez. Yazarlık için ne gerekiyorsa, kabiliyet, hayal gücü, kurgu.. olması gereken şeyler. Haliyle iyi bir casusluk yazarı olabilmek için biraz bilgi sahibi olacaksınız. Bu bilgiyi nasıl elde edebilirseniz edinin.
+       <br/>
+       <br/>
+       —14 yıl boyunca roman yazmak için hazırlıklar yaptım diyorsunuz. Diyelim ki ben casusluk romanları yazmak istiyorum. Sizce ben ne yapmalıyım?
+       <br/>
+       <br/>
+       Birinci olarak bir gazetecinin prensip olarak bir yazma yeteneğinin var olduğunu kabullenmek durumundayım. İkinci etapta bir roman yazacağınıza göre Batı kaynaklı eserlere yöneleceksiniz ilk önce, benim yaptığım gibi. Fransız polisiyesini sevmedim. İngiliz polisiyesi bana biraz daha cazip geldi. Ama Amerikan polisiyesini sevdim beğendim. Hele modern Amerikan polisiyesi beni çok sardı. Bu kadar kitap da kısa zamanda okunmuyor ki!.. Ben bu işin tarihçesinden başladım ta bugüne gelesiye kadar 14 senemi aldı!
+       <br/>
+       <br/>
+       —Yani benim casus romanı yazmam için sadece okumam yeterli olur mu?
+       <br/>
+       <br/>
+       Yok! Size gerekli bilgileri aktaracak kaynak bulmak lazım yani. Okumak yalnızca roman tekniğinizi geliştirmenize yararlı olur. Bilmeyen meraklısı değilse o kısmı geçer. İstihbarat örgütlerinde analistlerin çok önemi vardır mesela. Biraz tanımak lazım... Peki sen niye bu kadar meraklısın bu konuya?
+       <br/>
+       <br/>
+       —Hem casusluk yapmış hem de casusluk romanı yazan bir kişiyle ropörtaj yapmak istiyorum. Bulamasam da yaratacak değilim ama böyle..
+       <br/>
+       <br/>
+       Türkiye’de o vasıfta bir kişi yok maalesef. Hem istihbarattan emekli olmuş ayrılmış, hem de roman yazan bir kişi bulamazsınız.
+       <br/>
+       <br/>
+       m.ozturk@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12855), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227160937/http://www.aksiyon.com.tr:80/detay.php?id=12855)

@@ -1,0 +1,43 @@
+# Tiksindiren tekelleşme
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ekonomik kriz Türkiye’de bir çok dengeleri değiştirdi. Krizin ardından yeni yeni düzenlemeler, yeni uygulamalar, yeni fiyat politikaları yeni hayat şartları herkes için uyulması gereken şeyler olarak karşımıza çıktı.
+   <br/>
+   <br/>
+   Kriz şokunu fırsata dönüştürmek maharetini kullananlar da doğal olarak toplumun alışkanlıklarına zıt uygulamaları ortaya koydular. Tüm şartların değiştiği bir ortamda kendi şartlarına da kolayca uyum sağlanabileceği veya doğal karşılanabileceği içten pazarlığı ile.
+   <br>
+    <br>
+     Krizin getirdiği ekonomik tedbirler gereği İSS (İnternet Servis Sağlayıcı) firmalardan lisans ücreti tahsil edilecek olması bir anda internet kullanım ücretlerinin katlanmasına sebebiyet verdi. Halbuki internet şirketlerine kesilen vergi faturası hiç de o kadar ağır olmamasına rağmen. Bir kısım cılız internet şirketleri abonelerini kaybetmemek için zarar etme pahasına da olsa ücretlerinde dolar bazında bir değişiklik yapmazken Superonline gibi sektörün lideri konumundaki firmalar daha vergiler uygulamaya konmadan zamlı fiyatlarını faturalara yansıtmaya başladılar. Uyanıklıklar karşısında önceki umursamaz tavrını göstermeyen internet aboneleri B planını tercih edip en ucuz internet paketlerini almaya yönelince olan oldu. Telekom’un “TTnet” adı altında verdiği internet hizmetinin çok ucuz olması nedeniyle kendilerinin büyük ekonomik kayba uğradıkları gerekçesi ile Telekom’u Rekabet Kurulu’na şikayet etti özel internet şirketleri.
+     <br>
+      <br>
+       Abone sayılarındaki azalışı bir türlü durduramayan Superonline, Turk.net ve E—kolay.net,  bununla da yetinmedi ve aralarında bir anlaşmaya imzaladılar. Bu anlaşmaya imza koymayan İSS’lerin abonelerinin, kendi web sitelerini ziyaret etmelerini engellemek üzere. Ve başardılar da. TTnet’ten veya İxir.net’ten veya bu gibi anlaşmayı imzalamayan kuruluşlardan internete bağlanan aboneler superonline.com ve turk.net’in sitelerine girdiklerinde bir uyarı yazısı ile karşılaşmaya başladılar. “Sizin İSS’niz anlaşmayı imzalamadı vs.” diye.
+       <br>
+        <br>
+         Özgürlükler ortamı diye bilinen ve sürekli o şekilde lanse edilen interneti ilk olarak sektörün dev firmalarının kısıtlamaya kalkması hiç yakışık alır bir tavır değil açıkçası. Hele hele, kurum vizyonlarında geçen “bilgi toplumuna destek olmak” sözcükleri ile de asla bağdaşmıyor. Bu sitelere giremeyen aboneler hiçbirşey kaybetmiyor aksine kendileri müthiş bir itibar kaybediyor!!!”
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 8 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12968), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151248/http://www.aksiyon.com.tr:80/yazdir.php?id=12968)

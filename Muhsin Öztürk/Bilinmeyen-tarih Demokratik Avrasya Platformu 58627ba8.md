@@ -1,0 +1,121 @@
+# Demokratik Avrasya Platformu
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Diyalog Avrasya Platformu (DAP) Avrasya dünyasının sürekliği olan ortak tek entelektüel kuruluşu. Zor yol alınan bir coğrafyada yeni projeleriyle gündemimizde olmaya devam edecek.
+   <br/>
+   <br/>
+   Bir iktisat kavramı olarak kullanılan 'ikame teorisi' hayatın her alanında. Birinin boşluğunu diğeriyle doldurma, bir şeyden beklenen tatmini başka bir şeyle giderme anlamına geliyor. Ama her şey ikame edilebilir değil. Sözgelimi, çok sevdiğimiz birini kaybetmemiz, yeri doldurulamaz boşluklar bırakabiliyor. Aile özlemi dost özlemiyle ikame olunamıyor. Pilav yerine bulgur yersek daha az masrafla doyuma ulaşırız prensibi hayat için her zaman olası değil. Ama her şeye rağmen, kıt kaynaklardan maksimum fayda edinme uğraşı 'hayat boşluk kaldırmaz' dercesine bütün hızıyla ve acımasızlığıyla devam ediyor.
+   <br>
+    <br>
+     Uluslararası sistemin çift kutupluluktan tek kutupluluğa evrildiği günden bu yana küreselleşme dünyanın tek gerçeği oldu. Sivil ve özel kuruluşların uluslararası ilişkilerde en etkin olduğu dönem yaşanırken, yeni sistemlerin oluşmasında devletler kadar küresel etkinliği olan sivil hareketlerin rol oynadığı bir zaman dilimindeyiz artık. Soğuk Savaş'ın sona ermesi ile birlikte Orta Asya ile Türkiye arasındaki ilişkiler devletler düzeyinde hamasi söylemleri aşamazken, sivil kuruluşların epeyce yol aldığı görülüyor.
+     <br>
+      <br>
+       Öte yandan ortada tam anlamıyla kurulamayan ya da yanlış işleyen bir ilişkiden söz etmek de mümkün. Yani Türkiye ortaya çıkan boşlukta 'ikame' edici bir fonksiyon eda edemedi. Diyalog Avrasya Platformu (DAP) Avrasya'da diyalog eksikliğinin sıfıra indiği bir zaman diliminde, ülke aydınları arasındaki yakınlaşmayı sağlayan, Sovyet döneminde bile tam kurulamayan entelektüel ilişkiyi özgür bir ortamda oluşturmayı başaran tek oluşum olarak karşımıza çıkıyor. Ancak, amacı bölge ile ilgili siyasi bir önerme yapmak değil, aydınlar vasıtasıyla halklar arasında kültürel iletişimi kurmak, yeni yaşanabilir modeller üretmek.
+       <br>
+        <br>
+         Diyalog Avrasya'nın ikame ettiği alan
+         <br/>
+         <br/>
+         Peki, Diyalog Avrasya Platformu Avrasya'da neyi ikame ediyor? Altı yıl öncesine kadar böyle bir oluşum yokken, ne oldu da birden ortaya çıktı ve bölgede aktif rol alan platforma dönüştü. Hangi boşluğu doldurdu ya da hayata dair yeni alanlar açma misyonu mu üstlendi?
+         <br/>
+         <br/>
+         Bu yıl 17-21 Kasım tarihlerinde Antalya Rixos Otel'de gerçekleşen Diyalog Avrasya Platformu Genel Kurulu'na Rusya Fedarasyonu, Azerbaycan, Gürcistan, Moldova, Ukrayna, Kazakistan, Kırgızistan, Azerbaycan, Tacikistan ve Türkiye'den gelen entelektüeller iştirak etti. DAP, yirmiye yakın ülkeden katılan aydınlardan oluşuyor. Genel kurula milli komiteleri oluşmuş ülkeler katılıyor. Sözgelimi Özbekistan'dan iki kişi katılmasına rağmen milli komite olma yeterliğine sahip olmadığı için bu ülke müzakereler kısmında yer almıyor.
+         <br/>
+         <br/>
+         DAP, 6'sı büyükelçi 10'dan fazla yabancı misyon şefi tarafından da dikkatlice takip edildi. Özbekistan Başkonsolosu'nun toplantıları takip etmesi olumlu karşılandı. Ayrıca pek çok akademisyen seyirci olarak toplantıyı izliyor. Mesela, Azerbaycan masasında üç kişi otururken hepsi milletvekili 10'a yakın Azeri aydın toplantıyı arka koltuklarda izledi. Toplantının en kalabalık iki grubu Azerbaycan ve Rusya Federasyonu'ydu. Terör duyarlılığı had safhadaydı. Genel kurul Beslan için bir dakika saygı duruşuyla açıldı.
+         <br/>
+         <br/>
+         DAP milli komitelerden oluşuyor. Toplantılarda her ülkeyi üç kişi temsil ediyor. Müzakerelere sadece milli komite üyeleri katılabiliyor. Bu yıldan itibaren her ülke komitesi Diyalog Avrasya yaklaşımını benimseyen üyeler kabul edecek. Bu üyeleri, o ülkenin milli komiteleri belirleyecek. Toplantıda milli komitelere geniş özgürlükler tanındığı özellikle vurgulandı.
+         <br/>
+         <br/>
+         Platforma demokrasi hakim
+         <br/>
+         <br/>
+         İlk defa katılanlar için platformun demokratik işleyişi oldukça şaşırtıcıydı. Bir kere "eşitler arası diyalog" olmazsa olmaz bir prensip olarak korunuyor. Proje öneren kişi önce sunumunu yapıyor, sonra konu üzerinde tartışmalar başlıyor. Ve her şey konuşuluyor. Toplantı gündemi belli olmasına rağmen herhangi bir katılımcı yeni projeler sunabiliyor. Kararlar oylamayla alınıyor. Rixos gibi lüks ve hâlâ yazın yaşandığı bir mekanda herkesin dikkatlice tartışmaları izlemesi ve iki gün boyunca salonun hiç boşalmaması takdire değerdi. İlk defa bu yıl toplantıya Türkmenistan'dan katılan Prof. Dr. Kurban Durdugeldiyev, "Antalya'da gezi yapmaya gelmeyip, Diyalog Avrasya düşüncesine canı gönülden yapışan insanlar gördüm. Herkes oturuyor, herkes dinliyor, bana ne diyen yok." diyor.
+         <br/>
+         <br/>
+         Platforma katılanlar otelin toplantı salonlarında alışmadıkları bir manzarayla karşılaştı. Zira, salon küçük bir meclis gibi inşa edilmişti. En yukarıda başkan, aşağı basamaklarda genel sekreter, başkan yardımcısı vs. gibi bölümler, karşısında ülke masalarının oluşturulduğu küçük bir Birleşmiş Milletler meclisini andıran bir yapıydı bu. Kemer'de bir marangoz atölyesinde inşa edilen salon dizaynında Gürkan Vural ve Kıvılcım Kalaba'nın imzası var. Salon tamamen demonte; yani sökülüp taşınabiliyor. Bundan sonraki bütün DAP toplantıları bu salonda gerçekleştirilecek. Gürkan Vural, genellikle yeni konseptler oluşturmak için çalıştıklarını söylüyor. "Ama bu sefer ilerlemiş bir toplantı için zihinlerde kurumsallaşmış bir kimlik oluşturan ciddi bir salon yaptık" diyor.
+         <br/>
+         <br/>
+         Da Dergisi'nin dili ne olmalı, tartışması
+         <br/>
+         <br/>
+         Genel Kurul bilimsel makalelerin sunulduğu bir yer değil. Bir yıl için çalışma programları, projeler tartışılıyor. Ama katılanların entelektüel seviyesi ister istemez sempozyum havasını hissettiriyor. Neredeyse herkes Avrasya sahasında yol almasının somut projelerden geçtiğini düşünüyor. "Da" dergisinin önemsenmesinin sebebi de bu. İlk toplantıdan bir yıl sonra çıkmaya başlayan Diyalog Avrasya (Da) dergisi Avrasyalı aydınların buluştuğu ve onları yıl boyunca az ya da çok meşgul eden bir yayına dönüşmüş durumda. En hararetli tartışmalar da derginin dili üzerine oldu.
+         <br/>
+         <br/>
+         Ukrayna ve Gürcistan'ın önerisiyle toplantının ana gündem maddesine dönüşen "Dergide İngilizce de olsun mu?" sorusu en az iki saat tartışıldı. Gürcistan heyeti, dünyada üretilen bilimsel makalelerin yüzde 95'inin İngilizce kaleme alındığını dile getirirken, Ukraynalı katılımcıların temel argümanı "İngilizce yoluyla birikimimizi dünyaya daha iyi anlatabiliriz." oldu. Tacikistan heyeti bu görüşe destek verdi. Hemen hemen her ülke konu ile ilgili görüşlerini dile getirdi; ancak hepsinin yaklaşımı farklıydı.
+         <br/>
+         <br/>
+         Kırgızistan masası, "İngilizce özet vermekte mahzur yok, öbür türlü kitaba dönüşür" derken, Kazakistan heyeti kısaca "İngilizce'ye gerek yok." görüşünü dillendirdi. Azerbaycan, 'İngilizce' olsun derken gençlere vurgu yaptı. Herkes Rus heyetinin tepkisini merak ediyordu. Aslında İngilizce üzerinden bir anlamda Rusça tartışılmaktaydı. Rusya'nın önerisi bir yıl içinde yayınmlanan makalelerden bir seçki yapıp İngilizce basmak şeklinde oldu. Yani o kadar da karşı değillerdi aslında.
+         <br/>
+         <br/>
+         Kültürel Ütopyalar önerisi
+         <br/>
+         <br/>
+         Türk heyetinden Prof. Dr. Süleyman Seyfi Ögün'e göre derginin dili Türkçe ve Rusça olarak devam etmeliydi. Bu tartışma "Da dergisinin web sitesinde yazılar İngilizce olarak yayınlanacaktır." şeklinde karar metnine yansıdı. Gürcistan'dan katılan Prof. Dr. Guli Alasaniya, "Herkesin bir dayanağı var; ama önemli olan bu tartışmanın yapılabiliyor olması." diyor.
+         <br/>
+         <br/>
+         Diğer bir tartışma konusu ise Nevval Sevindi'nin önerisiyle gündeme gelen Kültürel Ütopyalar başlıklı bir kitap çalışmasıydı. Belirli konular üzerine yirmi kişinin yaklaşımını içeren makalelerin toplanması, böylelikle Avrasya'nın geleceğine ilişkin yeni önermeler getirilebileceği fikriydi öne sürülen. Öneri, kelime manasından ifade ettiği anlama kadar geniş bir tartışma konusu oldu. Rusya heyeti bu öneriye destek verirken, Kazakistan bunun 'kooperatif' bir çalışma olacağını; bu yüzden ansiklopedi çalışmasının yapılmasının daha yararlı olabileceğini öne sürdü. Kırgızistan "biz sosyal ütopyalara açığız" derken bazı katılımcılar 'ütopya'lardan çok çektiklerini söyleyerek bu kavramın biraz açılmasını istedi. Ütopyaların peşinden sürüklenmeyelim, somut bazı projelere imza atalım diyenler de çoğunluktaydı.
+         <br/>
+         <br/>
+         Ukrayna, Avrasya aydınlarının oluşturabileceği bir bilgi bankası projesi önerirken, Kazakistan heyeti ortak bir lügat çalışmasının gereği üzerinde durdu. Tarih kitabı çok tartışıldı. Daha önceki toplantılarda da benzer konuşmaların olduğu anlaşılıyor. İdeolojik olarak yazılmış tarihin yeniden ele alınması konusu üzerinde duruluyor. Kimi bu tartışmaları lüzumsuz bulup "Şimdi birbirimize kendi tarihimizi mi anlatacağız?" derken, kimi de geniş bir heyet tarafından ortak bir tarih kitabı yazılması üzerinde duruyor. Kazakistan heyeti özellikle yeni öneriler kısmında oldukça faaldi.
+         <br/>
+         <br/>
+         Avrasya medyasının kurulması
+         <br/>
+         <br/>
+         Öne çıkan bir diğer öneri ise Osmanlı Arşivleri'nin bütün ülkelerin istifadesine sunulması. Eğer gerçek tarih yazılmak isteniyorsa gerçek belgeler üzerinden bu yapılmalı, dolayısıyla pek çok ülkenin kaderini belirlemiş olan Osmanlı'nın arşivleri iyice incelenmeliydi. Kazakistan heyetinden bir kişi çok merak etmesine rağmen Rusça'da Osmanlı'yı anlatan bir kitap olmadığını dile getirdi.
+         <br/>
+         <br/>
+         Bir diğer proje de Avrasya Medya'sının kurulması. Her ülkenin farklı tüzüklere sahip olması, ekonomik büyüklüğü vs. gibi konular engel teşkil etse de böyle bir yayın organına (TV) olan ihtiyacın üzerinde duruldu. Karar metninde Avrasya Medya Birliği’nin kurulması ve her ülkeden üç medya üyesinin seçilmesi kararlaştırıldı. Avrasya'dan parlak gençlerin toplantılara gözlemci olarak katılmasının sağlanması birkaç ülke tarafından önerildi ve kabul edildi.
+         <br/>
+         <br/>
+         Moskova'da Mayıs 2005'te yapılacak “Terörden Evrensel Etiğe Dinler ve Barış” sempozyumu ile ilgili geniş bir sunum yapıldı. Toplantı konuları şimdiye kadar yapılan diyalog toplantılarından biraz farklılık arz ediyor. Evrensel etik ihtiyacı, terörün siyasi, sosyal, ekonomik ve kültürel nedenleri, tek Tanrılı dinlerde etik değerler gibi alışıldık konular yanında bütün bu konular tek Tanrılı olmayan dinler açısından da ele alınıyor bu sefer. Dolayısıyla tek Tanrılı olmayan dinlerin temsilcileri de bu sempozyumda yer alıyor. Ayrıca tek Tanrılı dinler ve çok Tanrılı inançlar arasında diyalog da bir oturum konusu.
+         <br/>
+         <br/>
+         Diyalog benim mesleğim
+         <br/>
+         <br/>
+         Platforma ilk defa katılanlar ve başından beri içinde bulunanlarla konuşmanın ilginç olacağını düşündük. Azeri aydını Anar, "Laflar iyi de geriye metinler kalıyor. Bu nedenle Da dergisini ve Da yayınevini çok olumlu buluyorum." diyor. Anar'ın ümidi daha geniş finans imkanlarıyla Avrasya'da müzik, tiyatro festivalleri gerçekleştirebilmek.
+         <br/>
+         <br/>
+         Moskova'dan bir PR şirketinin temsilcisi olarak platforma katılan Natalia Orlava ise "Diyolog benim mesleğim." diyor. Moskova'da bu tarz faaliyetler düzenlemelerine rağmen buradakinin en büyüğü olduğunu söylüyor. İlk defa katıldığı toplantıda beklentilerinin çok üstünde bir manzarayla karşılaşmış. Ona göre programın detayları ve bakan düzeyindeki katılım işin ne kadar ciddi tutulduğunun göstergesi. Kültürlerimizin birbirine çok yakın olduğunu görmek onu şaşırtmış.
+         <br/>
+         <br/>
+         Prof. Dr. Giuli Alasaniya, Gürcistan Cumhurbaşkanı Mikhail Sakaşvili'nin annesi ve Diyalog Avrasya Platformu'nun başından beri müdavimi. Ona göre platform çok hayırlı bir iş görüyor. Sorunların çözümünde ilk şart diyalogdur bir kere. O yüzden tanıma ve tanışma faslı önemsiz görülemez. "Her milletin kendine has, başkaları için zenginlik olabilecek gelenekleri vardır. Önemli olan, insanların birbirini dinlemisini öğrenmesidir, o zaman her şey yoluna girecektir." Sovyet döneminden farklı olarak herkesin özgürce gerçekleştirdiği bir diyalog söz konusudur burada. Eski dönemde emirle gelen diyalog süreçleri çözüme kavuşturulamayan problemler yığını bırakmıştır geriye. Platformla ilgili her toplantıda bir yenilik yapılması ve işi organize edenlerin enerji ve isteklerinin bitmez tükenmezliği takdire şayan bir durumdur.
+         <br/>
+         <br/>
+         Azerbaycan Atatürk Merkezi Başkanı Milletvekili Prof Dr. Nizami Ceferov DAP'a ilk defa katılanlardan. Hem 'Da' dergisini hem de toplantılardan çıkan kararları dikkatle takip etmiş. "Platformda beklediğimden daha çok şey buldum." diyor. "Burada iyi fikirler çıkacağını düşünürdüm, ama bu derece demokratik bir şekilde gerçekleştirilebileceğini tahmin etmiyordum. İnsanlar fikirlerini çok rahat ifade edebiliyorlar. Farklı düşüncelere de yer açıldığını gördüm." Platform, düşünen adamın kendi kendiyle olan diyaloğunu düşünen adamlar arasındaki diyaloğa çevirmektedir. Daha önce kitaplarından takip ettiği Türkologları, Asya-Avrupa uzmanlarını ve bilim adamlarını ilk defa burada görmüş. Eskiden beri var olagelen Avrasya Etnoloji Birliği fikirlerinin DAP'la birlikte pratiğe döküldüğünü gözlemlemiş. Eskiden olduğu gibi bir ideolojinin ya da birkaç ideologun öngörüsü değil, bu coğrafyada düşünebilen herkesi bir noktada buluşturan bir yaşam alanı arayışı söz konusu. "Dünyanın harmonisi ve yeni bir yaşam sistemi oluşturulmak isteniyor. Ben de DAP'ta elimden ne gelirse yapmaya çalışacağım."
+         <br/>
+         <br/>
+         Bu toplantı bizim için bir bayramdır
+         <br/>
+         <br/>
+         Her ne kadar Orta Asya'dan katılan bir ülke temsilcisinin sarf edeceği sözleri andırsa da bu sözler Rusya Şarkiyat Enstitüsü Müdürü Rostislav Ribakov'a ait. Da dergisinin son yıllarda kusursuz bir Rusça'yla çıkmaya başladığını söylüyor. DAP'ta alınan kararların uygulanıp uygulanmayacağını sorduğumuzda "Denizde gemiler kutup yıldızına bakarak yol alırlar. Elbette bu onların kutup yıldızına ulaşacakları anlamına gelmez. Bazı kararlar gerçekleşecek, bazıları gerçekleşmeyecek; önemli olan çaba." diyor. Milli komitelere tanınan geniş özgürlük alanında çok şey yapılabileceğini düşünüyor.
+         <br/>
+         <br/>
+         DAP Genel Kurulu'nda son dört yıldır platformun başkanlığını sürdüren Anar'ın yerine Prof. Dr. İlber Ortaylı yeni başkan olarak seçildi. Anar hem ilk başkan olması  hem de saygınlığı dolayısıyla onursal başkan olarak ilan edildi. Genel Sekreter Erkam Tufan Aytav platformun hızlı işleyişinde önemli rol oynadı.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 479 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=18444), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050218203841/http://www.aksiyon.com.tr:80/yazdir.php?id=18444)

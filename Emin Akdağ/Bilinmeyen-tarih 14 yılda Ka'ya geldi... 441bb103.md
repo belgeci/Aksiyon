@@ -1,0 +1,75 @@
+# 14 yılda Ka’ya geldi...
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225010031im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225010031im_/http://www.aksiyon.com.tr/resim/378/10.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1998 yılında ilk fasiküllerini verdiğinde gündeme oturan İslam Ansiklopedisi, unutturulmaması gereken bir kaynak. Telif bir eser olan ansiklopedinin madde dizisi de tamemen orijinal. 500 temel kaynak taranarak çıkartılan madde başlıklarının sayısı  atıflarıyla birlikte 22 bini buluyor. Şu anda ‘Ka’ harfi ile ilgili maddeleri yazılan ve 24. cildini okurlarıyla buluşturan eserin 25. cildinin çalışmaları sona erdi. Başlangıçta 2000 yılında 30’uncu ciltte bitirilmesi planlanan ansiklopedinin en az 40 cilde ulaşacağı tahmin ediliyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Fenerbahçe—Galatasaray derbisi sonrasında bir gazetenin spor yazarı aynen şöyle diyordu: “Hayatında hiç mahalle maçı oynamayan biri, koskoca süper ligi yorumlayamaz.” Evet yanlış okumadınız, yorumlanması bazı şartlara bağlanan ve hassaslık talep edilen konu normal zekalı kişilerin fiziki yeteneklerini ortaya koydukları spor. Beyazıt meydanında bir hukuk ya da siyasal profesörünün, Güneydoğu’dan elinde olmayan sebeplerle İstanbul’a yeni göçen çok çoçuklu bir ailenin ilkokulu bile bitirmeyen ayakkabı boyacısı oğlu ile konuşabilecekleri rahatlıktaki bir konu spor. Yazarın cümlesini tümden reddetmek haksızlık olur ama gerçek bu.
+   <br>
+    <br>
+     İnanç ya da din... İnsanların hem kişiliklerini hem de yaşamlarını derinden etkileyen ve yönlendiren en önemli konulardan. Sağlam temellere oturmamışsa, fiziksel hastalıklar kadar insanları çökerten bir konu. Herşeyden öte bir bilim. Böyle olmasına rağmen bazı televizyon programlarındaki ‘nitelikte hafif, reytinge ağır’ tartışmalara malzeme edilmekten kurtulamıyor. Nezaket ve hassasiyet gibi medeni ilkelerin çöpe atıldığı bu programlarda herkes bir uzman edasıyla konuşuyor. ‘Önce bir dinlemesini öğren’ sözüyle başlayan tartışmalar hakaretlerle hararetleniyor. Hani tartışma sonunda bir kelime öğrenilse o da değecek ama nafile...
+     <br>
+      <br>
+       Spor her nevi programlarda tartışılabilir. Nitekim de öyle oluyor. Çok şükür televizyonlarımızda ‘her nevi’den bir örnek görmek mümkün. Neticede bu bir adrenalin meselesi. Amacı, fonksiyonu, eti budu belli. Çok aşırıya kaçmamak üzere zararı da yok. Ama din böyle değil ki. Bu bir defa bilgi ve uzmanlık işi. Öte taraftan inanç olayı. Her söylenen kelimenin bir karşılığı olmak zorunda. Hele bu sözler bir de milyonların izlediği televizyon ekranlarında söyleniyorsa... Bu iş (nöbetçi) İslamcı yazarlarla geçiştirilecek hafiflikte değil. Din alimi bile olsalar birkaç kişinin tekelinde hiç değil.
+       <br/>
+       <br/>
+       Aslında istendiğinde ufacık bir çaba ile din alanındaki herhangi bir konunun uzmanlarına ya da kaynaklarına ulaşılabiliyor. Yine de ulaşamıyorum arkadaş diyenlere çok önemli bir adres: Dini her alandaki uzmanları ve zengin kütüphanesiyle İstanbul Nakkaştepe’deki Türkiye Diyanet Vakfı (TDV) İslami Araştırmalar Merkezi (İSAM). Ve çok önemli bir kaynak: TDV İslam Ansiklopedisi.
+       <br/>
+       <br/>
+       14 yılda Ka’ya geldik...
+       <br/>
+       <br/>
+       İlk fasiküllerini verdiğinde gündeme oturan İslam Ansiklopedisi, unutturulmaması gereken bir eser. İşte doğuşu ve bugünkü durumuyla eserin kısa bir hikayesi: Beş yıllık ön hazırlık döneminde olgunlaştırılan ansiklopedi 1988 yılı Kasım ayında aylık fasiküller halinde yayınlanmaya başladı. Ancak daha sonra fasikül uygulamasından vazgeçilerek yılda iki cilt verilmesi kararlaştırıldı. Telif bir eser olan ansiklopedinin madde dizisi de tamemen orijinal. İlim heyeti tarafından 500 temel kaynak taranarak çıkartılan madde başlıklarının sayısı  atıflarıyla birlikte 22 bini buluyor. Şu anda ‘Ka’ harfi ile ilgili maddeleri yazılan ve 24. cildini okurlarıyla buluşturan ansiklopedinin 25. cildinin çalışmaları sona erdi. Başlangıçta 2000 yılında 30’uncu ciltte bitirilmesi planlanan ansiklopedinin en az 40 cilde ulaşacağı tahmin ediliyor.
+       <br/>
+       <br/>
+       Ansiklopedi çalışması son derece titiz bir çalışma örneği sergilenerek yürütülüyor. Konunun hassasiyeti dolayısıyla ince eleyip sık dokuduklarını belirten yetkililer ansiklopediyi şöyle tanımlıyor: “Türkiye Diyanet Vakfı İslâm Ansiklopedisi; ne yalnızca popüler bir eser, ne de sadece akademik çalışma yapanları ilgilendiren bir ihtisas kaynağıdır. Ansiklopedide titizlikle uygulanmaya çalışılan temel ilke, bütün maddelerin güvenilir kaynaklara dayanması ve doğru bilgiler ihtiva etmesidir. Bu ilkeden taviz vermemek şartıyla bilgi ve kültür seviyesi farklılık arz eden insanımızın bilgi edinme ve aydınlanma ihtiyaçları maddelerin yazımı sırasında göz önünde tutulmaktadır. Ancak gerek muhteva gerekse bibliyografya açısından akademik seviyede araştırma yapan ilim adamlarının beklentilerine de cevap verilmeğe çalışılmaktadır.”
+       <br/>
+       <br/>
+       Bize ve Dünya’ya kaynak...
+       <br/>
+       <br/>
+       “Bize ve Dünya’ya kaynak” sloganıyla yola koyulan İslam Ansiklopedisi’nin içeriği şu ana konu başlıklarından oluşuyor: Türk—İslâm dünyası ile ilgili merak edilen hemen hemen bütün terimler. İslâm—Türk medeniyetinin yetiştirdiği önemli kişiler. İslâm dünyasında ve kültür hayatımızdaki değerli eserler. Tunus’tan Endonezya’ya kadar tüm İslâm ülkeleri. Amerika’dan Rusya’ya; Avusturalya’dan Belçika’ya dünyadaki İslâmi faaliyetler. Bu konu başlıklarıyla ilgili maddelerin inceleme ve radakteleri ise Tefsir, Hadis, Fıkıh, Kelam, Mezhepler Tarihi, Tasavvuf, İslam Tarihi ve Medeniyeti, Türk Tarihi ve Medeniyeti, Dinler Tarihi, İslam Düşüncesi ve Ahlak, İslam Sanatları, Arap Dili ve Edebiyatı, Fars Dili ve Edebiyatı, Türk Dili ve Edebiyatı, İlimler Tarihi, Müsteşrikler ile Müteferrik dallarındaki ilim heyetlerince gerçekleştiriliyor. Ansiklopedi, TDV’ye bağlı İSAM’da yayına hazırlanıyor. İSAM’da 30 kadrolu akademisyen görev yapıyor. Ayrıca 70 akademisyen de dışardan müellif redaktör olarak destek veriyor. Ansiklopedi içeriğine uygun madde yazabilecek Türkiye ve dünyadaki her ilim adamına açık. Ansiklopedinin abone sayısı  ilk yıllarda 130 bine kadar yükselmiş. Şimdilerde 50 bin civarlarında. Bu sayı bile bir ansiklopedi için büyük bir rakam. Ciltlerden elde edilen gelirler basım masraflarını karşılıyor. Karşılamasa bile TDV imkanları eseri tamamlamaya yetecek güçte.
+       <br/>
+       <br/>
+       Türkiye’de TDV İslam Ansiklopedisi’nden başka Milli Eğitim Bakanlığı’nın çıkardığı 13 ciltlik bir İslam ansiklopedisi daha var. Ancak bu eser tercüme ve içerik olarak da zayıf. Bu arada oryantalistlerce hazırlanan İslam ansiklopedisinin yeni baskısı devam ediyor. 10’uncu cildi piyasada olan bu ansiklopedinin basımı Hollanda’da yapılıyor. Eser dünyada itibar edilen kaynaklar arasında. Bir diğer İslam ansiklopedisi de İran tarafından meydana getiriliyor. İran’ın ansiklopedisi TDV’ninkine göre çok yeni.
+       <br/>
+       <br/>
+       İSAM’ın tek görevi İslam Ansiklopedisi’ni hazırlamak değil tabii ki. Merkezde, İslami ilimler ve Şarkiyat alanlarında telif, tercüme ve tahkik eserler üretilerek yayınlanıyor. Konferans ve seminer gibi programlar düzenleniyor ya da bu tür faaliyetlere temsilci gönderiliyor. İSAM bünyesindeki kütüphane araştırmacı ve akademisyenler için eşine az rastlanır bir zenginlik arzediyor. İlmi ve dini konularda komuoyunu aydınlatıcı yayınlar çıkarmak da merkezin başlangıçta belirlenen görevleri arasında.
+       <br/>
+       <br/>
+       Tartışma türü program hazırlayan televizyonculara bir not:
+       <br/>
+       İSAM’ın telefonu: 0.216. 474 08 50.
+       <br/>
+       <br/>
+       İSAM’ın diğer yayınları
+       <br/>
+       <br/>
+       TDV İslam Araştırmalar Merkezi (İSAM), İslam Ansiklopedisi dışında İslam Araştırmaları Dergisi’ni çıkarıyor. ‘İslam, Gelenek ve Yenileşme’; ‘İslam ve Modernleşme’ ve ‘Günümüz Dünyasında Müslüman Azınlıklar’ isimli sempozyumları kitaplaştırıldı. ‘Ahkamü’l—Kur’ani’l—Kerim’ ile ‘Ma’rifetü’l—kurrâi’l—kibar ale’t—tabakati ve’l—asar’ isimli eserleri neşretti. ‘Türkiye’de İslâm’ın Yeniden İnkişafı’, Endonezya’da İslâm ve Hollanda Sömürgeciliği’, ‘İslâm Hukuk Metodolojisinde Tahsis’, ‘Pan—İslamizm: Osmanlı Devleti Hindistan Müslümanları ve İngiltere’, ‘Neden İslâm’ı Seçiyorlar: Müslüman Olan İngilizler Üzerine Psiko—Sosyolojik Bir İnceleme’, ‘Günümüz Aleviliği’, ‘Kelâmda yenilik arayışları’, ‘Sprache, Handlung und Norm (Dil, Davranış ve Hüküm)’, ‘Die politische Rolle der Azhar in der Sadat—Ara (1970—1981) [Sedat Döneminde (1970—1981) Ezher’in Siyasi Rolü]’ ve ‘Doğal Âfetler ve Din (Marmara Depremi Üzerine Psiko—Sosyolojik Bir İnceleme)’ isimli araştırma kitaplarını yayınladı. Merkez aynı zamanda bir ilmihal da bastı. İki ciltlik eser, Prof. Dr. Hayrettin Karaman, Prof. Dr. Ali Bardakoğlu ve Prof. Dr. H. Yunus Apaydın tarafından hazırlandı. Salt klasik görüşlerin deklaresinden oluşmayan ilmihalde imkan ölçüsünde hükümlerin ilke ve amaçları da dile getirilmeye çalışılıyor.
+       <br/>
+       <br/>
+       E—mail: e.akdag@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12088), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225010031/http://www.aksiyon.com.tr:80/detay.php?id=12088)

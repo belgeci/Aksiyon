@@ -1,0 +1,137 @@
+# Din eğitimi siyasete kurban
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050120113238im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050120113238im_/http://www.aksiyon.com.tr/resim/466/41.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1932 ile 1949 yılları arasında din eğitimi verilmedi. Toplumdan gelen talebe karşı duramayan CHP, imam hatip kursları açarak yasağı bitirdi. 1951"den bu yana ülke geneline yayılan din meslek liseleri son yıllarda tartışılmaya başlandı. İlk ve orta kısımları kapatıldı. Ardından da mezunlarının üniversiteye girmesi zorlaştırıldı. Uzmanlar ise din eğitiminin ailede başlaması gerektiğini vurguluyor. "1929 doğumluyum. Çocuklarım ve torunlarım mektepte din dersi okudular, duaları falan öğrendiler. Ben böyle bir şey okumadım. Din bahislerini rahmetli Üftade halamla konuştum... 1935-1951 seneleri arasında Türk musikisinin radyolarda yasaklanması gibi din eğitimi de yasaktı Türkiye"de...
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Ben bu konuda gelişmesini tamamlayamamış birisiyim. Oyunu çocukken öğrenirsiniz, temizliği size evde öğretirler. Biz orayı atladık. Orası bizim hayatımızda boşluktur.
+   <br>
+    <br>
+     Bu meseleyi gönlümce inceleyememiş olmaktan rahatsızım... Yazarken ve söylerken din bilgisiyle mücehhez biri olmayı çok arzu ederdim. Bilmem hangi dönemin tarihini öğrenir gibi gidip üç ay sıkı çalışıp fikir edinilecek bir şey olduğu kanaatinde değilim."
+     <br>
+      <br>
+       Bu sözler çok tanıdık birine, sohbetleriyle ilgi çeken duayen gazeteci Hakkı Devrim"e ait. Nuriye Akman"a bunları 19 Ekim 2003 tarihinde Zaman"da yayınlanan röportajda her zamanki içtenliğiyle anlatıyor Devrim. Röportajın yayımlandığı günlerde imam hatip tartışmaları devam ediyor, tartışma zemini 29 Ekim Cumhuriyet Bayramı"na sürüklenmeye çalışılıyordu.
+       <br/>
+       <br/>
+       <b>
+        Türkiye"nin din eğitimi süreci...
+       </b>
+       <br/>
+       <br/>
+       80"inci yılını kutlayan Türkiye Cumhuriyeti"nde, din eğitimi süreci zikzaklarla dolu. Din ile birey ve din ile toplum arasındaki ilişkinin vazgeçilmezliği sosyolojik ve psikolojik bir gerçek. Türkiye"de bu ilişki zaman zaman göz ardı edilmiş. Hatta kimi zaman yok sayılmış. Sonunda toplumdan gelen istek ve baskılar dayanılmaz noktalara ulaşınca ilişki yeniden dikkate alınmış. İlk din eğitimi veren okullar imam hatip mektebi adıyla 3 Mart 1924"te Tevhid-i Tedrisat Kanunu"nun yürürlüğe girmesinin hemen ardından açılıyor. 4 yıl süreli bu okullar 1930"ların başında kapatılıyor. Gerekçe, halkın okullara rağbet göstermemesi. Peki neden böyle olmuştu? Çünkü, bu okullardan mezun olanlar hiçbir yere gidemiyor, askerliğini yedek subay olarak bile yapamıyordu. Okulların, yasak savma kabilinden açıldıkları yönünde imajı vardı.
+       <br/>
+       <br/>
+       1932"den 1949"a kadar devlet, tabiri caizse din öğretim ve eğitimine kepenk indiriyor. 17 yıllık bu dönemde halk din ve ibadet faaliyetlerinde çok ciddi sıkıntı yaşıyor. Din yeraltında öğretilmeye çalışılıyor. Birçok kişi dinini öğrenme fırsatı bulamıyor. Toplumda dini yanlış anlayan, bilen ve anlatan insanlar sayesinde hurafeler zuhur ediyor. Evlerde gizli gizli Kur"an okutanlara yönelik baskılar şiddetleniyor. Ezan Türkçe okunuyor. Namaz da Türkçe kıldırılmak isteniyor. Bütün bunlar toplumda tepkilere yol açıyor. Tepkiler CHP içinde de dillendiriliyor. Din eğitimi yapılmayan dönemi yansıtan en trajik, belki de trajikomik olay cenazeleri kaldıracak imam bulunamaması. Artık toplumdaki ihtiyacın ve günbegün artan sıkıntıların son noktaya geldiğini fark eden Cumhuriyet Halk Partisi (CHP) 1949"da 10 şehirde 10 aylık imam hatip kursları açıyor. Çok partili demokratik sistemin ilk seçiminde tek başına iktidar olan Demokrat Parti (DP) ise kursların yerine 7 vilayette 7 yıl eğitim veren imam hatip liselerini hayata geçiriyor. Halkın maddi ve manevi destek vererek sahiplendiği bu okullar yurt çapına yayılıyor. Bir ara sayıları 600"ü aşsa da günümüzde yaklaşık 550"si faaliyetini sürdürüyor. Hangi hükümet döneminde ne kadar açıldığının ayrıntısı bir hayli ilginç. 327 okulla rekor 9"uncu Cumhurbaşkanı Süleyman Demirel hükümetlerine ait. Saadet Partisi (SP) Genel Başkanı Necmettin Erbakan"ın hükümet dönemlerinde hiç açılış yok. Buna karşılık Demokratik Sol Parti (DSP) Genel Başkanı Bülent Ecevit hükümetlerinde 33 okul açılmış. 8"inci Cumhurbaşkanı Turgut Özal döneminde ise çoğu şube olan 90 açılış yapılmış.
+       <br/>
+       <br/>
+       1976 yılına kadar direkt üniversite imtihanına alınmayan, sadece İslam enstitülerine gidebilen mezunların, istedikleri üniversite bölümünde okuyabilmeleri için sınav öncesi lise fark derslerini vermeleri gerekiyordu. Normal lise diploması da alan çok sayıda kişi, İslam enstitüsüyle birlikte hukuk, sosyoloji ve edebiyat gibi bölümleri de okudu. Sözü geçen yılda Ecevit hükümeti tarafından Milli Eğitim Temel Kanunu"nun 32. maddesinde değişiklik yapılarak, bu liseler hem mesleğe, hem de yüksek öğrenime öğrenci yetiştiren okul statüsüne kavuşturuldu. Müfredat bakımından düz liseler ile farkı ortadan kaldıran kanun maddesi halen yürürlükte.
+       <br/>
+       <br/>
+       <b>
+        Atatürk din ve din eğitimi için ne diyor?
+       </b>
+       <br/>
+       <br/>
+       Din ile ilgili konular ne zaman gündeme gelse "laiklik" vurgusu yapılıyor. Konu Atatürkçü olup olmamak noktalarına çekiliyor. Katı bir ideoloji halinde topluma sunulan Kemalizm bir yana, ülkenin kurucusu Mustafa Kemal Atatürk"ün bizzat kendisi din ve din eğitimi konularında şöyle diyordu: "Bizim dinimiz en akla yakın, en doğal dindir. Ve ancak bundan dolayıdır ki son din olmuştur. Bir dinin doğal olması için akla, fenne, bilime ve mantığa uygun olması gerekir. Bizim dinimiz bütünüyle uygundur. Müslümanların toplumsal yaşamında, hiç kimsenin özel bir sınıf olarak varlığını korumaya hakkı yoktur. Kendilerinde böyle bir hak görenler, din buyruklarına uygun davranmış olmazlar. Bizde ruhbanlık sınıfı yoktur, tümümüz eşitiz ve dinimizin hükümlerini eşit olarak öğrenmek zorundayız. Her bireyin dinini, din duygusunu, imanını öğrenmek için bir yere gereksinimi vardır. Orası da okuldur. (1923)"
+       <br/>
+       <br/>
+       <b>
+        Dünyada din eğitimi nasıl veriliyor?
+       </b>
+       <br/>
+       <br/>
+       Türkiye"de başından bu yana din eğitimi sadece meslek öğretimi amacıyla kurulan okullarda verildi. 1982 Anayasası"nın 24. maddesiyle normal orta öğretim okullarında da haftada bir saat "Din Kültürü ve Ahlak Bilgisi" adında bir ders zorunlu kılındı. Belki bu kararda, 12 Eylül 1980 askeri müdahalesi öncesinde ideolojik terör olaylarının ortaokullara bile sıçraması etkili olmuştu. İmam hatip sayısındaki artış bu ihtilal sonrasında gerçekleşti. Veliler çocuklarının normal müfredat yanında, din ve ahlak bilgileriyle daha yakından tanışmalarını istiyorlardı. Bu sosyolojik gerçek ortada dururken düz orta öğretim okullarındaki din dersinin isteğe bağlı olması gerektiği yönünde zaman zaman etkin kamuoyu oluşturma gayretleri sergilendi. 8 yıllık kesintisiz eğitimle önce öğrenci kaynağı kesilen İHL"lere, YÖK"ün 50 puan haksız kesintiye yol açan katsayı uygulamasıyla üniversite kapıları bir anlamda kapatıldı.
+       <br/>
+       <br/>
+       Türkiye"de durum böyleyken dünyada din eğitimine önem veriliyor ve özen gösteriliyordu. Adı laiklik ile özdeşleşen Fransa"da din eğitiminde kilisenin ağırlığını görüyoruz. Ülkede hem dini eğitim veren özel okullar, hem de mesleki dini öğretim okulları var. Yüzde 95"i Katolik kilisesine bağlı özel okullardaki din eğitimi devlet okullarından farklı. Devlet okullarında din eğitimi papaz ve rahibelerce teorik ve pratik olarak haftada iki ders halinde veriliyor. Hollanda"da öğrencilerin büyük bir çoğunluğu dini eğitimden geçiyor. Çünkü ülkedeki genel okulların yüzde 73"ünü oluşturan özel okulların çok önemli bir kısmı Katolik ve Protestan kilisesinin elinde. İngiltere"de de din eğitimi kilise tarafından veriliyor. Din dersleri resmi müfredatın bir parçası. Gün okullarda duayla başlıyor. Aksi bir talep olmadıkça öğrenciler mutlaka din eğitimi alıyor.
+       <br/>
+       <br/>
+       Kilisenin din eğitimindeki rolü Almanya"da da değişmiyor. Din dersi ilkokul birinci sınıfta başlıyor. Eyaletlerin birçoğunda haftada 3 saat din dersi veriliyor. Kiliseye bağlı anaokulları da din eğitimi hizmeti sunuyor. İrlanda"da resmi okullarda mecbur tutulmayan din eğitimi çoğunlukla özel okullarda veriliyor. Danimarka"da İrlanda"nın aksine tamamıyla devletin gözetimi ve denetimi altındaki din eğitimi resmi müfredat dahilinde. Avusturya"da din dersi zorunlu. Yürütme ve denetleme hakkı Katolik kilisesinde. Müfredatı da o belirliyor. Din derslerini verme yükümlülüğü cemaatlerde. İlk ve orta dereceli okullardaki haftada iki saat olan din dersi saatini cemaatler isterlerse artırabiliyor.  ABD"de resmi okullarda din eğitimi yok ama devlet kilisenin ve cemaatlerin açtıkları okulları maddi anlamda destekliyor. Çocuğun kişiliğinin, zihni ve fikri gelişiminin temellerinin 3 ile 6 yaş arasında atıldığı pedagojik bilgisinin farkında olan Avrupa Birliği (AB) ülkelerinde okul öncesi eğitimde de dini kavramlar ve ahlaki ilkeler çocuklara veriliyor. Türkiye"de henüz bu yasal değil. Bu yönde girişimde bulunan anaokulları soruşturma geçiriyor.
+       <br/>
+       <br/>
+       <b>
+        Din eğitiminde sorumluluk ailede
+       </b>
+       <br/>
+       <br/>
+       Din eğitiminin aileyi ilgilendiren boyutunu da konunun uzmanlarına sorduk. Marmara Üniversitesi İlahiyat Fakültesi Öğretim Üyesi Prof. Dr. İbrahim Canan, çocuğun din eğitiminde ana sorumluluğun ve görevin ailelerde olduğunu söylüyor. Bu konuda devletin araya giremeyeceğini ifade eden Canan, "Ancak ailenin maddi imkanları elvermezse, sağlık problemi, kötü alışkanlık ve ahlaki davranışları varsa bu durumda devlet çocuğu daha iyi eğitilecek bir yere verebilir. Yakından başlamak üzere diğer akrabaları devreye girebilir. Problem yoksa aile çocuğuna istediği inancı verebilir" diyor. İlk halifeler döneminde devletin, camiler için hoca tutmasına karşın, okullar için yükümlülüğü velilere bırakmasını buna örnek gösteren Canan, günümüzde ailelerin ihmale uğrattıkları bu işi tekrar üstlenmeleri gerektiğini vurgulayarak, şunları aktarıyor: "Aile kaybolan İslami değerleri evladına veremiyorsa verdirecek. Gerekirse hoca tutacak. Terbiye beşikten mezara kadardır. Peygamberimizin (s.a.v) sünnetine göre sistematik eğitim yaşı, çocuğun konuşmaya başladığı yaştır. Fakat bugünün terbiyecileri 4 yaşından itibaren verilmesini önermektedirler. Çocuğa temel bilgiler basitten başlayarak verilmelidir." İtikad, ibadet, ahlak ve adab-ı muaşeret gibi temel bilgilerin kişiye bulûğ çağına kadar mutlaka özümsetilmesine dikkat çeken Canan, "Bulûğ yaşı 15"tir. 18"e kadar uzayabilir. Bir de bu yaşa kadar temel eğitimin içinde meslek bilgisi de aktarılmalıdır. Yani çocuğun hangi mesleğe ilgi duyduğu, neyi iyi yapabileceği belirlenmelidir" diye konuşuyor. Dini eğitimi sadece devlete bırakma kolaycılığının terk edilmesini öneren, bu anlayış yüzünden tinerci, kapkaççı, satanist ve hırsız çocukların sayısında artış meydana geldiğinin altını çizen Prof. Dr. İbrahim Canan bu konuda hassas konumu gereği Diyanet İşleri Başkanlığı"ndan da çok şey beklenemeyeceğini kaybediyor. Canan, başta belediyeler olmak üzere sivil toplum kuruluşlarına görev düştüğünü belirtiyor: "Anne-baba okulları yaygınlaştırılmalı. Sivil toplum kuruluşları politize olmak yerine bu konuya ağırlık vermeli. Bu okullara belediyeler sahip çıkmalı. Burada yetişkinler çocuk eğitimi konusunda yetiştirilmeli. 1967"de İspanya"daydım. O tarihlerde anne-baba kurslarından sertifika almayanlara evlilik izni verilmiyordu." Canan, evlatlarını iyi bir okula göndermeleri halinde de velilerin sorumluluklarının bitmediğini, bir murakıp gibi onları takip etmelerinin şart olduğunu sözlerine ekliyor.
+       <br/>
+       <br/>
+       <b>
+        "Meşruiyeti tartışmaktan, niteliği ele alamadık"
+       </b>
+       <br/>
+       <br/>
+       Süleyman Demirel Üniversitesi İlahiyat Fakültesi Din Eğitimi Ana Bilim Dalı Başkanı Doç. Dr. Ramazan Buyrukçu ise din eğitimiyle ilgili kadim bir konuya parmak basarak, "80 yıldır din eğitiminin meşruiyetini tartışmaktan, niteliğini, nasıl olması ve neler yapılması gerektiğini doğru dürüst tartışamıyoruz" diyor. Siyaset ile eğitim ve siyaset ile din arasındaki ilişkinin sağlam temellere oturtulmaması halinde bu tartışmanın bitmeyeceğini dile getiren Doç. Buyrukçu, "Bu tartışmalar Batı"da bizden çok önce başladı. Belki bizden daha şiddetli ve sancılı tartışmalar yaşandı. Ama sonunda Batı dinin birey ve toplum için bir ihtiyaç olduğu kararına vardı. Mesela Almanya"da devlet din eğitimini kendisi veriyor. Ayrıca kiliselerin eğitim vermesine de imkan sağlıyor" diye konuşuyor. Bireysel görev ve sorumluluk anlayışını oluşturan bir din eğitiminden henüz uzak olduğumuzu açıklayan Buyrukçu, "Bu bir bütündür. Ailede başlar. Okul, çevre, kitle iletişim araçları, varsa cemaatlar bunu destekler. Ama görüyoruz ki çocuk ailede başka, okulda, kitle iletişim araçlarında başka din yaklaşımlarıyla karşılaşıyor. Oysa hepimiz aynı dine inanıyoruz" görüşünü ortaya koyuyor. Ailelerin sorumluluğu başka kurumlara aktarmaya kalkıştıklarını, çocuklarını cami ya da okula göndererek sorumluluklarının bittiğini zannettiklerini söyleyen Buyrukçu, şöyle konuşuyor: "Önce ailenin kendisi örnek olmalı. Ama sadece ibadetler noktasında değil. Dinde esas olan ahlaki davranışların kazandırılmasıdır. Dinin sosyal boyutu ahlaktır. Peygamber de, güzel ahlakı tamamlamak için gönderildiğini söylemektedir. İbadetlerin asıl amacı ahlakı beslemektir. Niye ramazan dışında yardımlaşmayı düşünmüyoruz? Bu besleme olmadığı için." Buyrukçu da, Prof. Canan gibi öncelikle ebeveynlerin yetiştirilmesi gerektiğine vurgu yapıyor: "Asıl, yetişkinlerin din eğitimi masaya yatırılmalıdır. İşe ailelerin yetiştirilmesinden başlanmalıdır. Peygamber döneminde böyle olmuştur. Bu konuda Diyanet İşleri Başkanlığına, sivil toplum kuruluşlarına, kitle iletişim araçlarına görev düşmektedir. Mesela Diyanet İşleri, yetişkinler için çocuk eğitimi üzerine uzmanların vereceği dersler ayarlayabilir. Seminerler, sempozyumlar düzenlenebilir. Bilgilendirici küçük kitaplar bastırabilir. Bu konuda çok büyük açık var. Halk eğitim merkezleri, beceri kurslarının yanı sıra çocuk yetiştirilmesiyle ilgili kurslar düzenlese kıyamet mi kopar? Şunu da söylemek istiyorum; hem dindar çevreler, hem de laikliğe özen gösterenler boş endişelerden kurtulmalılar. Dinin bir çatışma unsuru  olmasını ortadan kaldırmalılar."
+       <br/>
+       <br/>
+       <b>
+        Baba henüz doğum aşamasında şapkayı önüne koymalı...
+       </b>
+       <br/>
+       <br/>
+       Ruh Sağlığı ve Hastalıkları uzmanı Psikiyatr Bahadır Bakım, eğitimin çok küçük yaşlarda başlatılmasının şart olduğunu belirterek, "Baba daha çocuğu doğar doğmaz şapkasını önüne koymalıdır. Ben çocuğumu en iyi şekilde yetiştirebilmek için kendimde neleri düzeltmeliyim, ona nasıl bir eğitim zemini hazırlamalıyım demelidir" diyor. 5 ile 12 yaş dönemi arası çocukların çevrelerindeki olayları dikkat kesilerek izlediklerini; neye meylettiklerinin bu dönemde saptanabileceğini söyleyen Bakım, "Ebeveynler çocuklarına her konuda örnek olmalılar. Ama sevdirerek, kolaylaştırarak, basite indirgeyerek. Ayrıca yapmadıkları şeyleri onlardan istemek ters etki yapar. Anne baba çocuğunda olmasını istediği dini ve ahlaki değerleri kendisi yaşamayacak, sonra da 12 yaşına geldiğinde hadi oğlum, kızım şöyle yap diyecek. Bunun için bu yaş artık çok geçtir" diyerek velileri uyarıyor. Öncelikle anne babaların ahlaki ve dini gelişimlerini tamamlamalarının önemine işaret eden Bakım,  bunun için adeta bir seferberlik halinde, kitle iletişim araçları ile sohbet ortamlarının iyi değerlendirilmesini öneriyor.
+       <br/>
+       <br/>
+       <b>
+        80 kişilik sınıflar kaliteyi düşürdü...
+       </b>
+       <br/>
+       <br/>
+       Şimdiye kadar 2 milyon kişinin İHL sıralarından geçtiğini ifade eden İmam-Hatip Mezunları ve Mensupları Derneği (ÖNDER) Başkanı İbrahim Solmaz, imam eğitim kalitesindeki düşüşü kabul ediyor ama bunu şunlara bağlıyor: "İnsanlar din eğitimi ihtiyaçlarını giderebilmek için İHL"lere dört elle sarıldılar. Çocuklarını göndermek için birbirleriyle yarış ettiler. 300 kişilik kontenjana 3 bin civarında başvuru oluyordu. Sınıflara 70-80 öğrenci doldu. Aslında yanda bir okul daha olsa orası da fazlasıyla dolacaktı. Her şeyi hazır 125 okul, açılmayı bekliyordu. Kapasite üzerindeki öğrencinin kontrolü zor. Eğitim aksıyor. Küçükçekmece"deki açılmayan 5 bin kapasiteli İHL binasına adliye binası olarak el konuluyor. Beşiktaş ve Pendik"teki dev binalar boş duruyor. "
+       <br/>
+       <br/>
+       <b>
+        "Kimsenin arka bahçesi değiliz..."
+       </b>
+       <br/>
+       <br/>
+       Bu okulların hiçbir siyasi ya da ideolojik görüşün arka bahçesi olamayacağını söyleyen Solmaz, "Bunlar Vehhabi yetiştiriyorlar. Bunlar İrancıdır, Arap milliyetçisidir. Türk değildir, Türk lafını ağızlarına almazlar. Cumhuriyet okulu değildir" denildiğini de hatırlatarak,  şöyle konuşuyor: "Bu sözler karalamadır. Halk nazarında itibarı yoktur. Erbakan"ın böyle bir söz söyleyip söylemediğini bilmiyorum. Söylese bile bu ondan sorulacak bir hesaptır. Okulları karalamaya kimsenin hakkı yok. Geçmiş dönemlerdeki Meclis"ten MHP Grup Başkanvekili İsmail Köse, ANAP TBMM Başkan Vekili Hasan Korkmazcan, DYP Anayasa Komisyonu Başkanı Ahmet İyimaya, BBP Genel Başkan Yardımcısı Recep Kırış İHL mezunudur. Hangi partiyi sayarsanız sayın hepsinde İHL mezunları bulunmaktadır. Mezunlarımız istediği partiye gitmektedir. Kaldı ki siyasi amaçla kimse çocuğunu buraya göndermez. Velilerimiz aynı siyasi görüşte olsaydı, Saadet Partisi yüzde 2 oy almazdı. Türkiye"de bir kesim, insanların dinini öğrenmesine fırsat verilmesin istiyor. Bu, gerçeğe ve toplumun temel ihtiyaçlarına aykırıdır. Devlete en az maliyetle en yüksek katma değer bu okullarda sağlanmaktadır. Yüzde 95"ini halk yaptırmıştır."
+       <br/>
+       <br/>
+       <b>
+        Türkiye İmam-Hatipliler Vakfı (TİMAV) Başkanı
+        <br/>
+        MEHMET EMİN PARLAKTÜRK:
+        <br/>
+        DİN EĞİTİMİ ANAOKULUNDA BAŞLAMALI
+       </b>
+       <br/>
+       <br/>
+       Türkiye"de de din eğitimi, Avrupa"da olduğu gibi anaokulundan ve kreşlerden başlamalıdır. Avrupa"daki Türk çocukları için ilköğretim 1. sınıftan itibaren din dersi kitapları bastırıp yurt dışına gönderen Milli Eğitim"in Türkiye"de 4. sınıftan itibaren bu dersi başlatması, son derece tutarsız ve paradoksal bir durumdur.
+       <br/>
+       <br/>
+       Türkiye"de problem olan, imam-hatip liseleri değil, din eğitiminin yetersizliğidir. Anayasa"da zorunlu olmasına ve Milli Eğitim"in genel ilkeleri sayılırken sıkça atıfta bulunulmasına rağmen, din ve ahlak eğitimine maalesef yeterli düzeyde yer verilmemektedir.
+       <br/>
+       <br/>
+       Yapılacak şey şudur. Evsensel değerler doğrultusunda insan haklarının vazgeçilmezlerinden olan din ve vicdan özgürlüğü, inancını ifade edebilme, inancını yaşama ve onu öğrenme hakkı savunulmalı, bunu tam anlamıyla gerçekleştirmek için mücadele etmelidir. Eğer laiklik din eğitiminin devlet tarafından verilmesine engel teşkil ediyorsa, bu iş halka bırakılabilir. Halk, batıdaki bağımsız kiliseler gibi sivil toplum olarak teşkilatlanmasını yapacak ve dini ihtiyaçlarını kendi içinde giderecektir.
+       <br/>
+       <br/>
+       Türkiye"nin imam ihtiyacı Diyanet"in verilerine göre 40 bin civarındadır. Her camiye müezzin ihtiyacı da düşünülürse rakam ikiye katlanır. Vaiz ihtiyacıyla birlikte rakam 100 binlere ulaşacaktır. Ayrıca Milli Eğitim Bakanlığı din kültürü ve ahlak bilgisi öğretmeni ihtiyacının 20 bin dolaylarında olduğunu açıklamaktadır.
+       <br/>
+       <br/>
+       Cezaevleri, hastaneler ve benzeri kurumları hesaba katarsak, imam-hatip mezunlarının ihtiyacı bile karşılayamadığı görülür.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3175), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050120113238/http://www.aksiyon.com.tr:80/detay.php?id=3175)

@@ -1,0 +1,67 @@
+# Tanıtımı yapılırsa Paris'i geçer
+
+*İbrahim Doğan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Birçok dalda başarıya imza atan Fatih Koleji"nin öğrencileri, bu kez de kentlilik bilincinin artırılmasını amaçlayan projelerle İstanbul"un sorunlarına çözüm bulmaya çalışıyor.
+   <br/>
+   <br/>
+   İstanbuluşum adıyla hazırlanan çalışmalardan biri olan İstanbul'da Reklamcılık Projesi'ne göre reklam yapılması durumundaşehrin Paris"i geçmesi mümkün.
+   <br>
+    <br>
+     İmparatorluklara başkentlik yapmış, her adımında tarih kokan İstanbul"un trafik, çöp gibi sorunlarının temelinde kentlilik bilincinin olmaması yatıyor. Yabancılar dünyanın öbür ucundan İstanbul"daki tarihi dokuyu görmeye gelirken, şehrin içinde yaşayanlar burnunun dibindeki eserlere ilgi duymuyor. Üstelik onları korumak için çaba da gösterilmiyor. İstanbul Büyükşehir Belediyesi "Kentim İstanbul" kampanyasıyla İstanbul bilinci sağlamaya çalışırken, Fatih Koleji öğrencileri de buna katkı yaparak İstanbul ile ilgili 60"a yakın sosyal proje hazırladı.
+     <br>
+      <br>
+       Yeterli reklam yapılmıyor
+       <br>
+        <br>
+         Kentin sorunlarına çözüm önerileri getiren bu projelerden bir tanesi İstanbul"un tanıtımı ile ilgili. Yasin Darbaz, Samet Meral, Mustafa Azami ve Fatih Berk"in hazırladığı projeye göre amaç İstanbul"un reklam şehri olması. "2 buçuk milyonluk Paris"e yılda 15 milyon turist giderken, 12 milyonluk İstanbul"a neden 2 milyon turist geliyor?" sorusu ile yola çıkan lise birinci sınıf öğrencileri, öncelikle İstanbul için yapılan reklamların yeterli olmadığı sonucuna varmış. "Paris bir demir yığını olmasına rağmen milyonlarca turist gidiyor. Halbuki İstanbul üç imparatorluğa başkentlik yapmış, tarih kokan bir şehir." Turist gelmemesinin en büyük nedeninin yeterli reklamın yapılmaması olduğu ortaya çıkmış. Halkın yüzde 77"si İstanbul için reklamın yetersiz söylüyor. 7 tepeli şehir için Kültür Bakanlığı"nın yaptığı ve 6 ay süren reklamın yeterli olmadığını anketlerle ortaya çıkaran Darbaz ve arkadaşları, reklamın süreklilik arz etmesi gerektiği sonucuna varmış. "Kültür Bakanlığı"nın yaptığı reklam oldukça iyi. Ama sürekli olmadığı için akılda kalmıyor. Fırının sönmemesi gerekiyor."
+         <br/>
+         <br/>
+         Reklamlar film gibi olmalı
+         <br/>
+         <br/>
+         Halkın büyük kısmı, reklamların film gibi olması gerektiğini düşünüyor. 300 turiste sordukları "İstanbul denilince aklınıza ne geliyor?" sorusunda ise "Boğaz ve mükemmel" kelimeleri ön plana çıkıyor. Ankete katılan turistlerin yüzde 90"ı İstanbul"u temsil edebilecek objelerin "Boğaz ve camiler" olduğunu belirtiyor. "Bu objeler kullanılarak Avrupa"da reklam filmi yapılırsa, Türkiye"ye büyük getirisi olacaktır. Böylelikle İstanbul turizm şehri olabilir."
+         <br/>
+         <br/>
+         Yasin Darbaz, projelerinin devreye girmesi için öncelikle şehirdeki trafik sorununun çözülmesi gerektiğini belirtiyor. Anketlerde "Reklamın iyisi kötüsü olur mu?" sorusuna yüzde 66 hayır, yüzde 34 evet cevabı verilmiş. Bu sonuçlara göre terör olayları ile İstanbul"un reklamının yapılamayacağı ortaya çıkıyor. Ayrıca yapılacak reklamlarda çocuk faktörünün göz ardı edilmemesi gerekiyor. Ev içinde reklamı en çok beğenerek izleyen kesim yüzde 68 ile çocuklar. Halkın yüzde 66"sı ise bilboardların görüntü kirliliğine neden olduğunu ifade ediyor. Henüz 15 yaşında olmasına rağmen İstanbul"un tanıtımı ile ilgili projeler hazırlayan Yasin Darbaz, "Bu tür ciddi projede yer almak hoşuma gidiyor. Benim için bunun erken olduğunu düşünmüyorum" diyor.
+         <br/>
+         <br/>
+         Boğazlar güvenli değil
+         <br/>
+         <br/>
+         Bir diğer proje ise Boğazların Güvenliği. Muhammed Sağcan, İsmail Hakkı Topçu, Fazlı Kazak ve Muhammed Torun'un hazırladıkları projeye göre İstanbul'un iki yakası yeteri kadar korunmuyor. Lise birinci sınıf öğrencileri, "Boğazlar şu anki anlaşmalardan dolayı sadece takip ediliyor, gözetleniyor. Bir gemi geçerken onu kontrol etmek ya da durdurmak mümkün değil." Boğazdan geçen yabancı gemilerin kılavuz kaptan alma zorunluluğu bulunmuyor. Öğrenciler, kazaların yüzde 90"ının kılavuz kaptan almayan gemilerden kaynaklandığını belirtiyor. "Yabancı ülkelerden gelerek Boğazdan geçen gemilerin kılavuz kaptan alması zorunlu olmalı. Diğer ülkeler çıkarlarına ters olduğu için bunu kabul etmeye yanaşmıyor. Ancak halk bilinçlendirilip, kamuoyu oluşturulursa o zaman bu değiştirilebilir."
+         <br/>
+         <br/>
+         Hollanda gibi ülkelerden günde 15-20 gemi geçtiği zaman halkın protesto gösterileri yaptığını hatırlatan Sağcan, İstanbul"dan günde ortalama 134 gemi geçtiğini ancak halkın buna herhangi bir tepki göstermediğini belirtiyor. Ayrıca gemilerin hayali şirketlere sigorta yaptırdığını ve kaza durumlarında Türkiye"nin maddi bir talepte bulunamadığını söyleyen Muhammed Sağcan, bunun için sigorta işlemlerinin online ağ ile yapılması gerektiğini anlatıyor. Gemilerden ton başına alınan 0.83 frankın hazine yerine oluşturulacak merkezi para fonuna aktarılması durumunda bu paranın Boğazların güvenliğinde kullanılabileceğini söylüyor: "Bu para direkt Boğazlara harcanırsa yabancı gemilerin yangın, karaya oturma gibi durumlarına karşı kıyı emniyeti küçük gemiler yerine büyük ve hızlı gemiler satın alabilir."
+         <br/>
+         <br/>
+         Fransa"da Türkiye"yi temsil edecekler
+         <br/>
+         <br/>
+         Fatih Koleji'nde öğretmen olan ve İstanbuluşum'un organizasyon heyetinde yer alan Hatice Kuvan, hazırlanan projeler sonrası öğrencilerin İstanbul"u keşfederek tanıdığını düşünüyor. Tembel olan bir öğrencinin proje hazırlamak için oluşturulan gruplardan birine katıldıktan sonra büyük değişiklik gösterdiğini ve çalışkan bir öğrenci olduğunu söyleyen Kuvan, böylelikle projelerin öğrencileri sosyalleştirdiğini vurguluyor. Jüri üyelerinden Reha Yeprem, şanssız bir lise hayatı geçirdiğini belirterek, "Lise yıllarımda böyle projelerim olsaydı bugün Yeşilçam yerine Hollywood"da olurdum" diye hayıflanıyor. Jüride yer alan diğer bir isim Prof. Dr. Ümit Meriç, genç yaştaki öğrencilerin istanbul'a sahip çıkmasının fevkalede önemli olduğunu belirtti: "Bu projeler ülkenin yönetimine el koyma şuurunun erken yaşlarda benimsenmeye başladığını gösteriyor. Böyle bir yarışma Türkiye"deki eğitim kurumları arasında rekabet ruhunun oluşması açısından da oldukça önemli." Şehirleşme ile ilgili çalışmaları ile öne çıkan jüri üyesi Mustafa Armağan projelerin kentlilik bilincinin oluşması açısından önemli olduğunu dile getiriyor. "Bilinçlenmenin bu yaşlarda olması gelecekte silinmez bir etki bırakacak. Gelecekte şehirlerine bakışları farklı olacak. Bir çevre duyarlılığı, çağdaş bir toplum olmanın gereği, çevresinin problemlerine çözümler üretmeye yönelik bir pozisyon kazanmak demektir."
+         <br/>
+         <br/>
+         29 proje arasından birinciliği alan "İstanbul"un Reklamı" haziran ayı içinde Fransa"da yapılacak uluslararası bir yarışmada Türkiye"yi temsil edecek.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1541 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11512), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050223015615/http://www.aksiyon.com.tr:80/yazdir.php?id=11512)

@@ -1,0 +1,67 @@
+# Dindar bir sosyal demokratın ölümü
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005324im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225005324im_/http://www.aksiyon.com.tr/resim/382/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Saati Meclis mescidinde kaybolmuş, ‘bulan varsa...’ ilanı günlerce mescidin kapısında asılı kalmıştı. Sonunda saati bulunmuştu Şahin’in. Ama bu saat şimdi tümden durdu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tarih, 17 Kasım 1993. Türkiye Büyük Millet Meclisi Adalet Komisyonu o gün biraz telaşlıdır. DYP—SHP koalisyon hükümetinde uzun zamandır tartışılan ve DYP’nin muhafazakar kanadının büyük tepkilerine sebep olan, adeta daha önce ANAP tarafından kaldırılan Türk Ceza Kanunu’nun 163. maddesinin yeniden getirilmesi şeklinde yorumlanan Terörle Mücadele Yasa Tasarısı görüşmeleri vardır. ANAP ve Refah Partisi de değişikliğe karşıdır. Başta ZAMAN olmak üzere sağduyulu basın da yapılacak değişikliğin Türkiye’yi geri götüreceği inancını dile getirmektedir. Eski DYP Afyon milletvekili Etem Kelekçi’nin başını çektiği DYP’li bir grup milletvekili ise hazırlanan tasarının Meclis Adalet Komisyonu’ndan geçmemesi için kulislerini hızlandırmışlardır. İşte böyle nabzı yüksek bir atmosferde komisyon toplantısı başlar. Fakat o da ne! Komisyon toplantısına gelen vekiller kadar gazeteciler de şaşırmıştır; böylesi önemli bir toplantıda komisyonun SHP’li Başkanı ortalarda gözükmemektedir. Birçok SHP milletvekili kendi aralarında bunu eleştirirken, komsiyon toplantısını vekaleten DYP Adana Milletvekili Ali Yalçın Öğütcan yönetir. İşte ‘koalisyonda büyük kriz’ olarak değerlendirilen ve günlerce Meclis’te konuşulan karar böyle bir ortamda alınır; TCK’nın 163. maddesinin geri getirilmesi olarak nitelendirilen Terörle Mücadele Yasa Tasarısı’ndaki ilgili maddeler SHP’ye rağmen DYP, ANAP ve RP’lilerin ortak çalışmasıyla tasarıdan çıkarılır. Değişiklik önerisi ise eski RP’lilerden gelir. Van Milletvekili Fethullah Erbaş ile Bayburt Milletvekili Bahattin Elçi’nin verdikleri önergeyle ‘Cumhuriyetin laik niteliğini bozucu yazılı ve sözlü propagandayı’ suç sayan madde metne dahil edilmez. Komisyon toplantısına katılmayarak sol kesimin şimşeklerini bir anda üzerine çeken ve bu tarihten sonra da sık sık bu konuyla ilgili sert ve acımasız eleştirilere uğrayacak olan isim, geçtiğimiz hafta 65 yaşında vefat eden eski SHP Çorum Milletvekili ve eski Meclis Adalet Komisyonu Başkanı Avukat Cemal Şahin’den başkası değildi..
+   <br>
+    <br>
+     İlahiyat Fakültesi’nin açılışındaydı
+     <br>
+      <br>
+       Gazetelere ‘DYP, ortağına gol atarken SHP’li Başkan İlahiyat Fakültesi açıyordu’ şeklinde cümlelerle geçen olayın esası şuydu: Dönemin Milli Eğitim Bakanı Nevzat Ayaz, Çorum’da açılacak İlahiyat Fakültesi ile Anadolu Lisesi Çıraklık Merkezi’nin açılış törenine yöre milletvekili olması nedeniyle Cemal Şahin’i de davet eder. Her milletvekilinin ilgi göstereceği gibi Cemal Şahin de törenlere iştirak eder. Ertesi gün özellikle bir kısım basın, Şahin’in üzerine üzerine gelmektedir. SHP’li Adalet Komisyonu Başkanı’nı “Önceden planlanmış bir program vardı. Bu programı da ben değil Milli Eğitim Bakanlığı yapıyor. Bu programa katılmak üzere seçim bölgem olan Çorum’a gittim. Komisyon toplantısına katılsaydım değişiklikleri önlemeye çalışır, yetkimi kullanıp tasarıyı askıya alırdım. Şimdi Genel Kurul’da değişiklik için çaba harcayacağım’ cümleleri de kurtarmaz. Hürriyet Başyazarı Oktay Ekşi, Cemal Şahin’i eleştirirken hayli sert ifadeler kullanmaktan geri kalmaz; “Bunların isimlerini tescil etmekte yarar var. Özellikle Komisyondaki görüşmede bulunması ve ‘Başkan’ sıfatıyla görüşmeleri yönetmesi gerekirken İlahiyat Fakültesi açma töreninde bulunmak için Çorum’a giden SHP Çorum Milletvekili Cemal Şahin’in adını duvarlara yazmak lazım. Çünkü sadece Meclis’te ettiği yemine değil, mensubu olduğu partinin tarihine, ruhuna, programına da bu kadar aykırı davranan bir kimseyi unutmaya kimsenin hakkı yoktur”. Bu olay, Şahin’in bir dönem sonra siyasi çizgisini de değiştirmesine sebep oldu. SHP’den istifa etti, DYP’ye katıldı. Ancak orada da rahat olamadı. DYP’de de birkaç kez istifa noktasına kadar geldi. Merhum Şahin’i ilginç kılan ise hiç kuşkusuz, iki dönem (18. ve 19. dönemler) gerçekleştirdiği parlamenterlik hizmetleri yıllarındaki faaliyetleriydi.
+       <br/>
+       <br/>
+       Öngörüleri gerçekleşti
+       <br/>
+       <br/>
+       Meclis Adalet Komisyonu Başkanı iken ‘çifte maaş’ tartışmaları sebebiyle başı bir hayli ağrımıştı. Dönemin Meclis Başkanı Hüsamettin Cindoruk’un çifte maaşın birini kesmesine itiraz eden Şahin, konuyu yargıya intikal ettirmiş, yürütmeyi durdurma davası açmıştı. Ancak mahkeme bunu reddetti.
+       <br/>
+       <br/>
+       İdam cezasının kaldırılması için yasa önerisi verdi, ancak bu teklifi dönemin DYP—SHP hükümeti tarafından uygun bulunmadı. Başbakan Demirel, Şahin’in bu önerisine ‘güvenlik sorunlarını ve toplumsal tepkiyi’ gerekçe göstererek karşı çıkmıştı. Şimdi ise AB kapısında bulunan Türkiye, idamı tümüyle yasalardan çıkarmak için çalışmalar yapıyor.
+       <br/>
+       <br/>
+       Boşanmayı kolaylaştıran teklifi ise dönemin başbakanı Süleyman Demirel tarafından uygun karşılanırken, ANAP eski milletvekili İmren Aykut tepkide bulunmuş ve ‘Şahin, herhalde karısını boşamaya hazırlanıyor’ yorumunu yapmıştı. Şahin bu yasa önerisinin üzerinde çok durdu. “Ölene kadar bu yasanın çıkması için çalışacağım’ ifadesinde bulunmuştu. İlginç bir zamanlama; boşanmayı kolaylaştıran Medeni Kanun değişikliği Şahin’in ölümünden hemen önce gerçekleşti.
+       <br/>
+       <br/>
+       Cemal Şahin’in, ANAP’lı İmren Aykut’la ilginç çekişmeleri de oldu. Bunlardan birisi de tuvalet tartışması idi. İmren hanım, Meclis’teki odasının yakınında bulunan tuvaletin anahtarını kendisi alınca, bu Meclis sekreterlerinin şikayetine sebep olmuş, Cemal Şahin de konuyu Meclis Başkanlık Divanı’na getirmişti.
+       <br/>
+       <br/>
+       Dünyanın dört bir yanından gelen fakslar
+       <br/>
+       <br/>
+       Cemal Şahin’in adından sözettiren bir uygulaması da sigara ile mücadele edenlerle arasında geçen bir diyalogda yatıyordu. 14 Mart 2001 sigara etkinlikleri çerçevesinde Prof. Dr. Elif Dağlı tarafından verilen bir konferansta Cemal Şahin’le ilgili ilginç bir ayrıntı yer almaktaydı. Anekdota göre Prof. Dağlı, bir ekiple birlikte ziyaretine geldikleri Meclis Adalet Komisyonu Başkanı Şahin’den bir ricada bulunur; başından beri ANAP’lı Bülent Akarcalı ile birlikte sigara ile mücadele eden Tokat Milletvekili Ahmet Fevzi İnceöz tarafından hazırlanan sigara kanun teklifinin komisyonda bir an önce görüşülmesini talep ederler. Dağlı ve arkadaşları teklifin, başta dünyaca ünlü sigara şirketi Philip Morris Products A.S. ve öteki sigara şirketleri tarafından engellendiğini düşünmektedirler ve bu fikirlerini Şahin’e de aktarırlar. Şahin bu görüşmede ‘sigaranın kanser yapmadığına ilişkin elinde bazı profesörlerin verdiği raporların bulunduğunu’ iletir, bu ziyaretçilerine. Bu sırada heyetle Şahin arasında Dağlı’nın ifadesine göre ‘bir gün sürecek sempozyuma sığmayacak’ bir konuşma geçer. Tartışırlar... Bu konudaki son söz bayan Prof’a ait; “Sn. Cemal Şahin bu yasayı kadük etmek istedi. Ama biz uluslararası çok ciddi bir baskı grubu oluşturduk. Bizim bir internet hattımız var, sadece bu konuyla çalışanlara açık. Bütün Afrika’nın değişik yerlerinden Cemal Şahin’e faks yağdı, bu yasa bütün ülkelerde makul bir yasadır, Türk insanını düşünmek istiyoruz diye. Bu tepkilerin ardından kadük edemedi. Yasayı alt komisyona verdi. Sonradan öğrendik ki Cemal Şahin bu gelen faksların hepsini toplamış, dosyalamış, Çorum’a gittiği zaman seçmenlerine ‘bakın ben dünyada ne kadar tanınan bir adamım, bana herkes mektup gönderiyor’ diye göstermiş.”
+       <br/>
+       <br/>
+       Saatini kaybetmişti...
+       <br/>
+       <br/>
+       Kendisini Alevi olarak tanımlardı. Fakat Şahin, esasen Caferi idi. Ilımlı bir kişiliği vardı. Meclis’in muhalefet kulisinin alt katında bulunan mescitte sık sık namaza giderdi. Bir defasında abdest alırken kol saatini unutmuş, saat günlerce bulunamamıştı. Şahin’in kendi el yazısıyla yazdığı ‘bulanların getirmesi’ dileğini içeren metin de günlerce kapıda asılı kalmıştı. Sonunda, saati götüren insafa gelmiş, geri getirip aldığı yere koymuştu.
+       <br/>
+       <br/>
+       Ancak saat bu kez tamamıyla durmuştu. Tarih, 20 Mart 2002’yi gösterdiğinde, yıllarca önce çalınan saati bu kez artık ilerlemiyordu. Şahin’in naaşı, Meclis’te düzenlenen sade bir törenle sessiz sedasız kaldırıldı. Allah rahmet eylesin...
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11935), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005324/http://www.aksiyon.com.tr:80/detay.php?id=11935)

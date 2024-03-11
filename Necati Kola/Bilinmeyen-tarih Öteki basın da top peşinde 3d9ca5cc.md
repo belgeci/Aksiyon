@@ -1,0 +1,79 @@
+# Öteki basın da top peşinde
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227093612im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227093612im_/http://www.aksiyon.com.tr/resim/356/68.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  ‘Ne sağcıyım, ne solcu, futbolcuyum futbolcu.’ Bu söz çok eskilerde kaldı. Artık futbolcular düşünüyor ve düşüncelerini rahatlıkla ifade ediyor. Sağ ve sol basının futbola sakıncayla baktığı günler de geride kaldı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Artık onlar da başta futbol olmak üzere spora önem veriyorlar. İkitelli’nin dışında kalan, İstanbul’un Çobançeşme, Bayrampaşa, Sefaköy, Mahmutbey, Merkezefendi ve Beşyol gibi semtlerine dağılan ve ‘diğer kısım medya’ olarak adlandırılan bu gazeteler, ortalama üç sayfalarını spora ayırıyorlar. Evet, konumuz, son on yılda sporda çok büyük değişim gösteren ‘diğer kısım medya’. Nereden nereye geldiler, ne yapıyorlar, nereye gidiyorlar?
+   <br>
+    <br>
+     Atalay: Sağ kesim sporu geç fark etti
+     <br>
+      <br>
+       Sağ kesimde spor denince akla ilk gelen isim Mehmet Atalay. Şu anda Yeni Şafak Gazetesi Genel Müdürü olan Atalay, Trabzon Karadeniz Gazetesi’nde gazetecilik hayatına atıldı. İstanbul Üniversitesi Edebiyat Fakültesi’ni kazanınca Milli Gazete Yayın Danışmanı Sadık Albayrak’ın spor servisi kurma teklifini kabul etti. Milli Gazete’nin spor macerası, Atalay’la birlikte haftada bir sayfa olmak üzere 1985 yılında başladı. Bu sayfanın ilanlar nedeniyle zaman zaman çeyrek sayfa, zaman zaman bir köşe yazısıyla bile çıktığı oldu. Atalay, ‘Tüm olumsuzluklara rağmen spor sayfasının çıkması okurlar tarafından desteklendi. Okurlarımız, artık gençlere okutabileceğimiz bir gazete var demeye başladılar’ diyor.
+       <br/>
+       <br/>
+       Mehmet Atalay, sonra Tercüman’a geçti, 1990 yılında da Zaman Gazetesi Spor Müdürü oldu. İlk senesinde Yılın Sporcusu Anketi’ni başlatan Atalay, spor camiasını Zaman ile, Zaman’ı da spor camiası ile tanıştırdı. Recep Tayyip Erdoğan’ın belediye başkanı seçilmesiyle birlikte İstanbul Büyükşehir Belediyesi Spor Etkinlikleri Genel Müdürü olan Mehmet Atalay’ın sağ basınla ilgili düşünceleri şu şekilde: ‘Artık yöneticiler sporun çok önemli olduğunu geç de olsa anladılar. Spor olmazsa okuyucu başka gazete alıyor çünkü. Özellikle Zaman Gazetesi birçok eleman yetiştirdi, yetiştirmeye de devam ediyor. Genel olarak bütün gazeteler epey mesafe aldılar; ama yapılması gereken çok şey var. Sağ basın olarak oldukça değiştiğimiz de bir gerçek. Mesela, yıllar önce güreşçi Fevzi Şeker’in röportajına ‘Başarımı imanıma borçluyum’ başlığını atmıştık. Bugün ben bu başlığı attırmam.’
+       <br/>
+       <br/>
+       Zaman’ın hedefleri çok büyük
+       <br/>
+       <br/>
+       Şu anda sağ basında spora en fazla yatırım yapan gazete Zaman. 3 Kasım 1986 yılında yayın hayatına başlayan Zaman’ın 31 Aralık 1987 tarihine kadar spor sayfası yoktu. Gazete merkezinin Ankara’dan İstanbul’a taşınmasıyla birlikte spora bir sayfa ayrıldı. Zaman’ın daha geniş kitlelere ulaşması ve spor camiasıyla tanışması da Yılın Sporcusu Anketi’yle gerçekleşti. Kendi elemanını kendi yetiştiren Zaman, bugün itibariyle üç sayfasını spora ayırıyor, önemli maçları zaman zaman birinci sayfanın sürmanşetine taşıyor. Bayrağı Halil İbrahim Ekiz’den devralan Spor Müdürü Hayri Beşer, sağ basının sporda çok büyük değişim gösterdiğini belirterek şunları söylüyor: ‘Bir zamanlar spor sayfası olsa da olur deniyordu, bugün mutlaka olmalı deniyor. Bu bence çok büyük bir aşama. Fakat spor sayfaları ne kadar ideal? Sağ basın kendine özgü bir spor anlayışı geliştirebildi mi? Bence, hayır. Onlar da işin kolaycılığına kaçıp futbol havuzunda yüzmeyi tercih ettiler. Spor sayfaları diğer basının bir taklidi. Üstelik teknik ve eleman yetersizlikleri de var.’ Hayri Beşer, görevine yeni yayın döneminde kendilerine yeni hedefler belirlediklerini söylüyor. Zaman’ın yeni bir yayın dönemine gireceği 3 Kasım’dan itibaren her gün dört sayfalık bir ek vereceğiz. Her branşta bilgiye ve araştırmaya yönelik haberlere yöneleceğiz. Türk basınına örnek olacak bir çalışmanın içerisindeyiz. Genç ve yetenekli bir ekibimiz var. Teknik eksikliklerimiz de gideriliyor. Bu dört sayfalık ek, çıkarılması düşünülen spor gazetesinin de temelini oluşturacak.’
+       <br/>
+       <br/>
+       Milli Gazete’de spor devrimi
+       <br/>
+       <br/>
+       En fazla değişim gösteren gazetelerden biri de Milli Gazete. İlk on yılında spora hiç yer vermeyen Milli Gazete, 1985 yılından itibaren haftada bir  gün bir sayfasını spora ayırmaya başladı. 1992 yılında günlük çeyrek sayfa yer ayrıldı. Gelen olumlu tepkilerden sonra sporun yeri yarım sayfaya çıkartıldı. Fransa 98 Dünya Kupası’nda arka sayfa tamamen spora tahsis edildi. Okuyucular bu gelişmeden sonra gazeteyi telefon yağmuruna tutunca renkli olan arka sayfa sporda kaldı. Daha sonra çok ilan gelince spor servisi kendi isteğiyle iç sayfaya geçti. Şu anda biri renkli iki spor sayfası olan Milli Gazete’nin spor servisinde beş kişi çalışıyor, Kanal 7 Spor Müdürü Kemal Belgin de yazarlık yapıyor. Editör Hamit Dizman, 1999’da yaptığı ‘Trakya’nın 1. Lig’de neden takımı yok?’ araştırmasıyla Türkiye Spor Yazarları Derneği’nden mansiyon ödülü aldı. Ödülü de Mustafa Denizli verdi. Önemli maçları birinci sayfadan anonslayan Milli Gazete, geçen yıl attığı ilginç bir başlıkla gündeme geldi: “Gebelik testi yapılır”. Bu başlık, Şampiyonlar Ligi’nde G.Saray’ın Deportivo’yu 1—0 yendiği maçtan sonra atıldı. Sebebi, bu maçın sevgililer gününde oynanmasıydı. Spor Editörü Hamit Dizman, yayın anlayışlarını ve nereden nereye geldiklerini de şu şekilde özetliyor: ‘Futbol ister istemez ön planda. Sporu siyasete alet etmiyoruz. Başkanları solcu olmasına rağmen Kocaelispor ve Gaziantepspor geniş yer buluyor. Eskiden bacak iyi karşılanmıyordu. Bacak girmemesi için top da girmiyordu. Top, futbolun olmazsa olmazı. Şu anda böyle bir sıkıntımız yok.’ Dizman, ilginç bir anısını da şöyle anlatıyor: ‘F.Bahçe bu sezon Samsunspor ile oynadığı maçı Revivo’nun üç golüyle kazanınca ‘Revivooovv’ diye bir manşet attık. Okuyuculardan biri aradı, Yahudi bir futbolcuyu neden göklere çıkartıyorsunuz, dedi. Ben de dedim ki: O zaman golleri Abdullah atsaydı.’
+       <br/>
+       <br/>
+       Yeni Şafak’ta yeni dönem
+       <br/>
+       <br/>
+       On yıllık bir mazisi bulunan Yeni Şafak, 1997 yılına kadar spora bir sayfa ayırıyordu. Erken baskıya giren ve ajans haberleriyle yetinen Yeni Şafak, gece maçlarını bir gün sonra giriyordu. Albayraklar gazeteyi devralınca yazar kadrosu gibi spor kadrosu da genişledi. Şu anda üç sayfasını spora ayıran, spor servisinde on kişi istihdam eden ve önemli maçları birinci sayfadan giren Yeni Şafak’ın spor müdürlüğünü ise Ümit Aktan yapıyor. Hassas konularda ağırlığını hemen gösteren gazete, geçen yıl Yugoslavya ile Türkiye arasında oynanacak olan milli maçı iptal ettirdi. Yeni Şafak, iki sayfasını futbola, bir sayfasını da amatör sporlara ayırıyor.
+       <br/>
+       <br/>
+       Akit, politikasını hiç değiştirmedi
+       <br/>
+       <br/>
+       On yıl önce yayın hayatına başlayan Akit, bugüne kadar spora hep bir sayfa ayırdı. Futbol hep ön planda oldu; ama bu arada mümkün olduğu kadar kungfu, karate, güreş ve judo gibi branşlara da yer verildi. Spor Müdürü Akif Çamlı, futbolu at yarışı gibi gördükleri için hala mesafeli davrandıklarını söylüyor. ‘Piyango, içki ve küfür futbolun içinde var. Bu da bizim futbola karşı mesafeli davranmamıza neden oluyor. Futbol haberlerini okuyucuya sunarken kötü taraflarını soyutlayarak sunuyoruz. Bir sayfaya da ancak üç büyükleri sığdırabiliyoruz. Diğer takımlara haksızlık ettiğimizin de farkındayız. Projelerimiz arasında spor sayfasının ikiye çıkması var. Okuyucular da bu yönde isteklerde bulunuyor. Ancak biz imkansızlıklar nedeniyle şimdilik bir sayfayla ve ajans haberleriyle yetiniyoruz.’
+       <br/>
+       <br/>
+       Evrensel, Ortadoğu ve Yeni Mesaj
+       <br/>
+       <br/>
+       Bir zamanlar futbolu kitleleri uyutan bir afyon olarak gören Evrensel, bugün bir sayfasını spora ayırıyor. Eleman eksikliği ve teknik yetersizlikten dolayı gece maçları girmiyor. Evrensel’in spor müdürlüğünü eski solcu futbolculardan Galatasaraylı Metin Kurt yapıyor. Ortadoğu’nun spor sayfası da Evrensel’den farklı değil. Resimler başka gazetelerden kesilerek kullanılıyor, haberler Anadolu Ajansı’ndan alınıyor, gece maçları bir gün sonra giriyor. Yeni Mesaj ise dört sayfasını spora ayırıyor. Üç büyüklere ve Karadeniz takımlarına önem veriyor.
+       <br/>
+       <br/>
+       Televizyonlarda da futbol hakimiyeti var
+       <br/>
+       <br/>
+       Gazetelerin yanı sıra Samanyolu, Kanal 7 ve Meltem gibi televizyon kanalları da futbola önem veriyorlar. Kanal 7 Spor Müdürü Kemal Belgin, sadece futbolla ilgilenmelerini eleman yetersizliğine ve reyting kaygısına bağlıyor. ‘Kriz var, imkanlar dar. Spor servisinde beş kişi çalışıyor. Diğer branşlara da önemine göre yer vermeye çalışıyoruz. Elbette reyting kaygımız var. Yönetim reytinge yönelik konuk çağırmamızı istiyor. Mesela, üslubunu hiç beğenmediğim Osman Tanburacı’nın sık sık 91. Dakika’ya çıkması bu yüzden.’ Samanyolu Spor Müdürü Mehmet Şeyho ise reyting kaygılarının olmadığını belirterek şunları söylüyor: ‘Spor servisi 1994 yılında kuruldu. Biz kendi elemanımızı kendimiz yetiştiriyoruz. Bu yüzden genç bir ekibiz. Şu anda sporda 13 kişi çalıştırıyoruz. Gerek Spor Zamanı’nda, gerekse Sporda Bugün’de reytinge yönelik tartışma yapmıyoruz. Eskiden UEFA Kupası maçlarını, NCAA maçlarını, Hollanda Ligi maçlarını yayınlıyor, güreş ve basketbol programları yapıyorduk. Krizi atlatınca bu tür projeleri yeniden hayata geçireceğiz.’
+       <br/>
+       <br/>
+       E—mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12802), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227093612/http://www.aksiyon.com.tr:80/detay.php?id=12802)

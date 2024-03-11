@@ -1,0 +1,125 @@
+# Kosova'da nihaî statü başka bahara
+
+*Celil Sağır Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041213075258im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041213075258im_/http://www.aksiyon.com.tr/resim/517/52.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  PRİŞTİNE - 23 Ekim seçimlerinin ardından Kosova, gelecek yıl nihaî statüsünün de gündeme geleceği görüşmelere kilitlenmiş durumda.
+ </font>
+ <p>
+  <font class="content">
+   Bölgede gelinen noktanın gözden geçirileceği görüşmelerden, bağımsızlığa kapıyı ne tam kapatan ne de tam açan bir karar çıkması bekleniyor. Kosova’nın nihaî statüsü, Türkiye’nin AB sürecine dönmüş bulunuyor.
+   <br/>
+   <br/>
+   1999’daki NATO operasyonunun ardından Birleşmiş Milletler (BM) himayesine giren Kosova’da 23 Ekim’de yapılan seçimlere bölgedeki Sırpların boykotu damgasını vurdu. Seçimlerin ve boykotun perde arkasında ise bölgenin 2005’te ele alınması planlanan nihai statüsü yatıyor. Beş yıldır, yönetimi BM Kosova Geçici Misyonu’nun (UNMIK), güvenliği de NATO’nun yürüttüğü 18 bin kişilik KFOR tarafından sağlanan bölgenin nihai statüsü ise Türkiye’nin Avrupa Birliği (AB) üyeliği sürecine dönüşmüş durumda. Sürekli gelgitler ve ertelemeler yaşanıyor. Gelecek yıl ortasında yapılması planlanan görüşmelerde bölgeye ne bağımsızlık yolunu kapatan ne de bu yolu tamamen açan bir karar alınarak ‘nihai statü’nün başka baharlara bırakılması bekleniyor.
+   <br/>
+   <br/>
+   Nihai statüden önce ‘Kosova Kriterleri’
+   <br/>
+   <br/>
+   Yüzde 90’ı Arnavutlardan oluşan 2 milyon 300 bin nüfuslu Kosova’da Sırbistan lideri Slobodan Miloşeviç’in giriştiği etnik temizlik, 1999’daki NATO harekâtıyla sona ermişti. Müdahale sonrası alınan 1244 nolu BM Güvelik Konseyi kararıyla bölge, hukuken Yugoslavya’nın bir parçası olarak zikredilerek UNMIK idaresine bırakılmıştı. Kosova’nın fiili bağımsızlığının yolunu açan süreçle birlikte nihai statü meselesi de gündeme geldi. Aradan geçen sürede Sırp lider Miloşeviç’in Ekim 2000’de devrilmesi, Yugoslavya’nın 2003 başında Sırbistan ve Karadağ devletine dönüşmesi ve komşu Makedonya’da 2001’de patlak veren Arnavut—Makedon savaşı gibi gelişmeleri dikkate alan uluslararası toplum, Kosova’nın nihai statüsü konusunu ağırdan alma yolunu seçti.
+   <br/>
+   <br/>
+   Şimdiye kadar bölgede yapılan iki yerel ve iki genel seçime rağmen yetkileri Kosova kurumlarına tam olarak devretmeyen UNMIK, “nihai statüden önce standartlar” yaklaşımını benimsemiş görünüyor. Türkiye’nin, müzakereler öncesi yerine getirmek zorunda kaldığı Kopenhag Siyasi Kriterleri’ni hatırlatan ve hukukun üstünlüğü, demokrasi, azınlıkların dönüşü, ekonomi reformu ile Belgrad—Priştine diyalogunun yer aldığı sekiz standart belirlenmiş durumda.
+   <br/>
+   <br/>
+   Uluslararası toplum, bu standartları gelecek yılın ortasında değerlendirme planları yapıyor. Ancak, bu konuyu ağırdan almanın pahalıya mal olacağı da geçen mart ayında yaşanan olaylar gösterdi. Sırpların kovaladığı 3 Arnavut çocuğun İber Nehri’nde boğulmasının ardından patlak veren ve 19 kişinin öldüğü olaylar, bölgedeki gerilimi bir kez daha su yüzüne çıkardı. Olaylar sırasında 50 kadar UNMIK aracının yakılması da uluslararası toplum için bir uyarı oldu. Priştina’daki gençlik merkezinde sohbet ettiğimiz İllir adlı bir Arnavut genç, “Olaylar bir bakıma iyi oldu. UNMIK bizi umursamıyor, saygı göstermiyordu. Şimdi durum değişti” diyor.
+   <br/>
+   <br/>
+   Bölge için tasarlanan standartlara ikinci darbeyi seçimler vurdu. Sayıları 200—300 bin arasında zikredilen Sırpların sadece yüzde biri seçimlere katıldı. UNMIK Başkanı Soren Jessen Petersen, seçim boykotunun sorumlusu olarak bölgedeki radikal Sırp liderleri ve bu yönde teşvik edici açıklamalar yapan Belgrad yönetimini gösterdi. Arnavut toplumunun olası tepkisini göz önüne alan Petersen’in her şeye rağmen seçimlerin ve seçilen (10 tanesi etnik kontenjandan) Sırp vekillerin meşru olduğunun altını çizmesi, gelecek yıl yapılacak nihai statü görüşmeleri açısından kararlılık işareti olarak algılandı. Kosova Türk Eşgüdüm Bürosu (KTEB) Müsteşarı Metin Kılıç, durumu “Uluslararası toplum nihai statüyü görüşmezse çok zorlanır. Bu toplumu bir daha tutamaz” sözleriyle özetliyor.
+   <br/>
+   <br/>
+   İşsizliğin yüzde 60’larda dolaştığı ithalata bağımlı bölgede gözler şimdi kurulacak yeni hükümete çevrilmiş durumda. Bölge Başkanı İbrahim Rugova’nın lideri olduğu Kosova Demokratik Birliği’nin (LDK) birinci çıktığı seçimlerin ardından oluşturulacak hükümet, nihai statü görüşmelerine katılacak. Priştina Üniversitesi Öğretim Görevlisi ve Başbakanlık Danışmanı Prof. Enver Hasani, nihai statü görüşmesi öncesi sorumluluğun meşru siyasi liderlere dağıtıldığını vurguluyor. Sırpların yer alacağı geniş tabanlı bir koalisyon senaryoları gündeme gelirken, uzmanlar ve Priştina sokaklarındaki vatandaşlar “ABD’den gelecek işarete göre hükümet kurulacak” diyor.
+   <br/>
+   <br/>
+   Bosna Hersek benzeri bir yapı
+   <br/>
+   <br/>
+   Hükümet kurulduktan sonra standartların işlemesi için uluslararası toplumun yetkilerini hızla yerel temsilcilere devrederek, Bosna Hersek’teki gibi bir role kayması bekleniyor. Bu konu, Norveç’in NATO Büyükelçisi Kai Aide’nin Kosova’daki son durumla ilgili BM Güvenlik Konseyi’ne sunduğu raporda da zikrediliyor. Raporun temel felsefesinde BM’nin daha fonksiyonel hale gelmesi ve yetkiyi yerel yönetime devrederek hızla gözlemci—denetçi konumuna geçmesi savunuluyor.
+   <br/>
+   <br/>
+   Dışişleri, Savunma ve İçişleri alanlarında yetkiler halen UNMIK’in elinde. Arnavut uzmanlar, seçim sonrası Kosova’da daha aktif hale gelecek siyasetin, “mamuta benzeyen UNMIK’i kendini yenilemeye zorlayacağını, Bosna’dakine benzer bir yapının kaçınılmaz olduğunu” vurguluyor. Türk diplomatik kaynakları, böyle bir yapıya geçilmesi konusunda başvuruyu iki yıl önce yaptıklarını; ancak bunun mart ayındaki olaylara kadar fazla dikkate alınmadığını belirtiyor. Bu ağırdan alma, bölgedeki uluslararası görevlilerin, bölgeyi kazanç kapısı olarak görmelerine de bağlanıyor. Zira bu kişiler, aylık 6 bin ile 12 bin dolar arasında para kazanıyor. Aynı durum bölgede istihdam edilen Arnavutlar için de geçerli...
+   <br/>
+   <br/>
+   AB yine ‘ince lisanını’ kullanacak
+   <br/>
+   <br/>
+   Uluslararası toplum, 2005 ortasına kadar yeni hükümetin standartlar konusundaki icraatlarına bakacak. Bu konuda olumlu yönde alınacak mesafe 2005 ortasında nihai statü konusunun da gündeme güçlü şekilde gelmesini sağlayacak. Yapılacak değerlendirmeden çıkacak sonuç, bölge için büyük önem taşıyor. Bu konuda AB’nin, Türkiye’nin yıllarca muhatap olduğu ince diplomasisini devreye sokarak, dengeli bir karar çıkarması bekleniyor. Uzmanlar, muhtemel karar konusunda, “Kosova şimdiye kadarki süreçte kendi kendini yönetebileceğini kanıtlamıştır. Kosova’nın geleceği AB’dedir. Çevre ülkeler AB ile ortaklık müzakerelerini yürütüyor. AB’nin buraya genişlemesi söz konusu. Dolayısıyla Kosova’nın AB standartlarını uyguladığını göstermesi gerekiyor. Bu süreçte bağımsızlık verilebilir” şeklinde bir açıklama yapabileceğini ifade ediyor. Böyle bir açıklamayı dengelemek için Belgrad yönetimini de rahatlatacak bir kısım ifadelerin ekleneceği ifade ediliyor.
+   <br/>
+   <br/>
+   KTEB Müsteşarı Metin Kılıç, bölge için 15—20 senelik bir perspektif çizilmesinin söz konusu olabileceğini, bu süre içinde bütün Balkanlar’ın AB çatısı altına girmesiyle bağımsızlık taleplerinin de önemini yitireceğini belirterek, birliğin bölge ülkelerinde özellikle sınırların daha geçişken hale gelmesi için başlattığı çalışmalara dikkat çekiyor. Prof. Dr. Hasani ise statü konusunun 2005 ortalarında görüşüleceğini; ancak bir karara bağlanmasının zor olduğunu belirtiyor. Kosova’nın nihai statüsünün AB süreciyle ilişkilendirilmesinin doğru olmadığını savunan Hasani, “Etnik sorunların AB ile çözüleceğini söylemek doğru değil. Etnik sorunlar çok karmaşık” diyor.
+   <br/>
+   <br/>
+   Kosova’nın demokratikleşmesi için Sırbistan’daki gelişmeler de önem taşıyor. Uluslararası toplum, Belgrad yönetimine Batı yanlısı ılımlı liderlerin gelmesini bu açıdan önemli görüyor. AB de bu konuda üyelik sürecini teşvik edici bir unsur olarak kullanıyor. Geçtiğimiz yıl Viyana’da Belgrad ile görüşmelerde bulunan heyette yer alan Enver Hasani, Sırbistan’daki değişimin önemini, “Sırbistan demokratikleşmeden Kosova’nın demokratikleşmesini beklemek büyük bir yanılgı. Sırbistan bu ulusal gündeme sahip olduğu müddetçe Balkanlar’ın demokratikleşmesi de beklenemez” sözleriyle dile getiriyor. Arnavut uzman, Makedonya’daki gelişmelerin de bu konuda önem taşıdığını belirterek, Üsküp yönetiminin milliyetçi gündemini değiştirmesi açısından 7 Kasım’da yapılacak referandumun önemine dikkat çekiyor.
+   <br/>
+   <br/>
+   Rusya ve Çin’e kabul ettirmek zor
+   <br/>
+   <br/>
+   Bölgenin bağımsız olmasının önünde farklı ve temel engeller var. Bunlardan birincisi, uluslararası hukukta yer alan sınırların değişmezliği prensibinin ihlali. Böyle bir bağımsızlığı, Çeçenistan ve Doğu Türkistan sorunları bulunan Rusya ve Çin’in kabul etmesi oldukça zor bir ihtimal. İki ülkenin Güvenlik Konseyi’nde veto yetkisi bulunuyor. İkincisi, Kosova’nın bağımsızlığının bölgede domino etkisi oluşturarak, Bosna Hersek’teki Sırp bölgesinin yanı sıra Güney Sırbistan ve Makedonya’daki Arnavut bölgelerini harekete geçirmesinden endişe ediliyor.
+   <br/>
+   <br/>
+   Ayrıca, 2003’te oluşturulan Sırbistan—Karadağ birliğinin dağılma ihtimalinin Kosova açısından etkileri de uluslararası toplum tarafından değerlendiriliyor. Birliğin dağılması durumunda hukuken Sırbistan’da kalacak bölgeyi bu aşamadan sonra Belgrad’a bağlamanın, yeni bir Karadağ oluşturacağına dikkat çekiliyor. Diplomatik kaynaklar, nüfusu Arnavutlardan oluşan ve sınırları içinde istediğini yapan bir bölgeyi Belgrad’ın kendine bağlayarak, buraya kaynak aktarmak istemesinin de düşük bir ihtimal olacağına işaret ediyor.
+   <br/>
+   <br/>
+   Sırbistan ise bölgenin bağımsızlığı ihtimaline karşı çeşitli planlar geliştiriyor. Belgrad yönetimi, bölgeyi tam olarak kaybetmemek için İpek kentinden Mitoviça’ya uzanan ve Sırpların yoğun yaşadığı yerleri Arnavut bölgelerinden ayırmayı hedefleyen bir plana sahip. Halihazırda bu bölgelerde UNMIK’in otoritesi teorik olarak var. Söz konusu bölgedeki tüm okul ve hastanelerin Sırbistan bakanlıklarına bağlı olduğunu, emekli maaşlarının Sırbistan’dan alındığını ifade eden diplomatik kaynaklar, “Zaten fiilen bir bölünme var. Belgrad savaştan kaçanların geri dönüşlerini özellikle bu bölgeye yaptırıyor. Sırbistan, Kosova elden giderse hiç değilse buradan bölüp burayı kurtarırım hesabında” diyorlar.
+   <br/>
+   <br/>
+   Sırbistan, diğer bölgelerde sıkışan Sırp toplumlar için de yerinden yönetim planı peşinde. Bununla kendi kendini yöneten, birbirlerine ve dolayısıyla Sırbistan’a bağlı bir yapı haline getirmeye çalışıyor. Enver Hasani, Belgrad’ın planının bölgenin etnik hatlarla bölünmesini öngördüğüne dikkat çekerek, “Egemenliğe sahip Sırp bölgelerine Sırp güvenlik güçleri geri dönecek. Bu da Belgrad’a bölgenin geleceği konusunda bir manivela ve güçlü bir el kazandırmış olacak” diyor. Bilindiği gibi Sırplar, Kosova’yı, patrikhanelerinin yer aldığı ve Dusan İmparatorluğunun merkezi olan kutsal bir bölge olarak algılıyor.
+   <br/>
+   <br/>
+   Bölge Sırplarının gözü Sırbistan’da
+   <br/>
+   <br/>
+   Avrupa Konseyi de bu konuda bir adem—i merkeziyet planı hazırlamış durumda. Bölgeleri nüfus oranlarına göre sınıflandıran plan azınlık nüfusuna göre alt belediyeler kurulmasını öngörüyor. Böyle bir yapının oluşturulmasının, merkezi yönetimin etkinliğini kırarken aşırı hareketleri de engelleyeceğine dikkat çekiliyor. Bu planın Kosova’daki Türklere de yarayacağına işaret ediliyor.
+   <br/>
+   <br/>
+   Başkent Priştine’ye 6 km mesafedeki Sırp köyü Gracanica Sırpların seçim boykotlarının sembolü halinde. Yaklaşık 5 bin kişinin yaşadığı köyde sadece 12 kişi sandığa gitmiş. Priştine’de seçimin yankılarının yaşandığı pazar günü Sırp köyü oldukça sakın bir gün geçiriyor. 1321 tarihinde inşa edilen Grasanica Manastırı’nda Iliya adlı Sırp gence rastlıyoruz. Iliya, seçime Sırbistan Başbakanı Vojislav Koştunitsa’nın “boykot” çağrısına uyarak katılmadığını ifade ediyor. Pazar ayini sonrası manastırın karşısındaki kafede toplanan gençlerle konuşuyoruz.
+   <br/>
+   <br/>
+   Seçime kendilerini iyi bir geleceğe götüreceğine inanmadığı için katılmadığını söyleyen Dragan adlı genç, seçilen Sırp vekillerin tıpkı önceki hükümette yer alan Sırp “Dönüş” koalisyonu vekilleri gibi meşruiyetinin olmadığını savunuyor. Dragan, “Oy kullansak da bir şeye karar veremiyoruz. Kararı Washington veriyor” diyor. “Gelecek yıl Kosova’nın nihai statüsüne ilişkin görüşmeler yapılacak. Oy vermeyerek buradaki söz hakkınızdan feragat etmiş olmuyor musunuz?” sorusu üzerine söze giren Dejann adlı başka bir genç ise, marttaki olayları hatırlatarak, “Gelecek yıldan bahsetmeyin. Gelecek yıl sağ kalıp kalmayacağımızı bilmiyoruz” diyor. Sırp gençler Kosova’nın bağımsız olması halinde Sırbistan’a göçmekten başka şanslarının olmadığını dile getiriyor.
+   <br/>
+   <br/>
+   Aynı kaygılar orta yaş Sırplarda da var. Sinisa adlı Sırp, bir gelecek göremediği için oy kullanmadığını söylüyor. Sırplara seçimlerde oy kullanmaları tavsiyesinde bulunan Sırbistan Devlet Başkanı Boris Tadiç’in “Vekiller 3 ay mecliste kalır. Baktık istediğimiz gibi yürümüyor. Çekiliriz” mealindeki sözlerini eleştirerek, “Peki ya sonra?” sorusunu yöneltiyor. Aynı masada bulunan Goran adlı Sırp da bölgenin bağımsız olması halinde Sırbistan’a gideceklerini ekliyor.
+   <br/>
+   <br/>
+   Ankara, bölge politikasını değiştirdi
+   <br/>
+   <br/>
+   Sırplar, karşıdaki tarihi manastırı göstererek, “Bu manastır ve Prizren’dekiler Osmanlı’dan önce vardı. Osmanlı yüzyıllarca hükmetmesine rağmen bunlara dokunmadı. Martta Arnavutlar hepsini yaktı” diyor. Sırbistan’da ayakta kalan son birkaç Osmanlı camisinin aynı tarihte ateşe verildiğini hatırlattığımızda ise ortalığı bir sessizlik kaplıyor.
+   <br/>
+   <br/>
+   2001’deki ilk genel seçimlerin ardından ikinci seçimler için gittiğimiz Kosova’da Türkiye’nin bölgeye yönelik politikasının da önemli bir değişim geçirdiğini görüyoruz. 1999’daki müdahalenin ardından sadece bölgedeki ‘Türkleri merkez’ aldığı için Arnavutların tepkisini çeken politika, artık yerini Kosova’nın yanı sıra bölgenin asli unsuru olan Arnavutları da kapsar bir hale gelmiş.
+   <br/>
+   <br/>
+   Ankara ile Priştine arasında sağlık, kültür ve çevre alanlarında işbirliği anlaşmaları imzalanmış durumda. Buna göre Kosova’da tedavisi mümkün olmayan hastalar İstanbul ve Ankara’da anlaşmalı hastanelerde tedavi ediliyor. Sağlık Bakanlığı, kalp, damar hastalıkları ve kanser gibi alanlarda Kosovalı hekimlere eğitim veriyor.
+   <br/>
+   <br/>
+   Kültür işbirliği gereği Kosova’daki Osmanlı eserlerinin restorasyonuna katkıda bulunuyor. Uygulama protokolü bugünlerde imzalanacak Sultan I. Murat Türbesi’nin restorasyonu bu çerçevede bir örnek olacak. Kosova İslam Birliği ile Diyanet İşleri arasında bir köprü kurulmuş durumda. Diyanet, Kosova’dan giden 45 din adamına İstanbul’da 20 gün kurs verdi. Yeni bir heyetin daha Türkiye’ye gelerek, Diyanetin yapısını bölgeye uyarlama konusunda incelemelerde bulunacakları belirtiliyor. Eğitim konusundaki işbirliği ise seçimlerin araya girmesi nedeniyle bu aya kalmış durumda. Bu konuda imzalanacak işbirliği protokolüyle Türkiye Kosova’ya ölçme ve değerlendirme sistemi kuracak. Yeni kitapların bastırılması, coğrafi ve tarihi açıdan sıkıntı oluşturan unsurların ayıklanması konusunda da komiteler kurulacak.
+   <br/>
+   <br/>
+   Ancak, Türkiye’nin bölge konusunda şiar edindiği “Belgrad ne der, bölgede Türkiye’nin çıkarlarına karşı bir Ortodoks ittifakı oluşur mu?” endişesinin de halen sürdüğü gözleniyor. UNMIK tarafından verilen pasaportları geç de olsa tanıyan Türkiye’nin UNMIK plakaları konusunda çekingen tavrı sürdürdüğüne dikkat çekiliyor. Neredeyse herkesin Türkiye’de akrabasının bulunduğu Kosova ile Ankara arasındaki ilişkilerde, Avrupa ülkelerinin bölge ile ilişkilerinin örnek alınamayacağına vurgu yapılıyor.
+   <br/>
+   <br/>
+   “KERRY GELİRSE BAĞIMSIZLIK HIZLANACAK”
+   <br/>
+   <br/>
+   Kosova’da Arnavut ve Sırpların gözü aslında ABD’de. Kosova halkı, 2 Kasım’da yapılacak başkanlık seçiminden çıkacak sonucun bölgenin geleceğini etkileyeceğini düşünüyor. Seçim öncesi Ferizay kentinde sohbet ettiğimiz eski Kosova Kurtuluş Ordusu (UÇK) mensubu Mentor adlı Arnavut genç, Demokrat aday John Kerry’nin seçimi kazanmasının bölgenin nihai statüsü açısından önemli olduğunu belirtiyor. Benzer bir yorumu Priştine yakınlarındaki Sırp köyü Gracanica’da görüştüğümüz Sırp gençler de dile getiriyor. Sırplar, ayrıca, Kerry’nin Arnavut lobisinin etkisinde olduğunu savunuyor.
+   <br/>
+   <br/>
+   Bölgedeki Amerikan hayranlığı da dikkat çekici. Priştine’deki bir caddeye Bill Clinton ismi verilirken, New York’taki özgürlük abidesinin küçük bir modeli kentin bir meydanını süslüyor. Son 5 yılda Arnavut çocukların bazılarına Tony ve Clinton isimleri verilmiş. Seçimde yarışan adaylardan Edita Tahiri’nin reklam afişinin arka fonunu Amerikan bayrağı ve Özgürlük Abidesi oluşturuyor. Amerikan hayranlığı Kosova Özürlüleri Derneği Başkanı Agim Vatovci’nin elbisesine kadar yansımış. Priştine’de görüştüğümüz Vatovci, Amerikan bayraklı kravatını öperek, “Önce Allah, sonra ABD. Kimse bizimle ilgilenmezken ABD para veriyor” diyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17603&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041213075258/http://www.aksiyon.com.tr:80/detay.php?id=17603&yorum_id=1)

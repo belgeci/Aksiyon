@@ -1,0 +1,89 @@
+# Bomba Soruşturmasındaki Üç Müthiş Bulguyu Açıklıyoruz
+
+*Fuat Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050120114041im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050120114041im_/http://www.aksiyon.com.tr/resim/471/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  1 ABD, İstanbul saldırılarından sonra sahibi tutuklanan B. tekstil şirketinin El Kaide ile ilişkili olabileceğini iki yıl önce Türkiye"ye bildirmişti.
+  <br>
+   2 İngiltere Başkonsolosluğu"nda patlayan kamyoneti kullanan Feridun Uğurlu"nun ağabeyi Süleyman Uğurlu"nun kimliğini Afganistan"daki operasyonlar sırasında bulan ABD, bu kimliği Türkiye"ye vermişti.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   3 Geçen yıl, Afganistan"a gidip gelmiş bir gruba yönelik operasyonda alınan ifadelerde iki isme ulaşılmıştı: Azad Ekinci (Ebu Nidal) ve Yasir kod adlı canlı bomba Feridun Uğurlu.
+   <br>
+    İstanbul"daki bombalı saldırılardan sonra, dergimizin baskıya girdiği cuma gecesine kadar Devlet Güvenlik Mahkemesi"nin tutukladığı 30 kişiden biri tekstilci H.E."ydi. Mardin doğumlu 30 yaşındaki H. E., İstanbul Beyazıt"ta faaliyet gösteren B. Tekstil Gıda Pazarlama İthalat İhracat şirketinin sahibiydi. Saldırılardan sonra memleketi Mardin"e bayram tatiline giden H.E., bayramın ikinci günü gözaltına alınıp İstanbul"a getirildi.
+    <br>
+     <br>
+      Tunus, Cezayir ve Pakistan gibi ülkelere tekstil ihraç eden H.E., sorgusunda "Eylemciler, kısa bir süre şirketimizde çalıştı. Pakistan ve Afganistan"dan gelen, Arapça konuşan kişilerle görüşmeler yapıyorlardı" demekteydi. H.E."nin şirketinde çalıştıklarını söylediği iki kişiden biri, İstanbul bombacıları grubunun lideri konumundaki "Mardinli Habib", yani Habib Aktaş"tı. Beyazıt semtindeki bu tekstil şirketinde ekim ayına kadar çalışan Habib Aktaş, "Hüseyin Taş" ismini kullanmıştı ve Laleli tekstil piyasasında "Hüseyin" olarak bilinmekteydi.
+      <br/>
+      <br/>
+      Bu şirkette çalışan ikinci eylemci, İngiltere Başkonsolosluğu"nda patlayan kamyoneti kullanan Feridun Uğurlu"ydu. Annesinin "Bir şirkette İngilizce tercüman olarak çalışıyordu" sözleriyle kastettiği yer işte bu B. tekstil şirketiydi. Feridun da, grubun lideri Habib gibi Ekim ayına kadar burada çalıştı. Öte yandan, HSBC önünde patlayan kamyoneti kullanan İlyas Kuncak da bu şirkette iki ay süreyle şoförlük yapmıştı.
+      <br/>
+      <br/>
+      Habib ve Feridun, ekim ayında şirketten ayrıldıktan sonra eşlerine "Dubai"ye gidiyoruz" dediler. Ama, saldırıların yapıldığı güne kadar İstanbul"dan hiç ayrılmadılar. Sadece onlar değil, grubun önemli isimlerinden ve dört bombalı saldırıda fiilen rol aldığı anlaşılan Azad Ekinci de, eşine "Dubai"ye gidiyorum" demişti. Fakat o da saldırılar yapılana kadar İstanbul"daydı ve sinagoglara yapılan ilk saldırının ardından Cilvegözü sınır kapısından Suriye"ye geçtiği anlaşıldı. Dubai hikayesi, grubun saldırılar yapılıncaya kadar kendilerini gizlemek için ortaya attığı bir senaryoydu.
+      <br/>
+      <br/>
+      Bombalar soruşturmasının geldiği noktada ortaya çıkan çarpıcı bilgilerden bir tanesi grubun üç üyesinin bu şirkette çalışmasıydı. Amerikan makamları çok önceden, B. Tekstil firmasının ismini, "El Kaide ile bağlantıları muhtemel" şirketlerden biri olarak Türkiye"ye bildirmişti. Aksiyon"un güvenilir bir kaynaktan elde ettiği bu bilgiye göre, H.E"nin sahibi olduğu bu şirketin ismi Amerika tarafından yaklaşık iki yıl önce Türk istihbarat birimlerine iletilmişti.
+      <br/>
+      <br/>
+      Amerikan makamlarının geçtiğimiz iki yıl içinde, El Kaide ile bağlantıları olduğu gerekçesiyle bazı şirket ve şahıs isimlerini Türkiye"ye bildirip bunların mal varlıklarının dondurulmasını istediği biliniyor. Örneğin bu çerçevede, 16 Kasım 2002 tarihli Resmi Gazete"de yayınlanan Bakanlar Kurulu kararı ile Nasco Nasreddin Holding AŞ"nin Türkiye"deki faaliyetleri yasaklanmıştı. Bu şirket 1987 yılında İstanbul"da kurulmuştu. Yine, ABD"nin El Kaide"nin destekçilerinden olduğunu bildirdiği Abdullah El Kadı"nın Türkiye"deki 3 trilyon liralık malvarlığına haciz konulmuştu. El Kadı, Türkiye"de faaliyet gösteren Caravan Dış Ticaret ve İnşaat Limited Şirketi"nin yüzde 60 ortağıydı. Milliyet gazetesinin 21 Ekim 2001 tarihli haberine göre, ABD"nin Türk Hükümeti"ne gönderdiği "Usame Bin Ladin bağlantılı para işlemlerinin yapıldığı banka ve özel şirketlerin isimleri" listesinde 6 şirket ve bazı para transferlerinde kullanılan iki bankanın ismi vardı. Bu şirketlerden biri Türkiye"deki bir holdingdi, diğerinin Suudi Arabistan"daki Bin Ladin grubuna bağlı olarak faaliyet gösterip Cayman Adaları ile Londra"da bulunan bir Türk şirketiyle bağlantısı vardı.
+      <br/>
+      <br/>
+      İstanbul"da halen sürmekte olan bomba soruşturmasında, B. tekstil şirketi hakkında ABD"den gelen bu bilgiden sonra Ankara"da Hazine Müsteşarlığı"nın, Emniyet"in veya Milli İstihbarat Teşkilatı"nın herhangi bir işlem yapıp yapmadığı şimdilik bilinmiyor.
+      <br/>
+      <br/>
+      ABD"nin Türkiye"ye verdiği bir kimlik kartı
+      <br/>
+      <br/>
+      H.E."nin sahibi olduğu B. tekstil şirketinin ABD tarafından Türkiye"ye bildirildiğini belirten aynı güvenilir kaynağın Aksiyon"a anlattığı çarpıcı bir bilgi daha var. Buna göre, Amerikan makamlarının geçtiğimiz iki yıl içinde Türkiye"ye ilettiği çok önemli bir belge daha vardı. 20 Kasım"daki saldırıda İngiltere Başkonsolosluğu"nda patlayan kamyoneti kullanan Feridun Uğurlu"nun ağabeyi Süleyman Uğurlu"ya ait bir kimlik, 11 Eylül saldırılarından sonra Afganistan"daki El Kaide kamplarına yönelik operasyonlar sırasında ABD"nin eline geçti ve bu kimlik bilgileri Türkiye"ye iletildi.
+      <br/>
+      <br/>
+      İstanbul DGM"nin şimdiye kadar tutukladığı 30 kişiden biri olan Süleyman Uğurlu"ya ait bilgileri içeren ancak başka bir şahsın fotoğrafını taşıyan bu kimlik kartının iki yıl önce El Kaide kamplarında ele geçirilmiş olması şaşırtıcı değil. Çünkü, İstanbul"daki bombalı saldırıları yapan grubun, ABD"ye yönelik saldırıların yapıldığı 11 Eylül 2001 günü El Kaide kamplarında olduğu biliniyor. Hatta, İstanbul DGM"nin şu ana kadar tutukladığı 30 kişi içinde yer alan M.A., 11 Eylül saldırıları öncesi ve sonrasında Kandahar ve Kabil"deki El Kaide kamplarında neler olup bittiğini sorgusunda anlatıyor.
+      <br/>
+      <br/>
+      Kandahar"daki kampta kalmış olan M.A., sorgudaki ifadesinde, "11 Eylül saldırıları olduğu sırada biz kamptaydık" diyor ve şöyle devam ediyor: "Bir gün önce Şah Mesut öldürülmüştü. 11 Eylül saldırılarını radyodan öğrendik. Olayı öğrendiğimizde kampta büyük bir coşku oldu. Sonra bu coşku yerini bir sessizliğe bıraktı. Kısa bir süre içinde kamp boşaltıldı ve dağlara çekildik. Kampta 10 civarında Türk vardı. Bunlardan biri Gürcan Baç"tı. 11 Eylül saldırılarından önce Usame Bin Ladin iki defa bizim bulunduğumuz kampa geldi ve konuşma yaptı. Ben kamptan ayrıldıktan sonra Türkiye"ye dönmeye karar verdim. Ama Gürcan dönmedi. Türkiye"ye döndükten sonra bu gruptan ayrıldım."
+      <br/>
+      <br/>
+      M.A."nın, "Kandahar"daki kampta birlikteydik" dediği Gürcan Baç, İstanbul bombacılarının en önemli isimlerinden biri ve halen Habib Aktaş, Azad Ekinci gibi isimlerle birlikte aranıyor. M.A, ifadesinde, "Habib Aktaş Kabil"deki kamptaydı. Ama Kandahar"daki kampa da gelip gidiyordu" diyor.
+      <br/>
+      <br/>
+      Bombacılar grubunun lideri 30 yaşındaki Habib Aktaş, hem Kabil ve Kandahar"daki bu iki kampa gidip geliyordu, hem de El Kaide"nin Pakistan"daki bürosunun sorumlularından biriydi. İstanbul"daki soruşturma, onun Mardin"de 1990"da Savur Lisesi"ni bitirdikten sonra Pakistan"a üniversite öğrenimi için gittiğini gösteriyor. ABD"ye yönelik 11 Eylül saldırılarından önce Habib Aktaş"ın, Kabil"deki El Kaide kampında olduğu tespit edilmiş durumda. O ve bazı arkadaşlarının, Mayıs 2001"de Pakistan"a eşleri ile birlikte geldikleri, daha sonra eşlerini Türkiye"ye gönderip kendilerinin askeri kamplara geçtikleri, ancak bu arada zaman zaman Türkiye"ye gelip gittikleri biliniyor. 11 Eylül saldırılarından sonra ise ağırlıklı olarak Türkiye"ye dönüş süreçleri ve İstanbul saldırıları için hazırlık aşaması başlıyor.
+      <br/>
+      <br/>
+      Bu sebeple Süleyman Uğurlu"nun kimlik kartının Afganistan"da ABD güçlerinin eline geçmesi, bombalar soruşturmasını yürüten birimler için şaşırtıcı olmadı. Grup içindeki bazı şahısların, yakınlarının kimlik bilgileri ile nüfus müdürlüklerine başvurup, üzerinde kendi fotoğrafları bulunan bu kimlikleri kullandıkları biliniyor. Nitekim, sinagoglarda patlayan kamyonetler alınırken kimlikleri kullanılan kişiler Azad Ekinci"nin ağabeyi Metin Ekinci ve Feridun Uğurlu"nun babası Ahmet Uğurlu. Metin Ekinci de, DGM"nin tutukladığı 30 kişi arasında yer alıyor. Grup üyelerinin, kullandıkları cep telefonlarını gizlemek için enteresan bir yöntem geliştirdikleri görülüyor. İstanbul Gaziosmanpaşa"da sırf bu amaçla cep telefonu dükkanı açtıkları, cep telefonu hattı için başvuran müşterilerin kimlik bilgileri ve evrakları üzerinden kendileri adına da cep telefonu hattı aldıkları belirlenmiş durumda.
+      <br/>
+      <br/>
+      Bursa dosyasındaki Ebu Nidal ve Yasir kimdi?
+      <br/>
+      <br/>
+      Şimdi, İstanbul bombaları soruşturmasında elde edilmiş olan en can alıcı bulguya geliyoruz. Aksiyon"un 24 Kasım 2003 tarihli 468. sayısında yayınladığımız "MİT ile polisin El Kaide"yi takip anlaşmazlığı" başlıklı haberimizde, İstanbul bombacılarından birinin isminin 17 ay önce Bursa polisinin yaptığı bir operasyondaki ifade tutanaklarında geçtiğini belirtmiştik. Emniyet, Afganistan"a gidip oradaki mücahit kamplarına katılmış olan bir gruba geçtiğimiz yılın nisan ayında operasyon yapmıştı. O operasyondan sonra Milli İstihbarat Teşkilatı ile Emniyet arasında, Afganistan ve Pakistan"a gidip gelmiş olan, özellikle de El Kaide ile bağlantılı oldukları düşünülen grupların takibi konusunda anlaşmazlık çıkmıştı. Dolayısıyla polis, İstanbul"da ilk iki kamyonetin patladığı 15 Kasım gününe kadar bir daha bu dosyanın kapağını açmadı. İşte o dosyanın kapağı açıldığında, sanıkların ifade tutanaklarında Afganistan"daki kamplarda gördüklerini belirttikleri iki sürpriz isimle karşılaşıldı. Bunlardan biri Ebu Nidal, diğeri Yasir"di.
+      <br/>
+      <br/>
+      Ebu Nidal, İstanbul"daki saldırıların organizatörlerinden biri olduğu kesinleşen Azad Ekinci"nin kod adıydı. Tutanaklardaki anlatımlarda Ekinci"nin fiziksel özellikleri aynen yer almaktaydı. Bugüne kadar Ekinci dışında Ebu Nidal kod ismini kullanan ikinci bir şahıs söz konusu değildi. Ekinci"nin Ankara"da bilgisayar alışverişi yaptığı arkadaşı Hilmi Tuğluoğlu (Suriye"nin Türkiye"ye teslim ettiği ve Ankara DGM"nin tutukladığı kişi) ifadelerinde Ekinci"yi "Ebu Nidal" ismiyle tanıdığını açıkça belirtti.
+      <br/>
+      <br/>
+      İfadelerde ismi geçen ikinci kişi Yasir"di. Yasir de, İngiltere Başkonsolosluğu"nda patlayan kamyoneti kullanan Feridun Uğurlu"ydu. Nitekim Bursa operasyonunda gözaltına alınan şahıslardan olan A.Ü., 9 Nisan 2002 tarihini taşıyan ifadesinin onuncu sayfasında "Afganistan"da kaldığı dönemde tanıdığım kişiler" dediği isimleri sayarken, "Yasir"i şöyle anlatıyor: "26-27 yaşlarında, 1. 75 boyunda, siyah saçlı, sakallı, kampa İstanbul"dan katılmış, Uzakdoğu sporlarını biliyor. Çeçenistan"da savaşmış" diyor. Bombacılar grubu içinde bu özelliklere sahip kişi Feridun Uğurlu"ydu. Kayınpederi, "Üç yıldır onu Yasir olarak biliyorduk" derken, HSBC bankası önünde patlayan kamyoneti kullanan canlı bomba İlyas Kuncak"ın oğlu da, "Onu Yasir olarak bilirdik" diyor. Nitekim, 1,5 yaşındaki oğluna da Yasir adını vermişti.
+      <br/>
+      <br/>
+      Bursa polisinin dosyasında "Ebu Nidal" ve "Yasir" isimlerinin geçmiş olmasının ne anlama geldiğini, soruşturmayı yürüten üst düzey bir yetkili Aksiyon"a şöyle açıklamıştı: "İpin ucunu o zaman yakalamışız, ama ne yazık ki gerisini getirmemişiz." Bir başka üst düzey yetkili, MİT ile Emniyet arasındaki anlaşmazlığın, özellikle Azad Ekinci üzerinde odaklandığını vurguluyor. Aynı yetkili, Ekinci"nin İstanbul Üniversitesi İlahiyat Fakültesi öğrencisi iken 1999"dan itibaren bazı gösterilerde ön plana çıktığını, o tarihten itibaren Ekinci"yi hangi kurumun izleyeceği konusunda anlaşmazlık doğduğunu belirtiyor.
+      <br/>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3271&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050120114041/http://www.aksiyon.com.tr:80/detay.php?id=3271&yorum_id=1)

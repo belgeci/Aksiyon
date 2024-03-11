@@ -1,0 +1,153 @@
+# Dört bır tarafimiz dost
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225010251im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225010251im_/http://www.aksiyon.com.tr/resim/377.jpg/" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Gelişmiş ülkelerin dış ticaretlerinde komşu ülkelerin yüksek payına karşılık, Türkiye’nin dış ticaretinde komşularının aldığı küçük pay, ihracatımızı nereye yönlendirmemiz gerektiğini gösteriyor. Türkiye’nin ihracat ve ithalat toplamı 70 milyar dolar mertebesinde. Toplam nüfusu 300 milyonu bulan komşularımızın bu ticaretteki payı ise 6 milyar dolar seviyesinde. Bunun da 4 milyar doları ithalat, 1.9 milyar doları ihracat
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye ile İran arasında 2002 yılının Ağustos ayında başlayan savaş bir yılını henüz doldurdu. Dış dünyaya karşı elindeki siyasi ve ekonomik kozlarını büyük ölçüde yitirmiş olan Türkiye’nin savaş halinde olmasından yararlanmak isteyen ülkeler adeta sıraya girdi. Yunanistan istediğini elde etti. Kıbrıs meselesinde Türkiye’ye dayattığı formül, virgülüne dokunmadan kabul edildi. Bulgaristan ve Yunanistan tarafından Balkanlar’daki Türklere karşı yürütülen asimilasyon faaliyetlerinde ciddi artış var. Türkiye bu konuda yeterli karşılığı veremiyor. Fırat ve Dicle’den gelen su miktarının artırılmasını isteyen Suriye ve Irak emellerine ulaştılar. Ermenistan, soykırım iddialarını Amerikan Kongresi’nden geçirdi. Türkiye ağır bir tazminat cezasına çarptırıldı. Suriye’nin lojistik desteğinde yeniden teşkilatlanan PKK, Türk askerine karşı giriştiği terör saldırılarını artırdı.”
+   <br>
+    <br>
+     Türkiye Cumhuriyeti, kurulduğu günden bu yana potansiyel düşman psikolojisi içerisinde komşularına karşı hep teyakkuzda kaldı. Onların düşmanlık adına yaptıklarından hiç şaşırmadığı gibi, dostluklarını da sahte buldu. Doğrusu tarihten gelen  kabul edilebilir makul sebepleri yok değildi; Araplar bizi arkadan vurmuş, Ermeni ve Yunanlılar Osmanlı’nın başı sıkıştığında hemen ihanet bayrağını çekerek düşman kuvvetlerle ittifak etmişti. İran zaten köklü Pers medeniyetinin Şii libasını giymiş, bölgede Türkiye’nin en büyük rakibi konumunda olan bir ülke idi. Tarih de şahitti ki, İran her zaman Türkiye’nin zayıf anını kollar ve yakaladığında da hemen saldırırdı. Türkiye’de yakın tarih şuurunu oluşturan unsurlar hep bu bilgilerle donatıldı.
+     <br>
+      <br>
+       Tarih öğrenmeyi sırf bu sebeplerle zararlı görenler var. İnsanlık tarihi biraz da savaşlar tarihi anlamına geliyor. Çağ açıp çağ kapamak, başlangıçlar ve yıkılmalar hep savaşların arkasından yaşandı. Her millet geçmişin hesabını kendince yaptı. Tarih kitapları ülke insanına düşmanlarını öğretti. Ülkeler birbirleri ile ilişkiye girerken yüzlerce yıllık tarihi birikimlerini ve hesaplarını dikkate alıyorlar. Ve eğer birikim kanlı sahnelerin ön plana çıkarıldığı bir görüntü veriyorsa, ilişkiler de olumsuz etkileniyor bundan. Bu sebeple hiç tarih öğretilmese insanların ‘bilgiyi sıfırlayarak’ taze başlangıçlar yapabileceği öngörülüyor. Böylesi bir düşünce mutlak anlamda bir fantezi gibi görünse de ‘taze başlangıçlar için geçmişin kötü günlerini’ anmama ilkesinden her zaman istifade edilebilir.
+       <br/>
+       <br/>
+       Yukarıdaki senaryo bir hayal mahsulü olsa da ihtimallerin hangisine ‘İşte bu olmaz’ diyebiliriz? 1774 Küçük Kaynarca Anlaşması’ndan bu yana başına gelenler Türklerde kendine has bir koruma güdüsü meydana getirdi ve parçadan pay kapma arzusu içinde olan komşularımızla bir türlü sağlıklı iletişim kuramadık. Merhum Alparslan Türkeş “Türkiye’nin çevresi düşman ülkelerle çevrili. Kendimizi güvende hissetmemiz için asker ve silah gücü açısından komşularımızın toplamından daha güçlü olmalıyız” demişti. Bu hedefe ulaşmak için sürekli silah siparişi verip asker sayısını artırdı. Fakat hedefi büyütüp ekonomik açıdan komşularımızın toplamından daha güçlü olmamız gerektiği konusunda proje geliştiremedi.
+       <br/>
+       <br/>
+       Tehdit algılaması konjonktürel olarak doğru
+       <br/>
+       <br/>
+       Türkiye’nin sürekli dış tehditler üreterek askeri yatırımlara fazlaca ağırlık vermesi belli çevreler tarafından sürekli eleştirildi. Japonya ve Almanya örneği gösterilerek savunmaya harcanacak paraların bunun yerine ekonomiye harcanması halinde Türk halkının refah seviyesinin şimdikinden çok yüksekte olacağı ileri sürüldü. Askerin, başka ülkelerde de sık sık görüldüğü gibi, ülke içindeki önemini devam ettirebilmek için dış tehditleri bahane ettiği teorisi savunuldu. Fakat bu düşüncenin tam aksine Türkiye’nin düşmanlarının hayali değil gerçek olduğu ve asker cephesinin dış tehdit sıralamasında doğru bir iş yaptığı genel kabul gören yaklaşım oldu. Devlet Planlama Teşkilatı eski Müsteşarı İlhan Kesici, Türk ordusunun etrafımızdaki ülkelerle ilgili tehdit değerlendirmesinin doğru olduğunu hararetle savunanlardan. Kesici bu gerçeğin bizim komşularımız tarafından da kabul edildiğine dikkat çektikten sonra; “İki sene öncesine kadar Yunanistan Türkiye için 1. derecede tehdit ülkesi idi. Yunanistan için de Türkiye aynı durumdaydı. Suriye teröre maddi ve lojistik destek sağlıyordu. Türkiye uzun yıllar terör belası ile uğraşmak zorunda kalmıştı. Irak lideri Saddam, ‘Varşova Paktı yıkıldı; şimdi sizi kim koruyacak?’ diyerek açıktan Türkiye’yi tehdit ediyordu” diyor. Kesici soruyor: “Sovyetler Birliği 10 sene önce gerçekten Türkiye için bir tehdit değil miydi?”
+       <br/>
+       <br/>
+       Ordu, gelişmelere uygun hareket etti
+       <br/>
+       <br/>
+       Türkiye’nin komşuları ile olan ilişkilerini tarih perspektifi açısından irdelediğimizde, küreselleşme, demokrasi ve serbest piyasa ekonomisinin yeryüzünü etkisi altına almadığı ve dünyanın iki kutup halinde idare edildiği bir dönemde Türkiye’nin dostluk rüzgarları estirmesi İlhan Kesici’nin dediği gibi ham hayal ve düşmanın iştahını artıracak bir hamle olarak da değerlendirilebilirdi. Ancak 1990’lı yılların ortalarından itibaren dünyada kapalı rejimleri de içerisine alan ciddi bir yumuşama dalgası hakim. Ülkeler arasında ticari ve siyasi açıdan ilişkiler daha barışçı bir sürece girdi. Suriye, Yunanistan ve Rusya belli ölçüler içerisinde iyi niyet mesajları veriyorlar. Tam bu noktada Türk siyaseti ve Türk ordusunun bu yeni gelişmeler ışığında üzerine düşeni yaptığı, yumuşayarak ticari ilişkilerin artırılması yönünde desteğini sunduğu ve bu açıdan son MGK kararlarının sürpriz olmadığı, hatta normal karşılanması gerektiği kaydediliyor.
+       <br/>
+       <br/>
+       Devlet bu sefer ciddi
+       <br/>
+       <br/>
+       Türkiye komşuları ile ticaretin önemini Turgut Özal’lı yıllarda fark etmiş ve engelleri bertaraf etmek için Karadeniz Ekonomik İşbirliği gibi önemli oluşumlara hamilik yapmıştı. Yine Özal, İran ile iyi niyet görüşmelerini yoğunlaştırmıştı. Fakat içeride ve dışarıdaki sıkıntılı gelişmeler elle tutulur sonuçlar elde edilmesine imkan vermedi. Bu sefer devlet işi daha sıkı tutuyor. En aşağıdan başlayan yeni bir hamle başlatarak komşularla ticaretin alt yapısını sağlam örmeye çalışıyor. DEİK, TOBB, Türkiye Müteahhitler Birliği ve Dış Ticaret Müsteşarlığı’nın birlikte yürüttüğü bir çalışma başlatıldı. Çalışmanın başlığı, ‘Komşularımızla ilişkileri nasıl geliştirebiliriz?’ Her bir organın ayrı ayrı oluşturduğu rapor daha sonra tek bir rapor haline dönüştürülerek hükümete sunulacak. 2002 yılında da hükümet ani bir karar değişikliği yaparak dış ticarette önceliğin komşu ülkelere verilmesini kararlaştırdı. Devlet Bakanı Tunca Toskay ve Dış Ticaret Müsteşarı Kürşat Tüzmen yoğun bir seyahat trafiği içinde fuar organizasyonlarına katılarak, iş adamlarını toplu halde komşu ülkelere davet ederek ve komşu ülkenin iş adamlarını Türkiye’de ağırlayarak önemli bir çalışmaya ön ayak oluyorlar. Milli Güvenlik Kurulu’nun son toplantısının ana konusunun komşu ülkelerle ticari ilişkileri geliştirmek olması, askerin de bu konuda ikna olduğuna bir işaret.
+       <br/>
+       <br/>
+       Rakamlar ne söylüyor?
+       <br/>
+       <br/>
+       Uluslararası iktisat teorisi ve dış ticaret öncelikleri komşu ülkelerle ilişkileri ilk sırada zikrediyor. Peki rakamlar, istatistikler bu konuda ne diyor? Rakamlar her şeyi yoruma gerek bırakmayacak ölçüde açıkça ortaya koyuyor. Türkiye’nin ihracatında yakın komşularımızın aldığı pay, 2000 yılı itibarı ile yüzde 9 civarında. Almanya için ise bu oran yüzde 80. Almanya yine en fazla ticareti 2. Dünya Savaşı sırasında düşmanı olan Fransa ile yapıyor. Fransa da en fazla ihracatı Almanya’ya yapıyor. İskandinav ülkeleri ise, dış ticaretlerinde yüzde 40—50 oranında Baltık Denizi çevresini kullanmaktadır. Aynı özellik ABD için de değişmiyor. ABD en fazla ticareti NAFTA üyesi ve sınır komşuları Kanada ve Meksika ile yapıyor. Bunu yine yakın komşuları olan Pasifik ülkeleri takip ediyor. ABD, 1999 yılında Kanada’ya 166.2 milyar dolar ihracat yaparken, 198.3 milyar dolar da ithalat yaptı. Meksika’ya 86.9 milyar dolar ihracat gerçekleştirirken, 109.7 milyar dolar da ithalat gerçekleştirdi. Japonya’ya yine aynı yıl 131.4 milyar dolar ihracat ve 57.5 milyar dolar ithalat gerçekleştirdi. ABD’nin, 2.1 trilyon dolarlık toplam ticaret hacminin yüzde 40’tan fazlasını yakın komşuları ile gerçekleştirdiği görülüyor. Ayrıca bu oran sürekli artış gösteriyor.
+       <br/>
+       <br/>
+       NAFTA’nın kuruluş nedeni, Türkiye’nin niçin komşuları ile ilişkisini geliştirmesi gerektiğine ışık tutacak boyutta. Her üç ülke de ticarette açık veriyordu; dış borçların artması, bütçe açığı gibi faktörler nedeniyle, ihracata ağırlık verecek bir arayış içine girmişlerdi. Bu da ancak, komşu ülkelerle, karşılıklı dayanışma ve işbirliği ile mümkün olacaktı. Burada önemli olan ticarete engel olan gümrüklerin ve diğer engellerin kaldırılmasıydı. Diğer bir neden de, ABD’nin bu ülkelerdeki yatırımlarını garantiye alması, onların ekonomik olarak istikrarlı olmasıyla ve buna bağlı olarak siyasal istikrara kavuşmasıyla mümkün olacaktı. Ayrıca Meksika’nın kalkınması ve büyümesi ABD için daha fazla mal satması anlamına gelecekti. Büyüme ile yaratılan istihdam, ABD’ye göçün önünü kesecekti.
+       <br/>
+       <br/>
+       Gelişmiş ülkelerin dış ticaretlerinde komşu ülkelerin yüksek payına karşılık, Türkiye’nin dış ticaretinde komşularının aldığı küçük pay, ihracatımızı nereye yönlendirmemiz gerektiğini bize göstermektedir. Türkiye’nin ihracat ve ithalat toplamı 70 milyar dolar mertebesinde. Komşu ülkelerimizin bu ticaretteki payı ise 6 milyar dolar seviyesinde. Bu 6 milyar doların 4 milyar doları ithalat, 1.9 milyar doları ise ihracat. Komşularının toplam nüfusu 300 milyon. Türkiye ekonomisi sanayi ağırlıklı ürün üretiyor ve ihraç ediyor. Bölgesindeki ülkelerin çoğuna göre kalite ve fiyat yönünden rakipsiz bir noktada olması tüketim ürünleri açısından büyük avantaj sağlıyor.
+       <br/>
+       <br/>
+       Tarafların hepsi suçlu
+       <br/>
+       <br/>
+       Türkiye Müteahhitler Birliği eski Başkanı Kadir Sever, Türkiye’nin komşuları ile ilişkilerinin gelişmemesinde kabahati sadece karşı tarafa atmanın doğru olmadığını, Türkiye’nin de hatalar yaptığını ancak bunların geride bırakılması gerektiğini söylüyor. Hükümet, ilgili organlar ve iş adamlarının bir süreden beri Suriye, Irak, Ürdün gibi ülkelere yoğun bir şekilde ziyarette bulunduğunu, karşılıklı gidiş ve gelişlerin arttığını belirten Kadir Sever’e göre dış politikada jestler tesadüflerle yapılmaz. Mutlaka ekonomik bir gerekçesi vardır. Şu anda komşu ülkeler kendi aralarında birbirlerine iyi niyet gösterisi yapıyorlarsa mutlaka bunun semeresi alınacaktır.
+       <br/>
+       <br/>
+       Ticari ilişkilerin geliştirilmesi konusunda Kadir Sever’in bir çekincesi ve isteği var. Gelişmiş ülke şirketleri başka bir ülkeye yatırım yaparken arkasında ülkelerinin prestijini ve gücünü hisseder. Türkiye’de ise Türk müteşebbisinin devletini arkasında göremediğinden yakınan Sever, devlet—iş adamı kilitlenmesi olmazsa Türk müteşebbislerinin gereken cesareti gösteremeyeceğini, söyleyecek devletin iş adamlarını gerek alt yapı gerekse çıkan sorunlar karşısında desteklemesini istiyor.
+       <br/>
+       <br/>
+       Plan tutarsa dış ticarette patlama olur
+       <br/>
+       <br/>
+       Diyelim ki bu yeni strateji değişikliği tuttu. Türkiye dış ticarette önceliği komşularına verdi ve karşılık buldu. Ne olabilir? Bu konuda bürokratlar ve iş adamları ittifakla Türkiye’nin önüne pembe bir tablo koyuyor. Üç sene içinde komşularımızla ticareti ikiye, üçe katlamak mümkün. Hatta İlhan Kesici varlıklı komşularımız dediği Irak ve İran ile ticaretin mübalağasız ona katlanabileceğini savunuyor. Irak’ın ambargolu olması ve İran’ın yarı ambargolu olması bu ülkelerin ellerindeki doğal zenginlikleri paraya çevirmesini engelliyor ve mal alış verişi yapamıyorlar. Kadir Sever ise Irak’ın şimdiden milyarlarca dolarlık müteahhitlik ihalelerini Türkiye’ye vermeye hazır olduğunu ancak ABD’nin Irak’a olan husumetinin getirdiği belirsizliğin bu çalışmaları ertelediğini ifade ediyor.
+       <br/>
+       <br/>
+       Büyük fırsat kaçtı
+       <br/>
+       <br/>
+       İran ile 1997 yılında yapılan doğalgaz anlaşması çok önemli bir ticari fırsatın kaçmasına sebep oldu. Anlaşma yapılırken alınan doğalgaz karşılığında satılacak mal ve hizmetler gündeme getirilmiyor. Yapılan büyük hata daha sonra müzakereler yolu ile çözülmeye çalışılıyor. Oluşturulan Karma Ekonomi Komisyonu Mehmet Keçeciler başkanlığında İran’a gidiyor. Fakat İran tarafı enerji satışını ürün kategorisine koymadığı için ikameci bir anlaşma yapılamıyor. Aynı durum Devlet Bakanı Yılmaz Karakoyunlu’nun da ifade ettiği gibi Mavi Akım anlaşması sırasında yaşandı. Genel temayüllerin aksine Türkiye doğalgaz alacak ama karşılığında mal satamayacak.
+       <br/>
+       <br/>
+       Sınır ticareti kolaylaştırılmalı
+       <br/>
+       <br/>
+       Komşularımızla ticaret deyip de sınır ticaretine özel bir vurgu yapmamak büyük eksiklik olur. Çünkü Doğu ve Güneydoğu illerinin kalkınmasında sınır ticareti vazgeçilmez bir özellik taşıyor. Sınır ticareti bu zamana kadar terörün de etkisi ile illegal yöntemlerle gerçekleştirilen ilkel bir metot olarak ele alınmış. Fakat ülkelerin yakınlıkları ve bölgenin sosyal özellikleri dikkate alındığında sınır ticaretinin yöre halkı lehine düzenlenmesi ve artırılması isteniyor. Hakkari Milletvekili Macit Piruzbeyoğlu Irak, İran ve Suriye’ye yoğun bir şekilde giden ve ticari potansiyelleri bilen biri olarak devletin halk üzerindeki baskıları azaltması halinde sınır ticaretinin patlama yapacağını savunuyor.
+       <br/>
+       <br/>
+       Piruzbeyoğlu, hiç de haksız değil. Zira bugün, komşu ülkelerle yaptığımız sınır ticareti miktarı 2 milyar doların üzerinde. Yani, bu ülkelerle resmî dış ticaretimizin üçte 1’i kadar; ancak, sınır ticaretinin, petrol ürünleri ithalatı dışında fazla bir anlam taşımadığı da unutulmamalı. Halbuki, sınır ticareti, normal ticarete göre daha kolay geliştirilebilen bir ticaret türü. Resmî dış ticareti, belli bir bilgi birikimi ve sermaye gerektirdiği için küçük bir kesim yapabilirken, sınır ticareti daha yaygın bir kesim tarafından yapılabilmekte. Bu ticaretle iştigal edenlerin sayısının artması ve ticaretin gelişmesiyle, sınır ticareti, aynı zamanda, ilin gelir seviyesini de artırabilir. Sınır ticaretinde formalitelerin resmî dış ticarete göre daha az olması, bu ticaretin en büyük avantajı. Bu yüzden, sınır ticaretine önem verilmesi, bilhassa sınır ticareti içinde açık pazar uygulamasının gerçekleştirilmesi ve yaygınlaştırılması üzerinde durulması gerekli.
+       <br/>
+       <br/>
+       Türkiye, 97 kapı ve 270 gümrükle, dünyada en çok sınır kapısı olan ülkelerin başında yer alıyor. Çok sayıda sınır kapısı, komşu ülkelere açılan çok sayıda ticaret kapısı olarak değerlendirilebilir. Fakat şu anda ticaretin az olması dolayısı ile bu sınır kapıları devletin sırtında bir kambur, çok sayıda sınır kapısının devlete getirdiği yüksek maliyet, bu kapıların sınır ticaretiyle değerlendirilmesi halinde devlete katkıya dönüşebilir.
+       <br/>
+       <br/>
+       Türkiye’nin komşuları ile olan sorunları ister suni isterse gerçek sebeplere dayansın neticede olan bölgede yaşayan halkın refah seviyesine ve huzuruna oldu. Birbirlerine gardını alarak yaklaşan ülkeler bir türlü istenen seviyede ticari diyaloğun başlamasını sağlayamadı. Ama konjonktür bu sefer yeni bir fırsatı altın tepside sunuyor. Ve bu bütünleşmenin önünde sadece kapalı rejimler durabilir...
+       <br/>
+       <br/>
+       E—Posta: harunodabasi@hotmail.com
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       TÜRKİYE VE KOMŞULARI
+       <br/>
+       <br/>
+       Bulgaristan
+       <br/>
+       <br/>
+       2000 yılında Bulgaristan’a 251.5 milyon dolar ihracat yaparken, bu ülkeden 459.4 milyon dolarlık ithalat gerçekleştirmişiz. Dış ticaret dengesi Türkiye aleyhine açık vermekte. Bulgaristan Yabancı Yatırım Ajansı rakamlarına göre; Türkiye’nin Bulgaristan’daki toplam yatırım tutarı, 2000 yılı itibariyle 19.5 milyon Amerikan Doları. 2000 yılında ülkedeki Türk yatırımlarının toplam yabancı sermaye yatırımları içindeki payı yüzde 1.8 olmuş. 1992—2000 yılları arasında Türkiye’nin ülkedeki doğrudan yabancı yatırımlar içindeki payı, 125 milyon Amerikan Doları ile yüzde 3.9. Ülkede yatırım faaliyetinde bulunan Türk şirketlerinin büyük bir kısmı küçük ve orta ölçekli firmalar. Yapılan yatırımlar büyüklük itibariyle değerlendirildiğinde Türkiye; Almanya, Belçika, İtalya, Yunanistan, Güney Kıbrıs, ABD, Avusturya, Rusya Federasyonu, Hollanda ve İngiltere’den sonra 11. sırada yer almakta. İki ülke arasında 1999 yılında yürürlüğe giren Serbest Ticaret Anlaşması temelde iki ülke ilişkilerini artırmak açısından büyük imkanlar tanıyor. Ancak bu zamana kadar bu imkanın yeterince değerlendirildiği söylenemez. Bulgaristan tarafının özellikle vize ve gümrük işlemlerinde Türkiye’nin işini zorlaştırması önemli bir handikaptı. Geçtiğimiz haftalarda Başbakan Bülent Ecevit’in Bulgaristan ziyareti sırasında iki ülke ilişkilerindeki zorlukların aşılmasına dönük ortak niyetler ortaya kondu. Ülkedeki Türk ürünlerinin kalitelerine yönelik olumsuz düşünceler ve bavul ticaretinin yarattığı olumsuz imaj Türk mallarının ülke içindeki satışını negatif yönde etkilemekte. Bulgaristan iç pazarında satılan gıda, tekstil ürünleri, cam ürünleri ve temizlik maddelerinin önemli bir kısmı ülkeye bavul ticareti yolu ile giriyor. İki ülke ticaretindeki diğer bir sorun ise para transferi.
+       <br/>
+       <br/>
+       Yunanistan
+       <br/>
+       <br/>
+       2000 yılı itibarı ile Yunanistan’a ihracatımız 434.7, ithalatımız 430.7 milyon dolar. 1999 yılında 100 milyon dolar Türkiye lehine fazla veren ticaret dengesi 2000 yılında 4 milyon dolar fazlaya düştü. Türkiye ile Yunanistan arasındaki mevcut siyasi sorunlar bugüne kadar ekonomik ilişkilerin gelişmesini engelledi. İki ülke arasında ticari ve ekonomik imkanların geliştirilmesi amacıyla Türk—Yunan İş Konseyi oluşturuldu. Yunanistan—Türkiye ticaret hacmi son yıllarda önemli ölçüde artış gösterdi.
+       <br/>
+       <br/>
+       Suriye
+       <br/>
+       <br/>
+       2000 yılında Suriye’ye ihracatımız 182.5 milyon dolar olarak gerçekleşirken Suriye’den ithalatımız 545 milyon dolar oldu. Dış ticaret dengesi Türkiye aleyhine önemli ölçüde açık veriyor. Suriye ile Türkiye arasındaki coğrafi yakınlık ve iki toplum arasındaki tarihi ve kültürel bağlar ticari ilişkilerimizin gelişmesinde önemli rol oynamakta. Resmi rakamlara göre, Türkiye Suriye’nin ihracat yaptığı ülkeler arasında ikinci, ithalat yaptığı ülkeler arasında dördüncü sırada. Avrupa Birliği Suriye’ye serbest piyasa ekonomisine geçiş sürecinde her türlü desteği sağlıyor. Suriye’nin Ortadoğu’daki coğrafi konumu ve Arap liderliğine soyunması dikkate alındığında, Suriye ile olan ticaretimiz özel bir öneme sahip. Türkiye ile Suriye arasındaki ticari ilişkilerin geliştirilmesi, hem siyasi gerginliklerin giderilmesine hem de Ortadoğu ülkelerinde kalıcı ve genişleyici bir pazar oluşturulmasına önemli katkı sağlayacağı düşünülmekte.
+       <br/>
+       <br/>
+       İran
+       <br/>
+       <br/>
+       İran İslam Cumhuriyeti’yle ticari ilişkilerimizde 2000 yılında ihracatımız 235,784 milyon dolar iken, ithalatımız 815,730 dolar olarak gerçekleşti. Türkiye—İran ekonomik ilişkileri siyasi gerginlikler ve İran’ın ithal ikameci politikasından kaynaklanan sınırlamalar nedeniyle gerçek potansiyelini yansıtmıyor. Bu nedenle dış ticarette İran lehine sürekli bir dengesizlik söz konusu. Türkiye ile İran arasındaki ticaretin durgunluğunun temel nedenleri arasında, İran’ın ithalatını tümüyle Merkez Bankası kontrolünde ve onun izniyle yapması, Türkiye—İran arasındaki siyasi ilişkilerin gerginleştiği dönemlerde İran makamlarının kamu kuruluşlarınca yapılan ithalatı başka ülkelere yönlendirmesi, öte yandan kamu kuruluşlarının ithalatlarında genelde bağlı muamele ve “counter trade” gibi alternatif ödeme şekillerini ön plana çıkarmaları ya da asgari bir yıllık kredili ithalat yapmak istemeleri, bu tür tekliflerin ise firmalarımızca genelde kabul edilmemesi bulunuyor.
+       <br/>
+       <br/>
+       2000 yılından itibaren ihracatımızda nispi olarak önemli artışların meydana gelmesinde karşılıklı üst düzey ziyaretlerin, Ticaret Heyeti gezilerinin, fuarlara giderek artan sayıda Türk şirketlerinin katılımının önemli payı var. İran’a yatırıma ilgi duyan ve küçük ölçekli yatırım gerçekleştiren Türk şirketlerinin sayısı her geçen gün artmakta. Bu çerçevede, önde gelen Türk şirketlerinin bazılarının gerçekleştirmekte olduğu veya planladığı (beyaz eşya, otomobil, mağazalar zinciri, kordbezi, otelcilik vb.) önemli projeler bulunuyor. İran’ın Kish adası ve Chabahar Serbest Bölgelerinde bazı Türk şirketleri şube açtılar ve/veya yatırım gerçekleştirdiler. Uzun bir aradan sonra ilk kez düzenlenen geniş katılımlı Türk Ticaret Heyeti gezisi, bunu takiben İran Ticaret Bakanı Türkiye gezisi, bazı dernek üyesi iş adamlarının İran gezisi, İran Ticaret Heyeti Türkiye gezisi ticari açıdan çok büyük yarar sağlayan geziler olarak sayılabilir.
+       <br/>
+       <br/>
+       Azerbaycan
+       <br/>
+       <br/>
+       Azerbaycan Türkiye’nin sorunlu komşusu değil ancak birliktelikleri uzun vadeli stratejilerle desteklenmiş bir ülke. 2000 yılında Tükiye’nin Azerbaycan’a ihracatı 230.3 milyon dolar iken Azerbaycan’dan ithalatı 95.6 milyon dolar olarak gerçekleşti. Türkiye’nin Azerbaycan’a ihracatı; ihraç ürünlerinin bu ülkede tanınmaya başlaması, Azerbaycan’ın en önemli ticaret partnerlerinden biri olan İran’ın ihraç ürünlerinin Türk ihraç ürünlerine kıyasla düşük kalitede olması, Azerbaycan—Rusya Federasyonu arasındaki Kuzey Kafkas demiryolunun kapalı olması, Türk şirketlerinin Azerbaycan piyasasında şube açmak suretiyle Türkiye’den ithalat yapması ve bu malları iç piyasada pazarlaması gibi nedenlerle 1993 yılından beri yükselme eğilimi göstermekte. Bunların yanı sıra, İran tarafından ihraç edilen ürünlerin Türk ihraç ürünlerine kıyasla düşük kaliteli olması da Türkiye’den ihracatı olumlu yönde etkiledi. Ancak, yüksek gümrük vergisi oranları nedeni ile iki ülke dış ticareti sekteye uğruyor.
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       Şu anda ticari ilişkilerimiz rakama vurulmayacak kadar önemsiz boyutta. Türkiye bu ülke ile ticari ilişkilerini geliştirmek için çaba sarfediyor. Azerbaycan’ı üzmeyi göze alarak bu ülkeye gıda yardımında bulundu. Karşılıklı iş adamları dernekleri diyaloğa geçerek mesafe almaya çalışıyorlar. Ancak özellikle dış baskılar iki ülkenin önünü kesiyor.
+       <br/>
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12124), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225010251/http://www.aksiyon.com.tr:80/detay.php?id=12124)

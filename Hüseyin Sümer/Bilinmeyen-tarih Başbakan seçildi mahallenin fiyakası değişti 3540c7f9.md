@@ -1,0 +1,153 @@
+# Başbakan seçildi mahallenin fiyakası değişti
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050120113708im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050120113708im_/http://www.aksiyon.com.tr/resim/471/64.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Recep Tayyip Erdoğan"ın evinin bulunduğu Üsküdar"daki Burhaniye Mahallesi, Başbakan"ın mahallesi olduğu için sürekli gündeme geliyor. Erdoğan"ın Başbakanlığa gelişinin ardından mahallenin şansı açılmış. Birçok yatırımlar da kendiliğinden gelmeye başlamış.
+  <br>
+   Her şehrin kendisinden başka hiç kimsenin bilmediği sokakları ve orada yaşayan insanların umutlarını yüreklerine gömdükleri büyük dramları vardır.
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İnsanların birlikte yaşamaya başladığı, toplumsal yaşamın benimsendiği zamandan bu yana sokaklar, kent karakterini ve kent kimliğini de belirleyen önemli unsurlardan biri olmuştur. Özel mülkiyet ve özel dünyanın bittiği, toplumsal yaşamın başladığı sokakların, orada yaşayan insanların karakterlerinin şekillenmesinde etkileri büyüktür.
+   <br>
+    Sadece sokaklar insana etki etmez; insanlar da sokağı etkiler. Ülkenin önde gelen insanlarının oturduğu sokaklar, o insanlarla birlikte anılır. Mesela, Süleyman Demirel"in "Güniz Sok. No: 31 Kavaklıdere-Ankara" adresi herkesçe malumdur. Uzun yıllardır ikametgahının bulunduğu bu sokak, Süleyman Demirel"le özdeşleşmiştir. Siyaset edebiyatımızda Güniz Sokak, Demirel demektir.
+    <br>
+     <br>
+      Tayyip Erdoğan"ın başbakan olmasından sonra ise siyasette Gürgen Sokak dönemi başladı. Erdoğan"ın yıllardır oturduğu sokak, bundan böyle siyasetçilerin, yabancı konukların ve medya mensuplarının uğrak noktası haline geldi.
+      <br/>
+      <br/>
+      Başbakan çıkarmanın keyfi yaşanıyor
+      <br/>
+      <br/>
+      Dükkanlarının vitrinlerine, evlerinin balkonlarına Erdoğan"ın poster ve afişlerini asan mahalle sakinleri şimdi başbakan çıkarmanın keyfini yaşıyor. Erdoğan"ın başbakan seçilmesinden bu yana Üsküdar Burhaniye Mahallesinin çehresi de değişti. Sokaklar daha bakımlı hale geldi; alt yapı hizmetleri hızlandı. Büyükşehir Belediyesi, mahalleye düzenlenen otobüs seferlerini önce iptal etti, ardında da ısrarlı çalışmalar sonucunda bu hatasını düzeltti.
+      <br/>
+      <br/>
+      Sokaktaki vatandaş, başbakan olduktan sonra da lojmana geçmeyip mahallede kalan Erdoğan"dan çok memnun. Mahalle sakini işadamı Zülfü Pişkin, "Tayyip Erdoğan"ın yerinde bir başkası olsaydı, anında lüks bir yere, mesela Beykoz Konaklarına taşınırdı. Ben bile biraz üst düzey yönetici olayım, müdür olayım hemen değiştirirdim mahallemi. Başbakan burada oturabiliyor; bu benim çok hoşuma gidiyor" diyor.
+      <br/>
+      <br/>
+      AK Parti Üsküdar İlçe Başkanı Mehmet Küçük ise bir yanlışın düzeltilmesi gerektiğini söylüyor, "Bugüne kadar Erdoğan"ın oturduğu evin adresi hep Emniyet Mahallesi olarak geçti. Oysa seçmen olarak kütüğünün bulunduğu yer, Burhaniye Mahallesi. Gürgen Sokak, gerçekte Burhaniye Mahallesi sınırları içerisinde yer alıyor."
+      <br/>
+      <br/>
+      Tayyip Erdoğan"ın belediye başkanlığı döneminde Burhaniye Mahallesinin o zamanki muhtarı muhalif olunca, Emniyet Mahallesi"ne komşu olan başkana muhtar sahip çıkar. Erdoğan başbakan olduktan sonra daha fazla ön plana çıkan sokak eski mahallesiyle anılır hale gelir. Burhaniye Mahallesi Muhtarı İsmail Türkoğlu, başbakana sitem eder; "Biz Burhaniyeliyiz dedim. Şimdi başbakan da Burhaniyeli olduğunu söylemeye başladı."
+      <br/>
+      <br/>
+      Başbakan komşuluğu ucuz değil
+      <br/>
+      <br/>
+      Erdoğan"ın başbakanlığa gelişinin ardından mahallenin de şansı açılır. Birçok alt yapı ya da özel teşebbüs yatırımı istenmeden gelmeye başlar. Mahalle, seçim sonrası ilgi odağı olunca doğal olarak emlakçılara da gün doğar. Orta gelirli kesimin ağırlıkta olduğu mahallede işler tıkır tıkır yürümese de mahalleli, cazibe odağı haline gelinmesinden memnun.
+      <br/>
+      <br/>
+      250 milyon lira olan kiralar 400-500 milyon liraya kadar yükselir. Ev sahipleri kirayı yüksek bulan kiracılara, "Başbakana komşu olmak ucuz olmaz" diyerek espri yapmayı da ihmal etmiyor.
+      <br/>
+      <br/>
+      Başbakanın sokağının karşısında üç ay önce açılan Koçlar Börek Salonunu güvenlik elemanlarının yanı sıra gazeteciler ve misafirler dolduruyor. Mahallede yeni yeni modern mekanlar da göze çarpıyor. Üç yıllık restorasyondan sonra birkaç ay önce faaliyete geçen Mabeyin Restaurant gibi yeni mekanlar mahallenin ilerideki çehresi hakkında ipuçları veriyor.
+      <br/>
+      <br/>
+      TEDAŞ, Tayyip Erdoğan"ın oturduğu Burhaniye Mahallesinin 61 sokağındaki tüm tesisatlarını modern ölçüler içerisinde yer altına indirmiş. Bu hizmetler bir baskı sonucundan ziyade, biraz muhtarın gayreti, biraz da TEDAŞ"ın duyarlılığıyla halledilmiş.
+      <br/>
+      <br/>
+      Mahallede yaşayan herkesin bir anısı var
+      <br/>
+      <br/>
+      Bütün insanlar gibi sokakların da hikayeleri ve hafızaları var. Bu hikayelerde bazen insanlar, bazen sokaklar, bazen de her ikisi birden başrolü oynar. Yaşayan canlılar gibi onlar da nefes alıp verirken hatıralar ön plana çıkar. Bu açıdan bakıldığında Gürgen Sokak, bir başbakan barındırıyor olmanın hatıralarıyla canlı.
+      <br/>
+      <br/>
+      Orada yaşayan herkesin, mahallelerinden çıkan başbakanla ilgili anlatacağı bir sürü anısı var. Özellikle İstanbul"da yaşanan terör olaylarından sonra güvenliğin mahalle esnafı biraz zorlansa da bu durumdan şikayetçi değil.
+      <br/>
+      <br/>
+      Türk toplumunun geleneksel mahalle yapısının özeliklerini taşıyan Burhaniye"de Batı ülkelerindekinin aksine geniş sokaklara pek rastlanmıyor. Sokakların bir kısmı geniş ancak saçaklarla örtülü. Rüzgar, yağmur gibi tabiat şartlarına kapalı yapıları Burhaniye"de görmek mümkün. Akdeniz kıyı kentlerindeki sokak yaşamlarının canlılığı da burada hissediliyor.
+      <br/>
+      <br/>
+      Bu canlılığı biraz da başbakan çıkartmalarına borçlular. Tayyip Erdoğan"ın, kimi Avrupa ülkelerinde metroya binen, bisikletle işe yetişen başbakan profiline uyduğunu söyleyen İlçe Başkanı Mehmet Küçük, "Yüzyıllar içinde hiçbir sadrazam, başbakan oturmadı. Üsküdar"da. Bu bizim için büyük bir avantaj. Türkiye"nin bazı özel şartları uygun olsa Tayyip Erdoğan gibi bir devlet adamı daha çok halkla iç içe yaşayabilir" diyor.
+      <br/>
+      <br/>
+      Başbakanın ramazanda bayram namazını Marmara Üniversitesi İlahiyat Fakültesi Vakfı Camii"nde kılması, ardından da caminin alt katındaki salonda verilen çay, simit, beyaz peynir, kaşar peyniri, zeytin, domates ve salatalıktan oluşan geleneksel bayram kahvaltısından yemesi mahallelinin gözünden kaçmamış.
+      <br/>
+      <br/>
+      Sokaklar, toplumlara ve coğrafyalara göre farklılıklar gösteren yerler. Terör olaylarından dolayı güvenliğin artmasıyla esnaf biraz zorlansa da sokakta hayat devam ediyor. Şu anda başbakanın sokağı kapalı. Erdoğan, hâlâ Gürgen Sokak"taki beş katlı apartmanını konut ve ofis olarak kullanmaya devam ediyor...
+      <br/>
+      <br/>
+      MAHALLENİN NÜFUS DAĞILIMI
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      Memleketi        Oran%
+      <br/>
+      <br/>
+      İstanbul kütüklü        14.65
+      <br/>
+      <br/>
+      Rizeli        8.87
+      <br/>
+      <br/>
+      Giresunlu        7.84
+      <br/>
+      <br/>
+      Malatyalı        5.88
+      <br/>
+      <br/>
+      Trabzonlu        4.87
+      <br/>
+      <br/>
+      Sivaslı        4.27
+      <br/>
+      <br/>
+      Erzincanlı        4.14
+      <br/>
+      <br/>
+      Kastamonulu        4.13
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      BURHANİYE MAHALLESİ MUHTARI İSMAİL TÜRKOĞLU:
+      <br/>
+      <br/>
+      BAŞBAKANA KOMŞU OLMAK PAHALI
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      Başbakanın mahallesi güzel olmalı diyerek işleri hızlandırdık. Sorunların çözümü için Tayyip Erdoğan herhangi bir talimat vermiş değil. TEDAŞ, mahallemizin bütün elektrik tesisatını yer altına indirdi. 61 sokaktan üç-dört tanesi henüz yapılmadı. Bizim iki tane ilkokulumuz var. Bir tanesinin yedi tane dersliği var, diğerinin ise hiçbir şeyi yok. Anadolunun bir köyünde böyle okul yoktur. Başbakan seçimlerde oyunu bu okulda kullanmıştı. Mahallede 12 bin kişi yaşıyor. Bu okul 24 derslikli modern bir eğitim kurumuna dönüştürülecek. Mahallemizden başbakan çıkması en çok ev sahiplerine faydalı oldu. 250 milyon lira olan kiralar 400-500 milyon liraya yükseldi. Ev sahipleri "Başbakana komşuluk ucuz olmaz" diyor. Eskiden hırsızlık olayları yüksekti. Şimdi bitti. Mahalleye yeni bir park yapacağı ve sokaklarına parke döşeyeceğiz.
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      AK PARTİ ÜSKÜDAR İLÇE BAŞKANI MEHMET KÜÇÜK:
+      <br/>
+      <br/>
+      "YÜZ YILLIK HAYAL GERÇEKLEŞECEK"
+      <br/>
+      <br/>
+      <br/>
+      <br/>
+      Şimdiye kadar Başbakan Tayyip Erdoğan"ın oturduğu evin bulunduğu yer, Emniyet Mahallesi olarak bilinirdi. Oysa başbakanın seçmen olarak kayıtlı olduğu yer Burhaniye Mahallesi. Tayyip Bey"in başbakan olduğu günün ertesinde Üsküdar"daki evine gelip akşamın karanlığında megafonla mahalle sakinlerine hitap etmesi mahallelinin sempatisini artırdı. Bir başbakanın sokakta oturması çok güzel bir olay; şahsen bana çok sempatik geliyor. Statüsü değişmiş, sosyal çevresi değişmiş ancak yaşam biçimini değiştirmeden görüştüğü dostlarıyla aynı ilişkiyi sürdürüyor olması Türk halkının alışık olmadığı özel bir durum.
+      <br/>
+      <br/>
+      Türkiye"nin başbakanı çok meşgul bir insan. İnsanların bunu bilip ona göre davranması gerekiyor. Sürekli bölgesel sorunlara maruz bırakılmamalı. Biz bu çerçevede zaman zaman, sıkmadan, Üsküdar"ın sorunlarını kendisine aktarıyoruz. Yıllardır Üsküdar"ın hükümet konağı meselesi bulunuyor. Bir türlü çözüme kavuşmadı. Ben kendisine konuyu aktardığımda, Devlet Bakanı ve Başbakan Yardımcısı Abdüllatif Şener"i aradı. Çok nazik bir kişiliği var kendisinin. Bakana konunun gerekçelerini anlatıp Üsküdar"ın büyük bir ilçe olduğunu söyleyedi. Yani emrivaki yapmadı. Bu proje gerçekleşirse 2004 yılında Üsküdar yüz yıllık hayaline kavuşacak.
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=3279), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050120113708/http://www.aksiyon.com.tr:80/detay.php?id=3279)

@@ -1,0 +1,135 @@
+# II. Avni vakası
+
+*Sedat Gülmez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050507155503im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050507155503im_/http://www.aksiyon.com.tr/resim/543/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Nusret Baba, Kirli, Bahtiyar, Korkut ve diğerleri... Üç yıldır ekranın vazgeçilmez dizisi Ekmek Teknesi’nin ana karakterleri... Diziye son olarak katılan “Pöti Avni” karakteri, Oğuz Aral’ın meşhur çizgisi ‘Avanak Avni’nin zengin ve modern yüzü sanki. Aygün Tevfik Hiçyılmaz’ın canlandırdığı ve seyircinin büyük beğenisini kazanan Avni’nin “leğn, len, lan, lan” repliği şimdi herkesin dilinde.
+ </font>
+ <!------------  GOOGLE SPOT ALTI ------------!>
+<br>
+<iframe name="I1" src="kutu1.php" marginwidth="15" marginheight="15" height="90" width="280" scrolling="no" border="0" frameborder="0"></iframe>
+<br>
+<!------------  GOOGLE SPOT ALTI ------------>
+ <p>
+  <font class="content">
+   Kırıkkale’de bir pazar günü. Mevsim ilkbahar. Güneşli havayı gören kendini kırlara atmış. Onlardan biri de Hiçyılmaz ailesi. Pikniğe katılanların eğlenceli bir gün geçireceği kesin; çünkü, ailenin neşe kaynağı Aygün onlarla. Esprileri sıralayan Aygün’de, kendisini tanıyanların deyimiyle adeta ‘şeytan tüyü’ var. Her zaman muziplik yapıp çevresindekileri kahkahaya boğan bu gencin bir gün milyonları gülmekten kırıp geçireceğini kim bilebilirdi ki...
+   <br>
+    <br>
+     “Ekmek Teknesi” adlı dizide “Pöti Avni” karakterini oynayan Aygün Tevfik Hiçyılmaz’dan bahsediyoruz. Gençlik yıllarında turizmci olmayı hayal eder Hiçyılmaz. İyi bir turizmci olabilmek için özel dersler alır. Ancak dersler sırasında da rahat durmaz. Önceleri hocasının anlık gülmelerine sebep olan espriler zamanla derse dahi engel olur. Nitekim hocası Aygün’deki tiyatral yeteneği fark eder: “Hocam ‘Oğlum senin fizik, kimya, matematikle ne işin var. Tiyatrocu olsana’ deyince adeta kafamda bir ampul yandı, dınnnn diye.”
+     <br>
+      <br>
+       Tabii ampul yanınca, Hiçyılmaz başlar araştırmaya. Öyle ya, nasıl tiyatrocu olunur, nereye başvurulur? Hiçbir bilgisi yoktur bu konuda. Zaten ‘ben ne olacağım’ın arayışındaki Hiçyılmaz’ın aklı bu sorularla iyice karışır. Yıllardır yaşadığı Kırıkkale’de tiyatro yapacak imkan yoktur. Sonunda kararını verir ve İstanbul’un yolunu tutar.
+       <br>
+        <br>
+         Ya tiyatro ya da butik dükkanı
+         <br>
+          <br>
+           “İstanbul’a gelirken yolda soyuldum. Hatta Bolu’da vasıtasız kalıp, yürüyerek gelmek zorunda kaldım.” derken gülüyor, Hiçyılmaz. Çünkü söylediklerinin espri olduğunu biz de kendisi kadar iyi biliyoruz. İstanbul’a 1997’de gelir. Bir tanıdığı aracılığı ile ‘Tatlı Kaçıklar’ dizisinde iş bulur. Aygün Tevfik Hiçyılmaz, Yalçın Menteş’in asistanıdır artık. Sette çalışırken çok şey öğrenir. En başta da dakikliği. İsmet Ay gibi sanatçıların on birdeki çalışmaya dokuz, dokuz buçukta geldiğini gördükçe dakiklik düstûru haline gelir. Kararını vermiştir, tiyatrocu olacaktır. Alaylılara saygısının sonsuz olduğunu ifade etmesine rağmen, işin okulunu da okumaya karar verir. Önünde konservatuvara girme zorluğu vardır. Birkaç kez sınava girer; ancak kazanamaz. Kendi deyimiyle pek çok haksızlığa maruz kalır. Değer verdiği bazı sanatçıların adam kayırmasını fark ettikçe hırslanır.
+           <br/>
+           <br/>
+           Sınavlarda başarısız oldukça ailesinin inancı da kaybolmaya başlar. Bu onun moralini etkilemektedir. Önünde bir sınav daha vardır; Eylül 2000’de. Kendince söz verir. Ya bu sınav seddini aşacaktır ya da Kırıkkale’nin yolunu tutacaktır; bir daha tiyatro yapmama pahasına olsa da... “Yani o sınav hayatımın dönüm noktasıydı. Eğer o gün başarılı olamasaydım. Bugün ne Avni ne de dizi olurdu.” diyen Hiçyılmaz, alternatif mesleği de düşünmeden edemez. Memleketi Kırıkkale’nin bir köşe başında mütevazı bir butik dükkanı açmayı düşünür. Bir de helal süt emmiş bir kızla evlenmeyi... Esnaf olmaya niyetlenir; ancak Hiçyılmaz’ın hayalleri aksamaz. Sınavı kazananların listesi açıklandığında, uzun beyaz kağıtta onun da adı yer almaktadır. Artık o, Anadolu Üniversitesi Devlet Konservatuvarı Tiyatro Bölümü öğrencisidir. Böylece Ekim 2000’de başlayan Eskişehir macerası bugüne kadar devam eder. Eskişehir’i ve yere göğe sığdıramadığı bölümünü çok sevse de bir buçuk ay sonra her ikisinden de ayrılmak zorunda kalacak; çünkü mezun olup İstanbul’un yolunu tutacak ki, işleri aksamasın.
+           <br/>
+           <br/>
+           Kurtlar Vadisi de olur ama...
+           <br/>
+           <br/>
+           Hiçyılmaz, on haftadır rol aldığı Ekmek Teknesi sebebiyle gelecek büyükşehire çünkü Eskişehir-İstanbul hattında mekik dokumak onu yoruyor. Ekmek Teknesi’nde rol alması ise başka bir hikâye konusu. Fakültedeki dersleri “tıkırında” giderken, bir tiyatrocu tanıdığın tavsiyesi üzerine, Kurtlar Vadisi ve Ekmek Teknesi dizilerinin yapımcı şirketi Pana Film’in yetkilileriyle görüşme imkanı bulur. İyi bir komedi oyuncusu olduğuna inanan Hiçyılmaz, görüşmede beklentisini çekinmeden dile getirir. Kurtlar Vadisi’nde oynamayı istese de gönlündeki aslan, ‘Ekmek Teknesi’dir. Sıkıntıların, dertlerin insanları sardığı hayatta, yüzlerde açacak bir gülümsemenin vesilesi olabilmek onun için en önemli başarı çünkü.
+           <br/>
+           <br/>
+           Görüşme neticesinde bir bölümde yer almasına karar verilir. Sahne de hazırdır. Mahallenin delikanlılarından Medet Abi (Mazhar Alanson), zengin çocuğu Avni’yi (Aygün Tevfik Hiçyılmaz) yavuklusuna baktı zannıyla dövecektir. Sahne çekilir ve Hiçyılmaz okuluna döner. Ancak bir hafta aradan sonra şirket yetkilileri kendisini arar. Performansı çok beğenilmiş ve dizinin ilerleyen bölümlerinde de rol alması istenmiştir. “O an ne yapacağımı şaşırdım. Ya dizi ya da okul aksayacak. Neyse ki tolerans tanındı. Şimdi bakıyorum da bir bölüm diye başlayan macerada on haftayı geride bıraktık.”
+           <br/>
+           <br/>
+           Avni, her tipten adamın bulunabildiği Ekmek Teknesi mahallesine hızlı bir giriş yapar. Yeni karakterin maddi anlamda her şeyi vardır. Ailesi zengin olduğu için ona tüm imkanlarını açmıştır. Ancak bir şeyi açamamıştır, o da sevgi. İşte mahallede bu sevgiyi bulduğuna inanır. Mahalle, Avni için bulunmaz bir fırsattır. Kısa zamanda arkadaşlarını da bulur. Kirli (Kadir Çöpdemir), Medet Abi, Bahtiyar (Şafak Sezer) Avni’nin en has adamlarıdır. Artık silah taşıyan, kumarbazlığını bastırmak için kumarhanelere giden biridir. Ancak hepsini bir yere kadar yapabilir. Çünkü yılların getirdiği kibarlık hâlâ üzerindedir. İşte bu yüzden dili dönmez, ‘lan!’ demeye. Medet’in tüm çabalarına rağmen bıçkın delikanlılığı bir yere kadar gelişir. Daha ‘lan’ı bile ‘leğn, lein, lan, lan’ sıralamasından sonra bulabilmektedir. Aygün Hiçyılmaz, Avni’yi hayatta sıkıntı çekmemiş, dert görmemiş biri olarak tanımlıyor. Yani, feleğin sillesini yemiş Medet Abi, Bahtiyar gibilerin yanında hiçbir şey yaşamamış. Bu yüzden ‘Pöti Avni’ye çıkar adı; pötibör bisküviye atıfla.
+           <br/>
+           <br/>
+           Hocam dizide oynadığımı yeni öğrendi
+           <br/>
+           <br/>
+           Mahalleliye göre onlar, kuru ekmek bulamazken, Avni gibiler, bisküviyle, kekle büyümüştür. “Avni mahallede aslında bir arınma yaşıyor. Herkesi tek tek izliyor, inceliyor. Herkese ayrı bir muhabbeti var; ama Bahtiyar abisi başka. Kirli ile pek anlaşamıyor; çünkü Kirli miskin. Aslında Oğuz Aral’ın çizdiği Avni bir yerde. Tek farkı bu zengin.”
+           <br/>
+           <br/>
+           Aygün Tevfik Hiçyılmaz, Türkiye’nin en sevilen dizilerinden birinde oynamanın kendini şımartmadığını söylüyor. Zaten dizide rol aldığını da herkese söylemediğini belirtiyor. Hatta konservatuardaki oyun hocası dizide rol aldığını bir iki hafta önce öğrenmiş. Herhangi bir tepki de vermemiş. Kaliteli iş yapılınca tepkiden ziyade olumlu karşılandığını ifade ediyor. Hiçyılmaz unutmaması gereken şeylerin başında öğrenciliğinin geldiğini vurguluyor. Her ne kadar dizi oyuncusu olsa da, okul kapısından girdiği anda öğrenci olduğunun farkında.
+           <br/>
+           <br/>
+           Hedefleri yüksek olan Hiçyılmaz, geleceğini tiyatro üzerine kurmuş. Onun için varsa yoksa tiyatro. En büyük ideali ‘Cyrano de Bergerac’ı oynamak. Çevresinde konuşkan biri olmasına rağmen sevgilisine aşkını açamayan uzun burunlu bir adamın hikayesini anlatan bu oyun, onun için olmazsa olmaz. Çünkü kendini biraz bu kahramana benzetiyor: “Burnum uzun olmasa da onun gibi konuşkan olmama rağmen gerekli cümleyi gerektiği yerde kuramadığım oldu. Bu yüzden birçok mektup kaleme aldım.”
+           <br/>
+           <br/>
+           Bu idealinin dışında istekleri de var Hiçyılmaz’ın. Şu anki rolünü çok sevse de, Avni’nin dışında başka bir karakteri daha canlandırmayı düşünüyor. Çünkü Avni rolünün üzerine yapışabileceğinin farkında. Bu sebeple Anadolu’dan çıkmış, saf hatta Bahtiyar’a benzeyen birini oynamak istiyor. Ama yeni karakterin Avni’den daha komik ve daha başarılı olması gerektiğini söylüyor. Aksi takdirde zihinlerden Avni’yi atmak zor olacak.
+           <br/>
+           <br/>
+           Ya biri beni tanıyıp gülerse...
+           <br/>
+           <br/>
+           Ekmek Teknesi seti Aygün Tevfik Hiçyılmaz için adeta bir okul. Başta Savaş Dinçel olmak üzere tüm oyunculardan bir şey öğrendiğini ifade ediyor. Kısa zamanda kaynaştığı sette en çok Şafak Sezer’e güldüğünü söylüyor. Hele Kadir Çöpdemir, Kirli gözlüklerini takınca bazen gülmekten oynayamadıklarını dile getiriyor.
+           <br/>
+           <br/>
+           Yaptıkları işin dışarıdan kolay gözüktüğünü ancak hiç de öyle olmadığını belirtiyor. Sıkı çalışma temposu, yoğun yolculuklar bir anlamda yoruyor olsa da sanatçı şikayetçi değil. Dizinin yanısıra okulda ki bir oyunda rol alıyor. Hem de Avni karakterinin tam zıddı Nazi Subayı rolüyle. İki rol arasında ikileme düşmese de, çekindiği bir şey var; “Yani Alman subayını oynadığım oyunu sahnelerken, seyircilerden biri benim Ekmek Teknesi’ndeki rolümü hatırlayıp bunu salonda seslendirirse olay orada kopar.”
+           <br/>
+           <br/>
+           Mezun olmaya yaklaştıkça hayatının seyri de değişmeye başlamış, Hiçyılmaz’ın. En son tatili iki yıl önce yapabilmesine adeta yanıyor. Bir de “deniz” diyor, eskiden denizsiz tatil düşünemezken şimdi tatil deyince aklına iki günlük istirahat geliyor. Ailesine çok bağlı olduğunun altını çizen sanatçı onları en son üç ay önce görebilmiş. Ancak yüzyüze olmasa da, her gün telefonlaşarak bu hasreti aşmaya çalışıyor. Yine de yoğun çalışma temposu ikili ilişkilerini de etkiliyor. “Geçenlerde bir arkadaşım geldi Eskişehir’e, bir türlü görüşemedik yoğunluktan, en sonunda bana ‘sen çok değişmişsin’ dedi ve küstü.” diyor.
+           <br/>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+  <br/>
+  <!------------  GOOGLE EN ALT - IFRAME ------------!>
+<br>
+<iframe name="I2" src="egitim.php" marginwidth="5" marginheight="5" height="292" width="360" scrolling="no" border="0" frameborder="0"></iframe>			
+<!------------  GOOGLE EN ALT - IFRAME ------------>
+  <!------------  GOOGLE EN ALT - INCLUDE ----------->
+  <br/>
+  <!---
+//-->
+  <script type="text/javascript">
+   <!--
+google_ad_client = "pub-3424544571203490";
+google_alternate_ad_url = "http://web.archive.org/web/20050507155503/http://www.aksiyon.com.tr/egitim2.php";
+google_alternate_color = "FFFFFF";
+google_ad_width = 336;
+google_ad_height = 280;
+google_ad_format = "336x280_as";
+google_ad_channel ="";
+google_color_border = "FFFFFF";
+google_color_bg = "FFFFFF";
+google_color_link = "000033";
+google_color_url = "0000FF";
+google_color_text = "000000";
+//-->
+  </script>
+  <script src="http://web.archive.org/web/20050507155503js_/http://pagead2.googlesyndication.com/pagead/show_ads.js" type="text/javascript">
+  </script>
+  <!------------  GOOGLE EN ALT - INCLUDE ----------->
+ </p>
+</div>
+
+
+## Yorumlar
+
+### İsmail Demir, 04-Mayıs-2005
+> Diziler ve karakterler: 
+> Bu diziler kültürel öğelerimizi işlerken keşke bunların temellerine de atıfta bulunsalar. Böylesi daha faydalı olur zannımca. Yoksa her hareketimiz bilinçsizce tekrarlanan gelenek göreneklerden mi ibaret? Tabii kültürel öğelerimizi işliyorlarsa!
+
+### Seyfullah Tıkman, 03-Mayıs-2005
+> Emeği geçenlere teşekkür...: 
+> Dizi enflasyonu içinde Ekmek Teknesi’nin yeri apayrı. Toplumun güldürürken düşündüren karakterlere ihtiyacı var. Kültürümüzün katıksız bir ürünü olan Avni, Kirli, Korkut, Medet, Bahtiyar, Nusret Baba, Heredot Cevdet gibilerin artması müthiş keyif verici. Diziye emeği geçenlere çok teşekkürler.
+
+### Mehmet Topdemir, 03-Mayıs-2005
+> Bu karakter iyi oturdu: 
+> Ekmek Teknesi’nde Herodot’u ararken ve heyecan kalmadı derken Avni ve Bahtiyar diziyi izlenir hale getirdiler. Dizinin yapımcıları ve senaristleri Türk halkının nabzını iyi tutan ve beklentilerini iyi bilen insanlar. Herkes dizideki karakterlerden biriyle özdeşlik kuruyor. Avni karakteri iyi oturdu.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=21095&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050507155503/http://www.aksiyon.com.tr:80/detay.php?id=21095&yorum_id=1)

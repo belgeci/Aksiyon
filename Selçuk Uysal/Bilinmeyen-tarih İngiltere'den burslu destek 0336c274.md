@@ -1,0 +1,52 @@
+# İngiltere'den burslu destek
+
+*Selçuk Uysal Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   İngiltere, Avrupa Birliği sürecinde Türkiye’ye destek veren ülkelerden biri. Benzer bir katkı öğrencilere verilen burslarda yaşanıyor.
+   <br/>
+   <br/>
+   British Council’in sunduğu Chevening bursları, geleceğin liderleri, kanaat önderleri ve başarılı yöneticileri olmayı düşleyenler için bir fırsat sunuyor.
+   <br>
+    <br>
+     Zaman baş döndürücü bir hızla ilerlerken, yeryüzü ünlü stratej Fukuyama’nın deyişiyle bir “dünya adası” haline geliyor. Küreselleşmeyle birlikte artan sorunlara çözüm üretecek genç ve dinamik insan ihtiyacı günden güne daha fazla hissediliyor. Avrupa Birliği (AB) üyeliği almak için çaba sarf eden Türkiye ise hukuktan ekonomiye, kültürden çevreye uzanan bir dizi uyum müktesebatını kendine uydurmak için elinden geleni yapmaya çalışıyor.
+     <br>
+      <br>
+       Türkiye’nin AB yolunda en büyük destekçisi, şüphesiz İngiltere. Kıta Avrupası’ndan farklı siyasi ve iktisadi stratejileri olan İngiltere, Türkiye’nin genç nüfusuyla AB’ye çok şey katacağını düşünüyor.
+       <br>
+        <br>
+         İngiliz hükümeti, Türkiye’nin AB üyeliğine hazırlanmasında  sunduğu eğitim programlarıyla destek olarak 1988 yılından beri Türkiye’den 1300’ün üzerinde öğrenciye burs veriyor. British Council aracılığıyla yönetilen ve 41 milyon poundluk bütçeye sahip Chevening bursları, Türkiye’den gelecek vizyon sahibi genç profesyoneller için ideal bir fırsat sunuyor.
+         <br/>
+         <br/>
+         Adını İngiltere’nin Kent şehrinde bulunan Dışişleri Bakanlığı Konutu’ndan alan Chevening bursları, Türkiye dahil 150 ülkede veriliyor. Her yıl ayrı ayrı sunulan 2 bin 200’ün üzerindeki burs, dünyanın dört bir yanından gelen beyinleri İngiltere’nin öğrenim atmosferinde buluşturuyor. Son akademik yılda 48 Türk öğrencinin İngiltere’de okuma şansı bulduğu Chevening burslarını İngiltere Başbakanı Tony Blair, “İngiltere’nin mükemmel bir eğitim için sunduğu birinci sınıf  bilet” şeklinde tanımlıyor.
+         <br/>
+         <br/>
+         Burs verilen programlar mezuniyet sonrası seviyede en az 3 ay ve en fazla 1 yıllık zaman dilimlerinden oluşuyor. Zira, İngiltere’de master süresi diğer ülkelerdeki programların aksine iki değil, bir yıl... Burslar konaklama ve eğitim giderlerinin tümüyle birlikte, gidiş geliş uçak ücretlerini kapsıyor. Ayrıca, bursiyerlere İngiltere’de geçinebilecekleri aylık bir ücret bile ödeniyor.
+         <br/>
+         <br/>
+         Bursiyerlere yeni beceriler ve profesyonel maharetler kazandıran Chevening Bursları, Uluslararası İnsan Hakları, Uluslararası Hukuk, Uluslararası İlişkiler, Gazetecilik—Medya faaliyetleri, Ekonomi ve Çevre dersleriyle birlikte Türkiye’nin AB’ye üyeliğiyle ilgili master ve eğitim programlarından oluşuyor. Tercih edilen programların çalışılan ya da faaliyet gösterilen sahalarda olması öneriliyor.
+         <br/>
+         <br/>
+         Burslardan yararlanmak için 25—35 yaşları arasında olmanın yanı sıra üniversite mezunu olmak ve en az 2 yıllık profesyonel iş tecrübesi gerekiyor. Not ortalaması, yaş sınırı gibi şartlar dışında İngilizceyi etkili bir şekilde kullanmak da gerekiyor. “Kişi maksadını yazılı ve sözlü çok iyi anlatabilmeli” diyen British Council Burslar Koordinatörü Müberra Erdem, bunun mühim bir değerlendirme kriteri olduğuna dikkat çekiyor. İstenen şartlara uygun kişiler için eylül ayında başlayan başvurular 5 Kasım 2004 günü sona eriyor. British Council’in Ankara ofisi ve www.britishcouncil.org.tr adlı web sitesinden başvuru formu edinilebilir.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 812 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/yazdir.php?id=16661), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050419213615/http://aksiyon.com.tr:80/yazdir.php?id=16661)

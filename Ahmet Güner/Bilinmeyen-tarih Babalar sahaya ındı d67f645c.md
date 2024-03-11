@@ -1,0 +1,190 @@
+# Babalar sahaya ındı
+
+*Ahmet Güner Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302230137im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302230137im_/http://www.aksiyon.com.tr/resim/295/30.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kasımpaşalı ünlü kabadayı (zamanın Çakıcısı diyelim) Sultan Demircan’ın, Cemil Turan’ı çuvalın içinde kaçırıp Fenerbahçe Başkanı Emin Cankurtaran’ın önüne bıraktığından bu yana yarım asrı aşkın zaman geçti. “Dede Sultan” bu işi sadece 200 bin lira karşılığında yapmıştı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Sonradan biraz daha para istediği, bu yüzden Cankurtaran’la bozuştukları anlatılır. Bir genellemeyle mafya denilen, muhtelif “uygunsuz” işler icra eden kişilerin futbola duhul edişi ilk defa bu hadiseyle belirgin bir şekilde kendini hissettirmişti. Aradan geçen yıllarda, “o âlemin” kral, veliaht, prens ve de çömezleri o kadar çok sayıda kulübe başkan ve yönetici oldular ki, bu harbî atakları gol yemeden savuşturan çok az sayıda kulüp kaldı; liglerden hemen her dönemde bir “mafya ligi” çıkartılacak duruma gelindi.
+   <br>
+    <br>
+     Dede Sultan Demircan (bir babaya neden dede denmiş, acayip yani) bu olayla birlikte futbola ısınmış ve semtinin takımını öksüz bırakmama güdüsüyle Kasımpaşaspor’a başkan da olmuş. Fakat sonraki en baba başkanlar, Dede Sultan kadar duygusal olmayıp, “gerçekçi” bir bakışla ilgilenmişler futbolla. Önce futbolun toplum ve doğal olarak devlet katındaki itibarı/büyüsü keşfedildi. Hemen ardından, futbolun bu prestijinin “fayda”ya nasıl dönüştürüleceğinin muhasebesi yapıldı. Bunun birçok yolu, yordamı vardı.
+     <br>
+      <br>
+       Kitlelerin gözbebeği, masum ve heyecanlı, zenginlik hayalleriyle dolu bir cazibenin sahibi olan futbola ve onu yönetenlere dair alışılmadık bir konuyla, futbolun mafyayla ilişkisini ele alan bir yazıyla karşılaşmak, doğaldır ki yadırganabilir. Fakat futbol mahfillerinde hemen herkesin konuştuğu, ortalama bir taraftarın bile malumatının olduğu, spor yazarlarının ağır bedelleri göze alarak da olsa zaman zaman dile getirdikleri bir gerçeği görmezden gelmek de olmazdı.
+       <br/>
+       <br/>
+       Mafyanın, futbola giden yolu aslında, çay bahçesi ve otopark gibi mekanların mafyatik işlerde kilit rolü oynadığını farkettiğinde açılmıştı. Uyuşturucu dahil her türlü malın pazarlık ve alışverişi, tetikçi istihdamı gibi işleri yapmada bulunmaz imkanlar sağlayan çay bahçeleri ve otoparkların ihalelerinde sonuca gitmek için mafya, önce sözkonusu semtin futbol kulüplerini kontrolüne aldı. O semtteki ihalelerin, aynı yerin takımının başkanına verilmeyip başkalarına verilmesi herşeyden önce ayıptı, ayıp. Böylece, önce semt kulüpleri “babalara geldi.”
+       <br/>
+       <br/>
+       Hedef, futbolun parası değil prestiji
+       <br/>
+       <br/>
+       Bu arada hemen belirtelim; mafyanın sahaya girip tribünlere selam gönderme süreci yukardakinden daha karışık aslında. Çok yönlü olayların, sosyal/ekonomik gelişme ve değişmelerin getirdiği, bazan ülkenin en popüler kulüplerine, bazan da duruma göre amatör semt takımlarına denk gelen girift bir süreç bu. Mafyanın futbola ilgi duyması, tabii ki sadece semtlerde “zula” mekanlar bulma hedefiyle sınırlı değildi. Futbol dünyamızın cesur kalemi Ali Sami Alkış, mafyanın esas hedefinin futbolun toplum ve devlet nezdindeki büyülü etkisinden faydalanıp, o büyülü perdenin ardında işlerini yürütmek olduğunu belirtiyor. Yani bir yerde kanundışı işler yapmaktan doğan toplum ve devlet nezdindeki imaj, prestij ve legalite sorununu çözmek, bununla eşzamanlı olarak da yine aynı bilumum kanunsuz işleri topun gölgesinde yürütmek.
+       <br/>
+       <br/>
+       “Bu işler daha çok Anadolu kulüplerinde olur” şeklinde, büyükleri muaf bırakan ilginç bir vurgu yaptıktan sonra şöyle diyor Alkış: “Uyuşturucu ya da başka kaçakçılıklar, kanunsuzluklar yapan birinin bir futbol kulübüne başkan olması ona şunu kazandırır: Öncelikle devlet kademeleriyle olan ilişkileriniz birdenbire gelişir. Halkın zaten size kulüp başkanı olmanızdan kaynaklanan bir sevgisi vardır. Siz bu sevgiyi ve ilgiyi bir kalkan olarak kullanıp, devletin kademelerinde sizin varlığınızdan haberi olmayan ya da kuşku içinde olanlara güven telkin ediyorsunuz. Karanlık işler yapanların devletle yakın ilişkiler kurmak gibi bir geleneği, zorunluluğu vardır. Anadolu’da kulüp başkanı olmak, ilişkileri daha çoğaltmak, bölge hatta ülke dışına yaymak açısından son derece önemli bir silahtır. Bu yüzden futbol kulübü başkanı olmuş birçok kişinin uyuşturucu kaçakçılığı, beyaz kadın ticareti, hayali ihracat yaptığı, interpol tarafından arandığı herkesin malumu.”
+       <br/>
+       <br/>
+       Babalar ligi
+       <br/>
+       <br/>
+       12 Eylül sonrası hayali ihracat furyasında, Susurluk sürecinde ve genel olarak son 15 yılda çeşitli vesilelerle mafya babası veya çeteci namıyla kamuoyunun tanıdığı isimleri, yaşı müsait hemen herkes rahatlıkla hatırlayacaktır. Zira mafyatik işler yapanlar için adeta bir cennet olan Türkiye’de bu isimler bugüne kadar hep gündemdeydi. Hepsi de yukarıda saydığımız sebeplerden dolayı futbola ilgi duydu. Bu sebeplerden başka, Çakıcı gibi, hemşehrilerin “kurtar bizi baba” türü ricalarını kıramayıp memleket takımının başına geçenleri, “her naneyi yedik, bir de futbola girelim bakalım ne varmış” türü merak saikiyle kendini genellikle bir ikinci veya üçüncü lig takımının başında bulmuş babaları, bir de futbola kişisel ilgi duyup başkanı olduğu takıma para dökenleri sebepler dairesine katabiliriz.
+       <br/>
+       <br/>
+       Efsanevi Emniyetçi Atilla Aytek’in Emniyet Genel Müdürlüğü Kaçakçılık Dairesi’ne baktığı dönemde popüler birinci lig kulüplerine başkan olan bazı “şampiyon başkanlarla” ilgili olarak uyuşturucu ve muhtelif kaçakçılık iddialarıyla soruşturmalar, mahkemeler açıldı. Kamuoyunda herbiri birer saygıdeğer işadamı ve başkan imajı olan bu kişilerin dosyaları Daire’nin arşivini süslüyor. Bu çalışma sırasında sözkonusu dosyalara ulaşma imkanımız olmadı. Bu noktada Cumuhuriyet gazetesi spor yazarı Abdülkadir Yücelman’ın, “Her şey oluyor futbolda. Örnek isterseniz, var ama yok. Devletin ilgili kurumları futbolda dönen herşeyi biliyor. Ama bizlere, basına bilgi vermiyor” sözleri daha bir anlam kazanıyor olsa gerek.
+       <br/>
+       <br/>
+       Mafya sahanın neresinde?
+       <br/>
+       <br/>
+       Görüştüğümüz spor adamları ve kulüp yöneticilerinin ortağa yakın kanaati, mafyanın futbola topyekün bir hücum halinde olmadığı. Uyuşturucu, silah, beyaz kadın kaçakçılıkları gibi çok büyük gelir kapıları olan mafya babalarının, para bakımından “ikincil” bir kapı olan futbolu çoğunlukla imaj, itibar ve prestij kazanımı için kullandığı kanaati yaygın. Ali Sami Alkış’a göre mafya istese futbolu 15 günde ele geçirir. Fakat bunu istemiyor ve ferdî ilgiler sözkonusu. “Mafyanın Ekonomi Politiği” kitabının yazarı gazeteci Halil Nebiler’e göre, mafyanın sahaya tam kadro çıkıp komple markaj uygulamayışının sebebi futbolun endüstrileşmesi sürecinin tamamlanmamış olması: “Futbol Türkiye’de sektör olmaya yeni başladı. Futbol ve oyuncular marka, endüstri olmaya yeni başladı. Böyle olunca da spor, spor olmaktan çıkıyor. Renk aşkı kalmıyor. Ortaya çıkan boşluğu mafya dolduruyor. Futbolda mafyanın yeri şu an için net değil. Futbol tam olarak endüstrileşirse netlik o zaman ortaya çıkar.”
+       <br/>
+       <br/>
+       Takım mal taşır mı?
+       <br/>
+       <br/>
+       Babaların ve çetelerin futbola ilgi göstermesinin sebepleri bunlarla sınırlı değil; belki öncekilerden daha önemli, fakat şu ana kadar isbatlananamış, futbol camiasını yakından tanıyanların fısıltı halinde dile getirdikleri kara para aklama ve futbolcu vasıtasıyla uyuşturucu kaçırma iddiası.
+       <br/>
+       <br/>
+       Galatasaray UEFA şampiyonluğuna koşarken, gittiği Leeds United deplasmanında, daha uçaktan inmeden futbolcular dahil bütün kafile İngiliz polisinin sıkı bir uyuşturucu aramasına tabi tutuldu. Tabii ki birşey bulunamadı. Böyle bir şey zaten mümkün de değildi. Fakat Batılıların futbol takımlarımıza bile potansiyel uyuşturucu taşıyıcısı gözüyle bakması çok şey anlatıyordu.
+       <br/>
+       <br/>
+       Türk futbolcularının uyuşturucu aramasına maruz bırakılması Galatasaray’la sınırlı değildi. Bu konuda, Almanya’da yıllarca mafyanın ve uyuşturucu kaçakçılığının içinde bulunmuş, yıllarca hapis yatmış, o âlemde neler olup bittiğinden hemen haberi olan Nafiz Obay’ın anlattıkları tam şoka uğratan cinsten: “Sene 1985. Almanya’da uyuşturucudan yatıyorum. Türkiye’deki bir büyük futbol kulübünün yöneticileri futbolculardan habersiz yararlanarak uyuşturucu kaçırıyorlardı. Kulübün eski iki başkanı (E.C. ve A.Ş.) yeraltı dünyasında herkesçe tanınan işadamları. Kulüp bir—iki haftaya kadar sezon öncesi hazırlıkları için Almanya’ya gelecek. Duyumlarıma göre spor malzemelerinde eroin var. Spor malzemeleri firmasının Türkiye temsilcisi, kulübün eski başkanı. Bunları cezaevi yönetimine ihbar ettim. Temmuz 1985’te Münih Havaalanında futbolculara arama yapıldı. Birşey bulunamadı.”
+       <br/>
+       <br/>
+       Bu tür sarsıcı iddialar hakkında zaten 2000’leri yaşadığımız bugünlere kadar da henüz ciddi bir ipucu bulunamadı. Ancak söylentiler hâlâ devam ediyor. Üstelik, bu aktaracağımız iddia, futbolun içinden. Fenerbahçe’de kongre üyesi olan, altyapı konularında da takıma hizmet eden, adının açıklanmasını istemeyen bir işadamı, “Futbol camiasında malzemeyle mal kaçırılır. Bu normaldir. Havaalanlarında güvenlikçiler, malzemeleri görünce, ‘ooo bizim takımın malzemeleri, verin biz taşıyalım’ diyorlar” şok ifadesini kullanıyor.
+       <br/>
+       <br/>
+       Al yıka, sat yıka
+       <br/>
+       <br/>
+       Bugünlerde bazı spor yazarlarının ucundan kıyısından ürkek bir şekilde bahsettiği “futbolla kara para aklama” olayı, konumuzun önemli bir yönünü teşkil ediyor. Futbolcu alım satımı yoluyla kara para aklandığı, bugüne kadar ispatlanamamış, sadece kulislerde fısıltı halinde söylenegelmiş bir iddia. Alpay’ın olaylı bir şekilde Aston Villa’ya gitmesi, topçular aracılığıyla kara para aklandığı iddiasını somut olarak yine gündeme getirdi. Hem de ilk kez bir kulüp yöneticisi tarafından ve bir basın toplantısında: Fenerbahçe Asbaşkanı Atilla Kıyat, “Alpay’ın Aston Villa’ya satılması sportif bir operasyon değil, kara para aklama operasyonudur. Akgündüz’ün bize yaptığı illegal teklifi kabul etmedik” diyordu.
+       <br/>
+       <br/>
+       Aklama olayları tabii ki bu iddiayla sınırlı değil. Futbol dünyasını yakından takip edip, bir büyük gazeteye futbol yazıları yazan adı bizde saklı bir ekonomist, futbolda kara paranın nasıl aklandığını şöyle anlatıyor: “Futbolcu transferlerinde olur bu. Oyuncunun fiyatını, gerçek değerinden, yani anlaştıkları değerinden farklı gösterirler. Diyelim gerçekte 1 milyon dolara anlaştılar, fakat bunu mesela 7 milyon dolar gösterirler. Aradaki 6 milyon doları kulübe girdi veya çıktı gösterip, gayrikanuni yollardan kazandıkları parayı aklarlar. Dünyanın en kaliteli futbolcuları en fazla birkaç milyon dolara alınırken, içerden alınanların çoğunun fiyatı 5—7 milyondan başlıyor. Niçin diye düşündünüz mü hiç? Kulüp yönetimlerini ve oyuncu transferlerini dikkatle takip eden bir kişi oynanan oyunu rahatlıkla anlayabilir. Bu yöntem genellikle yerli futbolcu alımında uygulanır; yani her iki kulüp yöneticilerinin de olaya vâkıf olmaları gerekir. Yabancı bir kulübün yöneticilerine bunu anlatamazsınız, ayarlayamazsınız. Hem oralarda kanunlarda boşluk bulunmaz ve bizdeki kadar da ihlal edilemez.”
+       <br/>
+       <br/>
+       Cumhuriyet Gazetesi spor yazarı Abdülkadir Yücelman, işleyişi şöyle açıklıyor: “Şimdi sizin kara paranız var. Bunu aklamanız gerekiyor. Önce bir futbol kulübüne yönetici oluyorsunuz. Diyorsunuz ki, takıma biraz da benim katkım olsun, para harcayayım. Parayı bastırıp futbolcuyu alıyorsunuz. Trilyonlarca para gitti, kara para yani. Sonra bu verdiğiniz parayı kulüpten parça parça alıyorsunuz. Böylece para resmileşmiş oluyor, temizleniyor.”
+       <br/>
+       <br/>
+       Futbol camiasında, kara para aklama olayında Türkiye Birinci Ligi’nde şampiyonluk kazanmış bir kulübe başkanlık yapmış kişinin “parmakla gösterildiği” konuşuluyor.
+       <br/>
+       <br/>
+       En temiz başkan bizim başkan!
+       <br/>
+       <br/>
+       Atilla Aytek, “Mafya başkanlar 1970 ila 80 arasında bugünkünden daha çoktu ve üstelik bunların çoğu birinci ligdeydi. Şimdikilerse genellikle ikinci ve üçüncü ligdeki takımlara başkan oluyorlar. Buna bakarak, aslında son yıllarda mafyanın futbola olan ilgisinin azaldığını söyleyebiliriz” diyor. Diyor ama son yıllarda çete/mafya/bilumum illegal faaliyetler bağlamında kamuoyunun aşina olduğu isimlerin çoğunun bir futbol kulübünün yönetimine gelmiş olduğunu da gözardı etmemek gerekiyor. Nuri Ergin (namı diğer Nuriş), Oral Çelik, Behçet Cantürk, Gencay Çakıcı (Alaattin Çakıcı’nın kardeşi), Erol Evcil, Dündar Kılıç, Yaşar Öz, Metin Kaya Çağlayan, Nurettin Güven, Turan Çevik, Ali Fevzi Bir, Ferda Seven, Vedat Peker (Sedat Peker’in kardeşi), Halil Havar, Sami Hoştan. Bunlara ilaveten hatırlayamadıklarımızı ve hatırlayıp da, flaş kulüplerimize başkan olup imaj ve itibarlarını yeniledikleri için yazamadıklarımızı, artı, mafyatik işler yaptıklarına dair haklarında bir sürü söylenti bulunan, ancak hukuk nezdinde tertemiz olan “en büyük başkanları” ve saygıdeğer yöneticileri eklemeli. Okuyucu, bu şekilde yukarıdaki listeye en az yarım düzine isim daha katacaktır.
+       <br/>
+       <br/>
+       Başkanının ‘Bir’ tanesi
+       <br/>
+       <br/>
+       Harbî insanların yardım eli uzattıkları ilk futbol kulübümüz olmamasına rağmen, konumuzla tam örtüşen bir kulüp, Özsahrayıcedit Spor Kulübü. Başkan Ali Fevzi Bir, o âlemdeki adıyla Aliço. Sami Hoştan (Arnavut Sami) ise kulübün yönetiminde. Bu iki isim Özsahrayıcedit’i amatör ligden ikinci lige çıkardılar. Önümüzdeki sezon takımlarını Türkiye Birinci Ligi’ne çıkartmak için elbirliği ve kader birliği etmiş durumdalar.
+       <br/>
+       <br/>
+       İkilinin kader ortaklığı sadece futbolla sınırlı değil. Ömer Lütfi Topal’ın öldürülmesinden yaklaşık 1 ay sonra 25 Ağustos 1996’da İstanbul Emniyeti Cinayet Bürosu’na isimsiz bir ihbar telefonu geliyor; Topal’ı öldürenlerin polis memurları Ayhan Çarkın, Oğuz Yorulmaz ve Ercan Ersoy’la birlikte Sami Hoştan ve Ali Fevzi Bir olduğu ihbar ediliyordu. Gözaltına alınan Bir ve Hoştan, Ağar’ın devreye girmesiyle salıverilip, sonraki aşamada cinayetten yargılandılar. Susurluk Raporu’na göre Hoştan ve Bir, Sheraton ve Intercontinental otellerde ve bunların kumarhanelerinde Topal’la yüzde 50 ortaktılar. Topal, Hoştan ve Bir sık sık sahibi oldukları kumarhanelerde biraraya gelip konuşur, bunlara Abdullah Çatlı da katılırdı.
+       <br/>
+       <br/>
+       Topal’ın ölümü ve Susurluk sürecinde Hoştan ve Bir’in etkileri hakkında yazılacak çok şey var, ancak burada Özsahrayıceditspor Kulübü yöneticisi Sami Hoştan için “atin.org”da çıkan çarpıcı ifadeleri vermekle yetinelim: MİT eski daire Başkanı Mehmet Eymür’ün internetteki sitesinde geçtiğimiz günlerde Yeşil’in MİT’te yaptığı itirafları/ifadeleri yayınlandı. İtiraflarda Sami Hoştan’la ilgili çok ilginç bir bölüm var. Yeşil şöyle diyor: “Bütün hikaye Arnâvut Sami olayıyla başladı. Bahçelideki evdeyiz, ben Mikail’e (Göleli) bu Arnavut Sami’yi sordum, kıyamet ondan sonra koptu. Arnavut Sami’yi ben tanımıyorum, Enver Toktaş çok iyi bilir onu. Enver, çok güvendiğim bir insandır. Bana Arnavut Sami, Dev—Sol’la da, PKK ile de iç içedir dedi. Bir süre sonra Abdullah (Çatlı) beni aradı, “Arnavut Sami benim yanımda, sen bu adamı niye soruyorsun?” dedi. Dedim “Yani senin yanında olması, benim sormama mani bir hal mi, senin yanında diye sormayayım mı? Ayrıca, senin yanında olduğunu da bilmiyordum.” Sıraladı, yani şöyledir, böyledir falan, filan. “Bak, o en üst düzeyde istihbarat birimleriyle beraber çalışıyor, sen şimdi iddia edeceksin, diyeceksin ki eroin işi yapıyor, he yapıyor, kanunla yapıyor, bir ara sen Yalçın’a da böyle çamur atmıştın, tamam yapıyoruz ama öyle büyük çaplı değil” dedi. “Arnavut Sami’yi, şuna, buna sor, en üst düzeyde dialogları filan var” dedi... Yani, Çatlı’yla bizim ipleri koparan Arnavut Sami oldu. Beni emniyete aldıran, bunların hepsini peşime takan Arnavut SAMİ yani. Adam çok güçlü, çok büyük bir adam. Ben kendisini görmedim ama hakkında çok bilgiye sahibim. Dev—Sol ile PKK ile mazisi olan bir adam, ne Allah’ı var, ne peygamberi, hiç bir şey tanımaz, bir başkadır yani, şeytandır o. Kiminle menfaati varsa onunla olur, şimdi istihbarat kimliği var, yanında ruhsatlı tabanca taşıyor, biz iki senedir bir kimlik alamadık, adamın herşeyi var, vesikalı silahı, şuyu, buyu, çok büyük işleri var, çok büyük işleri sevk ve idare ediyor. Evveliyatı Dev—Sol’cudur ama bu, PKK ile irtibata mani değildir. Herkesle irtibat kurabilir. Öyle şube müdürüyle filan da muhatap olmaz, öyle büyük adam yani. Yer değiştirmek isteyen, tayin isteyen gider buna yalvarır. Bu olaydan sonra ben ne zaman İstanbul’a gitsem, bunlar Arnavut’u korumaya alıyorlar. Çatlı sürekli yanında, koruma gibi geziyor.”
+       <br/>
+       <br/>
+       Kadıköy yakasının müstesna semti Sayrayıcedit’in takımı Özsayrayıcedit’in başına Bir ve Hoştan, üç yıl önce geldiler. Daha önce sarı—mavi olan forma rengi, kardeş kulüp Fenerbahçe’nin rengine tebdil edildi: Sarı—lacivert. Yıllardır amatör kümede sıradan bir takım olan Sahrayıcedit’in adının önüne bir de “Öz” eklendi. Hizmet için gelen Arnavut Sami ve Aliço, kesenin ağzını açıp, Tanzanya Milli takımının golcüsü Abdülaziz’i aldılar. Yabancı futbolcu satın alan ilk amatör takım unvanını da kaptılar böylece. Takım beş yıldızlı otellerde kamplara girdi, futbolculara çok iyi primler verildi. Kardeş kulüp Fenerbahçe’nin sınırsız desteğini hep arkasında buldu Bir ve Hoştan’ın takımı. Aziz Yıldırım Fener’in genç takımından birkaç iyi futbolcuyu kiralık verdi renkdaşlarına. Fenerli Küçük Şenol da hoca olarak takımın başına geçince 98—99 sezonunda Özsahrayıcedit namağlup üçüncü lige, ardından geçtiğimiz sezon ikinci lige çıktı. Burada, iki kulübün bazı yöneticilerinin oldukça samimi dost ve arkadaş olduklarını da belirtelim.
+       <br/>
+       <br/>
+       Çakıcı Başkan, Arsinspor şampiyon!
+       <br/>
+       <br/>
+       Trabzon’un şirin ilçesi Arsin, geçtiğimiz Haziran’ın 17’sinde “Çakıcı Başkan, Arsinspor şampiyon!” sloganlarıyla inledi. Önce, liglerin bitimine yakın günlerde hapisteki Alaattin Çakıcı’ya yapıldı teklif; Arsinspor’u amatör kümedeyken devralıp 4 yıl uğraştıktan sonra 3. Lig’e yükseltmeyi başaran İnşaat Mühendisleri Odası Başkanı İbrahim Usta, bu başarının ardından takıma iyice bağlanması, sahiplenmesi gerekirken, tam tersini yaptı ve kongrede aday olmayacağını açıkladı. Başkanlık içinse kendisi de bir Arsinli olan Alaattin Çakıcı’ya teklif götürdü. Usta’nın teklifini, Çakıcı’ya, küçük kardeşi Gencay Çakıcı iletti. Hapisten, “Olabilir” cevabı gelince, hemen, hükümlü birinin başkan olmasına mani bir hukuki durumun olup olmadığı araştırıldı. Sonuç Arsinspor açısından üzüntü vericiydi; Çakıcı bu halde başkan olamazdı.
+       <br/>
+       <br/>
+       Bu defa küçük kardeş Gencay Çakıcı’ya aynı teklif yapıldı. Gencay Çakıcı teklifi kabul etti. Kongreye tek aday olarak katılan Gencay Çakıcı, büyük bir coşku ile başkan seçildi. Başkan seçildiği kongreye gelmeyen Çakıcı, mesaj göndermekle yetindi. Mesajın okunması kongre üyelerinde adeta “Başkan” gelmiş gibi etki yaptı, uzun süre alkışlandı. Üyeler Başkan’ı alkışlamakla yetinmediler, “Çakıcı başkan, Arsinspor şampiyon, en büyük başkan bizim başkan” sloganları attılar. Başkan Çakıcı ayrıca kongreye bir de çelenk gönderdi; gönderdiği çelenk Sedat Peker’in çelengiyle yan yana kondu.
+       <br/>
+       <br/>
+       Eski Başkan Usta’nın, Çakıcılar’a başkanlık teklifi götürmesindeki en büyük etken şüphesiz, şampiyon bir kadro oluşturup ikinci lige, ardından birinci lige çıkmayı hedefleyen Arsinspor’un parasal konularda sıkıntıyı aşmaktı. Şimdi Özsahrayıcedit tecrübesiyle sabittir ki Arsinspor’u parlak günler bekliyor.
+       <br/>
+       <br/>
+       Çakıcı ailesinin futbola ilgisi Arsin’le başlamadı. Fenerbahçe’de kongre üyeliği yapan bir kişinin iddiasına göre Alaattin Çakıcı, Fenerbahçe’nin eski başkanı Emin Cankurtaran’ın ihalelerde “korumalığını” yapıyordu. 1978’den, Çakıcı’nın Cankurtaran’ı ayağından vurdurduğu zamana kadar abi—kardeş ilişkisi sürdü.
+       <br/>
+       <br/>
+       Çakıcı’nın futbolda yelpazesi oldukça geniş; Galatasaray’ın eski yöneticilerinden Ergun Gürsoy ile de eski dost oldukları, bazı konularda aracı olduğu iddiası geçtiğimiz aylarda basında yer almıştı.
+       <br/>
+       <br/>
+       Çakıcı adam adama oynar da, en az onun kadar “efsane” olan Yeşil adamını kaçırır mı? Yeşil’in bacakarası yapma girişimine dair bir olay anlatılıyor Fenerbahçe kulislerinde. Fakat Çakıcı kadar futbol ustası olmadığı için pas hatası yapmış: İddiaya göre, geçtiğimiz aylarda Yeşil, Fenerbahçe Başkanı Aziz Yıldırım’dan haraç istedi. Fakat Yıldırım haracı vermek yerine, durumu ihbar etti. Aynı şekilde Yeşil, Kocaelispor Başkanı Sefa Sirmen’den de haraç istedi, Sirmen de vermedi. Böylece Yeşil, daha ilk maçında topa basıp düştü ve madara oldu. Aziz Yıldırım Fenerbahçe gibi bir futbol kulübünün başkanı değil de herhangi bir işadamı olsaydı, Yeşil’i ihbar etmek bir yana, haracı vermemeyi bile aklına getirir miydi acaba? Futbolun işadamlarımıza sağladığı alan savunması bu olsa gerek.
+       <br/>
+       <br/>
+       Nurişler’in takımı
+       <br/>
+       <br/>
+       Çakıcı—Nuriş kanlı kavgası sürüyor. Ölü—yaralı istatistiğini çıkarmak yerine, konunun bizi ilgilendiren yönüne bakacak olursak, olayı, futbol kulübü olan iki ailenin kapışması olarak da algılayabiliriz. Karagümrüklü Nuri Ergin’in takımı doğal olarak Karagümrükspor. Gençliğinde futbol oynaması futbola ilgisinin birazını açıklıyor. Nuriş, kulübün başına kendi geçmek yerine, üvey kardeşi Nejat’ı geçirdi. Karagümrükspor’un başkanı, şiddetle özdeşleşmiş Nurişlerden biri olunca, doğal olarak kulüp de bundan payını almakta; Karagümrükspor’un lokali, kanlı kavgada Çakıcı’nın adamları tarafından basıldı ve silahla tarandı. İkisi ağır, 15 kişi yaralandı. Saldırının asıl hedefi olan Nejat Ergin, ertesi gün kısa ve net konuşuyordu: “Saldırının intikamı alınacaktır. Nuriş, intikam alınacak dediyse sözünü tutar.”
+       <br/>
+       <br/>
+       Başkan Nejat Ergin, bu olaydan birkaç hafta sonra bu defa arabasının içinde yine Çakıcı'nın adamlarınca ağır yaralanıyordu.
+       <br/>
+       <br/>
+       Nuriş’in çetesi o âlemde son dönemin parlayan yıldızı. Babalar âleminde başlıbaşına bir ekol ve efsane olan Çakıcı’nın tahtını ciddi biçimde sallıyor şu sıralarda. Her iki babanın da bir futbol kulübü sahibi olmakla neleri murat ettikleri ancak ihtimallerle açıklanabilir. Ancak Çakıcı—Nuriş kapışmasına sadece iki mafya babasının kavgası olarak yüzeysel bakmamak gerektiği, birtakım mahfillerdeki konuşmalardan anlaşılıyor. Olaya, Türkiye’de öteden beri etkin iki büyük gücün mücadelesinin mafya âlemindeki yansıması olarak bakıldığında, kavgayı çözmek daha kolay olacak.
+       <br/>
+       <br/>
+       Bir hayal(îy)di geldi geçti
+       <br/>
+       <br/>
+       O âlemin en sıkı markajına maruz kalan kulübümüz belki de Malatyaspor. Turan Çevik, Nurettin Güven, Metin Kaya Çağlayan, Oral Çelik. Malatyaspor’un son 15 yılında başkan olan bu isimlerden Oral Çelik, kısa süren başkanlığını, “Ben istemedim, Malatyalılar istedi. Benim için de kamuoyunda yeni bir imaj oluşturma fırsatıydı” şeklinde kısa ve milimetrik paslarla açıklıyor. Ali Sami Alkış’a göre, “Çelik’e başkanlık teklifini bizzat kulüp yöneticileri götürdü, o da bunu toplumun büyük kesimi nezdinde kirli olan imajını düzeltmek için bulunmaz bir fırsat bildi, kabul etti.”
+       <br/>
+       <br/>
+       Çelik, Malatyaspor’da başlama vuruşunu yaptığı günlerde, bir radyo programında program sunucusunun sarı—kırmızılı takımın yöneticilerine yönelik “Neden Oral Çelik gibi bir adamı başkan yaptınız” sorusu şöyle cevaplanıyordu: “Ne yani, diğer kulüplerin başkanları bizimkinden daha mı temiz?” Doğru söze ne denir ki?
+       <br/>
+       <br/>
+       Eder’in valizleri
+       <br/>
+       <br/>
+       Türkiye’de hayali ihracatın süperstarı olan Nurettin Güven, hayali volelerle kazandığı paraları memleketinin takımının hizmetine sundu. Kulübün başına geçti, tabii yine “Malatyalılar istedi.” Anlaşılan parası o kadar çoktu ki, “Maradona’nın da üzerinde duruyoruz. 10 milyon dolar istiyormuş. Bu çok büyük bir para değil. Ben büyük bölümün karşılarım. Diğer Malatyalılar da katkıda bulunursa olur” demeçleri veriyordu. Maradona’yı getirmedi ama, o zaman en az Maradona kadar ünlü ve kaliteli, Brezilya’nın dünyaca tanınmış oyuncuları Eder, Carlos ve Serginho’yu aldı. Üçüne 3,5 milyar lira gibi o zamanın astronomik parasını vermesi dikkat çekti. Para akladığı kuşkusu doğdu. Bunun üzerine Maliye ve Gümrük Bakanlığı 19 Temmuz 1988’de Güven hakkında soruşturma başlattı. Transfer parasını İsviçre’den getirdiği 7 milyar liralık kara paradan verdiği iddia edildi. Bu olay, futbolda kara para aklandığı iddiasının lehine bugüne kadar ortaya çıkan en önemli bulgu niteliğini taşımaya devam ediyor.
+       <br/>
+       <br/>
+       Flaş transferlerin ardından Malatyaspor 1. Lig'de, Başkan Güven devlet katmanlarında fırtına gibi esip büyük puanlar topladılar. Güven, hayali vurgunlarına yenilerini ekledi, büyük bir güven içinde. Öyle ki, Eylül 1988’de Tempo dergisine verdiği röportajda, açıkça, devletin hayali ihracatı desteklemesi gerektiğini, bunu yaptığı takdirde dış borçların tamamını ödeyebileceğini söyleyebilecek kadar topu ilerilere taşıdı.
+       <br/>
+       <br/>
+       Malatya’da kulübe yakın çevrelerin hâlâ dilinde dolaşan iddialarsa yenilir yutulur gibi değil; Güven’in, Brezilyalılardan özellikle Eder’i memleket hasretini dindirmek için sık sık Brezilya’ya izne gönderdiği, uçağına da ondan habersiz “Bu Eder’in valizleri” diye teslim edilen birtakım şeyler koydurduğu iddia ediliyor. O dönem, hattın Güney Amerika’daki ucunda Oral Çelik’in konuşlandığı, “Eder’in valizlerinin” alınmasına yardım ve vaziyet ettiği de iddialar arasında.
+       <br/>
+       <br/>
+       Futbolla gelen imaj ve itibarın aşırı güveni, Nurettin Güven’in sadece hayali ihracatla iktifa etmesini gereksiz kılıyordu; başka alanları, mesela “beyaz” işlerini büyüttü. İtalyan polisinin 1989’daki bir raporuna göre Türkiye’deki uyuşturucu trafiğinin en büyük şefi Nurettin Güven’di. “Güven’in bütün bağlantılarını ilgili Türk yetkili birimlerine ilettik ama destek yerine köstek gördük” diye yakınan İtalyanlar’ın, kendi futbol liglerinde emsalsiz numuneleri bulunan “toplu yıkama ve parlatma” olayını iyi bilmeleri gerekiyordu. Bir “baba”nın yaşayabileceği hemen bütün olayları tadan Güven şimdilerde interpolün kırmızı bülteninde.
+       <br/>
+       <br/>
+       Uyku kaçıran Başkan
+       <br/>
+       <br/>
+       Turan Çevik, şeref tribünündeki mevkide oynarken de, orayı iki yıl sonra halefi Nurettin Güven’e terkederken de, Türkiye’nin tartışmasız en büyük hayali ihracatçısıydı. “Malları” ihraç ettiği İngiltere’deki birçok “şirketi” de kendisi kurmuştu. O’nun da, ısrarla “hayali”nin üzerine giden basının sıkı markajından kurtulup topu karşı sahaya aktarabilmek, imajını futbolun büyüsüyle tazelemek için Malatyaspor’u seçmesi doğaldı. Siyasiler ve bürokratlarla o kadar sıkı fıkı oldu ki, uyuşturucuyla birlikte 16 Aralık 1988’de Atina’da yakalandıktan sonra, bazı bakanlar başta olmak üzere birçok devletlûnun uykuları kaçtı.
+       <br/>
+       <br/>
+       Sarıyer’in arsaları
+       <br/>
+       <br/>
+       Babalar liginde 4’lü forvetle oynamış olan Malatyaspor’un bir diğer harbî başkanı Metin Kaya Çağlayan’dı. Başkanlığı döneminde başladığı, İstanbul Sarıyer sırtlarında dünyalık edinme mücadelesini hâlâ sürdürüyor. Malatyaspor Başkanlığı ona birtakım büyüklerle tanışma, dost olma kapısını açtı. Fakat “iş sahası” Sarıyer, başında bulunduğu kulüp Malatyaspor olunca, Sarıyer’de her şutu kaleye sokmak kolay olmuyordu. Sarıyer sırtlarının daha kolay teslim olması için Sarıyer kulübünde yönetici olmak vacipti. O da bu vacibi yerine getirdi. Şimdilerde Sarıyer’de 100 milyon metrekareye yakın arsası olduğu söyleniyor. Çağlayan’ın arazilerini korumak ve “genişletmek” için yüzlerce kişilik “ordusu” olduğu söyleniyor. Bazı arsaların gerektiğinde zorla alınması, ormanlık alanların arsa yapılması işlemlerinde bu “ordunun” toplu hücum, toplu savunma yaptığı söyleniyor. Bu şekilde “çalışanlara” arazi mafyası deniyor.
+       <br/>
+       <br/>
+       Sarıyer’de yöneticilik yaptığı dönemde Çağlayan’ı yalnız bırakmayıp yönetim kurulunda onunla birlikte takıma hizmet eden iki isim daha vardı: Özer Çiller ve âlemin duayeni Dündar Kılıç.
+       <br/>
+       <br/>
+       Mafya babalarının top koşturduğu tak
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14148), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302230137/http://www.aksiyon.com.tr:80/detay.php?id=14148)

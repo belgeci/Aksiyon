@@ -1,0 +1,55 @@
+# Zengın semtın fukara ocağı
+
+*Rahime Sezgin Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161129im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161129im_/http://www.aksiyon.com.tr/resim/352/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Yaşlı kadın elinde ekmek poşeti ve yemek koyacağı yoğurt kabıyla hızlı adımlarla aşevine doğru ilerliyor. Belli ki geç kalmış. Yemek dağıtılma zamanı bitmiş. Utana sıkıla boynu bükük “Ekmek alabilir miyim?” diye soruyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Eline tutuşturulan iki ekmeği minnetle çantasına koyuyor. Onun da herkes gibi bir hikayesi var elbette. Tıpkı her gün aşevinin önünü dolduran binlerce insan gibi. Onların kaderlerinin kesiştiği belki de tek ortak nokta fakirlikleri. Hepsi ekmeğe, yemeğe muhtaç.
+   <br>
+    <br>
+     Her geçen gün alım gücü düşen vatandaş artık karnını doyurmakta da zorluk çekiyor. Özellikle şubat krizinin ardından bir çok insanın işsiz kalmasından sonra insanlar temel ihtiyaçlarını karşılayacak parayı dahi bulamıyorlar. Evine ekmek alamayan çaresiz insanlar karınlarını doyurabilmek için belediyelerin aşevlerinin kapılarında kuyruklar oluşturuyor. Özellikle İstanbul’da bulunan belediyelerin tamamına yakını (Bahçelievler, Avcılar, Bakırköy, Pendik, Beyoğlu vs...) vatandaşa ilçe sınırları içinde bulunan aşevlerinde günde en az bir öğün yemek dağıtıyor. Bakırköy Belediyesi de 1994 yılından bu yana özellikle ilçede bulunan fakir vatandaşın yemek sorununu çözmek için yemek dağıtıyor.
+     <br>
+      <br>
+       Kazanlar kaynıyor
+       <br/>
+       <br/>
+       Aşevinde hayat sabah saat altıda başlıyor. Görevli olarak çalışan aşçılar yaklaşık üç bin kişiye verecekleri yemekleri öğlen saatine kadar hazır bir duruma getirebilmek için hazırlıklarına başlıyor. Yapılacak yemek için gerekli olan erzak önce ayıklanıyor, sonra kocaman tencerelerde kaynamaya başlıyor. Bakırköy Aşevinde sabah saat altıda başlayan koşuşturmaca insanların yemek almaya geldiği 11.30’da daha da hareketleniyor. Bir tarafta yemeği kotarıp insanlara sunan aşçılar koşuştururken, diğer tarafta da insanlar evlerine bir öğün de olsa sıcak yemek yetiştirebilmek koşuşuyor. Önce poşetlere konulan yoğurt kapları çıkarılıyor sonra uzatılan ekmekler alınıp poşetlere konuluyor. Günlük iki ya da üç çeşit yemek çıkarttıklarını söyleyen Bakırköy Belediyesi İktisat Müdürü Ali Gümüş, yemeklerin tamamen belediyenin kaynağından sağlanan parayla karşılandığını söylüyor; “Beldiyenin en büyük giderlerinden birini aşevi oluşturuyor. Tabii burada yapılan yemekler beş—on kişiye yapılmıyor. Üç binin üzerinde insana yemek veriliyor. Zaman zaman hayırsever vatandaşların da yardımları oluyor ama bunlar çok az.”
+       <br/>
+       <br/>
+       Belgeli dağıtım
+       <br/>
+       <br/>
+       Aşevinden yemek almaya gelen vatandaşların birçoğu fakirlik sınırının oldukça altında gelir düzeyine sahip olan, evlerine düzenli bir maaş girmeyen, baraka gibi yerlerde yaşayan insanlar. Bu insanların çoğu işsiz, dul, ya da hasta. Çoğunun evinde tencere kaynamıyor. Günlük bir öğün yemeklerini aşevinden temin ediyorlar. İnsanların aşevlerinden yemek alabilmeleri için de gerekli bir prosedür var. Bir insanın aşevinden yemek alabilmesi için öncelikle fakirliğini belgelemesi gerekiyor. İlçesinde bulunan muhtara gidip fakirlik belgesi alan vatandaş fakirliğini belgeledikten sonra belediyenin ilgili komisyonları tarafından kontrol ediliyor ve kendisine verilen belgeyle yemek alabiliyor. Belediye aşevinden yemek alacakları kanunlara uygun olarak belgelediğini söyleyen Gümüş, bunun dışında başka ilçelerden gelen ve ihtiyacı olan insanlara da yemek verdiklerini belirtiyor; “Tabii biz sadece kanunen belgelediklerimize vermiyoruz yemek. Başka ilçelerden gelen veya yoldan geçerken yemek yemek isteyen insanlara da veriyoruz. Fakat bunların sayıları çok az. Bakırköy genel olarak gelir bakımından Türkiye’nin en iyi gelir gruplarından birine sahip. Fakat biz üç bini aşkın kişiye yemek verirken daha fakir semtlerde de hemen hemen aynı sayıda kişiye yemek veriliyor. Bu tamamen bütçeyle alâkalı bir şey.”
+       <br/>
+       <br/>
+       Gümüş, Bakırköy Belediyesinin diğer belediyelere göre daha iyi olanaklarda yemek sunduğunu söylerken hergün yemek almak için aşevinin kapısını dolduran vatandaşlar ise sürekli aynı yemeklerin çıkmasından şikayetçi. “Durumu iyi olan kimse gelip buradan yemek almaz” diyen Fatma Serindağ şöyle devam ediyor; “Buraya gelen insanların pek çoğu işsiz güçsüz. Evlerine ekmek alacak paraları yok, zaten durumu olanın burada işi ne. Hergün aynı yemekler çıkıyor. Haftada bir pilav çıkınca bayram ediyoruz. Genellikle hep kuru fasulye oluyor. Herkese iki tane ekmek veriliyor. Oysa kiminin nüfusu altı kişi, kimininki on kişi.” Yokluk yüzünden kimi vatandaş verilen yemeğin yetersiz olduğunu söylerken kimi ise buna da şükür diyor. Özellikle Bakırköy Aşevi’nden yemek alan insanların son krizden sonra yüzde on beşlik bir artış gösterdiğini söyleyen Gümüş, ellerinde bulunan imkanlarla insanlara en iyisini sunmaya çalıştıklarını söylüyor.
+       <br/>
+       <br/>
+       Bakırköy Belediyesi yakın bir zamanda daha geniş kapasiteli bir aşevinin hizmete geçmesi için çalışıyor. Böylelikle hem gelen insanlara daha iyi hizmet sunulacak, hem de daha iyi yemekler çıkarılabilecek. Ayrıca belediye bünyesinde kurulacak yeni aşevi için T.S.E garantisi alacak. Kimi vatandaş her ne kadar yemeklerin aynı çıkmasından, verilen yemeklerin yetersiz olduğundan şikayetçi olsa da çoğu karınlarına sıcak bir yemek gittiği için aşevinin çalışmalarından memnun.
+       <br/>
+       <br/>
+       rahimesezgin@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12885), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161129/http://www.aksiyon.com.tr:80/detay.php?id=12885)

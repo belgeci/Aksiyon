@@ -1,0 +1,49 @@
+# Bilgiye ulaşmayı bilmek
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bilginin ve bilgi kaynaklarının önceki dönemlere göre bir hayli arttığı bilgi çağında, bilgiye ulaşmak için çeşitli araçların da gelişmesi ile birlikte “bilgiye sahip olmak”tan çok “bilgiye nasıl ulaşabileceğini bilmek” değer kazanıyor.
+   <br/>
+   <br/>
+   Bilgi yığınları içerisinde, doğru ve gerekli bilgiye kısa sürede ulaşabilmek, zaman ile yarışan insanlar için aslında bir bakıma paha biçilmeyecek bir yetenek.Önceden bilgi kaynaklarının az olması nedeniyle bilgiye sahip insanların olması yeterli gelebilirdi ancak şu zamanda bilginin fazlalığı ve bu bilgiye sahip olmanın imkansızlığı neticesinde bilgiye ulaşabilmek yükselen bir değer haline geldi. Eskiden “her işten anlamak” modayken şimdilerde bunun “bir konuda uzman olmak” formatına dönüşmesinde de bilginin artışı ve bu bilgiden faydalanabilme ölçüsünün etkisi büyük.
+   <br>
+    <br>
+     ABD’li Associated Press kurumunun son yaptırdığı bir araştırma da bize bilgiye ulaşmanın toplumda nasıl yer bulduğunu ve genç neslin buna nasıl adapte olduğunu açıkça gösteriyor.
+     <br>
+      <br>
+       Araştırmaya göre, öğrenciler ödevler ve araştırma projeleri için kaynak olarak internetin önemini ve kendilerine nasıl kolaylık sağladığını anlatıyorlar. Ansiklopedilerden bilgi aramak yerine internetten çok daha fazla bilgiye çok daha kısa sürede ulaşabildiklerini anlatan öğrenciler, bilgiye ulaşmanın bu zamandaki en iyi aracı olarak da interneti gösteriyorlar.
+       <br>
+        <br>
+         Ödevlerde veya projelerdeki iki temel amaçtan birinin bilgiye ulaşmak diğerinin de bilgiyi öğrenmek olduğu düşünülürse, internet sayesinde ilk aşamanın başarıyla gerçekleştirilebildiği söylenebilir. Burada ortaya çıkan bir handikap ise, öğrencilerin internetten bilgi toplarken copy/paste (kes/yapıştır) mantığına alışmaları, topladıkları bilgileri hiç okumamaları ve dolayısı ile öğrenme oranlarının düştüğü gerçeği.
+         <br/>
+         <br/>
+         Bu handikapı aşmaya çalışan ABD’li eğitimciler, herşeye rağmen internetin eğitim sisteminde köklü bir yenilik gerçekleştirdiğine, zamanla bu sistemin de gelişeceğine inanıyorlar.
+         <br/>
+         <br/>
+         Bilgiye ulaşmayı bilmenin değer kazandığı ve bu faaliyete yardımcı olan internet teknolojilerinin geliştiği böyle bir zamanda siz neyi bekliyorsunuz?...
+         <br/>
+         <br/>
+         YK
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 10 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12894), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151301/http://www.aksiyon.com.tr:80/yazdir.php?id=12894)

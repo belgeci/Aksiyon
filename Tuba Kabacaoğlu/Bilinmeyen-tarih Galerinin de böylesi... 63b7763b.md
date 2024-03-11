@@ -1,0 +1,34 @@
+# Galerinin de böylesi...
+
+*Tuba Kabacaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20031101034505im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20031101034505im_/http://www.aksiyon.com.tr/resim/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Açıldığı ilk günden bu yana renkli ışıkları, görkemli vitrinleri ile dikkat çeken ve ilgili ilgisiz her insanı görmeye alıştığımız Akmerkez, bugünlerde farklı bir telaş ve koşuşturma içinde. Kimileri olan bitenin farkında, kimileri de şaşkınlıklarını gizleyemeden anlamaya çalışmakta.
+ </font>
+ <p>
+  <font class="content">
+   18 Mart 1993 yılında açılan ve 1995 yılında da Avrupa’nın en iyi alışveriş merkezi seçilen Akmerkez, bugünlerde 10. yıl kutlamaları kapsamında çeşitli sanatsal faaliyetlere ev sahipliği yapıyor. Genelde ünlü ve büyük mağazaların ürünlerinin sergilendiği vitrinlerde şimdilerde değerli resim üstadlarına ait eserler göz dolduruyor. 3 Eylül’de  tarihleri arasında dev bir sanat galerisi haline dönüştürülen Akmerkez; 28 Eylül’e kadar resim, heykel ve çeşitli enstallasyonlardan oluşan 200 adet sanat yapıtını mağaza vitrinlerinde ve genel alanlarda sergileyecek. Çoğu Akmerkez müşterisi de modanın nabzını tutan vitrinlerde farklı bir yapının ve görünüşün hakim olmasından memnun. Bu etkinlikten habersiz, sadece girişteki büyük vitrinlere bakarak anlamaya çalışan kişilerin meraklarını gidermeleri için Akmerkez’in içine girmeleri gerekiyor. Akmerkez, bu hizmetiyle Türkiye’de en fazla gezilen resim sergisi unvanını alacak. Çünkü alışveriş merkezinin günlük ortalama ziyaretçi sayısı 50 bin civarında. Yapılan araştırmalara göre dünyaca ünlü Louvre Müzesi’ni günde ortalama 89 bin kişi gezmekte. Akmerkez’e günde ortalama 50 bin kişinin geldiğini düşünecek olursak, yaklaşık 4 haftalık sürede 1 milyonun üzerinde ziyaretçi, 80 değerli sanatçının 200’e yakın eseriyle buluşacak. Bunun sonucunda 20. yüzyılın en etkin bilgi aktarım sistemi olan “dolaylı bilgilendirme” yöntemi ile çok da düşkün olmadığımız sanatla buluşmuş olacağız. Tabii bu her alışverişe gelenin isteyerek ya da istemeyerek tabloları görmeleri varsayımına dayanıyor. Ki, görmemelerine de imkan yok. Bu projeyi gerçekleştirebilmek için yaklaşık 150 kişi el ele vermiş. Akmerkez’ e maliyeti ise,100 bin doların üzerinde.
+   <br/>
+   <br/>
+   Galeri Binyıl’ ın sahibi ve Akmerkez sanat projesinin mimarı Erhan Ersöz, projenin oluşumunu, hayata geçişini ve amacını şöyle açıklıyor: “Akmerkez yetkilileri bundan 6 ay önce 10. yıl kutlamaları kapsamında sanat ağırlıklı, sanata hizmet etmek adına bir proje üretmemizi istedi. Ben de şu anda uygulamada olan projemi sundum. Kabul gördü, bir ekip oluşturuldu. Server Demirtaş, Bubi, Tomur Atagök gibi sanatçı arkadaşlarımızın da desteğiyle 80 ressamımıza davet gönderdik, projemizi sunduk. Tüm sanatçılarımızdan ortalama 34 eser aldık. Vitrinler için de 200’e yakın mağazanın sahipleri ile görüştük. Bu şekilde proje hayata geçti. Ersöz’ün, proje gerçekleştikten sonraki düşünceleri ise şöyle: “Burası çok farklı renkleri barındıran bir alışveriş merkezi. Her kültürden, seviyeden, maddi olanakları geniş ve kısıtlı insanlar geliyor. Amacımız ziyaretçilerin ilgisini çekmek, bu sanatsal faaliyetin farkına varmalarını sağlamak. İnsanlar mağazaları gezerken sanatsal bir faaliyetin içine de giriyorlar. Alınan tepkilere göre ziyaretçiler bu organizasyondan memnun. Çünkü, önceden medyatik olmadıkları için tanınamayan çok başarılı, gerçek sanatçı kimliği olan kişilerin kendilerini ve eserlerini tanıma fırsatını yakalıyorlar.” Projenin mimarı aynı zamanda önümüzdeki günlerde çocuklarla ilgili farklı bir projeye imza atacaklarını söylüyor. Gelecek günler içerisinde gerçekleştirilecek paneller ve etkinlikler içinde en ilgi çekecek olan etkinlik küçük ve orta yaştaki çocuklara boyalar, fırçalar ve boş duvarlar verilerek yapılacak etkinlik. Sergilenecek bu duvarlar da projenin bir parçasını oluşturacak.
+   <br/>
+   <br/>
+   Projeye destek verip vitrininde Bubi’nin resmini sergileyen Sarar Mağazasının Satış Müdürü Yakup Yakacık, projenin amacının Türk insanının ayağına sanatı getirmek olduğunu fakat bunun tam mânâsıyla gerçekleşmediğini söylüyor: “Gelen kitle tabii ki var. Ama ne soran ne de merak eden var. Ki, bizim mağazamızda Bubi gibi ünlü bir ressamın resmi var.   Bence çok iyi bir proje. Böyle projelere Türk halkını sanata alıştırmak için ihtiyacımız var." Moda Ctiy Mağazası da bu projeye destek veren kurumlardan. Büyük ve gösterişli mağaza vitrininde Ömer Uluç, Mustafa Ata, Özdemir Altan ve Ergin İnan gibi resim üstadlarına ait eserler sergilenmekte. Konuyla ilgili görüştüğümüz Moda Ctiy Mağaza Müdürü Zehra Özer “Bizim vitrinlerimizin ve ürünlerimizin uygunluğuna göre düzenleme yapıldı. Müşteriler kesinlikle bu güzelliğin farkındalar. Birbirini etkileme açısından da çok iyi oldu. Kişi tablolara bakarken ürünlerimizin farkına varıyor ya da bunun tam tersi. Müşterinin de içine katıldığı bir etkileşim söz konusu." diyor. Tomur Atagök ve Gürgör Taner’in tabloları da Park Brova Mağazası’nın görkemli vitrinini süslüyor. Mağazanın Genel Müdürü olan Hakan Altun, bu serginin kesinlikle amacına çok kısa sürede ulaştığını, sanata pek sıcak bakmadığından yakındığımız Türk halkının ilgisinin yoğun olduğunu, müşterilerin alışverişin yanı sıra eserlerle yakından ilgilenip almak istediklerini söylediklerini, müşterilerin kendi aralarında resimleri değerlendirdiklerine şahit olduklarını söylüyor.
+   <br/>
+   <br/>
+   Benetton, Siemens, Yapı Kredi Bankası, Ariston, Tefal, Kid’s Story, Şişli Optik gibi 200’ e yakın mağaza vitrinlerinde sanat eserlerini sergileyerek projeye destek veriyor. Fazlasıyla emek verilmiş, üstünde çalışılmış, sanatı galeriden çıkartıp insanoğlunun en sevdiği uğraş olan alışveriş mekanına taşıyan bir proje. İlk defa uygulanan bu projenin sergi boyunca nasıl bir ilgi ile karşılaşacağı da merak konusu. Tabii en çok merak edenler projenin mimarları; onlar da sergi boyunca sizleri izliyor olacak.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2954&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20031101034505/http://www.aksiyon.com.tr:80/detay.php?id=2954&yorum_id=1)

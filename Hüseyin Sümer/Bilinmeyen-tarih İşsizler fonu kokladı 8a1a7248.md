@@ -1,0 +1,131 @@
+# İşsizler fonu kokladı
+
+*Hüseyin Sümer Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041226003232im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041226003232im_/http://www.aksiyon.com.tr/resim/482/50.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İşsizlik Fonu'ndaki para 7 milyar dolara ulaşırken fona prim yatıran işsizlere sadece 53 trilyon lira ödendi. Çalışma ve Sosyal Güvenlik Bakanı Başesgioğlu, dengesizliği işçiler lehine düzelteceklerini söylemesine rağmen bugüne kadar gözle görülür bir adım atılmadı. Türkiye ekonomisinin uzun yıllardır yaşadığı sorunların nedenleri konusunda farklı görüşler olsa da, sonucunu herkes biliyor: İşsizlik. Toplumun geniş kesimleri için hayati önem taşıyan ve ekonomik olduğu kadar sosyal bir problem olan işsizliğin boyutları, yöneticileri artık daha çok korkutuyor. Kontrol dışına çıktığında ise ekonominin kilitlenmesine yol açması ve taşıdığı sosyal riskler nedeniyle hükümetlerin hassasiyetini artırıyor.
+  <br/>
+ </font>
+ <p>
+  <font class="content">
+   Devlet İstatistik Enstitüsü’nün tahminlerine göre, 2000 yılında 1 milyon 452 bin olan işsiz sayısı bir sonraki yıl 1 milyon 902 bine çıktı. 2002’de işsizler ordusuna 510 bin kişi daha katıldı. Bu sonuçlara göre, işsiz sayısındaki artış yüzde 67 oldu. 2003 yılındaki durum da çok parlak değil. Kayıtlara göre işsizlik oranı yüzde 12 civarında. Ama bunun daha ötesinde olduğu biliniyor.
+   <br/>
+   <br/>
+   İşsizlik bütün dünyanın başına musallat olmuş bir bela. Amerika’da yüzde 5—6 civarında seyreden işsizlik Almanya’da yüzde 10, İspanya’da ise yüzde 20’lere çoktan ulaştı.
+   <br/>
+   <br/>
+   Bu nedenle bu gibi ülkelerde siyasilerin işi çok kolaydır. Seçmenler için verilecek en önemli vaad bellidir; ‘İşsizlik sorununu çözeceğiz’. Çözüm üretilmese de toplumu kısa süreliğine mutlu etmek için iyi bir yöntem. Çünkü nihayetinde bu insanlar birer oy pusulasıdır, partililer nezdinde.
+   <br/>
+   <br/>
+   7 milyar dolar iştah kabartıyor
+   <br/>
+   <br/>
+   Son yıllarda Türkiye’de sosyal sorumluluk çerçevesinde elle tutulur, gözle görülür adımlar atılmadı değil. En son, vatandaşın ‘zorunlu tasarruf’ dediği Çalışanları Tasarrufa Teşvik Hesabı, ekonomide yeniden yapılanma çerçevesinde 1988’in Nisan ayında yürürlüğe girdi.
+   <br/>
+   <br/>
+   Uygulamayı başlatan 3417 sayılı kanunla, ‘çalışanların aylık ve ücretlerinden tasarruf kesintisi yapılması, tasarruflara devlet veya ilgili işverenlerin katkıda bulunması, bağımsız çalışanların gelirlerinin bir kısmının tasarrufa ayrılmasını temin etmek ve bu tasarrufların en iyi şekilde nemalandırılması’ amaçlanıyordu.
+   <br/>
+   <br/>
+   Ancak niyet kısmete dönüşmedi, kesintilere işsizlik sigortasının kanunlaşması ile son verildi. Çünkü hem çalışan hem de çalıştıran kesimin tepkileri zirveye çıkmıştı. Hükümet, işçi ve işveren üzerine binen yeni yükü kabul ettirebilmek için zorunlu tasarruf kesintilerine 2000 yılı Haziran ayında son vermek mecburiyetinde kaldı. Ana para kesintisinin durdurulmasıyla birlikte çalışanlara paralar geri ödenmeye başlandı.
+   <br/>
+   <br/>
+   Para almanın sevinciyle olsa gerek hiç kimse bu paraların niçin biriktirildiğini sorgulamadı. Bugünlerde çalışanlara ödenen bu paralar piyasaları biraz olsun canlandırdı. Şimdi ise gözler yeni yapılan kesintilerle oluşacak işsizlik sigortasına çevrildi.
+   <br/>
+   <br/>
+   İşyerinde çalışırken, kendi istek ve kusuru dışında işini kaybedenlere, uğradıkları gelir kayıplarını kısmen de olsa karşılayarak kendilerinin ve aile fertlerinin zor duruma düşmelerini engellemek için sigortacılık tekniği ile faaliyet gösteren, devlet tarafından kurulan zorunlu bir sigorta oluşturuldu.
+   <br/>
+   <br/>
+   Sigortadan yararlanabilmek için primini düzenli ödeyenlerin kendi istek ve kusurları dışında işsiz kalması şartı getirildi. Bunun dışında da hizmet akitleri, işveren tarafından haklı neden olmaksızın feshedilenler de işsizlik ödeneğinden yararlanabilecek.
+   <br/>
+   <br/>
+   İşsizlik riskine karşı dört yıl öncesine kadar herhangi bir güvence yoktu. 4447 sayılı kanun ile bağımlı çalışan işçiler için işsizlik riski güvence altına alındı. Bu kanun gereğince ilk prim kesintisi Haziran 2000’de, ilk İşsizlik Sigortası ödemeleri de 2002 yılının Şubat ayında başladı.
+   <br/>
+   <br/>
+   Çok kısa sürede işsizlere verilmek için işçi ve işverenden kesilen paylarla fonun da iyi yönetilmesi sonucu biriken para, 9 katrilyon 264 milyar liraya ulaştı. İşsizlere maaş bağlamak üzere dört yıl önce oluşturulan fondaki para 7 milyar doları bulurken, fona prim yatıran işsizlere bugüne kadar sadece 53 trilyon lira ödendi.
+   <br/>
+   <br/>
+   İşsizliğin had safhada yaşandığı bir dönemde ödenen bu para, fonun çapına göre çok düşük kaldı. Bu tür fonların çalışma tarzı bütün dünyada mevcut. Normalde, işsizlik artınca fon küçülmeye başlar. Ancak en çok işsizliğin yaşandığı yıllar olan 2000’lerde bile fondan işsizlere doğru düzgün para aktarılmadı.
+   <br/>
+   <br/>
+   İşsizlik ödeneği, sigortalının son dört aylık primine esas kazançları dikkate alınarak hesaplanan ortalama net kazancının yarısı olarak belirleniyor ve aylık asgari ücretin netinden fazla olamıyor. Bugün en düşük işsizlik ödeneği 163 milyon, en yükseği ise 301 milyon lira.
+   <br/>
+   <br/>
+   Ödenekten yararlanmak için hizmet akdi sona ermeden önceki 3 yıl içinde, son 120 gün sürekli çalışmış, kendi istek ve kusuru olmaksızın işini kaybetmiş olmak gerekiyor. İşini kaybedenlere prim sayısına göre, 180—300 gün arası sigorta ödemesi yapılabiliyor.
+   <br/>
+   <br/>
+   Fon, Hazine’ye yaradı
+   <br/>
+   <br/>
+   Önceleri aylık brüt ücret üzerinden işçi, işveren ve devlet payı olarak fona yüzde 7 kesinti yapılırken; 2002 itibarıyla işveren payı yüzde 2, devlet ve sigortalı payı ise yüzde 1’er olmak üzere yüzde 4’e kadar düşürüldü. Ocak ayında da 56 bin 145 kişiye toplam 12 trilyon 794 milyar liralık işsizlik sigortası ödemesi yapıldı.
+   <br/>
+   <br/>
+   Yönetmelik gereği serbest piyasa koşullarında, yatırım araçlarının riskleri, vadeleri ve fonun nakit akış durumu dikkate alınarak yönetim kurulunca profesyonel bir anlayışla yönetiliyor. Çalışma ve Sosyal Güvenlik Bakanı Murat Başesgioğlu, fondaki dengesizliği işçiler lehine düzelteceklerini söylemesine karşılık bugüne kadar gözle görülür bir adım atılmadı.
+   <br/>
+   <br/>
+   İşsizlik ödeneğinden yararlanma koşulları çok ağır olunca ‘Fon işsizler yerine Hazine’ye yaradı’ söylemleri ortalıkta dolaşmaya başladı. Oluşan devasa rakam karşısında, ‘Hükümet fona müdahale mi ediyor?’ sorusu gündeme gelirken işçi ve işveren temsilcileri böyle bir tutumu kabul edemeyeceklerini belirtiyor.
+   <br/>
+   <br/>
+   İşsizlik ödeneği dışında fonun diğer gider kalemlerini ise hastalık ve analık sigorta primleri, yeni iş bulma ile meslek geliştirme—edindirme ve yetiştirme eğitimleri oluşturuyor. Fonun Yönetim Kurulu; Çalışma Bakanı ve Hazine Müsteşarlığı’nın bağlı olduğu bakanın önerisi üzerine atanan birer temsilci ile en fazla işçi ve işvereni temsil eden işçi ve işveren konfederasyonları tarafından seçilen birer üyeden oluşuyor.
+   <br/>
+   <br/>
+   İş Kanunu gereği; işverenin konkordato ilan etmesi, işveren için aciz vesikası alınması veya iflası nedeni ile işverenin ödeme güçlüğüne düştüğü hallerde geçerli olmak üzere, işçilerin iş ilişkisinden kaynaklanan son üç aylık ücret alacaklarını karşılamak amacıyla, İşsizlik Sigortası Fonu kapsamında Ücret Garanti Fonu oluşturuldu. Kanun gereği, Ücret Garanti Fonu işverence işsizlik sigortası primi olarak yapılan ödemelerin yıllık toplamının yüzde biri olarak kesiliyor.
+   <br/>
+   <br/>
+   İşsizlik sigortası, Avrupa’da neredeyse yüz yıldır var. Türkiye’de ise yeni ve insani bir uygulama. Ancak şu anda fonda biriken 7 milyar dolar iştah kabartıyor. Merak edilen konu ise diğer fonların akıbetine uğrayıp uğramayacağı. Bunu da zaman gösterecek.
+   <br/>
+   <br/>
+   FONDA 7 MİLYAR DOLAR BİRİKTİ
+   <br/>
+   <br/>
+   2004 yılı ocak sonu itibariyle
+   <br/>
+   <br/>
+   (milyar TL)
+   <br/>
+   <br/>
+   İşçi işveren primleri	2.924.102
+   <br/>
+   <br/>
+   Gecikme zammı	 49.844
+   <br/>
+   <br/>
+   Devlet katkısı	1.052.501
+   <br/>
+   <br/>
+   Faiz gelirleri	5.459.430
+   <br/>
+   <br/>
+   İdari para cezaları	 3.245
+   <br/>
+   <br/>
+   TOPLAM :	9.489.123
+   <br/>
+   <br/>
+   Giderler	 224.822
+   <br/>
+   <br/>
+   Ücret garanti fonu	 4.453
+   <br/>
+   <br/>
+   İşsizlik sigorta fonu	9.259.848
+   <br/>
+   <br/>
+   TOPLAM Fon Varlığı	9.264.301
+   <br/>
+   <br/>
+   Kaynak: Türkiye iş Kurumu
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11215&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041226003232/http://www.aksiyon.com.tr:80/detay.php?id=11215&yorum_id=1)

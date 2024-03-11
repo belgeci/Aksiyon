@@ -1,0 +1,88 @@
+# Babamın ağlamasını unutamadım
+
+*Osman İridağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040622124936im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040622124936im_/http://www.aksiyon.com.tr/resim/490/60.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Can Dilleri isimli şiir kasetiyle izleyici  karşısına çıkan Ekmek Teknesi’nin Celal’i tiyatrocu Ahmet Yenilmez, televizyonlarda yayınlanmaya başlanan klibiyle hem ağlıyor, hem de ağlatıyor.
+ </font>
+ <p>
+  <font class="content">
+   Önce Deli Yürek dizisinde Sabri rolü ile, ardından Ekmek Teknesi’ndeki Celal olarak sevdik onu. İki dizideki isimleri farklıydı ancak ikisinde de delikanlıydı. Dost canlısı, mert, sevdikleri için canını feda etmeye hazır, milli duyguları yüksek, örf ve adetlerine bağlıydı. Sevdim mi adam gibi severim ifadesinin tam karşılığıydı yani. Ahmet Yenilmez bu kez de şair olarak çıkıyor karşımıza. Her ne kadar kendisi tersini iddia etse de biz bu ülkede şair olduğunu söyleyip insanı şiirden nefret ettiren nicelerini tanıdık. Yenilmez’e göre şairlik Attilla İlhan’ın kıstasında gizli. Yani; “Divan edebiyatını bilmeyen şair olamaz.” Ona göre çıkardığı albüm sadece halk ozanlığı. Bu nedenle de Can Dilleri koymuş albümün adını. Neden Can Dilleri diye sorulduğunda ise cevabı gayet açık. Arkadaşımı candan severim. Ülkemi, evladımı, dostlarımı, sevdalılarımı da.
+   <br>
+    <br/>
+    —Şairlerin, şarkıcıların anneler için yazdıkları duygu yüklü nağmelere alışmıştık ama annelere söylenecek sözlerle babaları anlatan şiirlere alışkın değiliz. Siz tersini yaptınız ve kadınsı vurguları otoriter bilinen baba figürüne uyarladınız. Neden?
+    <br/>
+    <br/>
+    Bugüne kadar alışılagelmiş olan hep annelerdir. Tabii ki anneler baş tacı. Ama babalar da öyle. Ben üniversite için ilk kez evden ayrılırken otobüs terminalinde babamın ağladığını gördüm. Babamı ilk defa böyle görmüştüm. Çok etkilendim. Hâlâ unutamam. Kendi kendime acaba ben nereye gidiyorum ki babam ağlıyor dedim. Evlat sahibi olduktan sonra o ağlamanın ne demek olduğunu öğrendim. Babaların o iç dünyasının Türk edebiyatında hakkıyla işlenmediği kanısındayım.
+    <br/>
+    <br/>
+    —Lise yıllarında şiir yazmayanımız yoktur. Ama çoğumuz bunları ortaya çıkarmaktan çekiniriz. Siz yazmakla kalmamış, müzikli bir kaset yapmışsınız. Söyledikleriniz şiirle türkü arasında gidip gelmiş sanki.
+    <br/>
+    <br/>
+    Şiir kaseti yaparken ‘Niye orijinal müzik yapmıyorsun?’ sorusuyla sıkça karşılaştım. Bu ülkede türkü dinlenmediğini, türkü söyleyen insanların pek çoğunun da türkülere ihanet ettiğini düşünüyorum. Daha ileri gidiyorum. Bir insan dağ başında yaşasa ve iki Allah kuluna rastlamasa, sadece türkülerimizi dinlese Allah’ı bulur. Çalışmak ibadet değil mi? Biz çalışırken de türkü söylüyoruz. Ölülerimizi defnetmek ibadet değil mi? Biz ölülerimizin arkasından ağıt yakıyoruz.
+    <br/>
+    <br/>
+    —Ağıt dönemini çok gerilerde bırakmadık mı?
+    <br/>
+    <br/>
+    Son dönemde teröre, depreme binlerce insan verdik. Tek bir yeni ağıdımız yok. Yeni bir türkü yok. Popüler kültür değil bunu yok eden. Çünkü öyle olsa kendi kalıbı içinde bunu şekillendirirdi. Sorun ifade etme özrü olmakta. Ekonomik, sosyal, kültürel her alanda kendimizi ifade etmekte zorlanıyoruz.
+    <br/>
+    <br/>
+    —Peki sorun nedir? a)Ekonomik, b)Eğitimsizlik c)İletişimsizlik, d)Kültür çatışması.
+    <br/>
+    <br/>
+    Cumhuriyetin ilk yıllarında biz çok daha zor şartlardaydık. Ayakta çarık, sırtta aba, mide bomboş ama türkü ve ağıtlar revaçtaydı. Sebep şu örnekte gizli. Çocukları olanlar evde onların oyuncaklarına şöyle bir göz atsın. Kendi dönemlerinde oynadıkları oyuncaklarla çocuklarınınkiler arasında tek bir benzerlik bulabiliyorlar mı? Kuşak farkından dolayı bu tabii karşılanabilirdi. Ancak tek bir oyuncak aynı olmalıydı. Ya da benzer olmalıydı. Siz işe gittiğinizde televizyonun kumandası çocuğunuzun elinde. Akşam eve geldiğinizde çocuğunuz ‘Kainatın efendisi Heman’ diyor. Bu noktada ifade özrü başlıyor. Kültür çatışması. Yoz bir dil, yoz bir bakış.
+    <br/>
+    <br/>
+    —Sizin babanızla böyle ilişkiniz olmasa gerek. Çünkü klibi yayınlanan Babam şiirinde dinleyenleri ağlatıyorsunuz. Babanızla aranızdaki ilişkiyi nasıl anlatırsınız?
+    <br/>
+    <br/>
+    Herkesin babasının olduğu gibi benim babamın da bir öyküsü ve ortak öykülerimiz var. Babam, Ordu’nun ilk sinema makinistidir. Isparta’da askerken bir subay kızına âşık oluyor. Anam da bu kadarını bilir. Babamda resmi de vardı. Tarlada, bahçede, sokakta sürekli türkü mırıldanırdı. Babam köyden beni de götürürdü sinemaya. Aşk filmlerini çok severdi. Ben sinemada uyurdum. Şiirin sahibi Sırrı Çınar arkadaşımızın babası ağır hasta. Bu şiir asıl ona atfendir.
+    <br/>
+    <br/>
+    —Konuştunuz mu babanızla, klibi izlemiş mi?
+    <br/>
+    <br/>
+    Soramadım. Sorma cesaretinde de bulunamadım. Çünkü biliyorum, telefonda sesi titreyecek. Sonra ben iki—üç ay kendime gelemeyeceğim. Kesinlikle klibi her seyrettiğinde ağlar. Çünkü çok duygusal bir adamdır.
+    <br/>
+    <br/>
+    —Albümde en çok etkilendiğiniz diğer şiir hangisi?
+    <br/>
+    <br/>
+    Yunuslar ve Köpekbalıkları. Vefa duygusunu anlatıyor. Hayatım vefasız insanları görmekle geçti. Yitik bir kuşağın duygu dünyası var orada. 12 Eylül dönemini yaşamış sağ ve soldaki delikanlılar var. 12 Eylül, ülkeyi delikanlılar mezarlığına çevirdi. Her iki kesimden de çok dürüst, temiz, ülkesine bağlı delikanlılar tanıdım. Ama her biri vefasızlığı tattı. Bütün ideallerine rağmen insanlar tarafından nasıl yıpratıldıklarını, gadre uğradıklarını ve yalnız bırakıldıklarını gördüm. Yunuslar şiirini bu duygular içinde yazdım.
+    <br/>
+    <br/>
+    —Albümdeki bütün şiirlerin toplumsal mesaj kaygısı yoktur herhalde. Kişiye özel şiirler var mı?
+    <br/>
+    <br/>
+    Evet iki kişiye. Birincisi eşime yazılmış, ikincisi de eşim tarafından bana yazılmış bir şiir var. Şiirleri stüdyoya girip okudum. Dediler ki eksik var. Bir tane daha gerekli. Eşim, ‘Benim bir şiirim var ama bulamıyorum’ dedi. ‘Sen doğduğunda ben bu şehirde yoktum.’ 1987 yılında beraber Ordu’ya gittiğimizde, evimizde o gece yazdığı şiir. Benim haberim yok. Uyurken o gece yazmış. 17 yıl hiç haberim olmadı. Defterlerini karıştırdı ve ajandasının bir yaprağında o şiiri buldu. Stüdyoya o ajandayı alarak gittim ve öyle okudum.
+    <br/>
+    <br/>
+    —Biraz araştırdık, dost meclislerinin en çok aranan şiir okuyucularından biri olduğunuzu öğrendik.
+    <br/>
+    <br/>
+    Doğrudur, arkadaş toplantılarında sesimizden dolayı bize okuturlardı. Milli günlerde mutlaka okuturlardı. Ama ben aşk şiirlerini bile kahramanlık şiirleri gibi okur hale gelmiştim. Sonra tiyatro ile ilgilenince duygusal okumayı öğrendim. Özde taşralık var. Ne kadar yontarsan yont bu gerçekten kaçamıyorsun. Albüme bakıyorum hâlâ kuyruğu dik tutma eğilimi görüyorum. Sanki aşk şiirini adam gibi okusan kuyruk düşecek. Ama taşralılık var işte.
+    <br/>
+    <br/>
+    —Tepkileri almaya başladınız mı?
+    <br/>
+    <br/>
+    Dinleyenler çok şaşırdı. Hayatında şiir kaseti almayacak kişilerin kaset aldığını görüyorum. 55 yaşlarında bir kadın karşıma çıkıp şiirleriniz için teşekkür ediyorum dedi. İnanılmaz e—mailler alıyorum. Televizyon programlarında aldığımız telefonlardan, ilginin ne boyutta olduğunu görmek mümkün.
+    <br/>
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11411&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040622124936/http://www.aksiyon.com.tr:80/detay.php?id=11411&yorum_id=1)

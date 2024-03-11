@@ -1,0 +1,168 @@
+# Beyliğin mirası paylaşılamıyor
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302225837im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302225837im_/http://www.aksiyon.com.tr/resim/297/9.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çukurova’da asırlar boyu hüküm süren Ramazanoğlu Beyliği’nin mirası paylaşılamıyor. Ramazanoğullarından Piri Bey’in kurmuş olduğu Ramazanoğlu Vakfı’na ait yaylaklar, hanlar, araziler, ve meskenler yüzünden son 5 yıldır Çukurova’da sıcak tartışmalar yaşanıyor
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bir tarafta Vakıflar Bölge Müdürlüğü gücü yettiğinin malına, vakıf malı deyip el koyarken, bir tarafta da mağdur olan halk isyan ediyor.
+   <br>
+    <br>
+     Adana Vakıflar Bölge Müdürlüğü Çukurova’nın büyük bir kısmının vakıf malı olmasına rağmen sadece Karaisalı ilçesinde bulunan Kızıldağ Yaylası sakinlerine dava açmış. 1.5 yıl süren dava sonrasında Vakıflar Bölge Müdürlüğü davayı kazanmış. Şimdi ise Kızıldağlılar Vakıflar Bölge Müdürlüğü aleyhine kendi mallarını tekrar geri almak için dava açmışlar. Kızıldağ Yaylası ile ilgili olarak bu gelişmeler yaşanırken başka yerlerdeki vakfa ait olan mülkler de heba oluyor. Kozan’da, Yumurtalık’ta, Misis’te, Bor’da, Ceyhan’da ve İncirlik’te Ramazanoğlu Vakfına ait mülkler bulunmasına rağmen Vakıflar Bölge Müdürlüğü bu konuda hiçbir şekilde adım atmamış. Vakıf malına yönelik yapılmış olan işlemlerin vakfın mirasçılarına bildirilmemesi ise Vakıflar Bölge Müdürlüğünün yapmış olduğu ayrı bir skandal. Çünkü; vakıfnamede vakıf ile ilgili olarak yapılacak her işlemden vakıf mirasçılarının haberdar edilmesi şartı bulunuyor.
+     <br>
+      <br>
+       Mezarlara bile dava açılıyor
+       <br/>
+       <br/>
+       Adana’nın Karaisalı ilçesi sınırları içerisinde bulunan Kızıldağ Yaylası’nda 1994 yılında Tapu ve Kadastro uygulaması yapılır. Bunun üzerine Tapu ve Kadastro Müdürlüğü, milli eğitim, vakıflar, belediye, devlet su işleri başta olmak üzere tüm kamu kuruluşlarına söz konusu alanda kendilerine ait mülk olup olmadığının bildirilmesini ister. İşte bu sırada Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası’nın vakıf malı olduğunu ileri sürer. Vakıflar Bölge Müdürlüğü durumu Tapu ve Kadastro Müdürlüğü’ne bildirdikten sonra, yayla sakinlerine dava açar. Ağaçlara, evlere, arazilere hatta mezarlara bile dava açan vakıflar 1.5 yıl süren mahkeme sonucunda davayı kazanır. Mahkeme kararı üzerine Vakıflar Bölge Müdürlüğü, Kızıldağ Yaylası’nın boşaltılmasını, ya da burayı kullanan halkın yaşamış olduğu evinin, bahçesinin bedelini ödemesini ister. Halk iki şarta da uymayınca Vakıflar Bölge Müdürlüğü önümüzdeki günlerde Kızıldağ Yaylası’nda metrekaresi 4 ile 8 milyon lira arasında değişen fiyatlarla arazileri ihaleye çıkaracak. Sadece araziler değil buradaki yayla evleri de satışa çıkarılacaklar arasında bulunuyor. Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası’nı ihaleye çıkaracağı günü beklerken, yayla sakinleri de Vakıflar Bölge Müdürlüğü aleyhine dava açmış durumda. Bin 500 haneli, 10 bin nüfuslu Kızıldağ Yaylası’nda güçlü ailelerin de mülkleri bulunuyor. Adana Büyükşehir Belediye Başkanı Aytaç Durak, Adana eski milletvekillerinden Veli Andaç Durak ve Karaisalı Belediye Başkanı Babacan Durak’a ait ev ve bahçe Kızıldağ Yaylası’nın önemli noktalarında bulunuyor.
+       <br/>
+       <br/>
+       2 yüzyıldır halk Kızıldağ’a çıkıyor
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü yıllar sonra Kızıldağ Yaylası’nın Ramazanoğlu Vakfına ait olduğunu söyleyip hak elde etti, ancak, Karaisalılar yaklaşık 2 yüzyıldır bu yaylayı yaz aylarında kullanıyor. Kullanmak bir yana, Kızıldağ’a giden Karaisalılar burayı tam bir şehre dönüştürmüşler. Kızıldağ’da şimdi lokantalar, marketler, kahvehaneler var. Yaylada bulunan Ramazanoğulları camii bakımı burada yaşayan halk tarafından yapılıyor. Oysa mülhak vakıflarda vakıf mallarının korunması ve kollanması Vakıflar Bölge Müdürlüğü’ne aittir şartı bulunuyor. Yani Vakıflar Genel Müdürlüğü kurulduğu tarihten bu yana bu camiye bir çivi bile çakmadan kendi haline bırakmış. Sadece cami değil Kızıldağ Yaylası sakinleri, Ramazanoğullarından kalma mekanları da koruyup günümüze kadar gelmesini sağlamışlar.
+       <br/>
+       <br/>
+       Ramazanoğulları Vakfı ile ilgili olarak çalışmaları ile tanınan Araştırmacı–Yazar Fatih Bayhan Vakıflar Bölge Müdürlüğü’nün Kızıldağ’da üzerine düşeni yapmadığını belirterek şöyle konuşuyor: “Kızıldağ’da insanlar iki asırdır yaşıyorlar. Herşeyleriyle buraya yerleşmişler. Şimdi sen burası vakıf malıdır deyip ellerinden alamazsın. Zaman aşımı olmuştur. Bu zamana kadar Vakıflar Bölge Müdürlüğü neredeydi? Yayla’da bulanan camiyi ve tarihi mekanları yaylaya çıkanlar koruyup, günümüze kadar getirmiş. Vakıflar üzerine düşeni hiç yapmamış.”
+       <br/>
+       <br/>
+       Osmanlı tapuları vermiş
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü mahkeme kararına dayanarak Kızıldağ Yaylası sakinlerine şartlarını kabul ettirmeye çalışırken, yayla sakinleri de sonuç ne olursa olsun kendi topraklarından(!) ayrılmayacaklarını söylüyorlar. Buraları yaylak olarak kullanan bir çok ailede Osmanlı döneminden kalma tapular bulunuyor. Osmanlı döneminde alınan tapuların Türkiye Cumhuriyeti’nde de geçerliliğini koruması hukuki bir kural. Bütün bunlara rağmen hukuken arazileri ve evleri ellerinden alınmış olan Kızıldağ Yaylası sakinleri gerekirse sonuna kadar mücadele edeceklerini, hatta bu yolda kanlarını bile akıtabileceklerini söylüyorlar.
+       <br/>
+       <br/>
+       Karaisalı Belediye Başkanı ve Kızıldağ Yaylasın’da evi, bahçesi bulunan Babacan Durak şunları söylüyor: “Bana babamdan ona da babasından, kalma bir Osmanlı döneminin tapusu var. Osmanlı Tapuları Cumhuriyete intikal ediyor. Bunu yok sayamazsınız. Osmanlı vakıf konusunda daha hassastı. Burası bizim ve biz sonuna kadar burada kalacağız. Buranın altyapısını yaptık, düzen—intizam sağlandı. Ben kendimi bildim bileli biz her yaz buraya çıkarız. Babam da aynı şeyi söylüyor. Şimdi ise Vakıflar Bölge Müdürlüğü burası vakıf malı diyor. Sadece bizde değil burada yaşayan birçok ailede Osmanlı döneminden kalma tapular var.”
+       <br/>
+       <br/>
+       Kızıldağ Yaylası’nda yıllardır yaşayan 72 yaşındaki Ali İzgi çok karışık duygular içinde olduklarını söylüyor. İzgi sonuç ne olursa olsun buradan ayrılmayacaklarını belirterek: “Hiçbir kuvvet bizi buradan koparamaz. Şimdi de bizim malımızı bize satmaya çalışıyorlar. Benim verecek param yok, ben zaten zar–zor geçiniyorum. Buranın vakıf malı olduğunu hiç duymadık, sadece cami Ramazanoğulları camisi olarak geçiyordu. Dedemin dedesi 250 yıl önce buraya gelmiş. Ecdadımızdan kalan mirası korumak istiyoruz. Gereken ne ise onu yapacağız.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Kızıldağ Yaylası’nda oturanların büyük bir kısmının Tapu ve Kadastro Müdürlüğü’nden alınmış tapuları bulunuyor. Yaylada bulunan evi ve araziyi alırken tapusunu da aldığını belirten Ali Hikmet Yönük şunları söylüyor: “Ben burayı alırken sahibinde Osmanlı tapusu vardı. Daha sonra bunu Tapu ve Kadastro Müdürülüğü’ne götürüp cumhuriyet tapusu çıkarttırdık. Tapu çıkarttırıyorum kimse bana birşey demiyor, daha sonra birileri çıkıp malımı elimden almaya çalışıyor, ben bunu anlayamıyorum.”
+       <br/>
+       <br/>
+       Vakıflar İncirlik’e ses çıkaramıyor
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası konusunda gösterdiği ciddiyet ve kararlılığını(!) İncirlik’teki vakıf arazisi konusunda gösteremiyor. İncirlik’in tamamı vakıf malı olmasına rağmen Vakıflar Bölge Müdürlüğü buraya yönelik ne bir dava açmış ne de bir keşif yaptırmış. Vakıflar Bölge Müdürlüğü İncirlik’e dava açamamaları, Tapu ve Kadastro Müdürlüğü’nün buradan keşif için erken geçmesine bağlıyor. Oysa Tapu ve Kadastro Müdürlüğü’nün keşif ve düzenleme yapacağı her alan için başta vakıflar olmak üzere tüm kamu kuruluşlarına bir uyarı yazısı yazdığı hemen hemen herkes tarafından biliniyor.
+       <br/>
+       <br/>
+       Araştırmacı–Yazar Fatih Bayhan Vakıflar Bölge Müdürlüğü’nün çifte standart uyguladığını belirterek: “Vakıflar Kızıldağ Yaylası konusunda gösterdiği ciddiyeti İnicirlik’teki araziler için göstermiyor. İncirlik Ramazanoğlu Vakfiyesi’ne ait bir alan. Şimdi üzerinde yabancılar var, yerliler var. Hiç bunlara dava açıp hesap soran yok. Vakıflar keşfin erken yapılmasını bahane olarak gösteriyor, ancak buna kimse inanmaz. Zaten kadastro geçeceği yerden kuruluşlara bir uyarı yazısı yazar. Bunun arkasına sığınmak yanlış olur.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Sadece İncirlik konusunda değil, Kozan’daki, Yumurtalık’taki, Misis’teki, Ceyhan’daki ve Niğde’nin Bor ilçesindeki Ramazanoğlu Vakfı’na ait malların akıbeti de Vakıflar Bölge Müdürlüğü tarafından bilinmiyor.
+       <br/>
+       <br/>
+       Vakıf malı herkes onu...
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü Adana’nın şehir merkezinde bulunan vakfiyeye ait olan mekanların korunması için hiçbirşey yapmıyor. Vakfiyeye ait birçok mekan yok olurken birçoğu da yok olma ile karşı karşıya. Ramazanoğlu Vakfı’na ait 8 kapılı bedestenin önemli bir kısmı yok olurken, vakıfa ait aşevi(İnkılap İlkokulu) de yıkılma ile karşı karşıya. Yine Vakıflar Bölge Müdürlüğü, vakıf mallarının, satılamaz, devredilemez hükmüne rağmen Bezazlar Çarşısı’nın yüzde 60’ını satmış durumda. Çarşının yüzde 60’lık kısmı şimdi 16 kişi tarafından kullanılıyor.
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfına ait şehir merkezindeki mekanların perişan olduğunu belirten Araştırmacı–Yazar Fatih Bayhan: “Vakıflar Bölge Müdürlüğü vakfiyeye ait varlıkları koruyamıyor. Ramazanoğullarının idari merkezi olan konak, şadırvan ve Ulu Cami ödenek yokluğu bahanesiyle onarılmıyor. Oysa Vakıflar’ın hesabında yeterli para var. Yine Vakıflar Bölge Müdürlüğü beylikten kalan aşevini devam ettirip her gün yemek dağıtmak zorunda. Çünkü, bu vakfiyenin maddelerinden biri. Sadece burası bizim deyip, kira alıp kalmakla olmuyor. Vakfiyenin tüm şartlarını da yerine getirmek gerekiyor.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Vârisler herşeyden habersiz
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfı’nın şu anda hayatta olan 213 vârisi her ay vakıf gelirlerinden çok cüzi bir miktar para alıyor. Vakfın Mütevelli Heyeti Başkanı Adnan Kamışlı gelişen olaylardan herberinin olmadığını, zaten kendilerini pek ilgilendirmediğini söylüyor.
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfı’nın vakfiyesinde geçen bir madde ise oldukça dikkat çekici. Vakfiyeye göre, eğer vakfa ait malların herhangi birisi hasar gördüyse vakıf gelirleri evlatlara verilmeden buraya harcanmalı ibaresi bulunuyor. Yine aşevinde fakir olanlara yemek dağıtılması şartı yerine getirildikten sonra arta kalan para evlatlara bölüştürülebilir maddesi de ihlal edilmiş durumda. Ancak vakıflar gelirleri onarım ve aşevinde kullanılmadan evlatlara bölüştürüyor. Bu da vakfiyeye yapılan saygısızlığın ayrı bir yönünü ortaya koyuyor.
+       <br/>
+       <br/>
+       e—mail: hsoylemez@hotmail.comHAŞİM SÖYLEMEZ
+       <br/>
+       <br/>
+       <br/>
+       <br/>
+       Çukurova’da asırlar boyu hüküm süren Ramazanoğlu Beyliği’nin mirası paylaşılamıyor. Ramazanoğullarından Piri Bey’in kurmuş olduğu Ramazanoğlu Vakfı’na ait yaylaklar, hanlar, araziler, ve meskenler yüzünden son 5 yıldır Çukurova’da sıcak tartışmalar yaşanıyor. Bir tarafta Vakıflar Bölge Müdürlüğü gücü yettiğinin malına, vakıf malı deyip el koyarken, bir tarafta da mağdur olan halk isyan ediyor.
+       <br/>
+       <br/>
+       Adana Vakıflar Bölge Müdürlüğü Çukurova’nın büyük bir kısmının vakıf malı olmasına rağmen sadece Karaisalı ilçesinde bulunan Kızıldağ Yaylası sakinlerine dava açmış. 1.5 yıl süren dava sonrasında Vakıflar Bölge Müdürlüğü davayı kazanmış. Şimdi ise Kızıldağlılar Vakıflar Bölge Müdürlüğü aleyhine kendi mallarını tekrar geri almak için dava açmışlar. Kızıldağ Yaylası ile ilgili olarak bu gelişmeler yaşanırken başka yerlerdeki vakfa ait olan mülkler de heba oluyor. Kozan’da, Yumurtalık’ta, Misis’te, Bor’da, Ceyhan’da ve İncirlik’te Ramazanoğlu Vakfına ait mülkler bulunmasına rağmen Vakıflar Bölge Müdürlüğü bu konuda hiçbir şekilde adım atmamış. Vakıf malına yönelik yapılmış olan işlemlerin vakfın mirasçılarına bildirilmemesi ise Vakıflar Bölge Müdürlüğünün yapmış olduğu ayrı bir skandal. Çünkü; vakıfnamede vakıf ile ilgili olarak yapılacak her işlemden vakıf mirasçılarının haberdar edilmesi şartı bulunuyor.
+       <br/>
+       <br/>
+       Mezarlara bile dava açılıyor
+       <br/>
+       <br/>
+       Adana’nın Karaisalı ilçesi sınırları içerisinde bulunan Kızıldağ Yaylası’nda 1994 yılında Tapu ve Kadastro uygulaması yapılır. Bunun üzerine Tapu ve Kadastro Müdürlüğü, milli eğitim, vakıflar, belediye, devlet su işleri başta olmak üzere tüm kamu kuruluşlarına söz konusu alanda kendilerine ait mülk olup olmadığının bildirilmesini ister. İşte bu sırada Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası’nın vakıf malı olduğunu ileri sürer. Vakıflar Bölge Müdürlüğü durumu Tapu ve Kadastro Müdürlüğü’ne bildirdikten sonra, yayla sakinlerine dava açar. Ağaçlara, evlere, arazilere hatta mezarlara bile dava açan vakıflar 1.5 yıl süren mahkeme sonucunda davayı kazanır. Mahkeme kararı üzerine Vakıflar Bölge Müdürlüğü, Kızıldağ Yaylası’nın boşaltılmasını, ya da burayı kullanan halkın yaşamış olduğu evinin, bahçesinin bedelini ödemesini ister. Halk iki şarta da uymayınca Vakıflar Bölge Müdürlüğü önümüzdeki günlerde Kızıldağ Yaylası’nda metrekaresi 4 ile 8 milyon lira arasında değişen fiyatlarla arazileri ihaleye çıkaracak. Sadece araziler değil buradaki yayla evleri de satışa çıkarılacaklar arasında bulunuyor. Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası’nı ihaleye çıkaracağı günü beklerken, yayla sakinleri de Vakıflar Bölge Müdürlüğü aleyhine dava açmış durumda. Bin 500 haneli, 10 bin nüfuslu Kızıldağ Yaylası’nda güçlü ailelerin de mülkleri bulunuyor. Adana Büyükşehir Belediye Başkanı Aytaç Durak, Adana eski milletvekillerinden Veli Andaç Durak ve Karaisalı Belediye Başkanı Babacan Durak’a ait ev ve bahçe Kızıldağ Yaylası’nın önemli noktalarında bulunuyor.
+       <br/>
+       <br/>
+       2 yüzyıldır halk Kızıldağ’a çıkıyor
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü yıllar sonra Kızıldağ Yaylası’nın Ramazanoğlu Vakfına ait olduğunu söyleyip hak elde etti, ancak, Karaisalılar yaklaşık 2 yüzyıldır bu yaylayı yaz aylarında kullanıyor. Kullanmak bir yana, Kızıldağ’a giden Karaisalılar burayı tam bir şehre dönüştürmüşler. Kızıldağ’da şimdi lokantalar, marketler, kahvehaneler var. Yaylada bulunan Ramazanoğulları camii bakımı burada yaşayan halk tarafından yapılıyor. Oysa mülhak vakıflarda vakıf mallarının korunması ve kollanması Vakıflar Bölge Müdürlüğü’ne aittir şartı bulunuyor. Yani Vakıflar Genel Müdürlüğü kurulduğu tarihten bu yana bu camiye bir çivi bile çakmadan kendi haline bırakmış. Sadece cami değil Kızıldağ Yaylası sakinleri, Ramazanoğullarından kalma mekanları da koruyup günümüze kadar gelmesini sağlamışlar.
+       <br/>
+       <br/>
+       Ramazanoğulları Vakfı ile ilgili olarak çalışmaları ile tanınan Araştırmacı–Yazar Fatih Bayhan Vakıflar Bölge Müdürlüğü’nün Kızıldağ’da üzerine düşeni yapmadığını belirterek şöyle konuşuyor: “Kızıldağ’da insanlar iki asırdır yaşıyorlar. Herşeyleriyle buraya yerleşmişler. Şimdi sen burası vakıf malıdır deyip ellerinden alamazsın. Zaman aşımı olmuştur. Bu zamana kadar Vakıflar Bölge Müdürlüğü neredeydi? Yayla’da bulanan camiyi ve tarihi mekanları yaylaya çıkanlar koruyup, günümüze kadar getirmiş. Vakıflar üzerine düşeni hiç yapmamış.”
+       <br/>
+       <br/>
+       Osmanlı tapuları vermiş
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü mahkeme kararına dayanarak Kızıldağ Yaylası sakinlerine şartlarını kabul ettirmeye çalışırken, yayla sakinleri de sonuç ne olursa olsun kendi topraklarından(!) ayrılmayacaklarını söylüyorlar. Buraları yaylak olarak kullanan bir çok ailede Osmanlı döneminden kalma tapular bulunuyor. Osmanlı döneminde alınan tapuların Türkiye Cumhuriyeti’nde de geçerliliğini koruması hukuki bir kural. Bütün bunlara rağmen hukuken arazileri ve evleri ellerinden alınmış olan Kızıldağ Yaylası sakinleri gerekirse sonuna kadar mücadele edeceklerini, hatta bu yolda kanlarını bile akıtabileceklerini söylüyorlar.
+       <br/>
+       <br/>
+       Karaisalı Belediye Başkanı ve Kızıldağ Yaylasın’da evi, bahçesi bulunan Babacan Durak şunları söylüyor: “Bana babamdan ona da babasından, kalma bir Osmanlı döneminin tapusu var. Osmanlı Tapuları Cumhuriyete intikal ediyor. Bunu yok sayamazsınız. Osmanlı vakıf konusunda daha hassastı. Burası bizim ve biz sonuna kadar burada kalacağız. Buranın altyapısını yaptık, düzen—intizam sağlandı. Ben kendimi bildim bileli biz her yaz buraya çıkarız. Babam da aynı şeyi söylüyor. Şimdi ise Vakıflar Bölge Müdürlüğü burası vakıf malı diyor. Sadece bizde değil burada yaşayan birçok ailede Osmanlı döneminden kalma tapular var.”
+       <br/>
+       <br/>
+       Kızıldağ Yaylası’nda yıllardır yaşayan 72 yaşındaki Ali İzgi çok karışık duygular içinde olduklarını söylüyor. İzgi sonuç ne olursa olsun buradan ayrılmayacaklarını belirterek: “Hiçbir kuvvet bizi buradan koparamaz. Şimdi de bizim malımızı bize satmaya çalışıyorlar. Benim verecek param yok, ben zaten zar–zor geçiniyorum. Buranın vakıf malı olduğunu hiç duymadık, sadece cami Ramazanoğulları camisi olarak geçiyordu. Dedemin dedesi 250 yıl önce buraya gelmiş. Ecdadımızdan kalan mirası korumak istiyoruz. Gereken ne ise onu yapacağız.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Kızıldağ Yaylası’nda oturanların büyük bir kısmının Tapu ve Kadastro Müdürlüğü’nden alınmış tapuları bulunuyor. Yaylada bulunan evi ve araziyi alırken tapusunu da aldığını belirten Ali Hikmet Yönük şunları söylüyor: “Ben burayı alırken sahibinde Osmanlı tapusu vardı. Daha sonra bunu Tapu ve Kadastro Müdürülüğü’ne götürüp cumhuriyet tapusu çıkarttırdık. Tapu çıkarttırıyorum kimse bana birşey demiyor, daha sonra birileri çıkıp malımı elimden almaya çalışıyor, ben bunu anlayamıyorum.”
+       <br/>
+       <br/>
+       Vakıflar İncirlik’e ses çıkaramıyor
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü Kızıldağ Yaylası konusunda gösterdiği ciddiyet ve kararlılığını(!) İncirlik’teki vakıf arazisi konusunda gösteremiyor. İncirlik’in tamamı vakıf malı olmasına rağmen Vakıflar Bölge Müdürlüğü buraya yönelik ne bir dava açmış ne de bir keşif yaptırmış. Vakıflar Bölge Müdürlüğü İncirlik’e dava açamamaları, Tapu ve Kadastro Müdürlüğü’nün buradan keşif için erken geçmesine bağlıyor. Oysa Tapu ve Kadastro Müdürlüğü’nün keşif ve düzenleme yapacağı her alan için başta vakıflar olmak üzere tüm kamu kuruluşlarına bir uyarı yazısı yazdığı hemen hemen herkes tarafından biliniyor.
+       <br/>
+       <br/>
+       Araştırmacı–Yazar Fatih Bayhan Vakıflar Bölge Müdürlüğü’nün çifte standart uyguladığını belirterek: “Vakıflar Kızıldağ Yaylası konusunda gösterdiği ciddiyeti İnicirlik’teki araziler için göstermiyor. İncirlik Ramazanoğlu Vakfiyesi’ne ait bir alan. Şimdi üzerinde yabancılar var, yerliler var. Hiç bunlara dava açıp hesap soran yok. Vakıflar keşfin erken yapılmasını bahane olarak gösteriyor, ancak buna kimse inanmaz. Zaten kadastro geçeceği yerden kuruluşlara bir uyarı yazısı yazar. Bunun arkasına sığınmak yanlış olur.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Sadece İncirlik konusunda değil, Kozan’daki, Yumurtalık’taki, Misis’teki, Ceyhan’daki ve Niğde’nin Bor ilçesindeki Ramazanoğlu Vakfı’na ait malların akıbeti de Vakıflar Bölge Müdürlüğü tarafından bilinmiyor.
+       <br/>
+       <br/>
+       Vakıf malı herkes onu...
+       <br/>
+       <br/>
+       Vakıflar Bölge Müdürlüğü Adana’nın şehir merkezinde bulunan vakfiyeye ait olan mekanların korunması için hiçbirşey yapmıyor. Vakfiyeye ait birçok mekan yok olurken birçoğu da yok olma ile karşı karşıya. Ramazanoğlu Vakfı’na ait 8 kapılı bedestenin önemli bir kısmı yok olurken, vakıfa ait aşevi(İnkılap İlkokulu) de yıkılma ile karşı karşıya. Yine Vakıflar Bölge Müdürlüğü, vakıf mallarının, satılamaz, devredilemez hükmüne rağmen Bezazlar Çarşısı’nın yüzde 60’ını satmış durumda. Çarşının yüzde 60’lık kısmı şimdi 16 kişi tarafından kullanılıyor.
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfına ait şehir merkezindeki mekanların perişan olduğunu belirten Araştırmacı–Yazar Fatih Bayhan: “Vakıflar Bölge Müdürlüğü vakfiyeye ait varlıkları koruyamıyor. Ramazanoğullarının idari merkezi olan konak, şadırvan ve Ulu Cami ödenek yokluğu bahanesiyle onarılmıyor. Oysa Vakıflar’ın hesabında yeterli para var. Yine Vakıflar Bölge Müdürlüğü beylikten kalan aşevini devam ettirip her gün yemek dağıtmak zorunda. Çünkü, bu vakfiyenin maddelerinden biri. Sadece burası bizim deyip, kira alıp kalmakla olmuyor. Vakfiyenin tüm şartlarını da yerine getirmek gerekiyor.” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Vârisler herşeyden habersiz
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfı’nın şu anda hayatta olan 213 vârisi her ay vakıf gelirlerinden çok cüzi bir miktar para alıyor. Vakfın Mütevelli Heyeti Başkanı Adnan Kamışlı gelişen olaylardan herberinin olmadığını, zaten kendilerini pek ilgilendirmediğini söylüyor.
+       <br/>
+       <br/>
+       Ramazanoğlu Vakfı’nın vakfiyesinde geçen bir madde ise oldukça dikkat çekici. Vakfiyeye göre, eğer vakfa ait malların herhangi birisi hasar gördüyse vakıf gelirleri evlatlara verilmeden buraya harcanmalı ibaresi bulunuyor. Yine aşevinde fakir olanlara yemek dağıtılması şartı yerine getirildikten sonra arta kalan para evlatlara bölüştürülebilir maddesi de ihlal edilmiş durumda. Ancak vakıflar gelirleri onarım ve aşevinde kullanılmadan evlatlara bölüştürüyor. Bu da vakfiyeye yapılan saygısızlığın ayrı bir yönünü ortaya koyuyor.
+       <br/>
+       <br/>
+       e—mail: hsoylemez@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14107), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302225837/http://www.aksiyon.com.tr:80/detay.php?id=14107)

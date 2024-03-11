@@ -1,0 +1,29 @@
+# Oyak Çimento Grubu sanal dünyada birleşti
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   OYTEK (OYAK Teknoloji Bilişim ve Kart Hizmetleri), e-Çimento projesi ile Oyak Çimento Grubu"nun Türkiye"nin dört bir yanındaki tüm çimento şirketlerini intranet üzerinde bir araya getirdi.
+   <br/>
+   <br/>
+   Türkiye"nin farklı illerinde hizmet veren grup şirketleri arasında ortak bir kültür oluşturulması için gerçekleştirilen e-Çimento projesi çerçevesinde Adana Çimento, Bolu Çimento, Ünye Çimento, Mardin Çimento, Elazığ Çimento, ile grup şirketlerinden OYKA ve OYTAŞ portal uygulaması ile birbirine bağlandı. OYTEK tarafından hayata geçirilen proje ile grup şirketlerinin daha verimli ve etkin çalışmasına, bilgi ve tecrübelerini paylaşmalarına ve internet üzerinden mevcut ve potansiyel müşterileriyle de iletişim kurmalarına imkan tanınıyor.
+   <br>
+    <br>
+     Portal sayesinde tedarikçiler, bayiler ve müşterilerle iletişim güçlendirilirken, sektörel bilgilere de hızlı erişim sağlanıyor. Farklı bölgelerde bulunan proje gruplarının portalda yer alan projeler bölümü sayesinde zaman ve mekandan bağımsız olarak ortak çalışma yürütebileceği belirtiliyor. Portal projesi ile birlikte, kurum içi eğitim çalışmalarına da yeni bir boyut geldiğini belirten yetkililer, kapsamı genişletilen verimli uzaktan eğitim projeleri üzerinde yoğunlaşıyor. Oytek'in yeni açılımının, grup bünyesinde yeni bir enerji oluşturduğu belirtiliyor.
+     <br/>
+     <br/>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 500 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2595), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222151312/http://www.aksiyon.com.tr:80/yazdir.php?id=2595)

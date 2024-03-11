@@ -1,0 +1,130 @@
+# “Hava”dan vuracaklar!
+
+*Yasin Yağcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302230421im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302230421im_/http://www.aksiyon.com.tr/resim/297/.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  EOKA Kıbrıs’ta Türkleri acımasızca katlediyor, evlerini ve işyerlerini yakıp yıkıyordu. Sonunda Türk Ordusu’nun askerî müdahalesi için TBMM’den karar çıktı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Birlikler, güneye ve Trakya sınırına kaydırıldı. Ardından, tüm askeri hazırlıklar tamamlandı. Ancak harekâtın, belki de ardından çıkabilecek savaşın kaderini değiştirecek öneme sahip stratejik bir bilgi elimizde yoktu: Hava Durumu!
+   <br>
+    <br>
+     Savaş hali nedeniyle Türkiye hava bilgilerini Dünya Meteoroloji Örgütü’ne göndermediği için diğer ülkelerin bilgileri de Türkiye’ye verilmiyordu. Aynı uygulama Yunanistan için de geçerliydi. Yunanistan Türkiye’de olduğu gibi taktik ve strateji bakımından büyük bir öneme sahip meteorolojik bilgi ve hava tahmin raporlarını gizledi. Eğer Türkiye bir savaşa girecekse Kıbrıs ve Yunanistan’ın hava durumunu bilmek zorundaydı. Ama nasıl? Meteorolojimiz dışa bağımlı olduğu için bu oldukça zordu. Kendi ülkemizin hava tahminini bile yapamıyorduk neredeyse. Çünkü İngiltere, her zaman kendilerinden sipariş edilen meteoroloji balonlarını vermemişti. İki ay ambargo uyguladı. Bir anlamda meteoroloji balonları da silah sayılmıştı. Hatta o kısıtlı zamanda Japonya’dan bile balon almaya kalktık. Oldukça zor durumda kalan Türkiye’nin elinde İtalya’nın bilgileri vardı ve bunlarla hava tahminleri yapmaya çalıştı. Yoksa bir savaş uçağının kalkışı, hedefin bombalanması mümkün olmaz, olsa bile hedefin ne zaman müsait olacağı meteorolojik şartlara bağlı olduğundan bir hava harekatı başarısızlıkla sonuçlanabilirdi.
+     <br>
+      <br>
+       Herşeye rağmen Türk Silahlı Kuvvetleri’nin 20 Temmuz 1974’te gerçekleştirdiği Kıbrıs Barış Harekâtı başarıyla sonuçlandı. Fakat askeri meteoroloji uzmanları, o dönemin meteorolojik imkanları ile bugün bir savaşa girilse, aynı zaferin belki de elde edilemeyebileceğini söylüyor. Çünkü artık savaşlarda ne doğru silah, ne de doğru taktik tek başına en fazla askeri başarıyı sağlayabiliyor. En iyi başarı için çoğu zaman doğru silah, doğru taktik ve doğru hava şartları gerekiyor. Tarih boyunca meteorolojistlerin ve meteorolojik şartların, savaşların kaderinde oynadığı role bakıldığında, savaşlarda meteorolojik bilgi ve hava tahmininin, taktik ve strateji bakımından ne kadar büyük bir öneme sahip olduğu anlaşılıyor. Oysa tarih meteorolojik donanım ve tahmin eksikliğinden dolayı hezimetle neticelenmiş nice örneklerle dolu.
+       <br/>
+       <br/>
+       At binenin, meteoroloji bilenin!
+       <br/>
+       <br/>
+       Örneğin, 1915 yılında rüzgarı hesap etmeyen Almanlar, rüzgarın ters yönden esmeye başlamasıyla kendi attıkları gazla zehirlenerek öldüler. Aynı şekilde Birinci Dünya Savaşı’nda meteorolojik şartlar dikkate alınmadığından Allahüekber Dağları’nda 70—100 bin arasında asker şehit oldu.
+       <br/>
+       <br/>
+       Barbarossa (General Çamur) yağmuru hesaba katmayınca Alman tankları 1941’de Rusya sınırında çamura saplanmıştı.
+       <br/>
+       <br/>
+       1944 Normandiya Çıkartması’nda Almanlar fırtına olacağı için çıkartmanın yapılacağını tahmin etmedi. Çünkü çıkartma hava koşulları nedeniyle sürekli erteleniyordu. General Eisenhower, “Akıbetimiz meteorolojistlerin elindedir” demişti. Amerikalılar, gerçekten fırtınadan sonra diğer fırtınayı tahmin etti ve iki fırtına arasında çıkartmayı yaptılar. Bu nedenle Normandiya çıkartması meteorolojistlerin savaşı olarak anılır.
+       <br/>
+       <br/>
+       1980’de ise İran’dan Tutsak Kurtarma Operasyonu’nda ABD istihbaratı kum fırtınasını hesap etmeyince operasyon başarısızlıkla sonuçlanmıştı...
+       <br/>
+       <br/>
+       Peki bugün?
+       <br/>
+       <br/>
+       İstanbul Teknik Üniversitesi, Uçak ve Uzay Bilimleri Fakültesi Meteoroloji Mühendisliği Bölümü’nden Doç. Dr. Mikdat Kadıoğlu, orduların elektro—optik silahlarla donatıldığı günümüzde ise meteorolojisiz bir savaşın mümkün olamayacağını söylüyor. Çünkü konvansiyonel silahlar, sadece hava şartları ve iklimin şekillendirdiği fiziksel çevreden; akıllı silahlar ise tüm çevre ve asmosferik şartlardan etkileniyor. Askeri meteoroloji alanında uzman olan Doç. Dr. Kadıoğlu, buna örnek olarak Körfez Savaşı ve NATO’nun Balkanlar’daki operasyonları sırasında yaşananları gösteriyor.
+       <br/>
+       <br/>
+       1990 Körfez Savaşı’nda ilk bombardımandan 17 saat önce, ABD Hava Kuvvetleri’nin meteoroloji kayıtlarına göre, Körfez’de son 14 yılda görülen en kötü hava şartları ortaya çıkınca, ABD Irak’ı bombalamak için havanın düzelmesini beklemek zorunda kaldı. Çünkü laser güdümlü silahlar bulut ve sisten etkilendiği için hedeften sapabiliyordu.
+       <br/>
+       <br/>
+       Bu teknolojik yetersizliğin farkına varan Irak ise, havanın sadece Irak’ın batısında ve güneyinde çok bulutlu olduğu akşamlar İsrail ve Suudi Arabistan’a Scud füzeleriyle saldırıyordu. Laser güdümlü silahlara hedef olmamak için böyle bir zamanlamayı tercih ediyordu. Meteorolojik şartlar sayesinde bunu çoğu kez başardı da.
+       <br/>
+       <br/>
+       NATO’nun 1999 Kosova müdahalesinde de benzer manzaralar yaşandı. Mart ayında düzenlenen operasyonlar boyunca Yugoslavya’daki havanın sürekli yağışlı olması NATO güçlerinin silah sistemleri için büyük sorun oldu. Lazer güdümlü füzeler, bulut, duman ve yağmurdan etkilendiğinden hedeflerini şaşırmıştı. Bu nedenle NATO, harekat boyunca çoğu kez, GPS (Arz Konumlama Sistemi) ile yönlendirilen Cruise füzelerini tercih etti. NATO takip eden günlerde ise yağmur yağacağını hesap ederek 26 Mart günü Sırbistan’ı Adriyatik Denizi’ndeki Philipine Sea fırkateyninden ilk defa gündüz atılan Tomahawk füzeleriyle vurmuştu.
+       <br/>
+       <br/>
+       NATO uçaklarının üslerinden havalandığını haber alan Sırplar, askeri üsler ve silah fabrikalarının etrafında petrol ateşi yakarak gökyüzünün dumanla kaplanmasını sağlamışlardı. Bu yolla lazer güdümlü füzelerin hedeflerinden sapmalarını sağlamaya çalışmışlardı.
+       <br/>
+       <br/>
+       Saddam ve Sırplar çok akıllı davranarak silah üstünlüğü fazla olan düşmanlarına karşı havayı silah olarak kullandılar. 1941 yılında da Japon uçakları fırtınanın arkasına saklanarak Pearl Harbour Baskını’nı gerçekleştirmişti.
+       <br/>
+       <br/>
+       Hava=Silah
+       <br/>
+       <br/>
+       Körfez ve Bosna örnekleri havanın askeri operasyonlarda bir silah olarak kullanılmasına yönelik çalışmaları da artırdı. Hatta ABD Hava Kuvvetleri 2025 yalında tamamen “Havaya Sahip Olma”yı hedefliyor. Savaşlarda havayı da kullanmayı ve askeri avantajlar sağlamak için askeri operasyonlara entegre etmeyi amaçlıyor. Bu amaçla silah operatörleri ve meteorolojistler, hem kendilerinin ve hem düşmana ait silah sistemlerinin hava şartlarına bağlı olarak değişen performansını, silah ve hava şartlarının etkileşimini anlamak için yoğun bir çalışma içinde. Artık tüm silah sistemleri için, tasarımdan başlamak üzere atmosferik çevre gözönünde bulunduruluyor. Çamurdan güneşe kadar uzanan çevrede modern savaş ve askeri meteoroloji uzmanları, herhangi bir çevresel etkinin silahın performansını ve dolayısıyla savaşı etkileme olasılığını artık gözardı etmiyor. Hatırlanacağı gibi 1966 Vietnam Savaşı sırasında tropikal iklim yüzünden bozulan silahlar ABD askerlerini zor duruma düşürmüştü. Anlaşılan savaşı kaybetmeye niyeti olmayan ülkeler bu tür sürprizleri yaşamak istemiyor.
+       <br/>
+       <br/>
+       Bu amaçla ABD Hava Kuvvetleri, lazer güdümlü bombalar yerine istenen hedefi gece veya gündüz, her türlü hava şartlarında vurabilmek için GPS (Arz Konumlama Sistemi) güdümlü silahlar geliştiriyor. Fakat, Mart 1991’de bir güneş fırtınası bir GPS uydusunu tamamen ve bir çoğunu da geçici olarak devredışı bırakmıştı. Bu nedenle ‘Atmosfer Araştırma Laboratuvarları’nda silahların atmosferik şartlardan nasıl etkileneceğine dair yoğun çalışmalar yapılıyor.
+       <br/>
+       <br/>
+       Daha bitmedi. Bir de hava modifikasyonu konusu var. Yani bir savaş esnasında, hava ve diğer fiziksel çevre koşullarını istenilen biçimde değiştirebilme yeteneği. Doç. Dr. Mikdat Kadıoğlu, bilim—kurgu filmi senaryosunu andıran uygulamalardan bazılarını şöyle sıralıyor: “Yağış artırarak irtibat hatlarını su basmasını sağlamak, düşmanı tatlı sudan mahrum etmek, kuraklığı artırmak, sis ve bulut oluşumunu artırarak gizlenme imkanı oluşturmak, uzaydan keşife karşı koymak için cirrus bulutu ile kalkan oluşturmak, arazide seller oluşturmak, jet yakıtına kimyasal maddeler ilave ederek uçakların havadaki egzoz izlerindeki kızıl ötesi ışınları azaltmak, yağışta lokal değişiklikler meydana getirmek...” Ancak filmlerde gördüğümüz bu çalışmaların eskeri meteorolojiye önem veren gelişmiş ülkelerde 1940’lı yıllarda başladığını duyduğumuzda ise şaşkınlığımız daha da artıyor.
+       <br/>
+       <br/>
+       Kıbrıs’tan ders almadık
+       <br/>
+       <br/>
+       Dünyadaki bu kadar baş döndürücü çalışmalar sürerken stratejik konumu nedeniyle bol düşmanı bulunan Türkiye’deki çalışmalar ne durumdaydı acaba? Yaptığımız araştırmalar çok acı bir gerçeği ortaya çıkardı; Türkiye savunma anlamında maalesef meteoroloji gibi stratejik öneme sahip bir silaha yeteri kadar değer vermiyor. Bırakınız havaya sahip olmayı, askeri operasyonlara entegre etmeyi, bazı çevreler havadan bi haber.
+       <br/>
+       <br/>
+       Öncelikle Türkiye’nin kendisi ve çevresi hakkında hava tahmini yapabilmesi için, barış anında “Analog Hava Tahmini” yapabilme yeteneğini geliştirmesine bağlı. Bu yetenek Türkiye’de ne kadar gelişmiş acaba? Doç. Dr. Mikdat Kadıoğlu, Türkiye’nin barış anında bile hava tahminleri için yurtdışına büyük ölçüde bağımlı olduğunu söylüyor.
+       <br/>
+       <br/>
+       Devlet Meteoroloji İşleri yetkilileri ise “Atmosferin küreselliği gereği dışarıdan bilgi alınmadan ve az veri alarak tahmin yapmak mümkün değildir” diyor. TMMOB Yönetim Kurulu Üyesi ve Meteoroloji Mühendisleri Odası Eski Başkanı İsmail Küçük ise dışa bağımlılığın bu veriler işlenirken neler yapıldığına bağlı olduğunu söylüyor. “Yani bu verileri işleyecek kendinize ait bir programınız olup olmadığıdır. Eğer varsa bunu ne kadar kullanabiliyorsunuz? Bu programınız ülkenize ait verilerle nasıl ilişkilendirilmiştir? Bütün coğrafya için kullanılan verilerden yararlanılarak ülkenizdeki veriler üzerinden bir çalışma yaparak ulusal boyutta bir modelin geliştirilmesi gerekir. Ülkenizdeki veriler bu program için nereye kadar yeterli oluyor? Bu yeterliliği artırabilmek için neler yapıyorsunuz?
+       <br/>
+       <br/>
+       Bu konularda çalışmalar yapılmadığı için hava öngörüsünde dışa bağımlıyız. Bu soruların yanıtları alınmadığı ve gerekleri yapılmadığı sürece sizin ülkenizin hava öngörüsünde dışa bağımlısınız demektir. Ülkemize ait çalışmalar yapılamadığı ve ulusal model geliştirilmediği için dışa bağımlıyız.”
+       <br/>
+       <br/>
+       Meteoroloji Mühendisleri Odası Başkanı Çetin Gül de ülkemizin meteorolojik açıdan büyük oranda yurt dışına bağımlı olduğunu yineliyor. Meteorolojik ölçüm yapan önemli bir çok alet, donanım ve sistemin ülkemizde diğer sektörlerde olduğu gibi dışarıdan satın alındığının altını çiziyor. Ayrıca Devlet Meteroloji İşleri Genel Müdürlüğü’nün hava tahmini konusunda ECMWF (Avrupa Orta Vadeli Tahmin Merkezi)’nin verdiği ürünler doğrultusunda tahmin yaptığına dikkati çeken Gül, bir an önce kendine has bir hava tahmin modeli oluşturulması gerektiği uyarısında bulunuyor.
+       <br/>
+       <br/>
+       Tüm bunlar savaş şartlarında hava tahmini yapabilecek altyapı ve bilgi birikimimizi geliştirmede daha duyarlı olmamızı gerektiriyor.
+       <br/>
+       <br/>
+       Doç. Dr. Kadıoğlu ise, ne zaman ve nerede savaşa girileceğine ve askeri operasyonlara çıkılacağına karar verilirken düşmanın meteorolojik bilgilerine de ihtiyaç duyulduğunu, bu nedenle günümüzde “Askeri İstihbarat= Hava + Düşman + Arazi” denkleminin geçerli olduğuna dikkati çekiyor. Türkiye’nin sürekli olarak çevresindeki ülkelere ait meteorolojik bilgileri toplaması ve Askeri Klimatoloji çalışmalarını bir an önce başlatıp tamamlaması gerekiyor.
+       <br/>
+       <br/>
+       Ancak böyle bir çalışmanın olmadığını öğreniyoruz. Meteoroloji yetkilileri, böyle bir bilginin Türk Silahlı Kuvvetleri (TSK) tarafından talep edilmesi halinde sağlayacaklarını söylüyor. İnanılır gibi değil! Oysa bu stratejik bilgilerin hazır olması gerekiyordu. Okyanus ötesinden Irak’ı vurmaya gelen ABD, bombardımandan 17 saat önce, Körfez’de son 14 yılda görülen en kötü hava şartları ortaya çıktığını saptayınca saldırıyı ertelemişti. Biz ise burnumuzun dibindeki ülkelere ait meteorolojik bilgileri talep edildiğinde hazırlamaya çalışacağız. Tabii buna vaktimiz kalırsa!..
+       <br/>
+       <br/>
+       Hava tahminlerinin, askerler için bir anlam ifade edecek ve askeri ihtiyaçlara cevap verebilecek şekilde olması gerekiyor. Doç. Dr. Kadıoğlu, “Örneğin; yerden havaya fırlatılarak başlayan bir füze saldırısına karşı koymaya hazırlanan bir pilot için F—16 veya Apache helikopterinin eğik görüş mesafesi ve atmosferin nem içeriği, 500 mb jeopotansiyel yüksekliğinden daha önemlidir. Klasik ve sivil hava analizi ve tahmini mantığından kurtulup, savaşan askerler için gerekli olan uçuş, manevra ve ateş üzerinde etkili parametreler düşünülmelidir” diyor.
+       <br/>
+       <br/>
+       Tüm bunları ancak askeri meteorolojistler yapabilir. O oda bizde yokmuş! Meteoroloji Mühendisleri Odası Başkanı Çetin Gül, TSK’da hiç meteoroloji mühendisi istihdam edilmediğini, TMMOB Yönetim Kurulu Üyesi İsmail Küçük ise, Kara Kuvvetleri Komutanlığı’nda bir tane olduğunu söylüyor. ABD başta olmak üzere tüm gelişmiş ülkelerde ise meteoroloji mühendisliği eğitimi alanlar arasında askerler ve subaylar önemli bir yer tutuyor. Biz ise olayı Devlet Meteoroloji İşleri Genel Müdürlüğü bünyesinde  askeri amaçlı bir şube müdürlüğü ile geçiştiriyoruz. Fakat böyle basit bir müdürlükle ülke savunması açısından önemli bir sorunun çözülmesi mümkün değil. Çünkü havaya sahip olup kontrol etme kavramının temelinde savaşı yöneten komutana askeri meteorolojistler tarafından daha iyi ve güvenilir bilginin iletilmesi yatmaktadır. Eksik ve yanlış bilgi silahlı kuvvetlere zarar verirken, iyi meteorolojik bilgi önemli bir güç ve avantaj sağlayabiliyor.
+       <br/>
+       <br/>
+       Diğer bir deyişle, doğru ve ayrıntılı meteorolojik bilgi ‘havaya hakim olmak’ için gerekli. Eğer meteorolojik bilgi ve tahminlerin geliştirilmesi üzerinde durulmazsa tüm askeri kuvvetler, kötü hava şartları ile mücadele etmeye devam edeceklerdir. Böyle bir durumda hava şartları, savaşın tarafları ve savaş alanlarını kontrol edebilecek. Bu nedenle havaya sahip olma çalışmalarında 2010’a kadar kısa hava tahminlerinde büyük gelişmelerin olması da amaçlanıyor. Örneğin ABD Hava Kuvvetleri’nin şu anki kısa vadeli hedefi ise askeri amaçlı hava tahminlerinin başarısını yüzde 10—15 oranında artırmak.
+       <br/>
+       <br/>
+       Ne yazık ki ABD 2025’te elle tutulmayan, gözle görülmeyen bir silah olan havaya tamamen sahip olmayı planlarken, ordusunda bir tane meteoroloji mühendisi bile istihdam edilmeyen ülkemizin durumunu varın siz düşünün. Tarihin meteorolojik donamın ve tahmin eksikliğinden dolayı hezimetle neticelenmiş nice örneklerle dolu olduğu unutulmamalıdır. Bu durumda Çin savaşçısı Sun Tzu’nun M.Ö. 500 yılında söylediği şu sözü tekrar hatırlatmak isteriz: “Araziyi bil, düşmanı bil, havayı bil. Ancak bundan sonra zafere ulaşırsın.”
+       <br/>
+       <br/>
+       mydurukan@hotmail.com
+       <br/>
+       <br/>
+       yasin2003@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14101), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302230421/http://www.aksiyon.com.tr:80/detay.php?id=14101)

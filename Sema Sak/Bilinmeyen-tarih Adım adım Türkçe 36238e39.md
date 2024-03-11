@@ -1,0 +1,41 @@
+# Adım adım Türkçe
+
+*Sema Sak Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040930043902im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040930043902im_/http://www.aksiyon.com.tr/resim/501/55.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Esmer tenler, çekik gözler, sarı saçlar... Tam da United  Colors of Benetton durumu.  Çad’dan Makedonya’ya, Moldova’dan Bulgaristan’a kadar farklı coğrafyalardan 60 öğrenci, Türk dili konusundaki maharetlerini sergilemek için geçen hafta Fatih Üniversitesi’ne
+  <br/>
+  misafir oldu.
+ </font>
+ <p>
+  <font class="content">
+   Sadece 13 yaşındaydı. Sarı saçları, mavi gözleri ve mahcup tavırlarıyla hemen fark ediliyordu. Adının Alan Dzardonov olduğunu söylerken Türkçesi bizimkinden pek farklı değildi. Türkmenistan doğumlu Alan, 6 yıldır oradaki Türk Koleji’ne devam ediyor. İngilizce, Rusça ve Türkmencenin yanında Türkçeyi de çok akıcı konuşuyor ve anlıyor. Alan, geçtiğimiz hafta Türkiye’ye gelen 60 öğrenciden sadece biri. 24 farklı ülkeden Fatih Üniversitesi’ne gelen öğrencilerin tek bir amacı vardı. Türk Okulları’nda öğrendikleri ‘Türkçe’ konusundaki maharetlerini sergilemek.
+   <br/>
+   <br/>
+   30 Haziran-2 Temmuz tarihleri arasında Fatih Üniversitesi’nin Hadımköy Kampusü’nde düzenlenen ‘Yabancılar İçin Adım Adım Türkçe’ yarışması çok renkli geçti. Bu yıl ikincisi yapılan yarışma farklı kültürlerden, dillerden ve renklerden pek çok genç yüreği Türkçenin ortak paydasında buluşturdu. Temel, orta ve ileri olmak üzere üç farklı seviyede gerçekleşen yarışma dört farklı kategoriden oluşuyordu: Okuma, dil bilgisi, yazma ve dinleme. Öğrencilerin konuşmalarında sorun yoktu; ama hepsi de yazma bölümünde çok zorlandıklarını belirtti.
+   <br/>
+   <br/>
+   Yarışmaya Amerika’dan katılan ve Wisconsin Üniversitesi’nde Ortadoğu üzerine eğitim gören Alex Balistreri, Türkçe öğrenmeye üniversitede başlamış. Türkçe öğrenmesinin amacını Türkiye’nin kültürüne ve renkli siyasi yapısına olan hayranlığına bağlıyor. Yarışmanın zor olduğunu belirten Alex, günün yorgunluğunu şu sözlerle özetledi: ‘Şaftım kaydı’. Yarışmaya Moldova’dan katılan Ivan Çernev de düzgün Türkçesi ile bizi şaşırttı. Üniversiteyi Türkiye’de okumak istediğini belirten Çernev, ilk defa geldiği İstanbul’u çok beğenmiş.
+   <br/>
+   <br/>
+   Yarışmanın ödül töreni 4 Temmuz’da Fırat Kültür Merkezi’nde yapıldı. Törene katılan TBMM Başkanı Bülent Arınç’ın konuşması büyük beğeni topladı. Türkçeyi güzel kullananların başında gelen Arınç, başlatılan Türkçe seferberliği için “Bu bir destandır. Türkçeyi güzel kullanmak hepimizin üzerine bir borçtur” dedi. Gittiği her yerdeki Türk okullarını gezdiğini belirten Arınç, yapılanların muhteşem bir kültür hizmeti olduğunun altını çizdi.
+   <br/>
+   <br/>
+   Ödül töreninde yöresel kıyafetleriyle sahneye çıkan öğrenciler, okudukları şiirlerle salondakilere duygulu anlar yaşattı. Çanakkale Şehitleri (Mehmet Akif Ersoy), 35 Yaş (Cahit Sıtkı Tarancı) ve Sürgün (Sezai Karakoç) adlı şiirler okunurken bazı izleyicilerin gözyaşlarını tutamadığı görüldü. Yarışma sayesinde, harita üzerinde çok farklı yerlerde bulunan ya da siyasi sebeplerle ilişkilerin zayıf olduğu ülkelerin gençleri arasında çok sıcak dostluklar kuruldu. Bunun en güzel örneği de yarışmaya Amerika’dan katılan Alex’in en yakın arkadaşının Afganistanlı Baykara olmasıydı.
+   <br/>
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12337&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040930043902/http://www.aksiyon.com.tr:80/detay.php?id=12337&yorum_id=1)

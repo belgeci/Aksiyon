@@ -1,0 +1,145 @@
+# Ekonominin generali: OYAK
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227031055im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227031055im_/http://www.aksiyon.com.tr/resim/366/34.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dünyada güç dengelerinin askeri alandan çıkarak spekülatif sermaye ve çok uluslu şirketler tarafından oluşturulmaya başlanması, askeri çevrenin de gözünden kaçmadı. Bu durum Türkiye’de bir yardım kuruluşu olmasına rağmen OYAK’ı kendisinden beklenmeyecek bir büyüme trendi içerisine soktu. Cirosu ve isminden kaynaklanan dokunulmazlığı ile Türkiye’nin en büyükleri arasına giren OYAK’ın gözü Telekom’da
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kasım ayı Türkiye için hep ilginç gelişmelerin olduğu bir ay olarak bilinir. 3 Kasım’daki Susurluk kazası, 5 Kasım’da JİTEM’in kurucusu Cem Ersever’in bilinmeyen kişiler tarafından öldürülmesi, 27 Kasım’da işadamı Nesim Malki’nin öldürülmesi ve 2000 yılındaki büyük finansal kriz bu ayın ‘best—of’ları arasında yer alıyor. Bütün bu ilginç olayların yaşandığı kasım ayı ekonomiyi yakından izleyenler için bir başka olayla daha hafızalara kazındı. Ana Britanica tarafından Türkiye’nin en büyük 3 holdingi arasında gösterilen Ordu Yardımlaşma Kurumu (OYAK), kuruluşunun üzerinden 40 yıl geçtikten sonra ilk kez kamuoyunun karşısına çıktı. Yıllardır bilgileri neredeyse askeri bir sır gibi saklanan, hakkında konuşmanın bile güç olduğu OYAK’ın ilk kez basın toplantısıyla faaliyet raporu açıklaması ekonomi kadar demokrasinin de temel ilkesi olan şeffaflığın bu kurum tarafından da kabul gördüğü yorumlarının yanısıra OYAK Genel Müdürü Şerif Coşkun Ulusoy’un, “Türkiye’ye sığmıyoruz. Türkiye’yi yurtdışına taşıyacağız” açıklamasıyla da örtüşüyor.
+   <br>
+    <br>
+     Dünyanın en ilginç Holding’i
+     <br>
+      <br>
+       Türkiye’ye sığmayan ve yurtdışında yatırım yapmak isteyen, ardı ardına bankalar satın alarak finans sektöründe de etkin bir rol oynamayı arzu eden OYAK grubunun kuruluş hikayesi oldukça ilginç.
+       <br/>
+       <br/>
+       27 Mayıs 1960 askeri müdahalesinin ardından çıkarılan 205 sayılı kanunla kurulan Ordu Yardımlaşma Kurumu (OYAK), silahlı kuvvetler mensuplarına mahsus bir sosyal güvenlik kurumu. Silahlı kuvvetler personelinden oluşan üyelerine emeklilik, ölüm, maluliyet yardımlarının yanısıra; borç verme, konut edindirme gibi sosyal hizmetler sunmayı amaçlayan kurumun kuruluş tarihinde 65 bin üyesi bulunuyordu. Üyelerinden topladığı yüzde 10’luk zorunlu kesintiyle sağladığı büyük nakit akışı ve TSK’nın karizmasıyla kısa sürede etki alanını genişletmeyi başaran OYAK, bu tarihten sonra üyelerine daha iyi hizmet verebilmek için çeşitli şirket ve iştiraklere yatırım yapmaya başladı. Aydınlık için Yurttaş Girişimi Platformu lideri Avukat Ergin Cinmen, bir mesleki yardımlaşma kurumu olarak kurulan OYAK’ın aradan geçen zaman içinde bu kadar büyümesinin temelinde kurumun vergi konusundaki avantajlarının önemli olduğunu vurguluyor. Yardımlaşma kurumu olması nedeniyle kurumun KDV’den muaf olduğunu dile getiren Cinmen, yasal olarak şirket gözükmediği için bazı vergilerden muaf olduğuna, bunun da kurum için önemli avantajlar sağladığına dikkat çekiyor.
+       <br/>
+       <br/>
+       Nitekim, 10 Ekim 2001 tarihli Financial Times gazetesi tarafından “Türk ordusu yalnızca NATO’nun en büyük ikinci ordusuna değil, aynı zamanda ülkenin en başarılı iş imparatorluklarından birisine sahip” değerlendirmesi yapılıyordu. Gazete haberinde OYAK’ın otomotiv, telekom, bankacılık gibi alanlara yoğunlaştığı belirtilerek “Türk özel sektörünün büyükleri için çok güçlü bir rakip” değerlendirmesinde bulunuluyordu. OYAK’ın rakiplerini kıskandıran kaynağının, halen görevli 155 bin subay ile 30 bin emeklinin maaşından aldığı yüzde 10’luk paydan sağlandığını belirten Financial Times gazetesi, “Bu düzenli akış, Türkiye’de ordu olmanın verdiği prestij ve güçle birlikte, OYAK’ı dış iş dünyası için de çekici bir partner yaptı” diyordu.
+       <br/>
+       <br/>
+       NATO’nun en büyük holdingi
+       <br/>
+       <br/>
+       Bugün bünyesinde otomotiv, çimento, finans, gıda—kimya ve hizmetlerden oluşan beş ana sektörde faaliyet gösteren 36 şirket barındıran OYAK, 2000 yılında 287 trilyon lira brüt kâr elde etti. Yine 2000 yılında grubun toplam cirosu 3,02 katrilyon lira, finans kuruluşlarıyla birlikte toplam işlem hacmi de 9,23 katrilyon lira olarak gerçekleşti. Toplam 12 bin 572 personelin çalıştığı grup, geçen yılın faaliyet gelirlerine karşılık 87 trilyon lira vergi öderken, 1 milyar 161 milyon dolar tutarında ihracat yaptı. Ancak OYAK’ın büyüklüğünü gösteren en önemli olay Kasım ve Şubat krizlerine rağmen grubun 2001 yılında 600 trilyon lira dolayında net kâr beklediklerini açıklaması oldu. Bu ise TL bazında yüzde 250—300 oranında, dolar bazında ise yüzde 50’ye yakın gelir artışı demekti. Peki ekonomik krizin bir çok dev firmayı küçülttüğü, binlerce küçük firmayı süpürdüğü bir ortamda OYAK’ın başarısının ardında yatan nedenler neydi?
+       <br/>
+       <br/>
+       Peki, OYAK niçin bir yardım kuruluşunun hırslarını ve ufkunu aşan bir büyüme arzusu içerisine girdi? Dünyadaki mevcut teknolojik ve finansal gelişmeler güç faktörünün içeriğini büyük ölçüde değiştirdi. Artık ülkeleri ele geçirmek için bomba kullanmaya, asker göndermeye gerek kalmadı. Spekülatif sermaye hareketleri ve çok uluslu şirketlerle bu iş kansız bir şekilde halledilebiliyor. 1997 Uzakdoğu krizinin oluşumunda spekülatif sermayenin rolünü Türkiye de çok yakından müşahede etti. Çünkü Kasım ve Şubat krizlerinin arkasında da yabancı sermayenin birdenbire Türkiye’yi terk etmesi var. Haki renklerle irtibatlı olan kesimin hazırladığı bir raporda geçen şu ifadeler ile OYAK’ın finans ve reel sektördeki atakları arasında kurulması mümkün ilişki bu açıdan çok anlamlı: “21. yüzyılda güçlü bir istihbarat örgütünün anahtarı, uluslararası finansal organizasyonları engellemek olacaktır. Dünya para hareketinin dikkatle izlenişi, gerek uluslararası platformda gerekse ülke içinde siyasi ve toplumsal oluşumları çok önceden görerek karşı önlemler alınmasını sağlayabilmenin en etkin çözüm yoludur. Kaçınılmaz bir biçimde çağın ve koşulların gereği olarak ekonomi alanında çok etkin faaliyetler uygulamaya koymak ve para akışını kontrol altına almak zorunluluğu ile karşı karşıyadır.”
+       <br/>
+       <br/>
+       Spekülatif paraya karşı rejimi koruyor
+       <br/>
+       <br/>
+       MİT Ekonomik İşler Dairesi eski Başkanı Mahir Kaynak, “Dünya üzerindeki ulusal güvenlik kavramının soğuk savaşın bitişinden sonra ekonomik güvenlik konusuna kaydığı görülüyor. Ülkelere yönelik operasyonların önemli bir kısmının ekonomik operasyonlar olarak gerçekleştiği ortada. 97 Asya kriziyle ABD’nin alanını daraltan Asya kaplanları kedi olurken, 98 Rusya kriziyle Rusya’nın güçlenmesi engellendi. Bizim ülkemize yönelik operasyonların önemli bir kısmı da ekonomik operasyon olarak gerçekleştirilir. Bu noktada ben OYAK’ın bu hareketlere karşı ekonomik güvenlik konseptine uygun bir yapı olarak oluşturulduğunu düşünüyorum. Türkiye’nin çıkarlarını ve rejimi korumak gibi önemli görevleri de var tabii” diyor.
+       <br/>
+       <br/>
+       Prof. Dr. Mehmet Altan ise OYAK’ın başarısının sadece bilinen iktisadi dinamiklerle açıklanamayacağını ifade ediyor. KDV’den muaf tutulan ve kuruluşunun üzerinden 40 yıl geçtikten sonra ilk kez hesapları bir dış denetim kurumu tarafından denetlenip onaylanan kurumun elbette büyüyeceğini vurgulayan Prof. Altan, bu durumun şaşırtıcı olmadığını söylüyor. ‘Üyelerinden topladığı zorunlu kesintilerin dışında siviller ve yedek subaylardan da aidatların toplandığı havuz sistemli’ uygulamanın sadece Guatemala’da bulunduğuna dikkat çeken Prof. Dr. Altan, kurumun daha da ‘şeffaflaşması’ gerektiğini savunuyor.
+       <br/>
+       <br/>
+       Önceden istihbarat mı,
+       <br/>
+       <br/>
+       yoksa analiz mi?
+       <br/>
+       <br/>
+       22 Kasım toplantısında, ekonomik krize rağmen nasıl bu kadar büyüyebildiklerine ilişkin bir soru üzerine OYAK Genel Müdürü Coşkun Ulusoy, devalüasyonu önceden tahmin ederek döviz aldıklarını açıklıyor ve ekliyordu: “Devalüasyonu öngörüp, döviz alınmalı dedik. Onu da yaptık. Ayrıca tasarruf yaptık ve kriz olduğunda zarar görebilecek yatırımlarımızı durdurduk.”
+       <br/>
+       <br/>
+       Ulusoy’un bu açıklamalarına karşın adının açıklanmasını istemeyen eski bir bürokrat, yaşanan her devalüasyon öncesi önemli kamu ve özel sektör kuruluşlarının devalüasyondan haberdar edildiğini ve ekonomik krizde bu kurumların yara almadan kurtarıldığını anlatıyor: “Ekonomik krizin Türkiye’de herkesi eşit olarak etkilemediği Merkez Bankası eski Başkanı Gazi Erçel hakkında Yargıtay Cumhuriyet Başsavcısı Sabih Kanadoğlu’nun açtığı davayla ortaya çıktı. Dalgalı kura geçmeden önce bazı bankalara ve bir kısım kuruluşlara eski kur üzerinden 5 milyar 188 milyon 900 bin dolar satıldığı mahkeme kayıtlarında yazıyor. Türkiye’de bu paranın tamamı asla özel sektöre verilemez; bunun önemli bir kısmının ise bazı kamu veya kamuya yakın kurumlara verildiği herkes tarafından bilinir.”
+       <br/>
+       <br/>
+       OYAK grubunun döviz pozisyonuna krizden ne kadar önce geçtiği konusu ise bilinmiyor.
+       <br/>
+       <br/>
+       OYAK, bankacılıkta en büyük olmak istiyor
+       <br/>
+       <br/>
+       Türkiye’de en büyük olma yolunda hızla ilerleyen grubun son dönemde özellikle finans alanına doğru kaydığı görülüyor. Kurumun kriz döneminde elde ettiği kârın tamamına yakınının üretim dışı faaliyetlerden kaynaklandığı görülürken, Genel Müdür Ulusoy, madem üretimle kazanılmıyor, o zaman finansal alana kayarak kâr etme kararı aldıklarını açıklıyor. Ekonomik kriz yüzünden alım gücünün önemli oranda azalması nedeniyle üretimi ikinci plana attıklarını söyleyen OYAK Genel Müdürü Ulusoy, kısa vadede önemli kazançlar sağlayan bu yöntemin uzun vadede ise Türkiye gemisinin batmasına neden olacağını vurguluyor ve ekliyor: “ Üretmeden devam etmek mümkün değil.”
+       <br/>
+       <br/>
+       Fona devredilen beş bankanın yer aldığı Sümerbank’ı geçtiğimiz aylarda bünyesine dahil ederek Türkiye bankacılık liginde bir anda klasman atlayan ve ‘Süper Lig’ e yükselen OYAK grubu, OYAK Bank ile bankacılıkta iddialı olmak istiyor. Her ne kadar OYAK Bank 2000 yılında Türkiye’de batık kredi oranı en yüksek banka olsa da Sümerbank’ı satın alarak 150 şubeli bir banka şebekesine sahip olmayı başarıyordu. 180 bin üyesi bulunan, olağanüstü miktarlarda nakit birikimleri olan bir bankanın küçük olmasının mümkün olamayacağına vurgu yapan OYAK Genel Müdürü Coşkun Ulusoy,
+       <br/>
+       <br/>
+       “Ya çok büyük olacaksınız, ya da çok özel bir konumunuz olacak. Bu sadece bankacılık sektöründe değil. Biz de OYAK Bank ile ilgili ya kapatacağız, ya büyüteceğiz dedik” açıklamasında bulunuyor. Halen Tasarruf Mevduatı Sigorta Fonu bünyesinde bulunan Etibank’ı da almak için çalışmalarını sürdüren OYAK grubu 200 şubeli etkin bir banka sahibi olmanın yollarını arıyor.
+       <br/>
+       <br/>
+       Bankacılık sektöründe iddialı olduklarını söyleyen Ulusoy’un bu açıklamalarına kaşılık, 14 Nisan 2001 tarihinde Ankara’da bulunan OYAK Genel Müdürlüğü’nde yapılan 41. Olağan Genel Kurul’da, OYAK Yönetim Kurulu Başkanı Emekli Korgeneral Selçuk Saka; OYAK Bank, Ankerbank ve Halk Leasing’de 2000 yılı başı itibarıyla şüpheli ve takipteki alacakların çokluğundan dolayı genel müdür ve genel müdür yardımcılarına el çektirildiğini açıklıyordu. Milli Savunma Bakanlığı Maliye Daire Başkanı ve OYAK Genel Kurulu üyesi Tuğgeneral Noyan Umruk ise OYAK Bank’ı, Ordu Yardımlaşma Kurumu’na yakışmayan bir yara olarak gördüğünü söylüyor ve ekliyordu: “Yıllardır gelişmemiş ama kaynağın önemli bir bölümünü çeşitli biçimlerde transfer etmiş bir kuruluş olmuş bu kurum.”
+       <br/>
+       <br/>
+       Tüm bu olumsuz gelişmelere karşın grubun bankacılık alanında yakın bir gelecekte etkilerinin daha artacağını söyleyen Gedik Yatırım Portföy uzmanı Ahmet Mengen, grubun sahip olduğu büyük nakit akışı ve ekonomik rasyoların doğru değerlendirilmesi halinde Türkiye’nin kapital olarak en büyük kurumu haline gelebileceğine işaret ediyor. Haki üniformalı bankanın uluslararası birleşmeler konusunda da sıcak bir tavır sergilemesi halinde uluslararası alanda da piyasa değerinin artacağını söyleyen Mengen, kurumun ilk kez faaliyet raporu açıklamasının da bu noktada önemli olduğunu kaydediyor.
+       <br/>
+       <br/>
+       OYAK, marketleri halka açtı
+       <br/>
+       <br/>
+       Türkiye’deki önemli gruplar aynı zamanda market zincirleriyle de sürekli bir nakit akışı sağlamayı başarıyorlar. Koç grubunun Migros ve RAM, Sabancı grubunun Dia ve Carrefour, Doğuş grubunun Tansaş’ı hep bu amaçla faaliyet gösteren etkin kurumlar. OYAK grubu da Türkiye’nin en eski perakende zinciri olan Ordu Yardımlaşma Pazarları’nı biraz daha modern hale getirerek rakipleri gibi perakende sektöründe söz sahibi olmayı istiyor. Perakendede ciddi atılımlar yapmayı istediklerini söyleyen OYAK Genel Müdürü Ulusoy, Ordu Yardımlaşma Pazarları’nın sayısının artmasını hedeflediklerini kaydederken, Ordu Yardımlaşma Pazarı (OYPA) olarak bilinen mağazaların sayısının bugün 25 civarında olduğunu hatırlatıyor: “Perakendecilik sektörü bizim için çok önemli bir sektör. Bu alanda faaliyet gösteren OYPA’larımız şimdilik mağaza ağı olarak yeterli değil. Ancak biz OYPA’ların sayısının arttırılmasına çalışıyoruz ve bu alanda da iddialıyız.” OYAK Genel Müdürü Ulusoy’un bu açıklamalarına karşın sektörün içinde bulunduğu kriz yüzünden ilk etapta istenilen atılımı gerçekleştirmelerinin zor olduğunu vurgulayan Strateji Danışmanlık Hizmetleri Perakende Uzmanı Vahet Karhan yapılan devalüasyonlarla müşterilerin alım güçlerinin önemli ölçüde düştüğüne işaret ediyor. 2001 yılının ilk 9 ayında perakende sektöründe yer alan şirketlerin tamamına yakınının zarar açıkladığını hatırlatan Karhan, “Operasyonel maliyetlerin bu dönemde artması yüzünden açılması planlanan mağaza sayısında da önemli bir düşüş görülüyor. Toplam 60 milyar dolara yaklaşan perakende sektörü Şubat krizinden bu yana en az yüzde 20 küçüldü” diyor.
+       <br/>
+       <br/>
+       OYAK özel bir kurum mu yoksa?
+       <br/>
+       <br/>
+       Liberal ekonomiden yana olanlar, devletin her alanda daha hızlı ve rahat hareket edebilmesi için küçülmesi gerektiğini yıllardan beri tekrarlıyorlar. Ancak OYAK’ın son hamlesini düşününce ‘devlet ekonomiden çekilmelidir’ söylemlerine karşın acaba devlet OYAK aracılığıyla yeniden ekonomiyi kontrol altına almaya mı çalışıyor sorusunu alçak bir sesle sormadan edemiyorlar.
+       <br/>
+       <br/>
+       Coşkun Ulusoy da bu tür değerlendirmelerden rahatsız olmuş olmalı ki OYAK’ın orduya ait bir kurum olmadığını savunuyor ve ekliyor: “Ordu, sınırları bekleme görevindedir. Öyle de olmalıdır. Biz üyelerimize profesyonelce, bir özel sektör kuruluşu olarak hizmet veriyoruz. Ordunun ogranizasyonunda OYAK’ın yeri yok. OYAK sadece orduda çalışan insanların bir sosyal güvenlik kuruluşu.”
+       <br/>
+       <br/>
+       Genel Müdür Ulusoy’un OYAK’ın orduyla, dolayısıyla devletle alakası olmadığını söyleyen açıklamalarına karşın 14 Nisan 2001 tarihinde gerçekleştirilen OYAK 41. Olağan Genel Kurul’una aralarında Kara Kuvvetleri Komutanı Orgeneral Hilmi Özkök, Genelkurmay Lojistik Başkanı Korgeneral A. Hurşit Tolon, Genelkurmay Personel Başkanı Korgeneral Ahmet Özteker, Deniz Kuvvetleri Komutanlığı Kurmay Başkanı Oramiral Yener Karahanoğlu, Hava Kuvvetleri Komutanlığı Kurmay Başkanı Korgeneral Aydoğan Babağlu ve Jandarma Genel Komutanlığı Kurmay Başkanı Korgeneral Yusuf Soysalbay’ın da aralarında bulunduğu temsilcilerin katılması kurumun söylendiği kadar devletten bağımsız olmadığını gözler önüne seriyor. Ayrıca 7 kişiden oluşan OYAK’ın yönetim kurulunda 6 tane askeri personelin bulunması da herkesin dikkatini çeken bir diğer unsur.
+       <br/>
+       <br/>
+       Dünya üzerinde gelecek vadeden sektörler olan Telekom ve enerji alanında yatırım yapmak istediklerini her fırsatta yenileyen OYAK yönetimi bu alanda yapılacak özelleştirmelerin dışında yurtdışında da yatırım olanakları arıyor.
+       <br/>
+       <br/>
+       Coşkun Ulusoy, yeni yatırımlar konusunda, Türkiye ve dünyadaki ana gelişmeleri izleyeceklerini, Telekom ve enerji konuları yeniden gündeme gelirse ilgilerinin devam edeceğini kaydediyor. Ulusoy’un bu açıklamalarına karşın Financial Times gazetesine göre Türk Telekom ihalesine katılmak için ABD’li bir ortak arıyor. Telekom konusunda askerlerin hassas olduğunu vurgulanan haberde OYAK’ın bu özelleştirmeye ABD’li bir ortakla girmek istediği belirtiliyordu. Bir diğer stratejik kurum olan Türk Hava Yolları’nın (THY) özelleştirilmesi gündeme gelince inceleyeceklerini söyleyen OYAK yönetimi, “Fiyat, şartlar ve vadeler uygun olursa neden olmasın?” diyerek bir anlamda bu kuruma talip olduklarını açıklıyor.
+       <br/>
+       <br/>
+       OYAK gibi güçlü bir kurumla iş yapmayı herkesin istediğini tahmin etmek hiç de güç değil. Genel Müdür Çoşkun Ulusoy tarafından Türkiye’nin yükselen yıldızı olarak lanse edilen kurumun Türkiye semalarının dışında parlayıp parlamayacağını ise yine zaman gösterecek....
+       <br/>
+       <br/>
+       OYAK’a bağlı şirketler
+       <br/>
+       <br/>
+       OTOMOTİV: OYAK—Renault (yüzde 47.66), Omsan (yüzde 61.60), Selyak (yüzde 25), Goodyear (yüzde 10.85), Omsan France, Omsan GMBH.
+       <br/>
+       <br/>
+       ÇİMENTO: Adana Çimento Sanayi A.Ş. (yüzde 57), Bolu Çimento Sanayi A.Ş.(yüzde 53), Ünye Çimento Sanayi ve Tic. A.Ş. (yüzde 51), Mardin Çimento Sanayi ve Tic. A.Ş.(yüzde 51), OYSA—Niğde Çimento Sanayi ve Tic. A.Ş. (yüzde 10.00), OYSA—İskenderun Çimento Sanayi ve T.A.Ş. (yüzde 13.50), Elazığ—Altınova Çimento Sanayi ve Tic.A.Ş. (yüzde 35),
+       <br/>
+       <br/>
+       FİNANS: OYAK Bank A.Ş. (yüzde 100), Halk Finansal Kiralama A.Ş. (yüzde 39),
+       <br/>
+       <br/>
+       AXA OYAK Holding A.Ş (yüzde 50): (Axa OYAK Sigorta, Axa OYAK Hayat Sigortası) OYAK Menkul Değerler A.Ş. (yüzde 100), OYAK Portföy Yönetimi A.Ş. OYAK Bank (yüzde 60) , OYAK Menkul Değerler A.Ş. yüzde 40) OYAK Ankerbank, European Finance, O/B Yatırım Menkul Değerler
+       <br/>
+       <br/>
+       GIDA—KİMYA: TUKAŞ:Turgutlu Konservecilik A.Ş. (yüzde 70), HEKTAŞ Ticaret A.Ş. (yüzde 53.18), Tam Gıda Sanayi ve Tic. A.Ş. (yüzde 29.09), Eti Pazarlama ve Sanayi A.Ş. (yüzde 26)
+       <br/>
+       <br/>
+       HİZMET: OYAK İnşaat A.Ş. (yüzde 75), OYTAŞ İç ve Dış Ticaret A.Ş. (yüzde 99.48), OYTUR—OYAK Turizm ve Ticaret A.Ş. (yüzde 100), Oycem, OYAK Güvenlik, OYPA—OYAK Büyük Mağazacılık Ticaret A.Ş. (yüzde 100).
+       <br/>
+       <br/>
+       e—posta: u.sanli@zaman.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12324), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227031055/http://www.aksiyon.com.tr:80/detay.php?id=12324)

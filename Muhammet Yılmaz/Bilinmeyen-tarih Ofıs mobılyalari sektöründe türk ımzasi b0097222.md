@@ -1,0 +1,40 @@
+# Ofıs mobılyalari sektöründe türk ımzasi
+
+*Muhammet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Piyasa araştırmaları yaparak ihracat gücünü artıran Axis, Türk cumhuriyetlerinden sonra, İngiltere ve Belçika’ya birer showroom açmayı hedefliyor.
+   <br/>
+   <br/>
+   Türkiye özellikle son 2 yılda ofis mobilyaları sektöründeki müthiş atağıyla inanılmaz bir çıkış yaşıyor. Bu çıkışın sebepleri hakkında görüşlerini aldığımız sektörün önde gelen isimlerinden Asil Ahşap Yönetim Kurulu Başkanı Dursun Kartal, çıkışın en önemli sebebini kullanılan teknoloji ve ürünlerin zamanında teslim edilmesi olarak özetliyor. Türkiye’nin ofis mobilyaları konusunda ilk 5 arasında olduğunu ifade eden Kartal, “ABD, İtalya, Almanya ve İspanya’dan sonra Türkiye gelmekte. Son zamanlarda Malezya da bu sektörün önemli ülkeleri arasına girmiştir. Yakın bir zamanda ciddi bir tehlike Çin olabilir. Özellikle oradaki maliyetlerin çok düşük olması bizi ve diğer tüm ülkeleri olumsuz etkileyebilir” diyor.
+   <br>
+    <br>
+     Kendi stiline göre Axis
+     <br>
+      <br>
+       Asil Ahşap firmasının en genç markası olan Axis’in, farklı çizgisiyle sektöre yeni bir soluk getirdiğini belirten Dursun Kartal, “Bir kişinin hangi Axis modeli aldığına ve beğendiğine bakarak kişiliğiyle ilgili ipuçları elde etmek mümkün. Axis birbirine zıt görülen maddeleri de sanatsal bir bakış açısıyla ele alıp harmanlamış ve ortaya ilginç ürünler çıkmış. Yatırımları hakkında da bilgi veren Kartal, 5 bin metrekare büyüklüğündeki fabrikayı genişletmeyi hedeflediklerini belirtiyor. Ayrıca Dursun Kartal Axis’in yeni hedeflerinin Antalya, Ankara, İzmir ve Trabzon gibi büyükşehirlerde yeni showroom’lar açmak olduğunu ifade ediyor.
+       <br>
+        <br>
+         Ekonomik krizden çok fazla etkilenmediklerinin altını çizen Kartal, “Bizim öngörümüz ve hedefimiz ihracat gücümüzü süratle artırarak iç piyaslardaki daralmadan en az etkilenmektir. Esasında bu kriz bizi daha hızlı ihracata yönlendirmesi açısından belki de hayırlı olmuştur. Her şeye rağmen krizin bütçelerimizi daralttığını da inkar edemeyiz. Biz Axis’te çalışan personelimizin hiçbirini kriz sebebiyle işten çıkarmadık” diyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 11 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11788), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227214017/http://www.aksiyon.com.tr:80/yazdir.php?id=11788)

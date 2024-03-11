@@ -1,0 +1,138 @@
+# Çanakkale’de Mehmetçiğe kimyasal silah
+
+*Haşim Söylemez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Çanakkale Zaferi'nin 90. yıldönümü kutlanıyor. Başbakanlık Osmanlı Arşivi'nden çıkan yeni bir belge, savaşla ilgili korkunç bir gerçeği ortaya çıkardı: İhtilaf Devletleri Mehmetçiğe karşı kimyasal silah kullandı. Savaşı anlatan rakamlar ise oldukça manidar. 10 bin askerimiz kayıplara karışmış.
+   <br/>
+   <br/>
+   <b>
+    20 Temmuz 1915. Yer Çanakkale...
+   </b>
+   <br>
+    Savaş bütün dehşetiyle sürüyordu. Reuter Telgraf Ajansı'nın Çanakkale muhabiri, Londra'daki ajans merkezine savaşın gidişatını anlatırken insanî boyutu öne çıkan bir haber geçer: "Türkler pek merdane ve soylu bir tarzda harp ediyor. Bunlardan biri şiddetli ateş altında olduğu halde askerlerimizden birinin yarasını sarmak gayretinde. Diğeri yaralı bir Avustralyalı askerin yanına bir şişe su bırakarak insanî bir harekette bulunuyor. Mert Türk askerlerinden bir başkası İngiliz siperlerinden uzak bir mevkide yaralı düşüp saatlerce aç ve güçsüz kalan İngiliz askerine ekmek vererek yüce bir davranış gösteriyor. Türklerle çarpışan İngiliz askerlerinin hemen hepsi Türkler tarafından İngiliz esirlere iyi muamele yapıldığı konusunda hemfikir."
+    <br>
+     <br>
+      Çanakkale Boğazı girişinde batan Saphir adlı Fransız denizaltısından Türk askerleri tarafından kurtarılan Elektrik Çavuşu Logal ailesine gönderdiği mektupta, nasıl bir esaret geçirdiğini şu cümlelerle anlatıyor: "...Tahlisiye sandalı gelinceye kadar yarım saat suda kaldık. Kurumuş yapraklar gibi tir tir titriyorduk. Lakin bereket versin, Türk zabitleri bizi pek hoş karşıladı. Sandal içinde zabitlerden birisi bana ceketini bile verdi. Türk mülazımı kıyafetine girdim. Bizi hemen ısıttılar. Bir şişe rom getirdiler. Bir nefesçik rom çekmek, bilsen ne kadar büyük bir iyilik icra etti. Bizi bir kışlaya götürdüler. Orada bize elbise verdiler. Zira denize düşerken çırılçıplak olmuş idik. Bizi İstanbul'a getirdiler. Bulunduğumuz mahalleye arada sırada Türk zabitler geliyor. Bize sigara paketleri ikram ediyorlar. Hemen ekserisi Fransızca biliyor. Halbuki biz başka türlü muamele göreceğimizi zannediyorduk."
+      <br>
+       <br>
+        Çanakkale'de sadece askerler savaşmadı. Aynı zamanda, farklı dünya görüşleri de mücadele etti. Hem de insan olma konusunda... Düşmanının canını kurtarmak için çırpınmak, matarada kalan bir yudum suyu düşman askerine vermek başka türlü nasıl izah edilebilir ki? Reuter muhabirinin geçtiği haber ile Çavuş Logal'ın ailesine gönderdiği mektup bu örneklerden sadece birkaçı. Ancak, madalyonun bir de öteki yüzü var. İhtilaf Devletleri, Çanakkale'de direnen Osmanlı askerini yok etmek için her türlü yolu denemekten çekinmedi. Uluslararası savaş kuralları yok sayılıp siviller katledildi, hastaneler bombalandı. Dahası topyekûn bir öldürme operasyonu için kimyasal silahlar bile kullanıldı.
+        <br>
+         <br/>
+         Mehmetçik gaz karşısında çaresiz
+         <br/>
+         <br/>
+         Başbakanlık Osmanlı Arşivi'nde görevli uzmanlarca ortaya çıkarılan yeni bir arşiv belgesinde İhtilaf Devletleri'nin Türk askerlerine karşı boğucu türden gaz içeren kimyasal silah kullandığı belirtiliyor. Belgeye göre, Osmanlı askeri kimyasal silahlar karşısında çaresiz kalıyor. Belgede gazın hangi ülke kuvvetleri tarafından kullanıldığı belirtilmiyor. Verdiği zarar konusunda da bir bilgi yok. Fakat, araştırmacılar binlerce askerin kimyasal silahların tesiriyle şehit düşme ihtimalinin olduğunu belirtiyor ve muhtemelen İngilizler tarafından böyle bir yola başvurulduğu görüşünde birleşiyor.
+         <br/>
+         <br/>
+         2 Temmuz 1915 tarihinde Başkumandan vekili namına Müsteşar imzasını taşıyan ve cepheden Hariciye Nezareti'ne gönderilen belgede düşman kuvvetleri tarafından kimyasal silahlar kullanıldığı belirtilip tarafsız ve dost devletlerin olayı protesto etmesi isteniyor. Dost devletlerin insanlık dışı bu hadiseyi protesto ettiğine dair bir bilgiye rastlanmıyor; ama bu belge Çanakkale'yi kimyasal silahların kullanıldığı savaşlar arasına sokuyor. Daha önce 19. yüzyılın sonlarında Fransızlar Almanlara karşı zehirli gaz kullanmış, aynı şekilde Almanlar da Fransızlara misillemede bulunmuştu.
+         <br/>
+         <br/>
+         Domdom kurşunu...
+         <br/>
+         <br/>
+         Çanakkale'de destan yazan askerlerimize yönelik uluslararası savaş hukukuna aykırı hareketler kimyasal silahlarla sınırlı değil. Tespit edilen iki ayrı belge, iki ayrı savaş ihlalini daha ortaya çıkarıyor. Savaş hukukuna kesinlikle aykırı olmasına rağmen domdom (parçalayıcı, dağıtıcı özelliği çok fazla) kurşunları da Mehmetçiğe sıkılmış. Başkumandan vekili Enver imzasını taşıyan 20 Mayıs 1915 tarihli Hariciye Nezaretine gönderilen belgede Çanakkale'de yaralanıp Tekirdağ Hastanesi'ne yatırılmış bir askerin bacağından domdom kurşunu çıktığı rapor ediliyor. Aynı belgede domdom kurşunlarının İngiliz askerleri tarafından kullanıldığının altı çiziliyor.
+         <br/>
+         <br/>
+         10 Mayıs 1915 tarihini taşıyan bir başka belgede de İngiliz savaş gemilerinin balonlar yardımıyla Maydos kasabasında Hilal-i Ahmer bayrağı çekmiş hastaneyi bombalayarak 30 kadar yaralı askerin şehid olmasına yol açtığı belirtiliyor. Osmanlı Hükümeti "insanlığa sığmayan" bu saldırı sonrasında Amerika Sefareti aracılığıyla İngiltere'nin uyarılması talebinde bulunuyor. Bu üç belge ve üç örnek, savaş kurallarının hiçe sayıldığı Çanakkale'de nasıl bir trajedinin yaşandığını gözler önüne seriyor.
+         <br/>
+         <br/>
+         Belgeler şimdi sergide, sonra kitapta
+         <br/>
+         <br/>
+         Çanakkale Savaşları hakkında Genelkurmay Başkanlığı'nın yayımladığı birkaç çalışma dışında belgelere dayalı, ilmi, ciddi ve kapsamlı bir kitabın yazılmamış olması büyük bir eksiklik. Devlet Arşivleri Genel Müdürlüğü bu alandaki eksikliği gidermek için savaşların 90. yıldönümü etkinlikleri çerçevesinde iki ciltten oluşan "Osmanlı Belgelerinde Çanakkale Muharebeleri" kitabının ilk cildini kısa bir süre sonra piyasaya sürecek. Kronolojik olarak 10 Ağustos 1914 ile 31 Ağustos 1915 tarihleri arasındaki olayları anlatan belgelerden oluşan ilk kitap muhteva bakımından oldukça geniş. İkinci cildiyle birlikte bu kitap bir yıl içinde tamamlanacak.
+         <br/>
+         <br/>
+         İkinci cilt ise 1 Eylül 1915 ve 9 Ocak 1916 tarihleri arasını kapsayacak. Arşiv bünyesinde kurulan ve beş uzmanın çalıştığı Çanakkale Masası'nın ortaya koyduğu belge ve fotoğraflar da kitaptan önce bir sergide kamuoyuna sunulacak. Başbakanlık Osmanlı Arşivi ile 18 Mart Üniversitesi tarafından 14-25 Mart tarihleri arasında ortaklaşa  düzenlenecek sergide 50 arşiv belgesiyle çeşitli fotoğraflar yer alacak.
+         <br/>
+         <br/>
+         <br/>
+         Ahmet Yüksel Özemre (Eski Atom Enerjisi Kurumu Başkanı)
+         <br/>
+         BU KİMYASAL SİLAHLAR ÖLDÜRMEK İÇİNDİR
+         <br/>
+         <br/>
+         Boğucu gaz, zehirli gaz adıyla bilinir. Bütün canlılar üzerinde etkilidir. Yayılım etkisi oldukça geniştir. Direkt öldürmek için kullanılır. Bunların tamamı kimyasal silah içinde değerlendirilir. Çanakkale'de kullanılması çok korkunç bir durumdur ve ilkler arasındadır. Daha önce de Fransızlar ve Almanlar birbirlerine karşı boğucu gaz türünde kimyasal silah kullanmışlardı. İkinci Dünya Savaşı sırasında bu gazların kullanımı daha da genişledi. Bunların tamamı savaş ilkelerine aykırı.
+         <br/>
+         <br/>
+         <br/>
+         10 BİN KAYIP ASKER
+         <br/>
+         <br/>
+         Fiilen 3 Kasım 1914'te başlayan Çanakkale Savaşları 9 Ocak 1916 tarihinde İhtilaf Devletleri'nin çekilmesiyle sona erdi. Çanakkale'de ortaya çıkan rakamlar savaşın ne kadar şiddetli geçtiğini anlatmaya yetiyor. Yaklaşık bir yıl süren çarpışmalar sonucunda İhtilaf Devletleri 252 bin kayıp verirken, Osmanlı Devleti ise 251 bin şehit verdi.
+         <br/>
+         <br/>
+         3 Kasım 1914'te Seddülbahir Kalesi'ndeki cephaneliğe yapılan saldırıda 5 subay 83 er şehit oldu. Bunlara "ilk şehitler" deniyor.
+         <br/>
+         <br/>
+         Rumeli Mecidiyesi'nde görev yapan Topçu er Seyit 275 kilo 600 gram ağırlığındaki top mermisini tek başına kaldırıp namluya sürerek ateş etti; Queen Elizabeth mayın gemisi sulara gömüldü.
+         <br/>
+         <br/>
+         19 Mayıs 1915'te cepheye katılan 100 kadar İstanbul Tıp Fakültesi öğrencisi 3 saat içinde şehit düştü. İstanbul Tıp Fakültesi 1921 yılına kadar hiç mezun veremedi.
+         <br/>
+         <br/>
+         Karşılıklı siperlerin en yakın mesafesi 5 metre olduğu halde çatışmalar sürdü.
+         <br/>
+         <br/>
+         Savaşta 60 İngiliz uçağına karşılık 22 Türk uçağı bulunuyordu.
+         <br/>
+         <br/>
+         İngilizler 205 bin, Fransızlar 47 bin kayıp verirken İhtilaf Devletleri'nin toplam kaybı 252 bin olarak tespit edildi.
+         <br/>
+         <br/>
+         İngiltere (sömürge askerleri dahil) savaşa 469 bin askerle katıldı.
+         <br/>
+         <br/>
+         O gün için 700 bin Türk askeri bulunuyordu.
+         <br/>
+         <br/>
+         Osmanlı Devleti toplam 251 bin şehir verdi. 10 bin askerimiz kayıp.
+         <br/>
+         <br/>
+         Savaşta 57. Alay'ın bütün mensupları şehit düştü. Bir daha 57. Alay kurulmadı. Bu Alay'ın sancağı halen Avustralya Savaş Müzesi'nde sergilenmektedir.
+         <br/>
+         <br/>
+         25 şehitle Kastamonu'nun Güzlük köyü en fazla kayıp veren köy olarak kayıtlara geçti.
+         <br/>
+         <br/>
+         En çok şehit veren ilk beş ilin sıralaması ise şöyle: Bursa 3274; Balıkesir 3003; Konya 2683; Kastamonu 2527;  Denizli 2258.
+         <br/>
+         <br/>
+         İstanbul 1908 şehit verirken bu savaşla birlikte adı tarihe geçen Çanakkale ise 1876 şehit verdi. Tabii burada diğer illerden alınan askerlerin Çanakkale dışındaki cephelere gönderilmesi gerçeği de göz ardı edilmemeli.
+         <br/>
+         <br/>
+         Savaş sırasında Saroz Körfezi'ne 300 kadar Yunan asker çıkarıldı ancak bunlar korktukları gerekçesiyle tekrar geri gönderildi.
+         <br/>
+         <br/>
+         İhtilaf Devletleri safında 600 kişiden oluşan Siyon Katırcılar Birliği de savaşa katıldı.
+         <br/>
+         <br/>
+         <br/>
+         Doç. Dr. Mustafa Budak (Osmanlı Arşivi Daire Başkanlığı Genel Müdür Yardımcısı)
+         <br/>
+         BELGEYE ŞAŞIRDIK
+         <br/>
+         <br/>
+         Çanakkale Savaşı'nda savaş ihalalleri oldukça fazla. Ancak ortaya çıkan bir takım belgeler bize yeni ufuklar açtı. Örneğin arşivimizde yeni tespit ettiğimiz bir belgede Osmanlı askerine karşı boğucu gaz türünden kimyasal silah kullanıldığı belirtiliyor. Biz buna çok şaşırdık. Büyük çapta savaş ihlali ile karşı karşıyayız. Bütün bu belgeleri yayınlayıp insanlara farklı bir açıdan yorum yapmalarını sağlama imkanı bulursak iyi bir çalışma ortaya koymuş olacağız kanatindeyim. Başbakanlık Osmanlı Arşivi olarak güncel hadiselere dair belge tespiti yapıp kamuoyunu bilgilendirmek istiyoruz. Bu belgeyi hem araştırmacıların hem de konun uzamanlarının dikkatine sunarak yeni bir tartışma platformu oluşturma niyetindeyiz. Tabi bu tartışmanın yapıcı ve bilgilendirici olmasını istiyoruz.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1650 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=20306), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050322020154/http://www.aksiyon.com.tr:80/yazdir.php?id=20306)

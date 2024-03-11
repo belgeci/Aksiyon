@@ -1,0 +1,94 @@
+# Hitler: Kredimi çarçur etmeyin
+
+*Erkan Acar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050125233245im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050125233245im_/http://www.aksiyon.com.tr/resim/439/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye"nin II. Dünya Savaşı"nda izlediği  politikalarda hâlâ gün ışığınaçıkmamış noktalar var. Bunlardan birisi de Hitler"in verdiği kredi. Savaş yıllarında Berlin Ataşe Muavinliği"nde bulunan emekli Orgeneral Zeki İlter, hatıralarında Hitler"in Türkiye"ye kredi verdiğini ve bunun çarçur edilmemesini istediğini anlatıyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye"nin II. Dünya Savaşı'nda uyguladığı politikalar zaman zaman tartışmalar devam ediyor. İzlenen politikalarda gün ışığına çıkmamış noktalar hâlâ bulunuyor. Hitler Almanyası ile Türkiye arasındaki ilişkilerin de konu alındığı ilginç bir hatıra kitabı geçtiğimiz günlerde kitapçı raflarında yerini aldı. 1942-44 yılları arasında Almanya"da Berlin Ataşe Muavinliği görevi yapan ve Milli Savunma Bakanlığı Müsteşarlığından emekli olduktan sonra 1990 yılında vefat eden emekli Orgeneral Zeki İlter"in hatıraları Türk-Alman ilişkileri hakkında önemli ipuçları sunuyor. İlter"in vefat etmeden önce eşi ve oğlu tarafından teybe kaydedilen hatıraları Kastaş Yayınları tarafından "Bir Ömür Boyu Askerlik" adıyla yayınlandı. II. Dünya Savaşı yıllarında başta Almanya olmak üzere çeşitli Avrupa ülkelerinde önemli görevler üstlenen İlter"in anlattıkları içinde en ilginci Hitler"in Türk askerleri ile görüşmesi. Hitler bu görüşmede Türk askeri yetkililerine Türkiye"ye kredi açtığını belirtiyor ve bu kredinin çarçur edilmemesini istiyor.
+   <br>
+    <br>
+     İlter, Berlin"e gitmeden önce Türkiye"de stratejik noktalarda görevlerde bulunur. 1940"ta Genelkurmay Başkanlığı İstihbarat Şubesi"ne atanarak bir süre Rus Masası"nda çalışır.
+     <br>
+      <br>
+       İlter o günleri şöyle anlatıyor: "II. Dünya Harbi içindeydik. Harekat gibi istihbarat işleri de çok önem kazanmıştı. Bu şubedeki (istihbarat) hizmetlerim sırasında iki defa Balkanlara ve Orta Avrupa"ya diplomatik kurye olarak gittim. Yabancı ataşeliklerde temasım oldu."
+       <br/>
+       <br/>
+       Kendisinin de anlattığı gibi İlter, iki defa Balkan devletlerine kurye olarak gider. O sıralarda Almanların Balkanlarda yeni bir cephe açacaklarına yönelik istihbaratlar gelmektedir. Ve Romanya"daki Alman birliklerinin Bulgaristan"a inmekte olduğu istihbaratı alınır. İlter bu ilk kuryelik görevi ile ilgili şu bilgileri veriyor:
+       <br/>
+       <br/>
+       İngilizler adına Balkanlar'da istihbarat yaptık
+       <br/>
+       <br/>
+       "İngilizler bizim müttefikimizdi. Bizden bunları öğrenmemizi istiyorlardı. Eğer Almanlar Bulgaristan"a hakikaten iniyorlarsa Tuna üzerinde köprü varsa bombardıman edeceklerini bildiriyorlardı. Askeri ataşelerimizin hareket, temas ve çalışmaları kısıtlanmıştı. Bu sebeple Bulgaristan, Romanya, Macaristan ve Yugoslavya"daki askeri durumları tespit etmek ve Alman birliklerinin durumlarını öğrenmek ve bir de askeri ataşelerimiz tarafından gönderilen haberler arasındaki çelişkileri çözümleyerek koordine etmek ve geliştirmek gerekiyordu. Bu vazifeyi de bize vermişlerdi."
+       <br/>
+       <br/>
+       Genelkurmay Başkanlığı İstihbarat Başkanlığı"ndaki görevine devam eden İlter, daha sonra o zamanki adı Milli Emniyet olan Milli İstihbarat Teşkilatı"na (MİT) atanır. Burada Teknik İstihbarat ve Rusya masalarında çalışmaya başlayan İlter, altı ay sonra Berlin Ataşe Muavinliği ve Hava Ataşe Vekilliği"ne atanır.
+       <br/>
+       <br/>
+       İlter"in Berlin"de görev yaptığı 1942-44 yılları ise savaşın en yoğun şekilde yaşandığı zaman sürecidir. Hitler 1941"de daha önce yaptığı anlaşmayı bozarak SSCB"ye girmiş ve aynı yıl ABD"de, Fransa ve İngiltere"nin yanında savaşa katılmıştır. 1943"te Almanya, SSCB"de ve Kuzey Afrika"da gerilemeye başlayınca Hitler savunma kararı alır. İlter Berlin"deki ataşemiliterlik görevine başladığı vakit büyükelçi Saffet Arıkan, ataşemiliter ise Kurmay Yarbay Kamil Akman"ndır. İlter"in mesai arkadaşlarından birisi de 19731980 yılları arasında Cumhurbaşkanlığı yapan ve o tarihlerde Kurmay Albay olan Fahri Korutürk"tür. Korutürk  Berlin Büyükelçiliği"nde deniz ataşesi olarak görev yapmaktadır. İlter o günlere ait mesaisinden şu hatıraları aktarıyor:
+       <br/>
+       <br/>
+       "(Fahri Korütürk"ün) Olgun bir şahsiyeti vardı. Protokolle yaşantıyı çok severdi. Benimle yakın arkadaşlık ve dostluk kurdu. Ben de onun işlerine yardım ediyordum. Hatta ara sıra Peşte"ye giderek gereken siparişleri getirirdim. Kendisi Berlin"den Türkiye"ye tayin olduğu vakit kiralık lüks dairesini bana bırakmıştı. Bu bina Tierganten"daki Büyükelçiliğimize yakın Lutzowuferde"de idi. Şoförüm Bernwal"e ayda bir altın verirdim. Evdeki yardımcı hanıma da ayda bir altın verirdim. Ben de diğer diplomatlar gibi maaşımı İsviçre"den altın olarak getirirdim. Ayda 14-15 altın alırdım."
+       <br/>
+       <br/>
+       Hitler, Hüsrev Gerede dostluğu
+       <br/>
+       <br/>
+       Büyükelçi Saffet Arıkan"dan önceki büyükelçimiz ise yakın bir zaman önce anıları yayınlanan Hüsrev Gerede"dir. İlter, Gerede hakkında da ilginç bilgiler veriyor: "Kendisi Türk siyaseti, politikası ile bağdaşmayan bir beyanat verdiği için geri alınmıştı. Hitler kendisini çok seviyordu. Özel bir vagon tahsis etmiş, ayrıca dünyaca meşhur Meissen sofra takımından 24 kişilik bir takım hediye etmişti."
+       <br/>
+       <br/>
+       Zeki İlter, Berlin"deki görevi sırasında iki defa ataşe grubu ile Batı ve Doğu cephesini gezme fırsatı bulur.
+       <br/>
+       <br/>
+       İlter, Batı Cephesi"ne yaptığı gezi sırasında Belçika, Hollanda ve Kuzey Batı Fransa"daki bölgeleri dolaşır. Bir taarruza karşı yapılmış savunma tesisini inceler. Bazı limanlarda büyük denizaltı sığınakları yapılmış olduğuna şahit olur. İlter, bu sığınakların 5-6 tane denizaltı alabilecek kapasitede olduğunu ve Atlantik"te vazife yapan denizaltıların zaman zaman buraya gelip mürettebat değişimi yaptığını ifade ediyor.
+       <br/>
+       <br/>
+       İlter"in ikinci gezisi ise Almanya"nın Doğu Prusya"daki harp karargahına yöneliktir.
+       <br/>
+       <br/>
+       Doğu karargahında ataşe heyetine cephe durumları ve Alman savunma gücü hakkında propaganda mahiyetinde izahatlarda bulunulur. İlter"in de aralarında bulunduğu diğer ülkelerin ataşe heyeti oraya yataklı vagonla götürülür. İlter, söz konusu Doğu Cephesi karargahı bölgesinde orman içinde bulunan Mareşal Goering"in özel av köşkünü gezdiklerini ve verilen öğle yemeğinde ilk defa geyik sırtı yediğini de anlatmadan geçemiyor.
+       <br/>
+       <br/>
+       Hitler'le karşılıklı çay sohbeti
+       <br/>
+       <br/>
+       İlter"in hatıralarının en ilginç bölümü ise Adolf Hitler ile yapılan görüşmenin anlatıldığı kısım. Hitler, Doğu Cephesi"ndeki karargahında 1. Ordu Komutanı Orgeneral Cemil Cahit Toydemir ile birlikte İlter"i kabul eder. Gerisini İlter"den dinleyelim: "Hitler"i yakından görmemiştim. Çünkü Hitler artık eskisi gibi halk arasında gözükmüyor, cepheleri ziyaret ediyor ya da radyolarda konuşmalar yapıyordu. Hitler heyetimizi büyük bir odada karşılamıştı. Yanında Silahlı Kuvvetler Başkanı Mareşal Koeler vardı. Odada emniyet için elleri arkada duvara dayalı üç kişi duruyordu. Hitler Türkiye"nin dostluklarından bahsederek Türkiye"ye açmış oldukları 100 milyon krediyi çarçur etmememizi, tank birliği ve uçak filosu almamızı tavsiye etti. Ayrıca bizim hava alanlarımıza dıştan yapılabilecek baskın tarzındaki işgal ihtimaline karşı tedbirli olmamızı tavsiye etti. Hitler"in çökmüş ve moralinin bozuk olduğunu görmüştük. Bize çay ikram ettiler."
+       <br/>
+       <br/>
+       İlter buradaki 100 milyonun lira mı yoksa mark mı olduğundan bahsetmiyor. 1943 yılının ortaları ise İngiltere"nin, Almanya"yı yoğun şekilde bombalamaya başladığı tarihlerdir. En büyük hava taarruzlarından biri de 23 Kasım"ı 24 Kasım"a bağlayan gece Berlin"de hükümet binalarının olduğu bölgeye yapılır. Bu bölgede sefaretler de bulunmaktadır. Ve 2 bin 500 ton bomba atılır. Atılan bombalar Berlin"deki Türk Büyükelçiliği"ne de isabet eder. Ve İlter burada yaralanır:
+       <br/>
+       <br/>
+       Türk büyükelçiliği hava saldırısına uğrar
+       <br/>
+       <br/>
+       "Atılan bombalarla yanmakta olan elçilikten kurtulma gayretlerim esnasında başımdan yaralandım. Sefaretin üçüncü katibi Sait Saipoğlu bu kritik zamanda bana yardım edip arabasıyla beni hastaneye götürdü. Gittiğimiz hastanede beni sığınağa aldılar ve mum ışığında başımdaki yarayı ameliyat ettiler. Hastanede bir hafta yattım. Daha sonra elçiliğimizin nakledilmiş olduğu şehrin 50 kilometre doğusundaki Noydam şehrinin hastanesine intikal ettim. Orada bir hafta yattıktan sonra çıktım ve on gün hava tebdili alarak İsviçre"ye gittim. Sait Saipoğlu benim hayatımı kurtardı. Ben bu yardımı unutmadım. Allah bana da bu imkanı verdi. 1965 yılında rica üzerine zamanın Dışişleri Bakanı, Sait Saipoğlu"nu Şili"ye büyükelçi olarak gönderdi. Sait de bu iyiliğimi asla unutmadı."
+       <br/>
+       <br/>
+       1943 yılının ikinci yarısı Almanya"nın pasif olağanüstü hava savaşı verdiği tarihlerdir. Almanya kuzeyden İngilizler, güneyden de Amerikalılar tarafından devamlı bombalanır. İlter, Berlin"de herkesin küçük bir valizi olduğuna, bu valiz içinde ziynet eşyaları, nüfus cüzdanları, tapular gibi kıymetli belge ve eşyaların bulunduğuna dikkat çekiyor. Hava bombardımanı için alarm sinyalleri çalınınca Alman halkının bu valizlerini yanlarına alarak sığınaklara koştuğunu anlatan İlter"in Berlin"e ait diğer gözlemleri ise şöyle:
+       <br/>
+       <br/>
+       "Her evin bodrum katı sığınak haline getirilmişti. Bu sığınaklar birbiri ile irtibatlı idi ve içinde sıhhi malzeme, gemici feneri, yangın söndürme cihazları, kazma, kürek bulunurdu. Diğer sığınaklar şehrin işlek yerlerine yakın büyük betonarme ve katlı sığınaklardı. Sığınakların terasına uçaksavarlar yerleştirilmişti. En alt katlar ise cephanelikti. Cephaneler oradan asansörle terasa çıkartılırdı. Uçakların uzaklaşmasından sonra sıhhi yardım ekipleri, yangın söndürme ve kurtarma ekipleri büyük bir özveri ile derhal faaliyete geçer, evsiz kalanlar plana göre hemen yerleştirilirdi. Trafik düzenlenirdi. Zaten kara ve demiryolu köprülerinin civarında yedek onarım malzemesi bulunur ve tahribi halinde hemen onarıma başlanırdı. Kanaatim şudur ki ağır hava taarzuzlarına karşı halkın bu derece disiplinli ve sabırlı olarak çalışması az millette bulunur." İlter 1944"te Türkiye-Almanya arasındaki ilişkilerin kesilmesi üzerine Türkiye"ye epey sıkıntılı bir yolculuktan sonra geri döner. Bundan sonraki hayatında çeşitli rütbelerde Türk Silahlı Kuvvetleri"ne başarılı hizmetlerde bulunur.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2549), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050125233245/http://www.aksiyon.com.tr:80/detay.php?id=2549)

@@ -1,0 +1,74 @@
+# Amerika, İskenderun’daki çırçır üretimini durdurdu!
+
+*M. Yaşar Durukan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226152724im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226152724im_/http://www.aksiyon.com.tr/resim/410/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dinleme, bilgi toplama ve ajan faaliyetlerini örgütlediği iddia edilerek “CIA karargahı” diye hedef gösterilen İskenderun TUSLOG, bu açıklamadan birkaç yıl sonra resmen kapatıldı. “Çok iyi misafir-komşu ilişkilerimiz vardı” diyerek kentten ayrılan Amerikalılar, 50 yıl sonra evlerine döndüler. Bu gizemli tesis, Çırçır Fabrikası olarak biliniyordu!
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türkiye’nin ABD ile ikili anlaşmalar yapmaya başladığı 1945’ten sonra Amerikan istihbarat örgütü CIA ajanları için Türkiye önemli bir görev yeri oldu. Bu tarihten sonra kurulan onlarca askeri üssün yanında büyük şehirlerin hemen tümünde çeşitli askeri ve sivil kurumlaşmalarla, CIA, ajan faaliyetlerini gizli ve açık şekilde yürütmeye başladı. İşte bu yıllarda, haritada işaretlenen noktalar arasında küçük bir yerleşim birimi olmasına rağmen jeostratejik öneme sahip İskenderun da yer alıyordu. 1952 yılında şehre gelen Amerikalılar, bugünkü Hal yolunda bulunan kompleksi yüksek duvarlarla ve tel örgülerle çevirdikten sonra kapılarını kapattılar. Çatısında antenler yükselen ve hiçbir tabelası olmayan bu gizemli sarı yapıya, soğuk savaş dönemlerine has bir de isim takıldı: “Çırçır Fabrikası!”
+   <br>
+    <br>
+     <br>
+      <br>
+       Gerçekte ise burası ABD Kara Kuvvetlerine bağlı olarak çalışan TUSLOG’du. Resmiyette İskenderun’daki birliğin görevi, ABD’ye ait askeri kargonun İskenderun limanı kanalıyla Türkiye’ye getirilmesi veya Türkiye’den geri gönderilmesi işlemlerini yapmaktı. Sonraki yıllarda “Çırçır Fabrikası” olmadığı anlaşılan üs, özellikle Körfez Savaşı sırasında aktif rol oynadı. Kent halkı, 1918 Fransız İşgali’nden bu yana en büyük askeri harekata tanık oluyor, Çırçır Fabrikası’ndan savaş makinaları çıkıyordu.
+       <br/>
+       <br/>
+       Savaş günlerinden sonra TUSLOG, yeniden kapılarını kapattı. Daha sonraki yıllarda Hatay’da birden bire PKK terörü patlak verdi. 1996 yılında birbiri ardına köyler, yaylalar basılıp masum insanlar katledilmeye başlandı. Yetkililer tarafından sayıları 15—20 kişi diye açıklanan teröristler bir türlü yakalanamıyordu. Terörün hayal bile edilmediği kentte, insanlar terörle yatıp terörle kalkar olmuştu.
+       <br/>
+       <br/>
+       CIA karargâhı
+       <br/>
+       <br/>
+       Böyle bir dönemde Refah Partisi Hatay Milletvekili ve Terör Araştırma Komisyonu üyesi Dr. Mehmet Sılay, CIA ve MOSSAD’ın son zamanlarda Hatay’da faaliyetlerini yoğunlaştırdığını söyledi. Milletvekili Sılay, “CIA, hassas bir bölge olan Hatay’da, Suriye güdümlü sol örgütlere bilgi ve silah aktarıyor” dedi. Sılay, herkesi tedirgin eden bu açıklamalarının ardından İskenderun’daki TUSLOG binasını hedef gösterdi. CIA ve İsrail ajanlarının bu binayı karargah olarak kullandıklarını söyledi. Hatay ve Ankara’da bomba gibi patlayan haber, tedirginliği daha da artırmıştı. Bölgenin sosyo—kültürel yapısıyla ilgili araştırmalarıyla bilinen, halkın yakından tanıdığı isim olan Mehmet Sılay’ın, bu açıklamaları Terör Komisyonu üyesi iken yapmış olması olayı farklı bir boyuta taşıyordu. Yetkililer, Sılay’ın açıklamalarına sessiz kalırken, Adana’daki İncirlik Üssü Halkla İlişkiler birimi iddiaları yalanladı. Kurulduğu günden bu yana ikinci kez misafir kabul eden TUSLOG’da gazetecilere bir kokteyl verildi. Kokteylde Amerikalı yetkililer, yıllardır iyi bir misafir—komşu olarak işlevlerini sürdürdüklerini söylediler. Artık buradan taşınacakları yönündeki iddiaları da kesin bir dille reddettiler.
+       <br/>
+       <br/>
+       Bölgedeki sağlam istihbarat ve güvenlik ağına rağmen Suriye’den geldiği söylenen bu teröristlerin neden yakalanamadığı sorgulanmaya başlanınca, bir grup terörist ölü ele geçirildi. Yüze yakın vatandaşın öldüğü terör, bir süre sonra tamamıyla bitti, unutuldu. Ama yıllardır Çırçır Fabrikası olarak bilinen TUSLOG’la ilgili iddialar unutulmamıştı. TUSLOG’un ne anlama geldiği, işlevi sorgulanmaya başlandı.
+       <br/>
+       <br/>
+       Aslında TUSLOG adı ilk olarak 16—17 Şubat 1971’de THKP—C’nin TUSLOG binalarına karşı gerçekleştirdiği silahlı eylemleriyle duyuldu. THKP—C’nin bu eylemlerinde Amerikan askeri malzeme deposu TUSLOG’un Zincirlikuyu merkezi ve Şişli şubesi bombalanarak tahrip edildi. 4 Mart 1971’de dört ABD’li er Balgat’taki TUSLOG Tesisleri’nden Deniz Gezmiş ve arkadaşları tarafından kaçırıldı. Körfez Savaşı’yla birlikte saldırılar yeniden başladı. Bu sefer TUSLOG Genel Müdürü Jonh Gand, İzmir NATO karargahında görevli Amerikalı Yarbay Alvin Macke, CIA ajanı olduğu öne sürülen İncirlik Üssü’nde görevli Bobie Eugene Mozelle hedef alındı. O dönemde İzmir TUSLOG binası da bombalandı. Yine Türk Emniyeti, Ekim 1991’de TUSLOG tesislerinde görevli Çavuş Victor Marvic’in, otomobiline bomba yerleştirilerek öldürülmesi olayını İran’da eğitim gördükleri söylenen Mumcu Suikasti zanlılarının gerçekleştirdiğini açıklamıştı.
+       <br/>
+       <br/>
+       Amerikalılar bunu hep yapıyor
+       <br/>
+       <br/>
+       Askeri anlaşmalarla Türkiye’de üslenmelerine izin verilen bu tür kuruluşlara duyulan tepkinin ardında, ABD’nin çeşitli illerde büroları, şubeleri, depoları olan bu kurumlar aracılığı ile dinleme, bilgi toplama, faaliyetlerini yürütmesi ve buralardan ajanları örgütlemesi yatıyordu. ABD’nin en önemli ve en büyük istihbarat tesisleri Sinop ve Diyarbakır’dadır. Sinop, Rusya’nın Karadeniz’deki hava ve deniz aktiviteleri ile füze tesisleri konusunda bilgi topluyor. Diyarbakır istasyonu bir radar ve istihbarat merkezidir. Bu merkez yakınındaki Pirinçlik hava üssünde bulunan uzun menzilli radar sistemi de yine Rusya ve Ortadoğu askeri ve füze tesis aktivitelerini izliyor. Ankara yakınındaki Belbaşı’nda bulunan sismograf istasyonunun görevi ise, bölgedeki nükleer test çalışmalarını izlemek. Bu merkezdeki istihbarat çalışmaları da Ulusal Güvenlik Ajansı (NSA) elemanlarınca yapılıyor.
+       <br/>
+       <br/>
+       Oysa tüm bunlar yetkililerin bilgisi dahilinde olan şeylerdi. Asıl problem, sivil ya da askeri bu tür kuruluşların rutin dışı işlere karışmalarıydı. 1960’lardan beri İncirlik Üssü’ne Türk subaylarının izinsiz girip giremeyeceği tartışılıp duruyor. Türkiye’de kontrgerillanın merkezi olduğu savunulan Özel Harp Dairesi kurulduktan sonra uzun yıllar Amerikan yardım heyeti (JUSSMAT) ile aynı binada faaliyet gösterdiği ortaya çıkmıştı. Merkezi Ankara’da bulunan TUSLOG da JUSSMAT benzeri faaliyetlerde bulunan kuruluşlar arasında gösteriliyor. 1962’de Amerika’nın gözde askeri uzmanlarından Paret ve John W. Shy, “Birleşik Amerika, hoşuna gitmeyen solcu veya solcu olmayan hükümetleri devirmek için gerilla taktiği kullanabilir ve kullanmalıdır. Bizim amacımız, hoşa gitmeyen ve bizimle dost olmayan hükümetlerin yerine dost hükümetleri geçirmek olmalıdır” demişti. Bu sözlerin anlamı 1970’li yılların Türkiye’sinde daha iyi anlaşılacaktı. Nitekim 1990 Kasım’ında tüm Batı Avrupa ülkelerinde Gladio’lar ortaya çıkarılırken, eski başbakan ve DSP lideri Bülent Ecevit, “özel güçlerin” özel marifetleri konusundaki özel kuşkularını yeni yeni dile getirebiliyordu.
+       <br/>
+       <br/>
+       Peki resmi bir yardımlaşma örgütü arkasında illegal ve halk düşmanı faaliyetler yürütülüyorsa neden bunlar ortaya çıkarılmıyor ya da engel olunmuyordu. İstihbaratçılar, böyle bir durum olsa Türkiye karşı istihbarat yaparak bunları ortaya çıkarır diyor. İskenderun TUSLOG,  Terör Komisyonu üyesi Mehmet Sılay’ın iddia ettiği sakıncalı faaliyetleri gerçekleştirmiş miydi gerçekten? TUSLOG, Sılay’ın açıklamalarından sonra yavaş yavaş toparlandı ve dört yıl sonra, 50 yıldan bu yana faaliyet gösterdiği bölgeden sessizce ayrıldı.
+       <br/>
+       <br/>
+       “Deşifre ettik...”
+       <br/>
+       <br/>
+       Dört yıl aradan sonra yeniden görüştüğümüz Dr. Mehmet Sılay, o zaman TUSLOG ile ilgili söylediklerinin arkasında duruyor. Refah Partisi davasından dolayı idamla yargılanan ve siyasi yasaklılar arasında yer alan Mehmet Sılay, TUSLOG’un neden kapatıldığı yönündeki sorumuzu “Deşifre oldular. Biz deşifre ettik” diye yanıtlıyor. Sılay, deşifre olmasalardı yaşanacak gelişmeleri konusunda şunları iddia ediyor: “Sünniler ile Aleviler birbirlerinden kız alıp vermeye başlamışlardı. Terör baskınlarında önce Sünni vatandaşlar öldürüldü. PKK, ne Sünni ne de Alevi köylerinden destek alabiliyordu. Fakat bir tezgahla bize Maraş’ı yaşatacaklardı.” O tarihte meydana gelen terör olaylarına bağlı sosyal gelişmeler Sılay’ın işaret ettiği noktayla örtüşüyordu. Sılay, iddialarını bir adım öteye taşıyarak  bölgedeki karışıklığın amacını Yahudiler’in “Arz—ı Mev’ud” projesine dayandırıyor.
+       <br/>
+       <br/>
+       TUSLOG’un İskenderun’da kurulma nedeniyle ilgili bir başka bilgi petrolle alakalı. 1949 yılında Sun Oil şirketinin sahibi Joseph Pew, Türkiye’nin Washington Büyükelçisi Feridun Cemal Erkin’e, harita üzerinde Kerkük’ten İskenderun’a doğru bir hat çizer. Joshep Pew, Kerkük petrollerinin İskenderun limanına boru ile taşınmasını önerir. Petrolün koruması için de ABD’nin Kıbrıs’ta üs kurması gerektiğini anlatır. Kıbrıs’ta üs kurulmaz fakat, Türkiye’nin NATO’ya girmesi ile birlikte, TUSLOG, İskenderun’a yerleşir. Kerkük—Yumurtalık petrol boru hattı da sonraki yıllarda inşa edilir. Bugün bu hattan İskenderun’a petrol akmıyor.
+       <br/>
+       <br/>
+       Çok amaçlı Amerikan kuruluşu, yarım asır sonra kapılarını kapatıp evine döndü. Hatay’daki Amerikan gözü kapandı. ABD’liler ayrılmadan önce İskenderun’daki TUSLOG’un “işlevini tamamladığı için” kapatıldığını söylediler. Eğer gerçek böyle değilse, sakıncalı bir kuruluş durumuna düşen TUSLOG, karşı istihbarat manevrasıyla —deşifre edilerek— gitmek zorunda bırakılmış olabilir miydi acaba?
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1981), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226152724/http://www.aksiyon.com.tr:80/detay.php?id=1981)

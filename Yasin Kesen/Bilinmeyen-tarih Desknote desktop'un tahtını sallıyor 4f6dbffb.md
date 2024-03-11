@@ -1,0 +1,43 @@
+# Desknote, desktop’un tahtını sallıyor
+
+*Yasin Kesen Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Eylül başından itibaren tatil sezonunun sona ermesi ve okulların açılmasıyla birlikte ekonomik dengeler yerine oturmaya başladı. Piyasadaki hareketlilikten nasibini alan sektörlerden birisi de bilgisayar ve donanım malzemeleri sektörü oldu. Özellikle yeni sezonun başlangıcı ve seçim beklentisiyle yatırımlarını erkene alan işletmeler veya bireyler, azalan bilgisayar maliyetlerinin de cazibesi ile yeniden harekete geçmiş oldu.
+   <br/>
+   <br/>
+   Sektör, son 2 aylık dönemde biraz nefes aldı. Seçim sonucundan istikrar beklentisinin çıkması ile birlikte işletmelerin yatırımlara huzur içerisinde ağırlık vermesi bekleniyor. Fakat, tüm bunlar olurken, şimdiye kadar mal stoklarıyla başı derde giren ithalatçı firmalar ihtiyatlı davranmaya devam ettiği için piyasada kıtlık yaşanıyor. Bir de, satılan bilgisayar ürünlerinin birçoğunun Çin, Tayvan, Hong Kong ve ABD gibi ülkelerden geliyor olması, tedarik süresini uzatıyor.  Gemi yoluyla getirilen bu ürünler, piyasanın moral bulduğu günlerde derhal piyasaya sunulamıyor.
+   <br>
+    <br>
+     Azalan maliyetler
+     <br>
+      <br>
+       Bilgisayar sektörünün dünya çapında bir daralma yaşaması nedeniyle kızışan rekabet sonucunda fiyatlar son 6 aylık dönemde tedrici olarak aşağıya çekildi. Bununla birlikte Laptop, Notebook gibi isimlerle anılan dizüstü bilgisayarlarının fiyatlarında ciddi düşüşler meydana geldi.  Servis güvencesi ve kolay taşınabilirlik gibi avantajları olan dizüstü bilgisayarların satışları son aylarda  tavan yapıyor. Desktop olarak anılan masaüstü bilgisayarların satışları da, tam aksine  dibe vuruyor.
+       <br>
+        <br>
+         “Günün ideal bilgisayarı” fiyatının yıllardır bin dolar civarında seyrediyor olması, bu fiyata inen dizüstü bilgisayarları cazip hale getirmiş oldu. Aslında bu etapta masaüstü bilgisayarların fiyatları da 600 dolar seviyelerine geriledi. Ancak, zaten bin dolarlık ücret seviyesi alışkanlık kazandırdığı için ve her zaman daha iyi bir teknoloji tercih edildiği için dizüstü bilgisayarlar bir adım öne geçiverdi. Bilgisayar piyasasında değişen alışkanlıklar sadece bununla kalmadı aslında. Masaüstü bilgisayar yerine dizüstü tercih edilmeye başlayacağını   fark edenler, maliyetleri daha da azaltılmış dizüstü bilgisayar tasarımlarına giriştiler. Desknote adıyla geliştirilen bu model bilgisayarlar, dizüstü bilgisayar boyutlarında olması yönüyle daha çok tercih ediliyor. Ayrıca, Ram hafıza, İşlemci (CPU) ve sabit disk (HDD) olarak, masaüstü bilgisayarlar için hazırlanan modellerin kullanılabiliyor olması, Desknote’ların daha düşük maliyetlerle yükseltilebilmesine imkan sağlıyor. Aldığı bilgisayarı bir müddet sonra küçük bütçelerle geliştirmek isteyenler tarafından ilgi gören Desknote’ların sağladığı bir diğer avantaj ise, işletim sistemi için bir ücret ödenmiyor olması. Açık kaynak kodlu yazılıma öncülük yapan Linux’un geliştirdiği işletim sisteminin son versiyonu (Gelecek Linux 2.0) ücretsiz olarak veriliyor. Gelecek Linux işletim sistemi ise, grafik ekran özelliklerinin yanı sıra ofis yazılımlarını da bünyesinde taşıyor (www.desknote.com.tr).
+         <br/>
+         <br/>
+         Taşınabilir—masaüstü bilgisayar olarak da tanınan Desknote’lar daha ilk yılını doldurmadan dünya çapında 250 bin adet gibi bir satış rakamına ulaştı. Bu durum Desknote’ların  gelecek yıllarda hem klasik masaüstü bilgisayarlar hem de notebook bilgisayarlar için ciddi bir rakip olacağını gösteriyor. Talebin cazipliğini gören  diğer bilgisayar üreticilerinin ise  benzer teknolojilerle donatılmış yeni markalarını kısa zaman içerisinde  piyasaya sunacağını tahmin etmek için  kahin olmaya gerek yok.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 73 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=2108), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050222043603/http://www.aksiyon.com.tr:80/yazdir.php?id=2108)

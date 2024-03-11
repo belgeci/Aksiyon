@@ -1,0 +1,76 @@
+# Kızıl Çin'de bir Ulu Cami
+
+*Fatih Uğur Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050124192038im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050124192038im_/http://www.aksiyon.com.tr/resim/519/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  ŞİAN - On üç asır önce Çin’in eski başkenti Şian’da inşa edilmiş bir cami hâlâ ayakta ve ibadete açık. Arap ve Fars tüccarların İpek Yolu’nda yaptığı ticaretle yayılan İslamiyetin Çin’deki ilk ibadethanesi olan Şian Ulu Camii, Çin mimarisiyle İslam sanatının muhteşem bir sentezi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Çin’den yola çıkan kervanlar batıya binlerce yıl ipek ve baharat taşıdı. Çin’den Orta Asya’ya, oradan Anadolu topraklarına ve batıya uzanan ticaret koridoruna İpek Yolu adı verildi. Müslümanı, Hıristiyanı, Yahudisi; Afganı, Hintlisi, Arabı, Acemi bu yollarda ticaret yaptı. İş sadece ticaretle sınırlı kalmadı, kültürlerarası alışveriş ve diyalog ortamları da oluştu. Hâlâ o köklü kültürlerin izini taşıyan yolun güzergâhında belki de binlerce hikâye, anıt, cami, külliye, han, tapınak, kervansaray yaşatılıyor. Bazılarının hikâyeleri ise unutulup gitmiş. Tıpkı hikâyesi çok az insan tarafından bilinen Çin’deki 13 asırlık  Şian Ulu Camii’nde olduğu gibi. Çin mimarisi ve estetiğinin İslam sanat ve ahlâkı ile bezendiği cami Çin’deki en eski tarihi yerlerden biri.
+   <br>
+    <br>
+     Kime sorsanız Çin dendiğinde akıllara 1,5 milyara dayanmış nüfusu ile kalabalıklığı ve Hunların saldırılarını önlemek için inşa edilen binlerce kilometrelik Çin Seddi gelir hep. Unutulmaması gereken ancak pek de bilinmeyen bir başka gerçek ise Hz. Muhammed’in (s.a.v) Hicret’ini takip eden 60 yıl sonunda Çin’de binlerce kişinin Müslüman olduğudur. Bugün sayıları 20 milyonla ifade edilen Müslüman toplulukların Çin topraklarında tohumlarının ilk atıldığı yer ise tarihi İpek Yolu’nun doğudaki başkenti Şian’dır.
+     <br>
+      <br>
+       Kayıtlara göre Çin, Arap ve Fars tüccarların İpek Yolu vasıtasıyla gelip ticaret yapmaları sayesinde 7. yüzyılda İslamiyet ile tanıştı. İslamiyetin yayılışıyla ilgili ilk rivâyetlerin arasında Sahabeler ve Tabii’nin bölgedeki etkinlikleri ve irşad faaliyetleri de güçlü delillerle olmamakla birlikte anılıyor. O günlerde ibadet için inşa edilen camilerden birçoğu bugün ayakta değil. Ancak Çin’in kuruluş başkenti olarak bilinen Şian’da (Xian) bundan bin 250 yıl önce inşa edilen ‘Qing Zhen Si’, yani Büyük Doğu Mescidi ya da diğer adıyla Şian Ulu Camii hâlâ sapasağlam ve ibadete açık.
+       <br/>
+       <br/>
+       Çin mimarisi ve İslam sanatıyla süslenmiş bir külliye
+       <br/>
+       <br/>
+       Geleneksel Çin mimarisiyle İslam sanatının buluştuğu muhteşem eser bölge Müslümanlarınca gözbebekleri gibi korunuyor. Şehirdeki Müslümanların sayısı çevre beldelerle birlikte 200 binlerle ifade ediliyor. Hem ibadete, hem turistik ziyaretlere açık tutulan caminin etrafında ise tarihi görkeme tezat gri renkli, eski, beton binalar yükseliyor. Civarda oturanların çoğu, fakir Müslümanlar. Bir kısmı ise camiden şehir merkezine uzanan eski çarşıda ticaretle geçimini sağlayan esnaflar.
+       <br/>
+       <br/>
+       Çin’in sırlı dünyasında yolculuğumuza başladığımızda kulağımıza çalınan sözlerin başında yiyecek ekmek bile bulunamayacağı, mutfak kültürünün Türk mutfağına uymadığıydı. Dünyanın en iyileri arasında yer alan Çin mutfağının Müslüman damak tadına pek de hitap etmemesi yüzünden Uzakdoğu’nun bu büyük ülkesine yola çıkan herkesin kulağında vardır yemek mevzuu. Çok da haksız sayılmayan bu yorum, İstanbul’dan Çin’e uzanan tarihi ticaret koridorunun menbaında yerini huzura bırakır. Çünkü şehir meydanını süsleyen Davul Kulesi’nin yanı başındaki han kapısından girince karşınıza çıkan semt pazarı ve dükkanlar sizi dosdoğru Müslüman mahallesine götürür. Tarihi cami bütün hayal kırıklıklarını silip atar. Adeta iklim değiştirir, tarihe kısa bir yolculuk gerçekleştirirsiniz. Yolculuğunuzu uzatmak sizin elinizdedir artık. Vakit namazlarının düzenli olarak kılındığı, avlusunda sohbetlerin yapıldığı, aşevinde kazanların kaynadığı kıpır kıpır bir külliyedesinizdir artık. Hele bir de ramazan ve bayram coşkusuna şahit olduğunuzda ömür boyu kalmak istersiniz bu beldelerde. Hicretten 60 yıl sonra sahabelerin ayaklarının dünyanın ta öteki ucundan birine ulaştığını bilmenin huzuru, ahşap ve mermer tarihi eserlerden oluşan yeşilliklerle süslü caminin avlusunda daha da pekişir.
+       <br/>
+       <br/>
+       Şian şehri ilk Çin Hanedanı Quin Shi Huang’ın da gömülü olduğu pişmiş çamur ve bronzdan yaptırılmış binlerce toprak asker heykelinin (Terra Cotta) sergilendiği mezarlarıyla tanınıyor dünyada. Geleneksel olarak imparatorların adeti üzre şehir meydanındaki Davul Kulesi’ndeki koca davullar güneşin doğuş ve batış saatlerinde hâlâ çalınıyor. Şehrin en uzak noktasından duyulacak kadar güçlü çıkıyor davulların sesi. Ezan sesi ise sadece Şian Ulu Camii’nin bahçesinde yankılanıyor.
+       <br/>
+       <br/>
+       Bir ulu cennet bahçesi
+       <br/>
+       <br/>
+       Dar sokaklarla çevrili Müslüman mahallesinin bulunduğu bölge Hua Jue Lane olarak adlandırılıyor. Müslüman lokantalarının yer aldığı, meyve kurularının, kuruyemişin, Çin kokorecinden gözlemeye kadar birçok şeyin satıldığı bu geniş esnaf pazarının kuzeybatısındaki uzun ince bir sokak sizi doğru tarihin bağrına taşır. İpekler, el işlemesi tahta, seramik, bronz eşyalar, binbir çeşit kuruyemiş, kıyafetler, tütsü kokulu sokaklar... Küçük dükkanlarla sıralı bu çarşı tam bitti sandığınızda size yeni ve muhteşem bir kapı aralanıyor. Caminin kapısından girdiğinizde karşınıza ilk çıkan şey yüksekliği 8 metreyi bulan ahşap bir kemer oluyor. Çin ahşap işçiliğinin sergilendiği bu kemerlerden cami avlusunda daha küçük üç tane daha bulunuyor. Beş parçaya bölünmüş külliyenin tam ortasında yine ahşaptan yapılmış üç katlı bir minare bulunuyor. Abdesthane, gasilhane, mutfak ve misafir ağırlama mekanları güneyde; kuzeyde ise müze, medrese ve kütüphane ile imamın ders yaptığı bir  mekan hala işlek ve kalabalık.
+       <br/>
+       <br/>
+       Cami avlusu ve mescidin bulunduğu bölgede tamamen aritmetik bilgi ve beceriler konuşturulmuş. Mescidin beş kapısında dışarıya baktığınızda yemyeşil çatılarıyla dinlenme mekanları ve yeşillikler ilişiyor gözünüze. Namaza durduğunuzda ise duvarlara Arapça ve Çince olarak işlenmiş 6 bin 666 ayet duruyor. Binlerce yıl önce 30 parça üstüne işlenmiş ayetler. Sarı ahşap tahtalar üstüne yazılı Kur’an-ı Kerim’in Arapça lafızları mescidin içini çevreleyen ahşapların üst katlarında, Çinceleri ise alt kaltlarında bulunuyor. Bahçedeki oturma yerleri ile ahşap ve kerpiç mimari eserlerin tamamı her iki dilde besmele ve Lailahe İllallah, Muhammed Resulullah lafızlarıyla, kısa sure ve ayetlerle süslenmiş.
+       <br/>
+       <br/>
+       İlahileri bir de Çince dinleyin
+       <br/>
+       <br/>
+       Ramazan boyunca ihtiyaç sahiplerine iftar ve sahur yemeği verilmiş külliyede. Hergün üç kazan, onlarca çeşit yemek pişirilip ikram edilmiş. Caminin dışındaki sıkışıklık, gürültü ve kalabalığın aksine; 13 bin metrekarelik bu alanda kardeşlik ve İslami geleneklerin yaşatıldığı son damlasına kadar hissediliyor. Cami cemaatinin ortalaması her vakitte yüzden aşağı düşmüyor. Cuma ve bayram namazlarında sayı binlerle katlanıyor. İbadet dili Arapça, sadece dua ve ilahiler Çince okunuyor. Günlerce ne dendiğini anlamadığınız bir topluluğun içinde cümlelerin yabancılığını, ilahilerin ritimleriyle gideriyorsunuz. Belli ki salavat getiriliyor yüksek bir iştiyakla. Önce mescidde sonra kulaklarınızda yankılanıyor Çince salavatlar...
+       <br/>
+       <br/>
+       Müslüman olduğumuzu öğrenince çarşıdaki dükkanını bırakıp kolumuzdan çekiştire çekiştire bizi camiye getiren Lui amcanın (Mesud) tanımıyla bu cami tam bir cennet bahçesi. Zaten  kerpiçten sütunların üstüne de böyle yazılmış. Ahşap, kerpiç ve mermerlerde çiçek motifleriyle bezeli cennet manzaraları resmedilmiş. Mescidin girişindeki revakların iki yakasındaki duvarlarda incilerle oynayan ejderha motifleri de var. Külliyenin ortasındaki üçüncü bölüme Ay Tableti adı verilmiş, Hicri ay ve günlerin hesaplandığı eski bir takvim ve hesap yöntemini gösteren aritmetik bir tablo var. Bunun yanı başında da üç katlı minare. Şian şehrinin diğer bölgelerinde pek de göremediğiniz güvercin ve kuşlar külliyenin etrafında tur atıyor. Bölgenin ağaçlık olması ve hayvanlara ikram edilen yemek artıkları onları da buraya çekiyor.
+       <br/>
+       <br/>
+       İslami kültürün külliye ve çevresinde doyasıya yaşandığını anlatan İmam Muhammed You Nousi (Yunusi) Ma LiangJi, Şian’da yaşayan Müslümanların sayısının 200 binleri geçtiğini aktarıyor. Çin topraklarına İslamiyetin girişi 651 yılında Üçüncü Halife Osman ibn Affan’ın, Tang İmparatoru Gao Zong’a elçi göndermesi ile başlamış. Rivayetlere göre hicretten  60 yıl sonra sahabeler Çin’e ayak basmış. Buradaki Müslümanlar kayıtlarda bin 250 yıllık gözüken caminin de o dönemlerde inşa edildiğine inanıyor. Onlar için Qing Zen Shi, İslamiyet’in ilk ışıklarının parladığı mekanlardan biri olmuş. Gezici Müslüman kavimler buraya yerleşip, Çinli kardeşlerine tebliğ vazifelerini yerine getirmiş. İslamiyetin gelişmesi Ming ve Qing (Manchu) Hanedanı zamanında gerilemeye başlamış.
+       <br/>
+       <br/>
+       Müslümanlar Hui, Kazak, Khalkas, Uygur, Dangxiong, Salar, Tacik, Özbek, Baoan ve Tatar milletlerinden oluşuyor. Çin’de İslam dini geçmişte, Hui dini, Huihui dini ve Qingzhen dini olarak adlandırılmış. 1950’li yılların başlarında bu söylem İslam dini olarak değiştirilmiş. 1980’li yıllardan sonra ise camiler kapılarını turistlere, diğer Müslümanlara açmaya başlamış. Türkiye’den camiyi ziyaret eden en önemli kişi 9. Cumhurbaşkanı Süleyman Demirel.
+       <br/>
+       <br/>
+       Tıpkı ona yaptığı gibi bizim de elimize caminin ayrıntılı planlarını anlatan ozalit haritayı tutuşturuyor Yuu Nuusi. Ramazanın son günlerinde görüştüğümüz cami cemaatini de gösterip Ramazan Bayramı’nı anlatmaya başlıyor. Sonra da ekliyor: “Asıl bayram ramazandan sonra. Çünkü aramızdan hacca gidenlerin belirlenip, eğitilmelerine başlanacak. Sonra ver elini Kabe-i Muazzama.” Yani ramazanı ve bayramı coşkuyla kutlayan Şianlı Müslümanlar, yeni bayramlar ve vuslatlar peşinde. Ayağınız Çin’e basarsa siz de onların heyecanına ve vuslatlarına mutlaka ortak olun.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18113&yorum=2292), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050124192038/http://www.aksiyon.com.tr:80/detay.php?id=18113&yorum=2292)

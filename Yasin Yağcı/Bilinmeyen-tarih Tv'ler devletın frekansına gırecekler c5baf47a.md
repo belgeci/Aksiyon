@@ -1,0 +1,106 @@
+# Tv’ler devletın frekansına gırecekler
+
+*Yasin Yağcı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227162135im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227162135im_/http://www.aksiyon.com.tr/resim/332/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dikkatleri başka yöne çekip esas darbeyi vurmak basit bir taktiktir. Hepimiz öyle veya böyle bu taktiğe başvurmuşuzdur.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kimi zaman bir boksörün ağır bir kroşeyi vuruşundaki kadar incitici, kimi zaman ise peşimizde ağlayan bir bebeği yanıltışımızdaki kadar masum... Nasıl olursa ve nereden gelirse gelsin kesinlikle aldatıcı...
+   <br>
+    <br>
+     Galatasaray’ın çarşamba gecesi başarısına odaklanmışken herkes, petrole bilmem yüzde kaç zam yaptı hükümet. Ülkede kriz var ya herkes krize odaklanmış. Fırsat bu fırsat devlet kimi televizyon kanallarının kapısına da kilit vurmak üzere; hissettirmeden ve kimsenin ruhu duymadan...
+     <br>
+      <br>
+       26 Nisan’da yapılacak ulusal kanalların frekans tahsis ihalesine ulusal bazda yayın yapan on altı kanal katılacak. Ve 27 Nisan’dan itibaren ulusal kanalların sayısı on bire düşecek. Çünkü bu ihalede sadece on bir kanala yayın izni verilecek, altı kanal ise kapatılacak. Beş yıllığına yayın hakkı verecek bu ihaleye halen yayın yapan Star, Show, Flash, Meltem, NTV, Cine 5, CNN Türk, Kanal D, BRT, HBB, TGRT, Kanal 6, STV, ATV, Kral–Teleon ve Kanal 7’nin katılması bekleniyor. İhaleyi kazanacak kanallar beş yıllığına izin almış olacaklar. Beş yıl sonra başka bir ihale yapılacak.
+       <br/>
+       <br/>
+       Frekans ne ki?
+       <br/>
+       <br/>
+       Frekans, ses ve görüntülerin titreşimler aracılığıyla vericilerden alıcılara iletilmesini sağlayan dalgaların salınım sıklığı şeklinde tarif ediliyor. Bir ülkede kullanılacak frekans genişliğini belirleyen kuruluş Birleşmiş Milletler’e bağlı Uluslararası İletişim Birliği. Bu birliğin ükelerde kullanılacak frekans genişliğini belirlemede tek yetkili oluğunu belirten Marmara Üniversitesi İletişim Fakültesi öğretim üyesi Doç. Dr. Ahmet Şahinkaya bu konuda şu bilgileri veriyor: “Frekansları ayarlayan bu birlik. A ülkesi için diyor ki sen bu kadar büyüklükte bir frekans aralığına sahipsin. Bunu al kendi ülkendeki yayıncılar arasında pay et. Kaça bölersen böl. Bunu bölme işini ise ülkelerde Radyo Televizyon Üst Kurulları yapar. Bizde de RTÜK yapıyor. Üst kurul uluslararası iletişim birliğinin verdiği frekansı kendi ülkesindeki yayıncılara eşit pay eder. İşte Türkiye’ye verilen frekans aralığını pay ettiğiniz zaman bu ancak on bir kanala yetiyor. On ikincisini kaldırmaz. Frekansın büyüklüğü büyük oranda coğrafi yapıya bağlı. Bizim üç tarafımız denizlerle çevrili ve tepelerin de hakim olduğu, yani yüksekliklerin de varolduğu bir bölge. Biraz kısıtlı tabii. Ama engebeliklerin olmadığı düz bir alanda bu frekans sayısı artar.”
+       <br/>
+       <br/>
+       Evet frekans ihalesi yapmak, ondan öte frekansların tahsisi yapmak teknik bir mesele. Ama on yılı aşkın bir süredir özel televizyonculukla tanışmış bir ülkede bu kadar geçikmeli bir tahsisi yapmak sadece teknik bir mesele sayılacak kadar basit görünmüyor. Tüm dünyada bu türden teknik sorunlar yaşanıyor ama bizdeki kadar dallanıp budaklanmadan.
+       <br/>
+       <br/>
+       Büyük kayıplar oldu
+       <br/>
+       <br/>
+       Aslında Radyo ve Televizyon Üst Kurulu kurulduktan hemen sonra 1997 yılında söz konusu ihaleyi yaptı ve o dönem yayın yapan televizyon kanallarının hepsi bu ihaleyi kazandılar. Ama Ankara’da çok etkili bazı çevreler hiç bir hukuksal dayanağı olmadan bu ihaleyi iptal ettiler.
+       <br/>
+       <br/>
+       Frekans ihalesinin ertelenmesinin bir çok nedeni vardı. Ön plana çıkan ise 28 Şubat sürecinin birinci öncelikli tehdit olarak algıladığı irtica konusuydu. Belki iptalin görünür nedeni bu değildi. Ama perde gerisinde yatan nedenin bu olduğu konusunda herkes hemfikirdi. Daha önce yapılan ihalede yayın hakkı kazanan bazı kanalların bu izinlerinin iptal edilmesi gerekiyordu. Gereken de yapıldı.
+       <br/>
+       <br/>
+       İhalenin iptal edilmesine en çok karşı çıkan dönemin RTÜK Başkanı Prof. Orhan Oğuz’du. Başbakanlık bir genelge yayınlayarak ihaleyi iptal edince Prof. Oğuz bunun sakıncalarını anlatmak için defaatle başbakanlığa gitti. Olmadı Milli Güvenlik Kuruluna katıldı, anlattı ama kimse dinlemedi. Sonunda Oğuz çareyi istifada buldu. İstifa ettiği günden bu yana istifasıyla ilgili bilgi vermekten kaçınan Oğuz yıllar sonra bu istifasına ilişkin şunları anlatıyor: “Bana göre olağan bir iş yapılmadı. Yapılanlar yasal değildi. Benden ısrarla ihaleyi ertelemem istendi. Ben de bunları hiç bıkmadan usanmadan anlattım herkese. Ama dinletemedim. Durum böyle olunca istifa etmek zorunda kaldım. Şimdi arkadaşlar benim dört sene önce savunduğumu savunuyorlar ve ihaleye çıkıyorlar. Bunun Türkiye’ye yaşattığı kayıplar hiç kuşku yok çok büyük.”
+       <br/>
+       <br/>
+       Aslında ihalenin iptal edildiği dönemki şartları gözönünde bulundurursak iptalin gerekçesi ve mantığı da kendiliğinden ortaya çıkıyor. İptalin gerçekleştiği dönem Türkiye’de 28 Şubat sürecinin zirvede olduğu bir dönemdi. Ülkenin her tarafına çeki düzen verirken televizyon kanallarının gözardı edilmesi düşünülemezdi. Düşünülmedi de. Prof. Oğuz’un dediği gibi bunun Türkiye’ye faturası çok yüksek oldu. Çünkü yaklaşık yedi yıldır on altı ulusal televizyon kanalı hiç bir ücret ödemeden tabiri caizse beleşe frekansları kullanıyorlar. Oysa bırakın yedi seneyi dört sene önce yapılmış olan ihale iptal edilmemiş olsaydı Türkiye yaklaşık olarak yüz elli trilyon lira lira gibi bir para kazanacaktı. Ama ülkeye hakim mantık kendi bildiklerini yürürlüğe koyma adına bundan vazgeçti. Prof. Oğuz ısrarla bu konunun altını çiziyor: “Frekans ihalesinin dört–beş senelik geçikmesinin devlete maliyeti çok yüksek. Düşünün biz 1997 yılında ihaleye başlamıştık. Yerel televizyonlardan başlamıştık sıra ulusal televizyonlara geliyordu. Bir televizyon yaklaşık olarak en az bir buçuk trilyon lira verecekti. Bugün bu paraya ne kadar ihtiyacımız olduğu ortada. Yıllardır bedava kullanıyorlar.” RTÜK’ün şimdiki başkanı Nuri Kayış da, Oğuz ile aynı fikirde. İhalenin gecikmesinin Türk medya yapısında tekelleşmeyi doğurduğunu belirten Kayış sözlerine şöyle devam ediyor: “Bugüne kadar ihalelerin yapılmayışı nedeniyle kamuya ait bir değer olan kanal ve frekanslar, yayın kuruluşlarınca bedelsiz şekilde kullanılmış, devlet yüzlerce trilyon lirayla ifade edilebilecek bir gelir kaybına uğramıştır. Biz bu gidişe son vermek istiyoruz.”
+       <br/>
+       <br/>
+       Büyük kanallar bizzat istedi
+       <br/>
+       <br/>
+       Aslında ihalenin iptal edilmesinde Ankara kadar o dönemde Ankara ile içli dışlı olan bazı yayın kuruluşlarının önemli etkileri vardı. Yayıncılar cephesinde iptal sonrasında yeni ihale yapılana kadar geçecek sürede yapacakları bedava yayın kâr olarak görülmekteydi. Fakat o dönemin uygun zeminini kullanan bazı medya grupları daha ihale başlamadan fazla para vermemek ve ihaleyi ucuza kapatmak için rakiplerini eleme girişimlerine başladılar.
+       <br/>
+       <br/>
+       Hükümet ve bazı güç odakları üzerinde olağanüstü etki oluşturan bu gruplar ihale öncesi başlattıkları psikolojik savaşı tüm güçleriyle sürdürdüler. Bu psikolojik savaşın yegâne unsuru da irticaydı. Onların istedikleri aslında bazı kanalların bu vesileyle kapatılması ve doğal olarak ihalede fiyatların artmamasıydı.
+       <br/>
+       <br/>
+       Prof. Dr. Orhan Oğuz isim vermiyor ama o dönem ihalenin iptal edilmesi için bir kaç yayıncı kuruluşun ertelemede rol oynadığının altını çiziyor: “Bir kaç tane büyük kanal para vermemek için, beleş yayın yapmak için sanırım çok bastırıyorlardı. Bizim kulağımıza kadar geliyordu bu tür söylentiler. Bunun çok da uçuk olmadığını düşünüyorum. Onların derdi daha az para vermek ve ne kadar bedava kullanırsak kârdır mantığıydı. Ertelemede bu kanalların etkisinin oldğunu görmemek olur mu?”
+       <br/>
+       <br/>
+       O dönem ihaleyi iptal ettiren isimler bugün yine Ankara’yı mesken tutmuş durumdalar. Dün irtica kavramının arkasına saklanıp iptali gerçekleştirenler bugün ekononomik krizi bahane ederek emellerine ulaşmak istiyorlar. RTÜK Başkanı Nuri Kayış bazı yayın kuruluşu sahiplerinin bizzat kendisini ziyaret ederek iptali gerçekleştirmek istediklerini anlatıyor: “Yıllardır kamuya ait kanalları hiç bir bedel ödemeden kullanan yayın kuruluşları, ulusal televizyonlar için ihalenin nisan ayında yapılacağını açıklamamız karşısında çok ciddi bir rahatsızlık duydular. Ve ihalenin yapılmaması, geçici statüyle yayının sürdürülmesi için çeşitli girişimlerde bulunmaya başladılar. Sözkonusu kuruluşların temsilcileri bizi de sık sık ziyaret ederek ihaleyi yapmamamız için telkinlerde bulunmaktalar.”
+       <br/>
+       <br/>
+       Fazilet Partisi Miletvekili Nazlı Ilıcak’a göre ise ihalenin yapılmamasında en büyük rol 28 şubat sürecinindi: “Temel gerekçe ulusal güvenlik sorunuydu. Kanalların ulusal güvenlik belgesi almaları gerekiyordu. İrtica diye hayali bir senaryo ortaya atan 28 Şubatçılar bu güvenlik belgesinin alınışına değin geçen sürede tüm kanalları baskı altında tuttular. Hepsi de bu belgeyi aldı ama alabilmek için bir sürü taviz verdiler. Amaç onları kontrol altında tutmaktı, ulusal güvenlik belgesi filan hikayeydi.”
+       <br/>
+       <br/>
+       Parayı nereden bulacaklar
+       <br/>
+       <br/>
+       İhaleye katılacak on altı kanal da ulusal güvenlik belgesini başkanlığa sundular. Zaten ihaleye katılabilmenin ilk şartı bu belgeydi. Bu belge ile kanalların verdikleri taahhüt şu aslında: Biz resmi görüşün direktifleri doğrultusunda yayın yapacağız, ona aykırı bir yayında bulunmayacağız.
+       <br/>
+       <br/>
+       İhale ile ilgili bir diğer şart ise kuruluşların, ihale tarihi itibariyle hisse yapısının ilgili kanun ve yönetmeliklerde belirtilen hükümlere uygun olması. İhale günü veya daha sonra kanun ve yönetmeliklere aykırı bir durum tespit edildiği takdirde kuruluş, ihaleye katılmış ve lisans almış olsa bile ihale dışı kalmış sayılacak ve lisansı iptal edilecek. Halen yürürlükteki Radyo ve Televizyon Üst Kurulu’nun kanunlarına göre bir şahıs birden fazla kanalın sahibi olmayacağı gibi bir kanalın yüzde yirmisinden fazlasına da sahip olamaz. Kanal D, CNN Türk, Star ve Kral Tv aynı şahıslara ait, dolayısıyla bu kanalların sahiplikleri değişmeden ihaleye katılmaları mümkün görünmüyor. Ortalıkta dolaşan iddialara göre ihale öncesi sahipliklerde kağıt üzerinde yapılacak değişiklikler ile bu engel ortadan kaldırılacak.
+       <br/>
+       <br/>
+       Nazlı Ilıcak da bu tezi savunuyor. Ilacak’a göre aslında ihalede safdışı kalacak kanallar üç aşağı beş yukarı belli: “Ama bunların aksine diğer bazı kanallar elenecek. Şimdi TGRT’nin sahibi İhlas grubu zor durumda, Kanal 6’nın ve ATV’nin sahibi hapiste, HBB zor durumda. Cine5'in sahibinin devlete borcu var. Normal şartlar altında bunlar kaybedecek gibi görünüyor ama işin rengi hiç de öyle değil. Çünkü bu kanalların bir çoğu ihaleden önce diğer bazı patronlar tarafından satın alınacak söylentileri dolaşıyor ortalıklarda. Böylece parasal sorun çözülecek ve öteden beri hakim iradenin kapatmak istediği kanallar kapatılacak.”
+       <br/>
+       <br/>
+       Aslında ilk etapta ihale kazanan kanallara yasal bir izin verecekmiş gibi görünüyor oysa işin rengi hiç de öyle değil. Çünkü izinden ziyade daha çok baskı altına alınacaklar. Uusal güvenlik belgesi veren kuruluşlar bu belgeye aykırı yayın yaptıkları zaman daha önceki gibi ekran karartmayla değil de frekans iptali ile cezalandırılacaklar. Yani apaçık bir şekilde kanallar adı konulmamış ama sınırları çizilmiş yayın anlayışının dışına çıktıkları zaman ömür boyu kapatılma ile yüz yüze gelecekler. Böylesi bir korku ile bir yayıncının ne kadar bağımsız yayın yapacağı ise müphem. Bu baskıyı RTÜK Başkanı Nuri Kayış’ın şu sözleri çok net ortaya koyuyor: “Böylece yıkıcı, bölücü ve irticai yayınların sesini tümüyle kesmemiz mümkün olacak. Diyelim ki, bazı irticai ve bölücü unsurlar, paravan kişiler kullanarak güvenlik belgelerini aldılar ve açtığımız ihaleye girerek kazandılar. Bu kişiler bugüne göre yayıncılık açısından herhangi bir avantaj sağlamış olmayacaklardır. Çünkü onlarla imzalayacağımız sözleşmeler gereğince sakıncalı bir durumları ortaya çıkar çıkmaz yayın lisansları derhal iptal edilecektir.’’
+       <br/>
+       <br/>
+       Vebali kimin?
+       <br/>
+       <br/>
+       Frekanslar aslında bir ülkenin doğal kaynakları niteliğinde. Ama bu doğal kaynak bugüne değin hiç bir bedel ödenmeden kullanıldı. Peki bunun vebali kimin boynuna? Orhan Oğuz bu soruya hem çok açık hem de çok kapalı bir cevap veriyor: “Vebali çok büyük. Hem de telafi edilemeyecek kadar büyük. Kuşkusuz bu vebal ihaleyi erteleyenlerin boynunadır. Kim ertelediyse vebal de onlarındır. Müsebbibi kim, benim söylememe gerek yok, bilen biliyor ama ülkeye maliyeti çok yüksek. Bari şimdi bir problem çıkmasa da ihale yapılsa. Zararın neresinden dönülürse kârdır.”
+       <br/>
+       <br/>
+       Yıllarca gerek gazeteciliği döneminde gerekse milletvekiliği döneminde bu işin takipçiliğini yapan Nazlı Ilıcak ise faturanın kime çıkarılacağına dair net konuşuyor: “Fatura tabii ki büyük. Büyük bir gelir elde edilecekti. Ama bu önlendi. Bunun tek sebebi de o dönemdeki hükümettir. Ama ödenecek o kadar çok fatura var ki hangisini ödeyeceklerini şaşırmış durumdalar.”
+       <br/>
+       <br/>
+       e-mail: yasin2003@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13160), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227162135/http://www.aksiyon.com.tr:80/detay.php?id=13160)

@@ -1,0 +1,62 @@
+# Konuşmaları yasaktı, onlar da oynadılar
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Yaklaşık iki yıldır meydanlarda, sokaklarda hatta binaların çatısında ‘oyun’ oynuyorlar. Gösterilerinde Türkiye’yi anlatıyorlar ve biraz da eleştirdikleri konuları, kahramanlarını ‘ti’ye alıyorlar. Aralarında hamaldan kasaba, öğretmenden muhasebeciye kadar değişik kesimlerden insanlar var. Her oyunları haber oluyor, hatta CNN’den Euronews’e kadar uluslararası medyada yer buluyorlar
+   <br>
+    <br/>
+    <br/>
+    Tiyatro dünyanın en eski ve en yaygın sanatlarından birisi. Yaygın kanı tiyatronun özel salonlarda, meraklılarına hitaben ve çoğunlukla ‘sanat sanat içindir ’ düşüncesiyle sahnelendiği yönünde. Ancak Türkiye’de bir grup, son iki yıldır bu sanat dalını çok farklı amaçlar için kullanıyor. Üstelik bu tiyatro grubu oyunlarını tiyatro salonlarında değil sokakta, köprüde, otobüste hatta evlerin çatısında oynuyor.
+    <br>
+     <br>
+      Bir grup memurun ‘ne yapsak da sesimizi duyursak’ diye kafa yorarken bulduğu bir fikir ProtesTiyatro. Tanımı da net değil aslında. Hamaldan mali müşavire kadar değişik meslek gruplarından insanların bir araya gelip oluşturdukları bir platform.
+      <br>
+       <br>
+        Muhalif tiyatrocular
+        <br>
+         <br/>
+         ProtesTiyatro yaklaşık iki yıl önce Memur—Sen Konfederasyonu çatısı altında olan Bem—Bir—Sen’e bağlı memurlar tarafından fikir olarak üretildi ve uygulamaya kondu. Öncülüğünü ise uzun yıllar gazetecilik yapmış olan Cemal Bilge yapıyor. Gazeteciliğin verdiği tecrübeyle yola çıkan Bilge “Basın açıklamaları, gösteriler sesimizi duyurmaya yetmiyor. Bu ülkede vurmadan, kırmadan, terör estirmeden de tepki göstermenin bir yolu olmalı” deyip kolları sıvar. “Ne yapmalı, nasıl yapmalı?” diye düşünürken Memur—Sen’e bağlı memurlarla yaptıkları bir toplantıda konuşmak yerine oynamaya karar verirler: “Ben Bosna savaşını baştan sona cephede izledim. Meşhur tramvay taranması hadisesinde oradaydım. 6 yaşında Emir isimli bir çocuk vardı. Orada gazeteci olduğumu unutup o çocuğu kucağımda hastaneye götürdüm, ona kan verdim. O zaman dünyada zalime karşı durmanın mesleği ya da siyasi düşüncesi olmayacağına karar verip ilk fırsatta sivil bir toplum hareketine dahil olmaya karar vermiştim. Türkiye’ye döndükten sonra benimle aynı fikri paylaşan arkadaşlarla bir araya gelip ProtesTiyatro’yu kurmaya karar verdik. Çünkü bu basın açıklamaları ya da basın bültenleri sizi anlatmaya yetmiyordu. Üstelik medyada da yer alamıyordunuz.”
+         <br/>
+         <br/>
+         Aslında Cemal Bilge’nin gazetecilikten gelmesi ve ‘neyin iyi haber olacağını’ bilmesi ProtesTiyatro’nun eylemlerine ışık tutmuş. Çünkü tamamı amatör olan ve oyundan yaklaşık yarım saat önce bir araya gelip ana hatları ile belli olan ancak oyun anında doğaçlama oynanan oyunlar medyanın istediği gibi renkli ve görsel açıdan zengin. Memur için cenaze namazı kılmak, Noel Baba’nın hediye olarak kazık getirmesi, türbanın çarmıha gerilmesi gibi hem mesaj olarak hem görsel olarak ilginç konular seçilmiş şu ana kadar.
+         <br/>
+         <br/>
+         ProtesTiyatro içerisinde yer alan yaklaşık 40 kişinin hiçbiri profesyonel tiyatrocu değil. Aralarında üniversite mezunu müşavirden hamala kadar değişik meslek gruplarından insanlar var. Neden profesyonel tiyatrocularla çalışmadıkları ya da profesyonel tiyatrocuların bu memur tiyatrosuna bakışları konusunda ise şunları söylüyor Cemal Bilge: “Doğru, hiç birimiz profesyonel tiyatrocu değiliz ama takdir edersiniz ki yoksulluğu, sıkıntıyı en iyi yaşayan bilir ve bizim oyunlarımızın başarılı olmasının nedeni de o. Hiç bir oyun için yazılı metin kullanmadık. Önceden konuyu ana hatlarıyla belirliyoruz ve oyun esnasında doğaçlama olarak gelişiyor sahne. Profesyonel tiyatroculardan bize destek olmak istediğini söyleyenler oldu ama kapımızı profesyenel sanatçılara açmak gibi bir düşüncemiz yok.” Profesyonel tiyatroculara kapılarını açmama nedeni ile ilgili sorulara ise kısa cevap veriyorlar: “Bizim rol yapacak oyuncudan çok kendi gereksinimlerini ortaya koyan insanlara ihtiyacımız var. Ayrıca kostümlerimizi bile kendi cebimizden alıyoruz. Kimseye verecek tek kuruşumuz yok.”
+         <br/>
+         <br/>
+         Tiyatronun T’si çarmıh oldu
+         <br/>
+         <br/>
+         ProtesTiyatro, sağcı olarak bilinen bir sendikanın bünyesinde çalışmalara başlamış ama şu ana kadar yaptığı gösterilerde marjinal sol sendikalara kadar değişik kesimlerden destek bulmuş. Hatta bazı oyunların figüranları yoldan geçerken ‘Aa burada ne oluyor’ diyenlerden seçilmiş. Tiyatronun ismindeki büyük T ’nin anlamı ise ‘çarmıh’. Neden böyle bir isim ve anlam seçildiğini ise şöyle açıklıyor grup üyeleri: “T çarmıhı temsil ediyor. Toplumu huzursuz eden olayların ve kahramanların gerildiği, teşhir edildiği bir yer.”
+         <br/>
+         <br/>
+         ProtesTiyatro’nun şu anki oyuncu kadrosu toplamda 40 kişi. Çevre, Esnaf, Memur ve Siyaset olmak üzere dört ayrı grupta çalışmalar sürdürülüyor. Memur sendikası çatısı altında başlamış ama daha sonra toplumun her kesiminden üyeler dahil olmuş tiyatro grubuna. ProtesTiyatro üyelerinden mali müşavir Ahmet Gümüş işini gücünü bırakıp tiyatro çalışmaları için il il dolaşan bir isim. Çevre konularında duyarlı bir vatandaş olduğu için uzun süredir çevre katliamlarına karşı tepki eylemlerine katıldığını, daha sonra ProtesTiyatro çalışmalarına başladığını söyleyen Gümüş “Aslında sorunları tiyatro ile anlatma fikri bana söylenince açıkçası yadırgadım hatta absürt buldum. Ama ilk oyunumuzun beklenenden çok daha fazla ilgi gördüğünü hatta basında çok geniş yer aldığını görünce ProtesTiyatro’nun kısa sürede hedeflerine ulaşacağına inandım” diyor. Tiyatro oyunları içerisinde yer alan herkes tüm masraflarını kendileri karşılıyor. Zaman Gazetesi’nde okudukları bir çevre faciası haberi üzerine ProtesTiyatro’ya katılmaya karar veren Metin Kaymaz ve Recep Tüfekçi çevre ile ilgili organizasyonlarda görev almışlar. Hatta tiyatro aracılığı ile insanlarda çevre bilinci oluşturmak için Ceyhan Nehri’nde yaşanan çevre felaketi için 19 saat otobüs yolculuğu yapıp mitinge katılmışlar. Kaymaz ve Tüfekçi’nin de içinde bulunduğu ProtesTiyatro çevre grubu önümüzdeki günlerde çevre konusunda çarpıcı gösteriler yapmaya hazırlanıyor.
+         <br/>
+         <br/>
+         Amatör olarak başlayan ve kısa sürede üne ulaşan ProtesTiyatro çalışanları şimdi tüm Türkiye’de örgütleniyor ve tiyatrolarına evrensel bir statü kazandırmayı düşlüyorlar.
+         <br/>
+         <br/>
+         E—Posta: a.yavuz@aksiyon.com.tr
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 14 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11995), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022827/http://www.aksiyon.com.tr:80/yazdir.php?id=11995)

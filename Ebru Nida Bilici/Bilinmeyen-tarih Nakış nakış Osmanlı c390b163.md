@@ -1,0 +1,76 @@
+# Nakış, nakış Osmanlı
+
+*Ebru Nida Bilici Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Ottoman Homestyle’ın koleksiyonu öyle çeşitli ki; Hz. Muhammed (s.a.v)’in kılıcının kabzasındaki desenin uygulandığı yastıklar; sultanların kaftanlarından alınmış motiflerin yeraldığı yatak örtüleri, Sultanahmet Camii'nin duvar süslemelerinin süslediği şömenler, Topkapı Sarayı dekorasyonunda kullanılan motiflerle kaplı perdeler, koltuklar ve daha neler neler...
+   <br/>
+   <br/>
+   Son yıllarda modern çizgilerin giyim sektöründe olduğu kadar ev tekstilinde de kendini tekrar etmeye başlaması ve ürünlerin soğuk, sıradan ve tekdüze bir hava sunması bakışları Doğuya çevirdi. Hindistan, Pakistan, Orta Asya ve Uzak Doğu’dan esen egzotik rüzgarlar dünyanın birçok yerinde hiç görmediği ilgiyi görüyor şimdilerde. Cumhuriyet sonrasında Batılılaşmayı değer ve zenginliklerimizden uzaklaşma şeklinde algılamanın yanısıra bu konuda gösterdiğimiz hırs nedeniyle Osmanlıyı hatırlatan her tür objeye yıllarca sırtımızı dönmemize rağmen başta Osmanlı yadigarı eşyalar olmak üzere Doğuya has envanterler son yıllarda dikkatlerimizi çekmeyi başardı. Bu kendi değerlerimizi farkediş Batılıların tarihi güzelliklerimizi keşfiyle eşzamanlı olsa da Doğuya has desen ve modellerle süslü dekoratif kumaş ve eşyaların nihayet rağbet görmesi memnuniyet verici.
+   <br>
+    <br>
+     Tabii bu ilgiye cevap veren, hatta besleyen yeni bir ticari anlayışın varlığını da gözardı etmemek gerek. Özellikle ev tekstilinde isim yapmış firmaların koleksiyonları arasında Doğuya ait desenlerle süslenmiş parçalara artık daha sık rastlıyoruz.
+     <br>
+      <br>
+       Geçmişin izlerini, tarihin tozlu sayfalarına terketmeyi reddedip yaşadığımız mekanlara taşıyarak Osmanlı’nın muhteşem kültür hazinesini çağdaş bir yorumla bugüne uyarlayan Ottoman Homestyle da bu firmalardan biri.
+       <br>
+        <br>
+         Pegamber kılıcının desenine baş koyun
+         <br/>
+         <br/>
+         Yakın bir zamana kadar sadece saraylarda ve müzelerde görebildiğimiz imparatorluğun üç kıtaya yayılmış kollarından gelen çeşit çeşit atlaslar, taftalar, ipekler, satenler ve kadifeler, üzerlerine işlenmiş eşi benzeri olmayan desenleriyle artık evlerimize girmeye aday. Her ilmeği, her düğümü ayrı bir emeği, ayrı bir göznurunu ve estetikte zirveyi simgeleyen Osmanlı işlemelerini Ottoman Homestyle’ın titiz ve duyarlı sahibesi Sumru Baydemir meraklıları için hazırlayarak belki de benzeri bir daha üretilemeyecek desenleri unutulmaktan kurtarmaya çalışıyor.
+         <br/>
+         <br/>
+         Ottoman Homestyle’ın koleksiyonu öyle çeşitli ki; Hz. Muhammed (s.a.v)’in kılıcının kabzasındaki desenin uygulandığı yastıklar; sultanların kaftanlarından alınmış motiflerin yeraldığı yatak örtüleri, Sultanahmet Camii’nin duvar süslemeleriyle bezenmiş şömenler, Topkapı Sarayı dekorasyonunda kullanılan motiflerle kaplı perdeler, koltuklar ve daha neler neler. Showroom’a girdiğinizde renkler, desenler ve modeller bir anda sizi başka bir âleme uçuruyor sanki. Öyle ki bir sarayda ya da bir Osmanlı konağında olduğunuzu düşünüyorsunuz. Ürünlerin her biri ayrı bir inceliği, ayrı bir ihtişamı yansıtıyor ve herşey bir yana tarihimizi bugüne taşıyor.
+         <br/>
+         <br/>
+         Sumru Baydemir kaybolmaya yüz tutmuş desenleri tekrar gün yüzüne çıkarma konusunda öyle azimli ki; elinde fotoğraf makinesi o saray senin bu müze benim dolaşıp tüm ayrıntıları görüntüleyerek atölyesine taşıyor. Uzman bir ekip yardımıyla, fotoğrafları çekilen desenler yeniden tasarlanarak bilgisayarda nakış deseni haline getiriliyor ve modern makinalarda işleniyor. Yirmi yıllık nakış tecrübesi olan Sumru Baydemir’in Osmanlı kaynaklı nakışlarla ev tekstiline yönelişi birbuçuk yıl öncesine dayanıyor.
+         <br/>
+         <br/>
+         Kumaşların çoğu ithal
+         <br/>
+         <br/>
+         Bilindiği gibi görkemli bir geçmişe sahip olan Osmanlı devletinde süsleme sanatı başdöndürücü bir zenginliğe sahipti. Özellikle 15 ve 17. yüzyıla ait eserlerdeki motif ve renklerin çeşitliliği hem yerli hem de yabancı gözlemcileri hâlâ kendisine hayran bırakabiliyor. Başta İstanbul olmak üzere Bursa, Bilecik, Hereke, Şam ve Halep’te dokunan kumaş ve kadifeler üzerindeki şaşırtıcı nakış örneklerinin Osmanlıyla beraber tarihe gömülmesini ya da saray ve müzelerde kalmasını istemeyen Sumru Baydemir bunları tekstile uygularken kullanım alanını da genişletmiş oluyor.
+         <br/>
+         <br/>
+         Osmanlının ev ve giyim tekstilinde asırlarca kullandığı kemina, kadife, çatma, seraser, hatai, canfes türü kumaşları bulmak bugün zor olsa da bu konuda kararlılık gösteren Sumru Baydemir aramaktan vazgeçmiyor. Ülkemiz sınırları dahilinde bulunamayan kumaşlar için gerekirse yurt dışına dahi çıkıyor.
+         <br/>
+         <br/>
+         Yaptığı araştırmalar Baydemir’i Osmanlı hakkındaki bilgisinide genişletmiş. Örneğin gonca gül, karanfil, sümbül, lale, çınar yaprağı, güneş ışını, tavuskuşu tüyü ve yonca yaprağının olduğunu Sumru hanım dile getiriyor. Osmanlı nakış sanatında en çok kullanılan çiçek desenleri olarak anılıyor. Bir devre adını veren lale de, çeşitli varyasyonlar halinde Osmanlı sanat eserleri üzerinde sıkça yer almış. Yine ‘çintemani’ denilen ve iki dalgalı 3 benekten ibaret desen de en çok kullanılan motifler arasında yer alıyor. Kaynağı Çin olan, güç ve bereketin simgesi kabul edilen çintemani motifli eserlere, İznik çinilerinde ve diğer tezhib çeşitlerinde de rastlayabiliyoruz.
+         <br/>
+         <br/>
+         Yeni projeler var
+         <br/>
+         <br/>
+         Bir aile şirketi olan Ottoman Homestyle kısa geçmişine rağmen gördüğü ilgiden memnun. Geçtiğimiz ağustos ayında tekstil fuarında hayli ilgi gördüklerini söyleyen Sumru Baydemir, Türkiye ağırlıklı çalışmakla birlikte yurt dışına da satış yaptıklarını belirtiyor. İtalya, Amerika, Almanya ve Arap ülkeleri bunlardan birkaçı. 22-26 Mayıs tarihlerinde CNR Fuar merkezinde organize edilecek Ev-Teks 2002’de ürünlerini sergileyecek olan Sumru Baydemir bu ara yelpazeyi biraz genişletip farklı türde ürünler vermeyi de hedefleri arasına koymuş. Örneğin otellere perdeler, masa ve yatak örtüleri hazırlamanın yanısıra bornoz, havlu gibi eşyaları da Osmanlı desenleriyle süslemeyi amaçlıyor. Ayrıca ürettikleri her dekoratif malzemeye hangi döneme ait desenin kullanıldığını belirten küçük barkodlar iliştireceklerini söyleyen Baydemir bu konuda bir ilke imza atmış olacak.
+         <br/>
+         <br/>
+         Ne yazık ki Osmanlıda kullanılan motif ve desenlerin tasarımcıları belli değil. Bugüne ulaşan örnekler tasarımcısıyla değil, üretildiği yüzyıl belirtilerek anılıyor. Oysa bu sahipsiz eserlerin hepsi birbirinden özel ve güzel. Bu unutulmaya yüz tutmuş desenlerin tekrar hayatımıza girmesini sağlayan Sumru Baydemir önemli bir vazifeyi yerine getirmiş oluyor.
+         <br/>
+         <br/>
+         Ottoman Homestyle’ın web adresi:www.ottoman homestyle.com
+         <br/>
+         <br/>
+         e.bilici@aksiyon.com.tr
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 16 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11996), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022832/http://www.aksiyon.com.tr:80/yazdir.php?id=11996)

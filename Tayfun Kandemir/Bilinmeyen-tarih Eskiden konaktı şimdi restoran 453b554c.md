@@ -1,0 +1,38 @@
+# Eskiden konaktı şimdi restoran
+
+*Tayfun Kandemir Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050125233801im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050125233801im_/http://www.aksiyon.com.tr/resim/477/ek-03.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir zamanların cumbalı, bahçeli, ahşap birçok evi şimdilerde restoran olarak insanlara hizmet etmeye devam ediyor. Bu evlerden biri de Eyüp"teki Halit Paşa konağı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İstanbul ve daha birçok Anadolu şehrinde Osmanlı"dan kalma nice konak var. Konakların büyük bir bölümü günümüze ya sahipsiz ve köhne ya da güzel bir restorasyondan geçmiş halleriyle kalmış. Bunların birçoğu, şehirlerin bütün bir tarihi mimariyi istila eden zevksiz yapılaşmasıyla çevrilmiş, gözlerden uzak ve unutulmuşluk içinde ömürlerinin son demlerini  yaşıyor. Ancak restore edilip ticari amaçla kullanılanları ise bize hâlâ o nostaljiyi yaşatmak için sapasağlam ayakta. İşte bunlardan biri de Eyüp"teki Halit Paşa Konağı.
+   <br>
+    Bu restoran bir Osmanlı askeri olan Halit Paşa"nın bir zamanlar İstanbul"da annesiyle yaşadığı konak. Her konağın olduğu gibi buranın da oldukça kısa ama ilginç bir öyküsü var: Halit Paşa, Osmanlı"ya hizmetinden sonra Kazım Karabekir komutasında İstiklal Savaşı"na da katılıyor. Büyük Taarruz"da ise tuğgenerallikle ödüllendiriliyor. Savaşın ardından rütbelerini çıkaran paşa, Ardahan"dan ilk seçilen vekil olarak Meclis"e giriyor. 9 Şubat 1925 tarihinde elim bir suikast ile hayatı son bulan paşadan şimdi arkada kalan tek yadigar, özel bir işletmenin elinde tüm İstanbullulara hizmet veren bu şirin ahşap konak.
+    <br>
+     Bu konağı aslında içinde bulunduğu semt olan Eyüp"le, hatta Eyüpsultan Camii ile ele almak daha doğru. Zira bu konağın müdavimlerini hafta sonları İstanbul"un her yerinden sabah namazını Eyyup el Ensari"nin medfun bulunduğu bu camide kılmak için akın eden insanlar oluşturuyor. Hava daha aydınlanmadan önce sabah namazlarınızı kılıyorsunuz, ardından yüce sahabenin manevi huzurunda dualarınızı yapıyorsunuz. Günün bu eşsiz güzellikteki vaktinde, ruh doygunluğunun ardından bedeni bir arzuyla midenizin sesine kulak veriyorsunuz. Avludaki simitçilerden aldığınız simitlerle tatmin olamadığınızı hissettiğiniz anda da tarihin derinliklerinden gelen Halit Paşa buyur ediyor sizi konağına.
+     <br>
+      Yerini meydanda kime sorsanız gösterir. Buraya sadece karnınızı doyurmak için gelmiyorsunuz; mekanın o büyüsü sizi sarıyor, açlığınızı bir ölçüde unutuyorsunuz. Halit Paşa"yı göremiyorsunuz belki ama onun ve çağdaşlarının yaşadığı bu ve benzeri mekanlarda hiç olmazsa tatlı bir hülyaya dalıyorsunuz. Yirmi çeşitten oluşan kahvaltıyla içtiğiniz çay, sabah serinliğinde içinizi ısıtırken, buraya sık sık gelmeniz gerektiği telkininde bulunuyor.
+      <br>
+       Burası öğlen ve akşam saatlarinde de hizmet veren bir yer. Her restoranda olduğu gibi buranın da özel mönüsünde konağın adıyla anılan, içine kaşar da rendelenmiş güzel bir kebap var. Mönünün en pahalı yemeği, 8 milyon 250 bin lira. Sabah kahvaltısı ise 7 milyon 500 bin lira. Aileyle de çok rahat gidilebilecek bu yer size çevreyi gezmek ve tarihi tatlar yaşatabilmek açısından da hafta sonu geçirmeye değecek bir mekan. Çünkü etrafında Eyüp Camii"nden başka bir çok irili ufaklı cami, kütüphane, vakıf ve türbe de ziyaretçilerini bekliyor. Eğer vaktiniz olur ve nefesiniz yeterse semtin en yüksek tepesindeki Piyer Loti"ye çıkar, orada çay içerken şimdilerde çok güzelleşmiş olan Haliç manzarasını da seyredebilirsiniz.
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11077&yorum=1488), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050125233801/http://www.aksiyon.com.tr:80/detay.php?id=11077&yorum=1488)

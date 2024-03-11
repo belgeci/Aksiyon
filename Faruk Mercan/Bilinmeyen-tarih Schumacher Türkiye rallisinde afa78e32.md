@@ -1,0 +1,135 @@
+# Schumacher Türkiye rallisinde
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050114194911im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050114194911im_/http://www.aksiyon.com.tr/resim/458/40.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Dünyanın en büyük spor organizasyonlarından biri olan Formula yarışları nihayet Türkiye"ye geliyor.
+  <br>
+   İş dünyası ve hükümetin tam desteğini alan Formula, turizm ve ekonominin yeni umutlarından biri oldu. Hükümet, Formula yarışlarının turist trafiğinde yüzde 30 artış yapmasını beklerken, iş dünyası ekonomiye büyük canlılık geleceğine inanıyor.
+   <br>
+    <b>
+     "Bu öyle bir spor ki, gittiği yeri zenginleştiriyor."
+    </b>
+    <br>
+     Ferrari"nin Başkanı Luca di Montezemolo, Formula yarışlarını böyle tanımlıyor. Eğer Ferrari Başkanının bu kehaneti doğruysa, iki yıl sonra bu zengin yerler kervanına artık İstanbul da katılıyor.
+     <br/>
+     Formula 1 olayı, ocak ayından beri Türkiye"de hararetli tartışmaların konusu oldu. Pist için tahsis edilen arazi üzerindeki hukuki problemler bitmeyince hükümetin tam desteğiyle bu arazi "turizm bölgesi" yapıldı ve pistin temeli çarşamba günü atıldı.
+     <br/>
+    </br>
+   </br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hükümet bununla yetinmedi. Eleştirilere aldırmadan, Formula yarışlarının Türkiye"ye getirilmesi için adeta kesenin ağzını açtı. Formula"nın dünya organizasyonu olan Formula One Association (FOA) Başkanı Bernie Ecclestone"a yedi yıl boyunca yapılacak toplam 94,5 milyon dolarlık (her yıl 13,5 milyon dolar) ödemeyi üstlenen hükümet, pistin yapımı anlaşmada öngörülen 2005 yılı ağustos ayına yetiştirilmediği takdirde FOA"ya yapılacak 25 milyon dolarlık tazminat için, bu miktardaki teminat mektubunu da verdi. Dahasını, Başbakan Tayyip Erdoğan temel atma törenindeki konuşmasında açıkladı ve "Türk Tanıtma Fonu"ndan Formula 1 için 27 milyon dolar ayırdık. Büyük gelir bekliyoruz" dedi.
+   <br>
+    <br/>
+    Dünyada 1,5 milyar izleyicisi olan yarışların yapıldığı ülkeye yılda ortalama 150 milyon dolar gelir getiren Formula"nın büyüsü, Türkiye"nin dünya çapında tanıtımına ve imajına yapacağı katkı, hükümetin bu kadar "bonkör" davranmasında kuşkusuz etkili oldu. Ancak Formula olayı, Türkiye"de son yılların en keskin tartışma konularından biri haline geldi. İki büyük medya grubu arasında bile büyük bir kavgaya yol açan Formula 1"in Türkiye"ye getiriliş zamanlaması, TEKEL"in özelleştirilmesi süreci ile bile ilişkilendirildi. Bu tezi öne sürenler, "Çünkü dünyadaki en yaygın sigara reklamı platformu Formula 1"dir" diyorlar.
+    <br/>
+    <br/>
+    Yat siparişi ile başlayan hikaye
+    <br/>
+    <br/>
+    Formula 1"in Türkiye macerası, Formula Başkanı Bernie Ecclestone"un, 1999"da bir Amerikalı"da gördüğü çok güzel bir yatı satın almak istemesiyle başladı. Amerikalı, yatını Eccleston"e satmadı, ama yatın yapıldığı adresi verdi. Yatı yapan, İstanbul Tuzla Tersanesi"ndeki Turkuaz&amp;Proteksan"ın sahibi Mehmet Karabeyoğlu"ydu. İşadamı Karabeyoğlu, Ecclestone"dan gelen yat siparişini ve onu Formula 1"in Türkiye"ye getirilmesine nasıl ikna ettiğini Aksiyon"a şöyle anlattı:
+    <br/>
+    <br/>
+    "Benim yaptığım tekneyi Amerikalıda görünce satın almak istemiş. Onu alamayınca bize tekne siparişi verdi. Ben kendisini Londra"da ziyaret ettim. İlk tekneyi (53 metre uzunluğundaki bu yatın değeri 25 trilyon liraydı) yapmamızdan sonra ikincisini sipariş etti. Formula 1 yarışlarının Türkiye"de de yapılmasını ben ilk kendisine açtığım zaman hep, "Olmaz, Türkiye bunun için uygun değil" dedi. Benim Londra"ya gidip kendisiyle tanışmamdan bir buçuk, iki yıl sonra İstanbul"a geldi. Kendisini evimizde ağırladık. Bu arada hep yarışların İstanbul"da yapılması için ısrar ettim. İkna olması kolay olmadı, bu işe inanması üç yıl sürdü. Bugün Formula 1 İstanbul"a gelmişse bizim Ecclestone"u ikna etmemiz ve İstanbul Ticaret Odası (İTO) Başkanı Mehmet Yıldırım"ın parayı çıkarıp elini taşın altına koyması iledir."
+    <br/>
+    <br/>
+    Formula"nın Türkiye"ye getirilmesi için Karabeyoğlu ile birlikte ön plana çıkan diğer iki isim İTO Başkanı Mehmet Yıldırım ve Türkiye Otomobil Sporları Federasyonu Başkanı Mümtaz Tahincioğlu"ydu.
+    <br/>
+    <br/>
+    Projeye hükümet ve kamuoyu desteğini sağlamak amacıyla kurulan Formula Derneği"ndeki isimler ise şunlardı: "Mümtaz Tahincioğlu, Mehmet Karabeyoğlu, Nuri Çolakoğlu, Muhtar Kent, Cem Hakko, İskender Atakan, Yiğit Şardan, Alinur Velidedeoğlu, Özcan Tahincioğlu, Jan Nahum."
+    <br/>
+    <br/>
+    Pistin işletilmesi ile yarışların organizasyonu Formula Derneği ve İTO tarafından müştereken yapılacaktı. Ama en zor rolü üstlenmiş olan kişi İTO Başkanı Mehmet Yıldırım"dı. Çünkü hükümetin yapacağı ödemeler, vereceği garantiler, pist alanının belirlenmesi ve ihale sürecinde en büyük kavgayı vermesi beklenen kişi oydu. Bu yüzden pistin yapımını doğrudan o üstlendi.
+    <br/>
+    <br/>
+    Yıldırım: Formula"yı eleştirenler ekonomiyi bilmiyor
+    <br/>
+    <br/>
+    Sonunda Yıldırım, bütün engelleri aşarak Başbakan Tayyip Erdoğan ve Formula Başkanı Bernie Ecclestone"a çarşamba günü pistin temelini attırmayı başardı. Törenden sonra pist alanını gezerken görüp, "İhalenin iptali için dava açılmış. İhale iptal edilirse ne yapacaksınız" sorusunu yönelttiğimizde yüzünde en ufak bir endişe belirmedi ve "Kimse devletin gücüne karşı gelemez. O zaman hükümet burayı istimlak eder" dedi. En büyük güçlük pistin yapılacağı yerin vakıf arazisi olmasıydı ve bu engel aşılmıştı. Hükümetin isteği ile Meclis, birkaç gün içinde çıkardığı bir kanunla bu alanı turizm bölgesi yapmıştı.
+    <br/>
+    <br/>
+    Pistin yapılacağı vakıf arazisinin sahipleri olan Doktor Naci Yıldızalp ve ailesinin, pist ihalesinin iptali için İstanbul İdare Mahkemesi"nde açtıkları davanın Yıldırım"da hiç endişe uyandırmaması, hükümetin Formula"ya olan tam desteğinden kaynaklanıyor. Çünkü Başbakan Yardımcısı Mehmet Ali Şahin, "Bu vakıf arazisinden yararlanılamıyordu. Onun için Formula pistine tahsis ettik" diyor.
+    <br/>
+    <br/>
+    Mehmet Yıldırım"a, devletin verdiği 120 milyon dolarlık desteği eleştiren Milliyet yazarı Göngör Uras"ın yazısını hatırlattığımızda cevabı çok daha sert oldu: "Ben de onu bizim üniversiteden (İstanbul Ticaret Odası Üniversitesi) çıkardım. Güngör Uras ekonomiyi bilmiyor. Ben bunlara mıh çakmamış profesör diyorum. Mıh çakmayı, bilir misin? Bunlar hayatlarında bir çivi çakmış mı?"
+    <br/>
+    <br/>
+    Çevrecilerin, "Pistin yerleşeceği arazi, İstanbul"un Anadolu yakası su ihtiyacının önemli bölümünü karşılayan Ömerli barajının su toplama bölgesinde bulunuyor. Bölgedeki kelebek türleri tehlikeye girecek" yakınmaları için ise Yıldırım şöyle diyor: "Bunlar entel çevreci. Batıda fert başına milli gelir 40 bin dolara çıktıktan sonra çevreciler ortaya çıktı. Bizde de fert başına milli gelir o düzeye çıksın o zaman hep birlikte çevreci olalım." diyor.
+    <br/>
+    <br/>
+    Milliyet"in ünlü ekonomi yazarı Göngör Uras, Formula"nın Türkiye"ye getiriliş biçimini eleştiren ve Formula"daki sigara reklamları olayını gündeme getiren iki yazısıyla Mehmet Yıldırım"ın boy hedefi haline geldi. Yıldırım"ın sözlerini aktardığımız Güngör Uras, şunları söyledi:
+    <br/>
+    <br/>
+    "Böyle bir polemiğe girmek istemem. Ben üniversiteye davet edilmiştim, ders veriyordum. Geçen sene kendim ayrıldım. Ben Formula"nın bir yarar getirmeyeceği kanısındayım. Bir yararını bulamıyorum, ama onlar olduğunu iddia ediyorlar. İnşaallah ben hatalı çıkarım. Devlet desteği ile yaşayan bir şeyin yararına inanmıyorum. Bu kadar yararlı ise devlete yaptırmaya ne lüzum var, niye devlet desteği istiyorlar? Bütün mesele orada."
+    <br/>
+    <br/>
+    Tahincioğlu: Başbakan rakamı yanlış söyledi
+    <br/>
+    <br/>
+    Formula dosyasında şüphesiz en tartışmalı noktalardan birini, Uras"ın altını çizdiği devlet desteği konusu oluşturuyor. Formula"nın dünya başkanı Bernie Ecclestone, yedi yıl boyunca yapılacak olan 94,5 milyon dolarlık ödeme ve 25 milyon dolarlık garantiyi içeren mektup hükümet tarafından onaylanıp kendisine ulaştırıldıktan sonra Formula Türkiye"nin yedi yıllık kontratına 29 Ağustos 2003 günü Londra"da imza koydu.
+    <br/>
+    <br/>
+    Ecclestone"a bu ödemelerin yapılmasına onay veren Başbakan Erdoğan"ın "Formula"dan büyük gelir bekliyoruz" sözleri, Formula Türkiye derneğinin hükümete verdiği "Turizm potansiyelimiz yüzde 30 artacak" şeklindeki rakamlara dayanıyor. Formula Derneği"nin hükümete verdiği rakamlar şöyle:
+    <br/>
+    <br/>
+    "Her yıl yapılan 17 yarışı 203 ülke televizyonu yayınlıyor. Bu yayınların 133"ü canlı olarak veriliyor ve yarışları 1,5 milyar kişi izliyor. Bu 1,5 milyar kişinin sadece binde ikisi tatil için ülkemizi seçse, Türkiye"ye üç milyon turist gelecek demektir. Bu, Türkiye"nin turizm kapasitesinin yüzde 30 artması anlamına geliyor. 2 milyon kişi bu yarışı tribünde izlemek istiyor ve bunların yüzde yetmişi yurtdışı seyirci oluyor. Bir seyircinin yapması beklenen ortalama harcama 325 dolar."
+    <br/>
+    <br/>
+    Bu sebeple devletin Formula"ya yatırdığı parayı geri alacağını belirten Formula organizatörleri, "Biz de pist ve tesisler için 100 milyon dolarlık yatırım yapıyoruz" diyorlar. Mehmet Yıldırım, "Yaptığımız 100 milyon dolarlık yatırımın sadece 18 milyon dolarını KDV olarak devletten geri alacağız" derken, Formula"nın tanıtım kitapçığında, pistin maliyeti 60 milyon dolar olarak açıklanıyor.
+    <br/>
+    <br/>
+    Yıldırım ile birlikte Formula projesinin önde gelen ismi olan Mümtaz Tahincioğlu"na, "Formula Başkanına yapılacak 94,5 milyon dolarlık ödemeyi ve teminat mektubunu siz niye üstlenmediniz?" sorusunu yönelttiğimizde şu cevabı veriyor:  "Bu olay ticari açıdan uygulanabilir bir proje değil. Ne yaparsanız yapın, harcaması getirisinden fazla.  Onun için devletin desteği gerekliydi. Çünkü Formula 1"le tanıtılacak olan Türkiye. Gelecek turistlerin sayısına bakın. Devlet, verdiği paranın daha fazlasını geri almış olacak."
+    <br/>
+    <br/>
+    Tahincioğlu"na, Başbakan Erdoğan"ın "Türk Tanıtma Fonundan 27 milyon dolar ayırdık" dediği paranın ne amaçla kullanılacağını sorduğumuzda, "O rakam 25 milyon dolar. Sayın Başbakan yanlış söyledi. Verilen teminat mektubu işte o para." diyor.
+    <br/>
+    <br/>
+    Pist bölgesinde arazisi olan işadamları
+    <br/>
+    <br/>
+    Formula tartışmalarının en sıcak ayaklarından birini, pistin yapılacağı bölgede arazi spekülasyonu yapılıp yapılmadığı oluşturuyor. Bu bölgede bir "Formula şehri" kurulacağına kesin gözüyle bakıldığından bölgedeki arazilerin son dönemde hızla el değiştirdiği öne sürülüyor. Pist için tahsis edilen arazi için çeşitli bürokratik engeller çıkınca Hürriyet gazetesinin 8 Ağustos 2003 günü "Yağmacıya var, Formula"ya yok" manşetiyle çıkması, Doğan medya grubu ile Sabah grubu arasında sert bir polemiğe yol açtı. 17 Ağustos 2003 günü "Manşetin sırrı" başlığıyla çıkan Sabah, Hürriyet"in haberinin perde arkasında bir Doğan Grubu şirketinin pist yakınında binlerce villa yapmak için satın aldığı 2 bin dönümlük arazi olduğunu öne sürdü.
+    <br/>
+    <br/>
+    Ancak sanıldığı gibi bu bölgede yalnızca Aydın Doğan"ın arazisi yok. Listede Hüsamettin Özkan"ın dayısı ve Saray Halı"nın sahibi Necati Kurmel, MNG Holding"in sahibi Mehmet Nazif Günal, ismini Tansu Çiller"in yalı komşusu olarak duyuran Son Havadis gazetesinin eski sahibi Mustafa Özkan, Türkiye Sanayici ve İşadamları Derneği (TÜSİAD) Başkanı Tuncay Özilhan da bulunuyor.
+    <br/>
+    <br/>
+    Ama bu isimlerden bazılarının sözkonusu arazileri, Formula olayı henüz hiç gündemde yokken aldıkları görülüyor. Örneğin Mehmet Nazif Günal ve Mustafa Özkan yıllar önce bu arazilerin sahibi oldular. Öte yandan, "Necati Kurmel 3 bin villa yapmak üzere buradan arazi aldı" denilmesine rağmen Kurmel"in de bin dönümlük sözkonusu yeri 2001 yılı Nisan ayında aldığı görülüyor. Bu konuyla ilgili çeşitli bilgiler Türkiye Büyük Millet Meclisi Yolsuzlukları Araştırma Komisyonu"na kadar ulaştı. Bu bilgilere göre, Çayırova Ziraat Okulu"nun dört bin dönümlük arazisi Arçelik tarafından satın alındı. Aynı bilgilere göre TÜSİAD Başkanı Tuncay Özilhan ise bir hastane açmak için bölgeden arazi aldı.
+    <br/>
+    <br/>
+    Ama, Formula projesi ile bağlantılı olarak bölgede bazı arazi alım girişimleri de dikkati çekiyor. Örneğin geçtiğimiz yılın mayıs ayında İstanbul"da Doktor Naci Yıldızalp"e gelen bir komisyoncu hanım, İşadamı Ali Ağaoğlu adına geldiğini belirtip "Tuzla"daki 2 bin 200 dönümlük arazinize talibiz. Buraya inşaat yapacağız. Araziye biçtiğimiz değer 2 milyon 200 bin dolar" dedi. Trabzonlu işadamı Ali Ağaoğlu, oteller zinciri sahibi ve İstanbul"da çok sayıda inşaatın müteahhitliğini yapıyor. Ağaoğlu"nun talip olduğu bu arazi tam da Formula-1 pistinin yapılacağı alandı. Üstelik bu tarihte henüz Formula-1 Dünya Başkanı Bernie Ecclestone İstanbul"a gelip sözkonusu araziyi görmemişti ve pistin burada yapılacağı da kesinlik kazanmamıştı.
+    <br/>
+    <br/>
+    Ekonomi ve turizm için yeni umut
+    <br/>
+    <br/>
+    Dile getirilen bütün eleştiri ve görüşler bir yana, Formula organizasyonu ile Türkiye dünya çapında çok büyük bir tanıtım yapma ve imaj oluşturma imkanı elde etmiş olacak. Başbakan Tayyip Erdoğan bu durumu, "Bu büyük gösterinin bir ülkenin imajına, turistik ve kültürel cazibesine yapacağı katkıyı düşünün. Bu korkunç bir PR (halkla ilişkiler, tanıtım) olayıdır" sözleriyle dile getirdi.
+    <br/>
+    <br/>
+    Öte yandan hükümetin projeye sağladığı 120 milyon dolarlık katkının yanında, iş dünyasının en yaygın örgütü olan Türkiye Odalar ve Borsalar Birliği (TOBB) başından beri projeye tam destek veriyor. TOBB Başkanı Rıfat Hisarcıklıoğlu, Formula"nın bugün dünyada marka olarak en büyük ticari metalardan biri olduğunu belirterek, "İşadamlarımız Formula 1"in sponsorluğunu üstlenmekle bu işe girmeli. Bu alandaki fuarlarla ihracatımız desteklenecek" diyor.
+    <br/>
+    <br/>
+    FORMULA"NIN HIZLI TARİHİ
+    <br/>
+    <br/>
+    Formula 1, 1950 yılının Mayıs ayında, İngiltere"nin efsanevi pisti Silverstone"da start aldı. Bugüne kadar 749 Grand Prix gerçekleştirildi. Motor sporlarının zirvesi olarak kabul edilen ve dünyada en fazla izleyici toplayan spor olan Formula 1, 2000 yılında 50. yaşını kutladı. 1950 şampiyonasında sadece 7 Grand Prix yarışı vardı. Bu rakam aşama aşama artırıldı ve 1977"de 17" ye çıktı. Sonra 16"yla sınırlandı ve 1996 yılında azami 17 yarış yapılması olasılığı tekrar gündeme geldi. Pilotlar ve İmalatçılar için dünya şampiyonluğu unvanı verilebilmesi için asgari sekiz yarışın yapılması gerekmektedir. 1999 yılından sonra yarışlara Malezya ve Avrupa"da yeni GP"ler eklendi. Avustralya"da başlayan sezon, Brezilya, San Marino, Monako, İspanya, Kanada, Fransa, İngiltere, Avusturya, Almanya, Macaristan, Belçika, İtalya, Avrupa, Malezya GP"lerinden sonra Japonya"da sona eriyor. Bernie Ecclestone'un şirketi, Formula'nın 100 yıllık organizasyon hakkını elinde tutuyor.
+    <br/>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2971&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050114194911/http://www.aksiyon.com.tr:80/detay.php?id=2971&yorum_id=1)

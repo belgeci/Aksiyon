@@ -1,0 +1,64 @@
+# Hayvancılığa Koç-Ata modeli
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302174528im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302174528im_/http://www.aksiyon.com.tr/resim/307/53.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Koç Topluluğu’nu hiçbir yatırımında böyle görmedim. Urfa’daki Koç—Ata besi çiftliğine Aralık 1999’daki temel atmasından tutun 11 Ekim 2000 tarihindeki açılışına kadar heyecanları ve hassasiyetleri had safhada idi.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hatta yatırımın sosyal etkilerine o kadar önem veriyorlardı ki bazen sırf halkı tedirgin etmemek için akılcı olmak yerine hissi davranmayı tercih ediyorlardı. Mesela toprak kiralama yöntemi. Koç 2 bin 500 dönümlük arazinin 2 bin dönümünü kiralamış. Niçin bu yolu tercih ettiklerini Koç Holding Yönetim Kurulu Başkanı Rahmi Koç şöyle anlatıyor: “Biz Urfa’ya spekülasyon yapmak için gelmedik. Halkımız, ‘Koç arazileri ucuza alıp değer kazandığında satacak’ demesin diye bizim için daha akılcı olan satın alma yerine 20 yıllığına sahibinden kiraladık.”
+   <br>
+    <br>
+     GAP insanının kafası karışık. Gelecek potansiyellerinin ne anlama geldiğinin farkında ve yatırım için gelen zengin işadamlarına bakışı ‘Acaba bizi sömürmek için mi geliyor?’ gibi bir ön bakışları var. Koç bölge halkı üzerindeki imajını araştırınca halkın şüpheci bakışını değiştirmek için bölge insanını da mümkün olduğunca projenin bir parçası haline getirmeye çalışmış.
+     <br>
+      <br>
+       17 milyon dolarlık projenin yarıya yakını leasing ve kredi yöntemi ile finanse ediliyor. Bu finansman kaynaklarının bulunmasında Arhavi’li Kurdoğlu ailesine ait Ata Şirketler Grubu’nun büyük yardımları var. Ata Grubu Koç—Ata’nın yüzde 50 ortağı. Zaten projeyi planlayıp Koç’a getirenler de onlar.
+       <br/>
+       <br/>
+       Yabancı ortak yok
+       <br/>
+       <br/>
+       Projenin hayata geçirilmesinde İsrail’in tecrübelerinden büyük ölçüde istifade edilmiş. Ama herhangi bir İsrailli şirketle ortak olmayı düşünmemişler. ATA İnşaat’ın yönetim kurulu üyelerinden Erhan Kurdoğlu, “Yabancı ortak bize başaramayacağımız bir noktada lazım. Halbuki danışmanlık hizmeti ile biz projeyi kendimizin götürebileceğini farkettik. Yabancı ortağı bu sebeple tercih etmedik” diyor.
+       <br/>
+       <br/>
+       Koç—Ata’da şu anda 6 Musevi çalışıyor; üçü uzman, biri onların şefi ve iki de danışman. Bunlar üç senelik bir anlaşma yaparak gelmişler ve et ve süt üretiminde Hollanda’nın birim başı rekoltesini yakalayamamaları halinde herhangi bir ücret de talep etmiyorlar.
+       <br/>
+       <br/>
+       Mustafa Koç’un da ifade ettiği gibi bu yatırım çok kârlı olduğu için tercih edildi. Normal şartlar altında yatırımın yıllık büyüme hızı yüzde 50. Türkiye’de sadece 1980’li yıllarda tekstilde bu tip bir büyüme şansı yakalanmıştı. Şimdi sıra hayvancılıkta. Prejenin fizibilite aşamasında geriye dönüşü 8 yıl olarak hesaplanmış ama başarı o kadar yüksek çıkmış ki bunu 6,5 yıla çekmişler.
+       <br/>
+       <br/>
+       Solakoğlu’dan valilere brifing
+       <br/>
+       <br/>
+       Projenin bir diğer özelliği ise bölge halkına model olabilecek yapıda olması. Aralarında Giresun Valisi’nin de bulunduğu çoğunluğu Doğu ve Güneydoğu illerinden gelen 9 vali ve birçok milletvekili açılışta hazır bulundu.
+       <br/>
+       <br/>
+       Koç Holding Tüketim Grubu Başkanı ve Koç—Ata Yönetim Kurulu Başkanı Cengiz Solakoğlu, aralarında Olağanüstü Hal Bölge Valisi Gökhan Aydıner’in de bulunduğu valilere Şanlıurfa Polisevi’nde projelerini ayrıntıları ile anlattı. Solakoğlu, böyle bir yatırımı yapmak isteyen kim olursa olsun bedava müşavirlik hizmeti vereceklerini söylüyor. Türkiye’de son 20 yılda hayvan potansiyelinin sürekli düştüğünü, bunun sonucunda bir zamanlar Avrupa’nın en ucuz etini yiyen Türkiye’nin Avrupa’nın en pahalı etini yiyen ülke konumuna geldiğini belirten Solakoğlu, Türkiye’nin GAP’la birlikte tarım ve hayvancılıkta ortaya çıkan büyük potansiyeli iyi değerlendirmeme gibi bir lüksünün bulunmadığını kaydediyor.
+       <br/>
+       <br/>
+       Solakoğlu, bölgelerdeki ve illerdeki potansiyellerin iyi tespit edilerek akılcı yatırımlar yapılması gerektiğine değiniyor. “Biz riski aldık. Bir model ortaya koyduk. Bu modelde köylü, üretici herkes yer alacaktır. Çünkü, sözleşmeli çiftçi modelini uygulayacağız” diyor.
+       <br/>
+       <br/>
+       Geçmişte yapılan bu alandaki yatırımların niçin başarısız olduğu en ince teferruatına kadar araştırılmış. Hatta Ekonomist dergisinde bir iş adamı Koç—Ata için başarısız olacağını çünkü bölgede salgın bir hastalık olduğunu söylüyordu. Solakoğlu, “Biz 17 milyon doları toprağa gömmek için gelmedik. Bu hastalığı biz de biliyoruz ama tedbirini aldık, ilaçlarını getirttik ve çaresini bulduk. Şimdiden kötümser bir tablo çizilmesi yersiz” diyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13814), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302174528/http://www.aksiyon.com.tr:80/detay.php?id=13814)

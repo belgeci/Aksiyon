@@ -1,0 +1,82 @@
+# “Alo ben Aylin, nasıl yardımcı olabilirim?”
+
+*Ufuk Şanlı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302225230im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302225230im_/http://www.aksiyon.com.tr/resim/299/49.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Günlük yaşamımızın değişmez aksesuarlarından birisi olan telefonla neler yapılmıyor ki? Cep telefonlarıyla dünyanın her yerine mesaj ve e—posta gönderebiliyor, haberlerden ve en son gelişmelerden anında haberdar olabiliyorsunuz.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   En yakındaki eczaneden, önemli bir maçın o anki skoruna kadar bir çok şeyi telefonunuzun tuşlarına dokunarak öğrenebiliyorsunuz. Hayatımızı kolaylaştıran telefonun bu kadar önemli hâle gelmesi, beraberinde yepyeni ve ilginç sektörlerin doğmasına neden oldu. Artık alışverişten ürün pazarlamasına, satış geliştirmeden müşteri hizmetlerine kadar bir dizi işlemi telefonla gerçekleştirmek mümkün. Çağrı merkezi ya da bilinen adıyla ‘Call Center’ sektörü ülkemiz için oldukça yeni bir kavram.
+   <br>
+    <br>
+     1993 yılında bir özel banka bünyesinde oluşturulan call center’ın üzerinden çok kısa bir zaman geçtikten sonra Türkiye adeta bir çağrı merkezi üssü haline gelmeye başladı. Ülkemizin önde gelen kuruluşları 365 gün/24 saat hizmet, müşteri temsilcisi ile çok sayıda soruna çözüm bulma ve bu sayede zaman ve ekonomik olanaklardan avantaj sağlayan çağrı merkezlerini yavaş yavaş bünyelerine dahil etmeye başladılar. Konuya ilişkin görüşlerini aldığımız Mydonose Grubu Call Center yöneticisi Gülseren Savaş çağrı merkezlerinin bir ihtiyacın sonucunda ortaya çıktığını belirtiyor. “Önceleri yüzyüze ilişki vardı. Daha sonra teknolojinin gelişmesine paralel olarak yeni iletişim yolları ortaya çıktı. Mesela internet gibi. Ancak bir tarafta yüzyüze, son derece medeni ve insanın doğasına uygun bir ilişki, diğer tarafta ise son derece mekanik ve gayri insani bir ilişki vardı. Dolayısıyla bunun ortasında bir ara operasyon olarak ‘call center’lar ortaya çıktı. Yarısı insan yarısı mekanik bir düzen olan bu yeni sistem hem şube ve diğer operasyon birimleri kadar pahalı değil; hem de son derece etkin bir ünite olduğu için kısa sürede büyümeye başladı. Bugün, binlerce kişinin 24 saat süreyle 40 farklı ürünle ilgili olarak hizmet verdiği merkezler ortaya çıktı.”
+     <br>
+      <br>
+       Her “call center” çağrı merkezi değildir!
+       <br/>
+       <br/>
+       Telefonla birilerine yardımcı olmanın neresi zor diye düşünebilirsiniz. Biraz ses tonunuz iyi ise ve telefonla yapılabilecek işlemler hakkında eğitimli bir ekibiniz var ve bu işi rahatlıkla yaparım diye düşünüyorsanız biraz daha düşünün. Çünkü çağrı merkezi yöneticilerinin açıklamalarından her telefona bakılan yerin çağrı merkezi olmadığını rahatlıkla anlıyorsunuz. Mydonose yöneticisi Gülseren Savaş teknik altyapının bu tür oluşumlarda büyük bir önem taşıdığına dikkat çekiyor. “Öncelikle özellikleri olan bir santrala ihtiyacınız var. Gelen çağrıları özelliklerine göre dağıtan ACD (automatic call distribution), (interactive voice response system) ICV dediğimiz genelde bankaların kullandıkları belirli numaraları ve bilgileri girmeniz halinde otomatik olarak size yanıt veren sistemler lazım. A ürünüyle mi ilgileniyorsunuz B ürünüyle mi ilgileniyorsunuz gibi detaylı bilgiler veren bu sistemlerin dışında, (CTI) Computer Telephoning İntegration System lazım. Bu bağlantı olmazsa operatörün size bilgi verme süresi ve sizin zaman kaybınız artacaktır. Bunun dışında çok iyi bir kayıt cihazına sahip olmanız gerekiyor, özellikle finansal güvenlik için bu bir zorunluluk oluyor. Mesela müşteri ‘üç milyarımı şuraya transfer edin’ dedi operatör de ‘ettim’ dedi. Bu konuda bir şikayet olursa kontrol etmenin tek yolu kayıtlardan geçer. Durum böyle olunca içinde 5—10 kişinin çalıştığı ve günün belirli saatlerinde hizmet veren yerlerle, uzman personelin 24 saat yüksek teknolojiyle çalıştığı yerleri mukayese etmek son derece yanlış olacaktır.”
+       <br/>
+       <br/>
+       Anneme call centerda çalıştığımı söylemeyin!
+       <br/>
+       <br/>
+       Teknolojik yatırım kadar önemli olan insan kaynakları konusunda da Türkiye çok ciddi bir potansiyele sahip bulunuyor. Genç bir nüfusa sahip olan Türkiye bilişim ve enformasyon sektöründe hizmet verecek şirketler için deyim yerindeyse biçilmiş kaftan. Yakınlarda yayınlanan bir banka reklamı aslında çağrı merkezlerinde çalışanların durumunu oldukça iyi bir şekilde ortaya koyuyordu. Oğlunun yurtdışında eğitim almasına rağmen, bir bankada telefonlara baktığını söyleyen annenin üzüntülü tavrının ardında çağrı merkezlerinde çalışanların kalitesinin altının çizildiği bu reklam aslında çok şey anlatıyordu.
+       <br/>
+       <br/>
+       Günde çift vardiya halinde çalışan çağrı merkezi personeli bu sayede 24 saat hizmet verebiliyorlar. Bu sayede sürekli bir müşteri memnuniyetini hedeflediklerini söyleyen tepe yöneticileri satış sonrası hizmetlerin artık tüm dünyada büyük önem kazandığı gerçeğinin gözardı edilmemesi gerektiğini ifade ediyorlar. Satış sonrasının üretici veya satıcı firmalar için önemli bir geri dönüşüm unsuru olduğunu farkeden ABD, Kanada ve Avustralya’da bir çok firma ilk etapta kendi çağrı merkezlerini kurma yoluna gittiler. Ancak tavukçuluk, oyuncak, bahçe bitkileri gibi fazla yoğun olmayan alanlarda bile günde çift vardiya ve yüksek teknolojiyle çalışan bu çağrı merkezleri artan maliyeti karşılayamaz hâle gelince birer birer kepenk kapatmak zorunda kaldılar. 40 sandalye üzerinde çift vardiya halinde çalışan bir çağrı merkezinin kuruluş maliyetinin en az 1 milyon dolar olduğunu ifade eden Mydonose yöneticisi Gülseren Savaş ancak talebin az olması halinde çağrı merkezlerinin birçok şirket için önemli bir gider olduğunun altını çiziyor. Bu gelişmeleri yaşayan ABD, İngiltere ve Avustralya’da ‘outsource’ olarak adlandırılan birden çok ürün ve hizmetin bir arada verildiği dev çağrı merkezleri oluşturuldu. Finans, sigorta, iletişim gibi hizmetlerin yanısıra tiyatro bileti, oyuncak, gıda ve hatta ulaştırma gibi konuları da kapsayan alanlarda 2—3 bin kişiyle 365 gün/24 saat hizmet veren bu büyük merkezler sahiplerine oldukça büyük kazançlar sağlıyor. Yılda 40 ila 50 milyon dolar arasında satış yapabilen bu merkezlerin şu andaki tek rakibi ise harika çocuk internet.
+       <br/>
+       <br/>
+       Çağrı merkezinde ne iş yapılır?
+       <br/>
+       <br/>
+       Telefonun iyi bir satış ve geri dönüşüm enstrümanı olduğunun farkına varan Batılı şirket sahipleri oldukça uzun bir süreden beri müşterilerine telefonla çeşitli hizmetler veriyor. Telemarket, ürün pazarlaması, piyasa araştırması ve hatta müşteri satışı gibi çok kapsamlı konularda veri elde etme ve bunları pazarlama imkanına da sahipler.
+       <br/>
+       <br/>
+       Çağrı merkezi kuran bütün şirketlerin gönlünde yatan aslan batı tarzında dev merkezlere dönüşmek ve dışarıdan daha çok iş alarak pazar paylarını ve hizmet yelpazelerini genişletebilmek. Bu amaçla çok sayıda ve birden fazla iş yapabilen personeli bünyelerinde istihdam etmeyi amaçlayan şirketler bunun için çok ciddi yatırımlar yapmayı planlıyorlar. 1200 kişilik personeliyle Türkiye’nin en büyük çağrı merkezi olan Turkcell çağrı merkezi yöneticisi Sezgi Türkay da ileriye yönelik projeleri arasında dışarıya yönelik projelerin önemli bir yeri olduğunu söylüyor. Şu an itibariyle günde ortalama 200—250 bin civarında müşteriye hizmet verdiklerine değinen Türkay, 2001 yılından itibaren farklı sektörlerden gelecek müşterilere de hizmet vermeyi hedeflediklerini ve bunun için büyük bir yatırım hamlesine girecekleri bilgisini veriyor. Bu amaçla Türkiye’nin değişik merkezlerinde çağrı merkezleri kurma çalışmalarının olduğunu açıklayan Sezgi Türkay, sektörden oldukça ümitli olduğunu ifade ediyor.
+       <br/>
+       <br/>
+       1997 yılından beri çağrı merkezi bulunan Garanti Grubu bu yolda önemli adımlar atmış görünüyor. Sigorta, menkul kıymetler, kredi kartları, elektronik ticaret, tele—marketing ve müşteri hizmetlerinin verildiği Garanti çağrı merkezi perakende, otomotiv ve turizm gibi daha geniş alanlara da girmeye hazırlanıyor.
+       <br/>
+       <br/>
+       Çağrı merkezleri çok farklı amaçlar için kurulabildiği gibi tek bir amaca yönelik olarak da kurulabiliyor. Kendi satış mağazası olmadan anlaşmalı mağazalar aracalığıyla alışveriş imkanı sağlayan Advantage Card grubu da müşteri hizmetleri için kurulmuş çağrı merkezlerinden.
+       <br/>
+       <br/>
+       Alo ben Nazlı, nasıl yardımcı olabilirim?
+       <br/>
+       <br/>
+       Çağrı merkezleri genel olarak son derece iyi dekore edilmiş ferah mekanlardan oluşuyor. Personelinin büyük kısmını gençlerin teşkil ettiği çağrı merkezlerinde çalışanların en büyük sorunu ise sürekli oturmanın ve telefon yoğunluğunun meydana getirdiği aşırı stres. Muhataplarının her türlü olumsuz tavrına karşı, sakin ve nazik olmanın yanısıra, bütün gün yüzlerce insana aynı heyecanla cevap verebilme gayreti çalışanların gerilimlerinin had safhaya ulaşmasına neden oluyor. Ancak işin yoğunluğunun farkında olan yöneticiler personellerinin stresten uzaklaşması için bir çok aktivite düzenliyor. Ödüllü halı saha turnuvalarından pikniklere, partilerden başarılı personelin ödüllendirilmesine kadar psikolojik motivasyonu yüksek tutmak için bir çok aktivite düzenleniyor. Turkcell, Superonline, DigiTurk’e hizmet veren Global Bilgi’nin Genel Müdiresi Sezgi Türkay konuya ilişkin şu değerlendirmede bulunuyor: “Telefonda insanlara hizmet vermek aslında son derece zor bir iş. Yüzyüze konuşmanın bir avantajı var, jest yapabiliyorsunuz, mimik yapabiliyorsunuz veya beden dilini kullanıyorsunuz ama telefonda böyle bir şansınız yok. Çünkü bir tek ses kullanıyorsunuz. Bu yüzden sesin gülmesi lazım karşı tarafı rahatlatması gerekiyor. Mutsuz bir insandan mutlu bir müşteri yaratamazsınız bu yüzden psikolojik motivasyon çok ama çok önemli. Ergonomik ve fizyolojik rahatlık oluşturmak gerekir çünkü sizin yıllarca uğraşıp meydana getirdiğiniz kurum imajı sizin o temsilcinizin bir hatasıyla mahvolabilir. Bu yüzden ‘agent’ dediğimiz temsilcilerimizin morallerinin iyi olması gerekir, rahat etmeleri gerekir. Biz de kurum olarak onlara bu yönde her türlü imkanı sağlamak zorundayız.”
+       <br/>
+       <br/>
+       Yabancı yatırımcılar sırada!
+       <br/>
+       <br/>
+       Son dönemde ülkemizdeki ekonomik gelişmelere paralel olarak ortaya çıkan en önemli unsurlardan birisi de yabancı sermaye akışı. Görüştüğümüz çağrı merkezi yöneticileri ucuz işgücü, güçlü teknik altyapısı ile yabancı yatırımcıları cezbettiği konusunda hem fikirler. Çağrı merkezlerinin değişik yerlerde kurularak ortak tek numarayla hizmet verdiğini hatırlatan uzmanlar, yabancı yatırımcıların dev çağrı merkezlerini Orta Asya ve Ortadoğu operasyonları için Türkiye’de konuşlandırabileceklerini ifade ediyorlar. Doğrusu teknolojik gelişmelere karşın görülen o ki insanoğlu hâlâ bildiği yoldan şaşmıyor. Aslolanın insan olduğu düşüncesinde olan firmalar ise müşterilerini kaptırmamak için çok ilginç yollar denemeye devam ediyorlar.
+       <br/>
+       <br/>
+       Sonuçta müşterinin mutluluğunu amaçlayan bütün bu uygulamalar gerçekten çok hoş oluyor ve umarım başkaları da bu uygulamaya benzer uygulamalar başlatırlar. Ne dersiniz sizce de hoş olmaz mı?
+       <br/>
+       <br/>
+       ufuksanli@usa.net
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=14049), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302225230/http://www.aksiyon.com.tr:80/detay.php?id=14049)

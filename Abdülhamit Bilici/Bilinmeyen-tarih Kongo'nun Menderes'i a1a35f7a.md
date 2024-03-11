@@ -1,0 +1,97 @@
+# Kongo'nun Menderes'i
+
+*Abdülhamit Bilici Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214422im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214422im_/http://www.aksiyon.com.tr/resim/338/16.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir milli kahramanın ölüm yolunda eşine yazdığı mektubun en dokunaklı ‘O geceyi çocuklara anlatmayın’ cümlesine, kahramanın kemiklerini doğrayan cellatların demir testeresinden çıkan sesler eşlik ediyordu. Koparılan parçalar, içinden alevler fışkıran, içi sülfirik asitle dolu bir varile atılıyor, tam olarak yok edilmek isteniyordu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Toprağın altındaki varlığından bile korkulan bu ceset, Afrika’nın en büyük ülkesi Kongo’nun bağımsızlık sonrası ilk başbakanı, 35 yaşındaki idealist genç Patrice Lumumba’ya aitti.
+   <br>
+    <br>
+     Sol hareketlerin idollerinden biri olan Lumumba’nın gündeme gelmesinin nedeni, hayatını konu alan bir filmin bugünlerde gösterime girmiş olması. İlanını görünce ‘Bu filme gitmeliyim’ diye düşünmüştüm. Son zamanlarda gittiğim filmlerden en az seyirciyle izlediğim film olmasına üzülmedim desem yanlış olur.
+     <br>
+      <br>
+       Film başka izleyenlere neler çağrıştıracak bilmiyorum, ancak ben dakikalar ilerledikçe Türkiye Cumhuriyeti’nin demokratik yollarla iktidara geldikten sonra siyasi hayatına darağacında nokta konan rahmetli Başbakan Menderes’i düşündüm. Aynı yıl infaz edilmeleri kaderin bir cilvesi olmalıydı.
+       <br/>
+       <br/>
+       Film, JFK ya da Malcolm X filmlerinde olduğu gibi tarihsel bir kişiliğin hayatındaki karanlık bir noktayı aydınlatmayı hedeflemekten çok dramatik bir hayat hikayesini anlatıyor. Başarılı senaryo atraksiyonları ve güçlü efektlerle süslenmiş öykü, Lumamba’nın hayat hikayesini deşifre ederken, bir yandan da bundan çok değil yalnız 40 sene öncesinde Belçika gibi bugün kimsenin yüzüne bakmadığı küçücük bir ülkenin kendisinin belki yüz katı büyüklüğünde bir ülkeyi ve halkı sömürgeleştirip kanını iliğini emişini, sonra başka çare kalmayınca bir lütf–ı şahane olarak bağımsızlığın verilişini, ancak bunun isimde kalması için her türlü tezgahın ayarlanışını, yerel güçlerin milli projeler karşısında uluslararası güçlerlerle tiksindirici işbirliğini ele alıyor. Önce iklimin, sonra sömürgecilerin kurbanı olan bahtsız Afrika’nın bir bölgesi ve talihsiz kıtanın bir evladı merkezinde tarihin tekrarlayan temalarına atıfta bulunuluyor.
+       <br/>
+       <br/>
+       Lumumba’yı tanıyınca idealist çizginize sadık kalarak siyaset yapmanın ve ayakta kalmanın dünyanın en zor işi olduğunu yeniden görüyorsunuz.
+       <br/>
+       <br/>
+       Karıncanın kıskacındaki fil
+       <br/>
+       <br/>
+       Afrika kıtasında önce sahil kesimleri parsellendiği için Orta Afrika’nın sömürgeleştirilmesi 19’uncu yüzyılın sonlarına kadar gecikmişti. Kolay ulaşılan yerler, sömürgecilikte öncelikliydi. Nitekim Orta Afrika’ya, Lumumba’nın ülkesi Kongo’ya adını veren ve ülkeye Afrika kıtasının sahip olduğu hidroelektrik potansiyelinin yarısını bahşeden Kongo nehri yoluyla ulaştı Batı. Belçika Kralı II. Leopold Kongo nehrinin araştırılmasına öncülük etmiş ve bu ilgisinin karşılığını 1884’te yapılan Berlin Batı Afrika Konferansı’nda almıştı. Sınırları çizilen Kongo Özgür Devleti’nin egemenliği Belçika’ya bırakılıyordu.
+       <br/>
+       <br/>
+       Bu tarihten 30 Haziran 1960’daki bağımsızlığa kadar Belçika Krallığı, Fransa, Almanya, İngiltere, İspanya ve İtalya’nın toplam yüzölçümü kadar büyüklüğe, dünyadaki uranyum kaynaklarının yarısına sahip Kongo’yu ve üzerindeki insanları kendi malı olarak kullanmış, yönetmişti.
+       <br/>
+       <br/>
+       Böyle bir miras üzerine oturan 35 yaşındaki idealist Lumumba’nın iktidarda kalmayı tercih ettiğinde yapması gerekenler belliydi: Öncelikle eski efendiyle iyi geçinmek. Ama o Belçika büyükelçisinin konutundaki işbirliği önerisini reddetmiş, kendi koşullarını sıralamış ve onu kovmuştu. Evet bir köle efendisini kovmuştu.
+       <br/>
+       <br/>
+       Ülkedeki bütün altyapı ve askeri düzen tamamen eski efendinin kontrolündeydi. Kumanda onlardaydı. Belçika’nın Halk Gücü adı altında örgütlediği yerli askerler Belçikalı subaylar tarafından eğitiliyordu. Bir siyahın geleceği en yüksek rütbe çavuşluktu. O kadar sorunları vardı ki, beyaz subayların ülkeden kovulmasını istiyorlardı. Disiplinden zerre kadar nasipleri yoktu. Bir defasında kabineyi bile basarak hükümete isteklerini dikte etmişlerdi. Lumumba onlarla görüştü. Ordunun başındaki generalin görevden ayrılmasını istedi. Yerine Halk Gücü’nde çavuşluğa kadar gelmiş, 1956’da atılmış ve çeşitli gazetelere çalışan Mobutu’yu siyahların başına atamıştı. O, kargaşayı dizginlemek yerine Beyazlar’a karşı girişilen katliamlara ses çıkarmıyordu. Lumumba iktidarda kalmak için kendi yükselttiği arkadaşının yanlışlarını görmezden gelmeliydi. Ama Lumumba, daha sonra Kongo’da ipleri ele geçirerek Batı’nın da desteğiyle 1997’ye kadar ülkeyi yönetecek olan Mobutu ile yolları ayırmayı tercih etmişti. Belçikalılar’a yaptıklarından dolayı övülmeyi bekleyen Mobutu’ya, ‘Cehenneme kadar yolun var’ demişti.
+       <br/>
+       <br/>
+       Lumumba’nın idealizmi, onun Soğuk Savaş şartlarında, bu kadar stratejik bir ülkenin ortada kalamayacağını farketmesine engel olmuştu. Bir son çare olarak ülkedeki ayrılıkçı eğilimleri bastırmak, kargaşayı sona erdirmek için Sovyetler’den yardım istemesi de sonunu getirecek süreci hızlandırmıştı.
+       <br/>
+       <br/>
+       Yaşasın Afrika değerleri
+       <br/>
+       <br/>
+       Kahrolsun ithal ideolojiler
+       <br/>
+       <br/>
+       Sovyetler, üçüncü dünya için ‘profesyonel devrimci’ yetiştirmek amacıyla kurdukları üniversiteye onun adını vermiş de olsalar, (Bugün Rusya’da bu üniversitenin ismi Halk Dostluk Üniversitesi olarak değiştirilmiş) onun komünistliği hâlâ tartışmalı. Böyle olsa da dönemin uluslararası konjonktürü düşünüldüğünde, onu komünist olarak suçlamak rakiplerinin başvuracağı ilk silahtı. Darda kalan Lumumba’nın az da olsa Sovyetler’e meyletmesi ve rakiplerinin bunu çok iyi kullanması, Batı ittifakının onu ortadan kaldırmak için elini çabuk tutmasını sağladı belki de.        Gerçekte Lumumba, ülkenin kabile ve bölgeler temelinde bölünmesini savunan rakiplerinin aksine Kongo’nun milli birliğinden yanaydı. Birçok Afrika lideri gibi o da Afrika Birliği ülküsünü taşıyordu. Afrika değerlerine dönme ve Sovyet ideolojisi dahil bütün ithal ideolojileri reddetme temeline dayalı ‘pozitif tarafsızlık’ idealine bağlıydı.
+       <br/>
+       <br/>
+       Talihsiz idealist Afrikalı kahramanın hayatına, isterseniz biraz daha yakından bakalım: İleride karşısına çıkacak büyük kabile mensubu rakiplerinin aksine küçük bir kabilenin üyesi olarak 1925’te doğuyor. Kongo’nun sömürgecilik sonrası siyasi liderlerin çoğunun ortak bir özelliği misyoner okullarında öğrenim görmüş olmaları. Lumumba da bir Protestan misyonuna bağlı okulda okuyor. Gazetelere şiirler, makaleler yazıyor. Daha sonraları adı Kinşasa olarak değişecek olan Leopoldville’ye taşınınca bir bira fabrikasında ve çeşitli işlerde çalışıyor, posta ofisinde muhasebecilik yapıyor. Basınla ilişkisini sürdürüyor. Yerel düzeyde büyük bir ayrıcalık olarak görülen Belçika vatandaşlığına başvurup alıyor.
+       <br/>
+       <br/>
+       1955’te Belçika’nın Sosyalist ve Katolik sendikalarından bağımsız ilk devlet görevlileri sendikasının bölge başkanı oluyor. Kongo’daki Belçika Liberal Partisi’yle irtibat kuruyor. Sömürgeler Bakanlığı’nın davetiyle 1956’da Belçika’ya düzenlenen bir çalışma turuna katılıyor. Zimmetine para geçirme suçlamasıyla 1 yıl hapse mahkum oluyor. Hapisten çıkınca siyasi aktivitesi artıyor. 1958’de Milli Kongo Hareketi(MKH)’ni kuruyor. 1959’da Belçika’nın, yerel seçimlerle başlayacak 5 yıllık tedrici bağımsızlık programı önerisine milliyetçiler karşı çıkıp, seçimleri boykot ediyorlar. Çıkan olaylarda 30 kişi ölüyor, Lumumba da sorumlu tutularak yeniden hapse atılıyor. Hareket taktik değiştirip seçimlere girince, başkentteki oyların yüzde 90’ını alıyor. Ocak 1960’da Belçika, MKH’yi Kongo’daki bütün partilerin katılacağı, siyasi değişikliklerin tartışılacağı Yuvarlak Masa Konferansı’na davet ediyor. MKH, hapisteki Lumumba çıkmadan katılmayı reddediyor.
+       <br/>
+       <br/>
+       Kısaca filme dönersek, Lumumba’nın kralın davetlisi olarak Belçika’ya gideceği haberi, mutad işkence seanslarının birinin ortasında geliyor. Bağımsızlık günü 30 Haziran olarak karlaştırılıyor. Bağımsızlığın Cezayir örneğinde olduğu gibi kanla değil de, pazarlıkla elde edilmesi dikkat çekiyor.
+       <br/>
+       <br/>
+       Mayıs seçimlerinden zaferle çıkan MKH lideri Lumumba, ülkenin bir numaralı siyasetçisi olarak bütün engellemelere rağmen hükümetini kuruyor, ama çok geçmeden maden zengini Katanga bölgesi bağımsızlık ilan ediyor. Belçika, soydaşlarını koruma maskesi altında, aslında ayrılıkçıları ve mümkün oldukça karışıklıkları teşvik etmek amacıyla Katanga’ya asker gönderiyor. Belçika, ayrılıkçı hareketin lideri Tombe ile çoktan anlaşmıştır. Daha sonra Lumumba’nın koltuğuna oturacak olan Tombe, girişteki infaz sahnelerinin baş aktörlüğünü yaparak aslında kendisine de fazla yar olmayacak bu saltanatın bedelini ödeyecektir.
+       <br/>
+       <br/>
+       Ordudaki siyahların isyanı bütün sistemi kilitlerken, ülkedeki beyazların huzuru hergeçen gün biraz daha kaçıyor. Kaos ortamına son vermek, Belçikalılar’ı ülke dışına çıkarmak için Kongo BM’ye başvuruyor, ancak bu girişim sonuç vermiyor. Katanga’nın ayrılıkçılığını sona erdirmek için BM çare olmayınca, Lumumba’nın asker sevkiyatı için Sovyetler’den uçak istemesi, kendisine yardımcı olmaları için Afrika devletlerinin liderlerini başkente çağırması sonun başlangıcı oluyor.
+       <br/>
+       <br/>
+       5 Eylül’de Devlet Başkanı Kasavubu başbakanlıktan aldı Lumumba’yı. İki taraf arasında prosedürle ilgili hukuki tartışma sürerken Lumumba’nın göreve atadığı Albay Joseph Mobutu yönetime el koydu. Lumumba kendi evinde göz hapsinde tutulurken Mobutu, Kasavubu ile uzlaştı. Başkentten kendi taraftarlarının kontrolündeki bir bölgeye gizlice giderken yolda yakalanan Lumumba, Mobutu tarafından ayrılıkçı Katanga rejimine teslim edildi. 17 Ocak 1961’de ise iki arkadaşıyla birlikte kurşuna dizilerek öldürüldü. Cesetleri dahi yok edildi.
+       <br/>
+       <br/>
+       Başkanın ölüm emri
+       <br/>
+       <br/>
+       Başbakanlık koltuğuna oturduktan 1 ay sonra kendisini kaosun içinde bulan genç başbakan Katanga’nın ayrılması karşısında, Devlet Başkanı Kasavubu’yla birlik beraberlik için ülke turuna çıkarlar. Katanga’ya giden uçak ayrılıkçılar tarafından indirilmek istenmez. Pilota inmesi yönündeki emrini uygulatamaz Lumumba. Pilot sadakatinin öncelikle Belçika’ya karşı olduğunu söyler. Kongo’ya verilen özgürlük ve Lumumba’nın başbakanlığının sınırları bu kadardır. Lumumba’ya ihanet eden dostu Mobutu’dan intikam almak, 1997’de kanlı bir iç savaş sonucu iktidara gelen Laurent Kabila’ya nasip oldu. Ancak Lumumba’nın ölümü üzerindeki sır perdesi hâlâ tam aralanmış değil. Kennedy suikastiyle ilgili arşiv malzemeleri arasında kazaen günışığına çıkan bilgiye göre, Amerikan Başkanı Eisenhower 1960 Ağustos’unda güvenlik danışmanlarına Lumumba’nın öldürülmesi talimatını verdi. Ludo de Witte adlı bir gazeteci ise Belçika hükümeti tarafından konuyla ilgili soruşturma (Meclis soruşturması sürüyor) başlatılmasına neden olan kitabında, öldürme emrini Belçika’nın Afrika İşlerinden sorumlu Bakanı Harold d’Aspremont Lynden’in verdiğini yazmıştı. Yeni bilgiler ışığında Lumumba’nın yakınlarının ya da Kongo yönetimininin Belçika ya da ABD aleyhine tazminat davası açabileceği söyleniyor. Kongo’nun ona sahip çıkmasına şaşmamak gerekiyor. Ne de olsa iktidarının ilk yıllarında Katanga ayrılıkçılığıyla savaşmak zorunda kalan Mobutu, Lumumba’yı milli kahraman ilan etmişti. Belçika Meclisi’nin sürdürdüğü araştırmadan ilginç bulgular çıkarsa belki yeni bir film daha çekilir, ne dersiniz?
+       <br/>
+       <br/>
+       E–Posta: a.bilici@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13002), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214422/http://www.aksiyon.com.tr:80/detay.php?id=13002)

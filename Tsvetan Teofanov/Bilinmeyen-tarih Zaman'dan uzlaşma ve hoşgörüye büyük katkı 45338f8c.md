@@ -1,0 +1,60 @@
+# Zaman’dan uzlaşma ve hoşgörüye büyük katkı
+
+*Tsvetan Teofanov Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050428040640im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050428040640im_/http://www.aksiyon.com.tr/resim/542/37.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sadece kötü haberlerin ilgi uyandırdığı iddiasının etkisiyle yüksek oranda olumsuz haberlerle dolup taşan Bulgar toplumu, geçtiğimiz hafta sürpriz şekilde, iyi haberlerin de toplumun dikkatini çekebildiğini gördü. Bunun sebebi Zaman gazetesinin başkent Sofya’da düzenlediği Toplumsal Barışa Katkı Ödülleri töreniydi.
+ </font>
+ <!------------  GOOGLE SPOT ALTI ------------!>
+<br>
+<iframe name="I1" src="kutu1.php" marginwidth="15" marginheight="15" height="90" width="280" scrolling="no" border="0" frameborder="0"></iframe>
+<br>
+<!------------  GOOGLE SPOT ALTI ------------>
+ <p>
+  <font class="content">
+   Bu ünlü Türk gazetesinin girişimiyle, başkentin en büyükleri arasında yer alan ve ağzına kadar dolan bir salon, ülke genelinden değişik sosyal kesimlerin, dini, etnik ve mesleki toplulukların temsilcilerini bir araya getirip birleştirdi. Siyasetçi, bakan, vali, din adamı, bilim adamı, belediye başkanı, işadamı gibi 16 kategoride ödüle layık görülen 24 kişi, gazetenin okuyucuları tarafından anketle belirlendi. Kesin karar, seçilen kişilerin her birinin toplumsal barışa gerçek katkıları incelenerek bir jüri tarafından alındı. Ödüle layık görülen kişiler arasında, ülkenin eski cumhurbaşkanı Dr. Jelyu Jelev, şimdiki Meclis Başkanı Borislav Velikov, İçişleri Bakanlığı Genel Sekreteri Korgeneral Boyko Borisov, Dışişleri Bakanı Solomon Pasi, Hak ve Özgürlükler Hareketi Genel Başkanı Dr. Ahmet Doğan ve diğer sosyal ve kültürel faaliyetleri olan kişiler bulunuyor.
+   <br>
+    <br>
+     Tarihi açıdan bakıldığında, Türkiye ile Bulgaristan arasındaki ikili ilişkiler, siyasi duruma göre yükseliş ve düşüşlerle kayda geçmiş, ancak karışık nüfuslu bölgelerde yaşayan sıradan Bulgar ve Türkler her zaman barış, iyi niyet ve karşılıklı saygı içinde yaşamıştır. Maalesef, 11 Eylül olayları ve son zamanlarda İslam dünyasında meydana gelen hadiseler, ayrıca Bulgar basınının ülkede yasadışı faaliyet gösteren bazı Arap vakıfları hakkında yayımladığı haberler, İslam’la ilgili her şeye şüphe ve gölge düşürmektedir. Genel olarak Bulgarların bilincinde, bu din her zaman “Türk dini” olarak yer almıştır. Zaman gazetesinin bu girişimi, her türlü esassız şüpheleri dağıtma, iki halk arasındaki ilişkileri ve güveni sağlamlaştırma adına önemli bir vazifeyi yerine getirmiştir. Bir zamanlar Balkanlar, Avrupa’nın barut fıçısı konumundaydı. Daha yakın bir geçmişte, yine bölgesel çatışmaların merkezi oldu. Bu nedenle, Zaman gazetesinin bu güzel girişimi, hem siyasetçiler hem de sıradan vatandaşlar tarafından büyük ilgiyle karşılandı.
+     <br>
+      <br>
+       Barış, toplumun ilerlemesi için en önemli dayanak noktasıdır.
+       <br>
+        <br>
+         Bu değerli girişime el atan ve bunu en parlak şekilde gerçekleştirenin bir Türk gazetesi olduğu gerçeği farklı bir önem arz ediyor. Arap Halifeliği döneminde de, Osmanlı İmparatorluğu döneminde de, farklı din ve kültürleri olan değişik topluluklar bir arada barış içinde yaşamış ve bu farklılık, düşmanlığa ve çatışmalara neden olmamıştır. Bu büyük bir ölçüde, Kuran-ı Kerim’de, Hazreti Muhammed’in hadislerinde ve alimlerin eserlerinde açıkça izah edilen İslamî değerlere dayanmaktadır. İslam medeniyetinin altın çağını yaşadığı dönemler, samimi yöneticilerin izlediği hoşgörü ve liberalizmin işaretlerinden geçmektedir. Bu ölçülerden sapmaları halinde bile yöneticiler ideali tanımışlardır. Kur’an-ı Kerim’in 49. suresinin 13. ayetinde şöyle buyruluyor: “...birbirinizi tanımanız için sizi boylara ve kabilelere ayırdık. Allah katında en değerli olanınız, O’na karşı gelmekten en çok sakınanınızdır.” Toplumların birbirlerini karşılıklı olarak tanımaları ve bilgi arayışı, ayrıca komşularla ve bütün insanlarla barış içinde yaşama, Müslümanların dini görevleridir.
+         <br>
+          <br>
+           Zaman gazetesi verdiği ödüllerle, barışa katkı yapmıştır. Çünkü onun sözleri, binlerce kişi tarafından duyulmakta ve farklı bölgelerde yankılanmaktadır. Gazete, otoriter kürsüsünden, bölücü ve yıkıcı olanı değil, birleştirici ve yapıcı olanı gösteriyor. Aynı zamanda da, güncel ve önemli konuları ve sorunları da gözardı etmeyip, bunlara sağlam temele dayalı, mantıklı, tarafsız ve dengeli cevaplar vermeyi hedefliyor. Zaman gazetesinin Bulgaristan baskısının, ülkedeki çok sesli basın organları arasında yer alışını bir kelimeyle tanımlayacak olursak, bu “insanlık” olacaktır.
+           <br/>
+           <br/>
+           * SOFYA ÜNİ. DOĞU DİLLERİ VE KÜLTÜREL MERKEZİ BAŞKANI
+           <br/>
+           * Bu makale Bulgarca’dan çevrilmiştir.
+           <br/>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+  <br/>
+  <br/>
+  <iframe border="0" frameborder="0" height="292" marginheight="5" marginwidth="5" name="I2" scrolling="no" src="/web/20050428040640if_/http://www.aksiyon.com.tr/egitim.php">
+  </iframe>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=21014&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050428040640/http://www.aksiyon.com.tr:80/detay.php?id=21014&yorum_id=1)

@@ -1,0 +1,109 @@
+# İran’la “fıstık” gibiyiz!
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227160941im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227160941im_/http://www.aksiyon.com.tr/resim/353/48.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Çok değil birkaç sene öncesine kadar İran ile Türkiye arasında gerginlik meydana getiren önemli bir konu da İran fıstığı idi. Antep fıstığına göre daha iri olmasına rağmen kalite açısından mukayese edilemeyecek kadar tadı kötü olan İran fıstığı Türkiye’de seyyar satıcılar ve kuruyemişçiler tarafından satılır olmuştu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hem de Antep fıstığının yarı fiyatına. ‘Bize rakip olamayacak kadar kötü tadı var’ denerek ilk başlarda pek önemsenmeyen bu durum zaman içersinde Antep fıstığının tüm itibarını iki paralık etmeye, iç pazardaki payının gerilemesine neden olmaya başladı. Kalitesi kötüydü ama fiyatı çok cazipti. Bu haksız rekabetten en çok seyyar satıcılar memnundu. Çünkü İstanbul’da her köşe başında İran fıstığı satan bir tezgah kurulur olmuştu. Başta fıstık üreticileri olmak üzere, Gaziantep’in milletvekilleri, belediye başkanı, ticaret odası başkanı yoğun bir kulis çalışması başlatarak çoğu İran’dan kaçak giren fıstığa önlem alınmasını istemişlerdi. Kaçak girdiği için gümrük vergisi  yoktu ve haksız rekabet oluşturuyordu. Uzun bir uğraştan sonra polisiye tedbirler artırılınca bu sorun da yavaş yavaş ortadan kalktı. Üretici derin bir oh çekmiş, İran’ın rejimine teslim olmadığımız gibi fıstığını da diskalifiye etmiştik.
+   <br>
+    <br>
+     İran ile Türkiye arasındaki ilişki yüzyıllardır tıpkı bu fıstık hikayesinde olduğu gibi hep bir germe—gevşetme modeli üzerinde oluşageldi. Her iki ülke karşı tarafa rezerv koydu ve bölgedeki en büyük rakibi gözü ile baktı. Bununla kalmayarak sınırlarını gelişmiş askeri techizatla donatarak milyarlarca dolarlık parayı savunmaya harcamayı da ihmal etmedi. Tüm bunları yaparken her iki taraf da ‘Biz birbirimizin rakibi olabiliriz ama bu durum niçin ticaret yapmaya engel olsun ki?’ sorusunu da ciddi anlamda kendisine sormadılar.
+     <br>
+      <br>
+       Ta ki her iki ülkenin dış politika zihniyetinde ‘eski fobilerin’ yerini ‘yeni arayışlar’ alana kadar.
+       <br/>
+       <br/>
+       Geçtiğimiz yıllarda Türkiye Dışişleri Bakanlığı komşu ülkelerimizle ilgili ilginç bir çalışma yaptırdı ve rapor hazırlattı. Bu rapora göre; dünyada hiçbir gelişmiş ülkenin komşuları ile ticari bir sorunu yok. Tam aksine en ciddi ticari ilişkiler komşu oldukları ülkelerle yapılıyor. Bu bilginin sağlaması da çok kolay. İşte ABD—Meksika—Kanada’nın biraraya gelerek kurdukları NAFTA, işte AB ülkelerinin durumu. Türkiye’nin içinde bulunduğu coğrafyada ise bu görüntünün tam tersi bir manzara hakim. Nerede ise hepsi ile ‘savaş sebebi’ sayılacak boyutta anlaşmazlıklarımızın olduğu komşularla çevriliyiz. Ve ticari ilişkilerimiz ise genel toplamın içerisinde potansiyele göre incir çekirdeğini bile dolduramayacak seviyelerde.
+       <br/>
+       <br/>
+       Genelkurmay sıcak bakıyor
+       <br/>
+       <br/>
+       Bu bilgi hükümet, Genelkurmay ve sivil toplum kuruluşları tarafından da aynen tasdik görünce Genelkurmay’dan da icazet alınarak hükümet tarafından yeni bir yapılanmanın direktifi verildi; TOBB, TÜSİAD, DEİK, Türkiye Müteahhitler Birliği ve TİSK Türkiye’nin komşuları ile ticareti geliştirmek için bir süreden beri ortak bir çalışma yapıyorlar. Yıl sonuna kadar bitecek olan bu çalışma rapor haline getirilerek hükümete sunulacak. Yunanistan, İran, Suriye, Irak, Ermenistan ve Rusya ile teker teker nasıl bir ‘ortak dil’ oluşturulabileceğinin cevabı bulunduktan sonra gerekli organlarında destekleyeceği bir eylem planı oluşturulacak.
+       <br/>
+       <br/>
+       İran’a göre daha farklı değişkenlerin bulunduğu Yunanistan ile Türkiye arasındaki iyi niyete dayanan ikili ilişkilerde önemli mesafelerin alındığını söyleyebiliriz. Hatta işin PR çalışmaları da yapıldı ve ünlü basketbolcumuz İbrahim Kutluay şu anda Yunanistan’ın Panathinaikos basket takımında Türkiye’yi başarı ile temsil ediyor.
+       <br/>
+       <br/>
+       Türkiye ile İran arasında da işte buna benzer bir süreç başlatıldı. İlişkilerdeki samimiyet seviyesine bakıldığında ECU türü çalışmalardan daha başarılı ve realist faaliyetler yapıldığını söyleyebiliriz.
+       <br/>
+       <br/>
+       İran hem değişti hem değişiyor
+       <br/>
+       <br/>
+       Tabii Türkiye’deki değişimden bahsederken İran tarafındaki değişimi görmezlikten gelmeyelim. Hatemi ile birlikte kapalı ekonomi modelinden liberal ekonomi modeline geçmeye çalışan İran 1983 yılındaki Turgut Özal’ın Türkiye’de başlattığı kültürel ve ekonomik konulardaki açıklık çalışmalarını hatırlatan bir sürecin içerisinde şu anda. Halk tarafından büyük destek gören liberalleşme hamleleri ister istemez Türkiye ile İran ilişkilerinde de —problemli konular mahfuz tutularak— ekonomik anlamda yumuşamaya neden oluyor.
+       <br/>
+       <br/>
+       Özellikle son bir yıl içerisinde her iki ülkeden yapılan dışişleri bakanı, ticaret bakanı ve kalabalık bir işadamı heyeti tarafından karşılıklı ziyaretler ve yoğun iş görüşmeleri bu yumuşamanın bir göstergesi. Neticelerinin yavaş yavaş alınmaya başlandığı bu sürecin sembolik anlamdaki açılımlarından birini Tahran’da açılacak olan Migros Alışveriş Merkezi yapacak. Rahmi Koç’un bu adımının diğer işadamlarını da olumlu yönde etkilediğini ve İran’a artık daha farklı baktıklarını gözlemlemek mümkün. Koç sadece Migros ile değil, otomotiv, buzdolabı ve Ram Dış Ticaret A.Ş bünyesinde ne varsa hepsini İran pazarına yönlendirmiş durumda.
+       <br/>
+       <br/>
+       İran’a büyük şirketlerin ilgisi sadece Rahmi Koç ile sınırlı değil. STFA, Sabancı, Yaşar, Zorlu ve Alarko Grubu da İran’da olup bitenlerle yakından ilgililer. İran’ın Moskova’daki binasını Alarko’nun yapması çok konuşulmuştu.
+       <br/>
+       <br/>
+       DEİK çalışmalarına hız verdi
+       <br/>
+       <br/>
+       DEİK’te de konu ile alâkalı şu sıralar hummalı bir çalışma yürütülüyor. Türkiye—İran Ticaret Konseyi oluşturabilmek için bir yıldan beri çalışmışlar ama henüz iş yapan ya da yapmayı isteyen firmalara ulaşmalarına rağmen muvaffak olamamışlar. Şaşıracaksınız belki ama bu konuda İran hiçbir problem çıkartmıyor. Hatta konsey kurabilmek için gerekli olan 25 firma yeter sayısını çoktan bulmuşlar. Ancak Türkiye cephesinde 21 firmaya ancak ulaşılmış, 4 firma daha gerekli.
+       <br/>
+       <br/>
+       DEİK yetkilisinden aldığımız bilgiye göre bu konuda yaşanan güçlüğün temel sebeplerini şöyle özetleyebiliriz: Firmaların temel tercihi bireysel çalışma yürütmek yönünde. İran ile ticaret yapan firmaların önemli bir kısmı KOBİ seviyesinde ve 500 dolar gibi yıllık bir aidatı ödemek mali yapıları açısından lüks geliyor. Bir de önemli oranda kayıt dışı faaliyet yürütüldüğü için Konsey bünyesine girerek kayıt altına alınmak istemiyorlar. Aslında Dış Ticaret Müsteşarı Kürşat Tüzmen’in İran gezisine 80 işadamı katılması umutlanmak için önemli bir rakamdı, fakat iş pratiğe gelince ortada firma kalmadı! DEİK yine de 2001 yılı sonuna kadar yeni firmalar bularak konseyin oluşacağı görüşünde. Özellikle Eylül sonu ya da Ekim başı gibi İran Sanayi ve Ticaret Odası geniş bir işadamı topluluğu ile Türkiye’ye gelecek. Bu, birtakım ilişkilerin daha netleşeceği şeklinde de yorumlanıyor.
+       <br/>
+       <br/>
+       İran STB kurdu bile
+       <br/>
+       <br/>
+       İran, Türkiye ile ticaret yapmada bugüne kadar olmadığı kadar istekli. Örneğin Serbest Ticaret Bölgeleri kurdular ve Türkiye’den gelecek firmalara kapılarının açık olduğunu söylüyorlar. İran’a neler ihraç edebileceğimize baktığımızda aslında yığınla madde göze çarpmakta ama bunlardan en önemlilerini sayacak olursak, bitkisel yağ, dokuma hammaddeleri ve tekstil ürünleri, lastik—plastik, kimyasallar, kağıt ve karton ürünleri, demir—çelik, cam ve cam mamulleri ile otomotiv yedek parçaları. İran’dan alacağımız yüklü miktarda doğalgaza bağlı olarak Türkiye’nin elinin güçleneceğini ve İran tarafının Türkiye’ye daha anlayışlı davranacağını şimdiden söyleyebiliriz.
+       <br/>
+       <br/>
+       Gaziantep Ticaret Odası Başkanı Mehmet Aslan, işte tam bu noktada Türkiye ile İran arasında Serbest Ticaret Anlaşması yapmasını teklif ediyor. Böyle bir anlaşma ile birçok belirsizliğin kendiliğinden ortadan kalkacağını savunan Aslan, “İran sanayi konusunda Türkiye ile rekabet etmekten çok uzak. Biz ne üretirsek İran’a satarız. Sağlıklı bir iletişim için vize uygulaması hiç olmamalı. Vali mektubu ile bile sınırdan geçebilmeliyiz. Üst platformda anlaşmalar sağlam tutulursa biz Türk firmaları aşağıda ne yapacağımızı biliyoruz” diyor.
+       <br/>
+       <br/>
+       İran dikensiz gül bahçesi değil
+       <br/>
+       <br/>
+       İran tabii gene de dikensiz gül bahçesi değil. Öyle hemen açılacak bir pazar değil. Dünyada ticari mevzuatları en sık değişen ülkelerin başında geliyor. Şu anda ithaline izin verilen bir ürünün bir hafta sonra yasaklanmayacağını kimse garanti edemiyor. Bu durum ülkemiz ihracatçılarının bu ülkeye yönelik uzun vadeli planlar yapmasını engellemekte. Gümrük tarifeleri de hâlâ çok yüksek.
+       <br/>
+       <br/>
+       Ülkemize ihracatta rakip ülkeler Almanya, İtalya, Fransa, Japonya, İngiltere, G.Kore, Çin ve B.A.E. Özellikle gelişmiş ülkeler açtıkları ihracat kredileri ile ülkemizin ihracat şansını olumsuz yönde etkilemekte.
+       <br/>
+       <br/>
+       İran’da ithalat tamamen devlet kontrolünde yapılmakta. Döviz tahsisi yeterli olmayan veya döviz tahsisatı alamayan firmalar sadece yaptıkları petrol—dışı ürün ihracatı karşılığında ithalat yapabilmekte. İran’ın ihracatının yüzde 80’i ham petrol olduğu için bu sistem fazla bir potansiyel taşımıyor.
+       <br/>
+       <br/>
+       Ne Türkiye ne de İran tarafında hâlâ birbirlerini resmi işlemlerde tanıyan banka yok. Bu çok önemli bir eksiklik. İranlı firmaların akreditif açmaları için gereken süre 2 ile 7 ay arasında değişiyor. Bu durum ihraç fiyatlarında meydana gelen değişikliklerden dolayı anlaşmazlıklara neden oluyor, ticareti olumsuz yönde etkiliyor.
+       <br/>
+       <br/>
+       İran’ın içinde bulunduğu ekonomik durum göz önüne alınarak, alternatif finansman yöntemlerinin (Eximbank kredisi, petro—finansman sistemi, doğal gaz karşılığı mal alımı, v.b.) uygulamaya konulmasının faydalı olacağı düşünülmekte.
+       <br/>
+       <br/>
+       İthalatına izin verilen ürünler göz önünde bulundurularak ülkemiz ihracatçılarının ihtisas fuarlarına katılmaları teşvik edilmeli. İran’la ticaretimizin artırılmasında önemli yollardan biri de yatırım yapmak. Özellikle İran’da son yıllarda meydana gelen değişikliklere paralel olarak Japonya, G.Kore ve Avrupa ülkelerinin yatırım yapma konusunda çaba sarf ettikleri ve mesafe aldıkları gözlemlenmekte.
+       <br/>
+       <br/>
+       Batı fütüristler Türkiye ile İran arasındaki siyasi rekabetin önümüzdeki 10 yılda daha da artacağını iddia etseler de iki ülke arasındaki ticari ilişkilerin gelişmesinin siyasi hesapları da her iki taraf için gözden geçirmeye iteceğini ummaktan başka çaremiz yok gibi...
+       <br/>
+       <br/>
+       e—mail: harunodabasi@hotmail.com.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12857), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227160941/http://www.aksiyon.com.tr:80/detay.php?id=12857)

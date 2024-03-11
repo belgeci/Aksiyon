@@ -1,0 +1,96 @@
+# Pandora'nın kutusu açılıyor
+
+*Mehmet Yılmaz Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Sonunda Suriye de karıştı. Kürtlerle Araplar arasındaki çatışmalar kanlı bitti. Irak"taki Kürtlere önemli haklar veren anayasanın imzalanmasından sonra Suriye"deki Kürtlerin ayaklanması dikkat çekti. Her şey bir futbol maçı sırasında başladı. Suriye"nin kuzeydoğusunda yer alan Kamışlı"daki stadyumun tribünleri, El Fetva ve El Cihad takımları arasındaki müsabakayı seyretmek isteyen futbolseverlerle doluydu. El Fetva Arapların, El Cihad ise Kürtlerin takımıydı. Saha ve hava şartlarının futbol oynamaya elverişli olduğu bir cuma günü iki takım sahaya çıktı ve futbollarını oynamaya başladı. Ancak, maç tamamlanamadı. El Fetva taraftarlarının yanlarında getirdiği Saddam Hüseyin"e ait fotoğrafları çıkararak devrik Irak lideri lehine tempo tutması, Kürtlerin olduğu tribünleri hareketlendirdi.
+   <br/>
+   <br/>
+   İki grup arasındaki atışmalar kısa sürede kanlı bir kavgaya dönüştü.
+   <br>
+    <br>
+     Olaylar stadyumla sınırlı kalmadı. Önce Kamışlı ilçesine, ardından Halep ve Haseki gibi büyük şehirlere, civardaki köy ve kasabalara yayıldı. Onlarca insan öldü, yüzlerce kişi yaralandı. Güvenlik güçlerinin El Cihad taraftarlarına ateş açtığını iddia eden Kürtler, öfkelerini kitlesel bir isyana dönüştürdü. Şam yönetimi aleyhine sloganlar attılar, karşılarına çıkan hükümet binalarına saldırdılar, yol üzerindeki dükkanları kundakladılar, otomobilleri ateşe verdiler. Baas Partisi"nin sıkı kontrolü altındaki Suriye, böyle bir sosyal patlamaya hiç şahit olmamıştı son on yılda.
+     <br>
+      <br>
+       Şam"daki rejim, ilk kez bu kadar ciddi bir meydan okuma ile karşı karşıya... Hükümet, olayları ABD"nin yeni müeyyideler uygulamaya hazırlandığı bir sırada ülkenin istikrarını hedefleyen bir "dış müdahale" olarak nitelendiriyor. Suriye Devlet Başkan Yardımcısı Abdülhalim Haddam"a göre hadiseler yabancıların işi.
+       <br>
+        <br>
+         Irak"taki gelişmeler cesaretlendirdi
+         <br/>
+         <br/>
+         Kim başlatmış olursa olsun Suriye"de yaşananlar, her şeyden önce bu ülkedeki Kürtlerin giderek artan huzursuzluğuna işaret ediyor. Ayrıca, bölgenin yeni gelişmelere gebe olduğuna da... Yaklaşık bir yıl önce Irak"ta başlayan savaş sonrası Saddam Hüseyin rejiminin devrilmesi, 8 Mart 2004 tarihinde imzalanan anayasa ile kuzeydeki Kürtlerin önemli kazanımlar elde etmesi bölgesel dengeleri değiştirme kapasitesine sahip iki önemli gelişme olarak dikkat çekiyor. Özellikle de ikincisi... Irak, İran, Suriye ve Türkiye"de yaşayan Kürtler, söz konusu anayasayı bağımsız devlet kurma yolunda atılan ilk somut adım şeklinde algılıyor. Geçici anayasa ile Kuzey Irak"ta yaşayan Kürtlere geniş ölçüde bir özerklik güvencesi veriliyor ve ilk defa bölgede federal bir devlet yapısı kabul ediliyor. Kürtçe de, Arapça"nın yanında devletin ikinci resmi dili oluyor.
+         <br/>
+         <br/>
+         Irak"taki Kürtlerin elde ettiği bu kazanımlardan cesaret alan Suriyeli Kürtlerin, "Amerikan baskısı altındaki Şam yönetimine meydan okumanın tam sırası. Belki biz de Irak"taki soydaşlarımız gibi haklar elde edebiliriz" şeklinde düşündüğü ve ilk fırsatta harekete geçtiği anlaşılıyor. Suriye"deki olaylardan bir gün sonra Irak geçici anayasasının geniş çaplı sevinç gösterileriyle İran"da kutlanmasını da unutmamak lazım. Çeşitli şehirlerde yapılan gösterilerin en anlamlısı Mahabad şehrinde yapılandı belki de. 50 bin kişi, bundan tam 58 yıl önce şimdi tarihe karışan "Mahabad Cumhuriyeti" adındaki ilk Kürt devletinin ilan edildiği şehrin merkezindeki meydanda toplandı ve sevinç çığlıkları attı. Tarihe ilk Kürt devleti olarak geçen cumhuriyet, 1946 yılının aralık ayında İran ordusunun şehri ele geçirmesine kadar, Sovyetler Birliği"nin desteği altında bir yıl boyunca ayakta kalmıştı.
+         <br/>
+         <br/>
+         Barut fıçısına dönen bağımsızlık ihtirası
+         <br/>
+         <br/>
+         Irak"taki gelişmelerin Kürtleri cesaretlendirdiği ortada. ABD"de yayımlanan Christian Science Monitor gazetesi, "savaştan sonra Irak"taki Kürtlerin elde ettiği kazanımların, başta Suriye olmak üzere bölge ülkelerindeki diğer Kürtleri de harekete geçme yönünde cesaretlendirdiği" görüşünü savunanlardan. Nicholas Blanford imzalı haber yorumda, Kürt nüfusa sahip Türkiye, Suriye ve İran"ın Irak"taki son gelişmelerden duyduğu endişe vurgulanıyor ve "Suriye"deki Kürtlerin şiddetle patlaması, Irak"taki Kürtlerin kazanımlarının bölgedeki diğer Kürtleri daha fazla tanınma çabalarında cesaretlendirdiğini gösteriyor" değerlendirmesini yapıyor.
+         <br/>
+         <br/>
+         Aynı görüşü paylaşanlardan biri de Suriye"de faaliyet gösteren Kürt Yekiti Partisi Genel Sekreteri Abdülbaki Yusuf. Irak"taki anayasanın imzalanması ile Suriye"deki olaylar arasında doğrudan bir bağlantı olmadığını savunsa da, yine de insanların Irak"ta Kürtçenin resmi dil olması ve Kürtlere sivil haklar tanımasından etkilendiğini ifade ediyor. Christian Science Monitor"a konuşan bir uzmanın, Kürtlerin bağımsızlık ihtirasını bölgesel "bir barut fıçısı" şeklinde nitelendirmesi, yine Şam"daki bir Avrupalı diplomatın, "Kürtlerin son zamanlarda hareketlendiğini fark ettik. Suriyeli Kürtler, Irak"taki gelişmeleri, daha fazla hak elde etmeleri yolunda bir fırsat olarak görüyor" sözleri, Suriye"de yaşananların bölgede ne tür gelişmeleri tetikleyeceğini gösteren birer ipucu niteliğinde.
+         <br/>
+         <br/>
+         Suriye Kürtleri organize değil
+         <br/>
+         <br/>
+         Konuyla ilgili olarak Aksiyon"a konuşan Oklahoma Üniversitesi öğretim üyesi Dr. Joshua M. Landis, Kamışlı"daki olayları bir Kürt isyanının başlangıcı olarak görmüyor. Beşşar Esad"ın iktidara geldiği 2000 yılından bu yana diğer Suriye vatandaşları gibi Kürtlerin de daha fazla özgürlük ve haklar elde etmek istediğini dile getiren Landis, Suriye"deki Kürtlerin Irak"taki gelişmelerden, özellikle de orada yaşayan soydaşlarının lehine olan anayasanın imzalanmasından etkilenmiş olabileceğini söylüyor. Geçmişte Kürtlerin Suriye parlamentosu önünde gösteri yaptığını ve daha fazla hak talebinde bulunduğunu hatırlatan Joshua Landis, "Suriye hükümeti Irak"taki gelişmelerin ülkedeki Kürt nüfusu etkileyebileceğinden endişe duyuyor. Fakat, Suriyeli Kürtler Türkiye ya da Irak"takiler gibi bir bağımsızlık hareketi organize edebilecek örgütlü yapıya sahip değil" şeklinde konuşuyor.
+         <br/>
+         <br/>
+         "Suriye"de yaşayan Kürtler bağımsızlığı destekler ya da bağımsız bir Kürdistan devletine katılır mı?" şeklindeki soruya Dr. Joshua Landis, pek çok Kürt"ün Irak"ın kuzeyinde halklarına tanınma ve saygınlık getirecek bir Kürt devletini görmekten mutlu olacağını; Irak, İran, Suriye ve Türkiye"de yaşayan Kürtleri bir araya getirecek büyük Kürdistan"ı hayal edeceğini belirterek, "Ancak, çoğu bunun gerçekçi olmadığını biliyor. Az sayıda Suriyeli "Büyük Kürdistan" için kollarını açıp bekleyecektir" şeklinde konuşuyor. Joshua Landis"e göre, Suriyeli Kürtler Şam"daki hükümetin diğer komşu yönetimlerle karşılaştırıldığında kendilerine iyi muamele yaptığının farkında. Suriye hükümetinde Alevi azınlık hükümran olduğundan Kürtlere iyi muamele ediliyor. Örneğin Hafız Esad, Sünni Araplara karşı Kürtleri önemli bir müttefik olarak gördü yıllarca.
+         <br/>
+         <br/>
+         Vatandaş sayılmayan ecnebiler
+         <br/>
+         <br/>
+         18 milyon nüfusa sahip Suriye"de, 1,3 milyon Kürt kökenli insan yaşıyor. Bu insanlardan yaklaşık 225 bini "ecnebi" olarak tanımlanıyor ve vatandaşlığa kabul edilmiyor. Yurtiçi seyahatlerde kullanmaları için kendilerine yalnızca kırmızı renkli bir kimlik kartı veriliyor. Güvenlik riski taşıdığına inanılan bu insanların büyük bölümü, 1920"li yıllarda Türkiye"de çıkan isyanlar sırasında Suriye"ye geçmiş kişilerden oluşuyor. Yaşadıkları bölge ise ülkenin kuzey doğusunda zengin petrol ve doğalgaz yataklarının bulunduğu, en fazla pamuk üretiminin yapıldığı Cezire bölgesi.
+         <br/>
+         <br/>
+         "Ecnebi" Kürtler, askerlik yapmak zorunda olsa da hükümete bağlı işlerde çalışamıyor, oy veremiyor ve gayrimenkul edinemiyor. Yurtdışına seyahat etmeleri de yasak. Evli olanların resmi nikahları bulunmuyor. Dolayısıyla dünyaya gelen çocuklar da resmi kayıtlarda yaşıyor görünmüyor. Joshua M. Landis, Suriye vatandaşı olan Kürtlere anayasaya göre eşit haklar sunulduğunu, ancak diğerlerinin her türlü haktan mahrum kaldığını belirtiyor.
+         <br/>
+         <br/>
+         Araplaştırma politikası
+         <br/>
+         <br/>
+         Suriye hükümeti, bağımsız bir Kürt devletinin kurulmasının kendi toprak bütünlüğüne zarar vereceğine inandığından ülkesindeki Kürtleri kontrol altında tutmak istiyor. 1961 yılında Birleşik Arap Cumhuriyeti"nin dağılmasından sonra Suriye"deki Baas rejimi Arap milliyetçiliğine dayalı politikalar geliştirmeye başladı. Bu amaçla 1962 yılında "Araplaştırma" politikasını yürürlüğe koydu. Aynı yıl özel bir nüfus sayımı gerçekleştirildi ve 1920"li yıllarda Türkiye"den gelen Kürtlerin pasaportları ellerinden alındı. Keyfi uygulamaların da yaşandığı bu süreçte aynı aileden olan insanlara bazen farklı uygulamalar yapıldı. Kimisi vatandaşlık hakkı elde ederken kimisi bundan mahrum kaldı. Çocuklar da "ecnebi" olarak tarif edildi bu uygulama sırasında.
+         <br/>
+         <br/>
+         Şam yönetimi, amaçlarının Türkiye"den illegal yollarla Suriye topraklarına sızan yabancıları tespit etmek olduğunu açıkladı o dönemde... Bununla kalmadı Arap aileleri Türkiye sınırına yakın Kürt köylerine yerleştirme politikasını devreye soktu. Köylerin isimleri değiştirildi. Böylece, Türkiye"de yaşayan Kürtlerle Suriye"dekiler arasında doğal bir bariyer oluşturulmaya çalışıldı.
+         <br/>
+         <br/>
+         İlk kez ziyaret edilen Kürt bölgesi
+         <br/>
+         <br/>
+         Kürt nüfusa yönelik politikalar 2000 yılında hayatını kaybeden Hafız Esad döneminde tedrici olarak hafifletildi. Eylül 2002 tarihinde Devlet Başkanı Beşşar Esad"ın bir ilk"e imza atarak Kürtlerin yoğun olarak yaşadığı Haseki şehrini ziyaret etmesi, bu ülkede bir şeylerin değişmeye başladığının göstergesi kabul edildi. Şam"daki hükümetin yeni bir yaklaşımı devreye soktuğu yorumlarına yol açan ziyaretle Kürtlere, "problemlerinizi biliyoruz, ancak bunu baskı aracı olarak kullanmayın" mesajı verildi.
+         <br/>
+         <br/>
+         Suriye"de yaşayan Kürtler, özerklik peşinde olmadıklarını ısrarla söylüyor bugün. Diğer Suriye vatandaşları ile aynı haklara sahip olmayı, Kürt kimliğinin ve kültürünün tanınmasını, kendi dillerinde eğitim yapmayı, asimilasyon politikalarının son bulmasını, ikinci sınıf vatandaş muamelesinin bitmesini istiyorlar.
+         <br/>
+         <br/>
+         Bu isteklerin hayata geçirilmesinde kilit isim, Haziran 2000 tarihinden beri iktidarda olan Beşşar Esad. Babasından boşalan koltuğa oturur oturmaz hemen herkes kendisinden siyasi reformlar yapmasını, ekonomik sistemi rehabilite etmesini, ülkesinin İsrail ve ABD ile ilişkilerini düzeltmesini umuyordu. Aradan geçen dört yıla rağmen bunların büyük bir bölümü henüz hayata geçirilebilmiş değil. Siyasi reformlar sınırlı, ekonomik düzenlemeler de yetersiz kaldı. İsrail ve ABD ile ilişkiler Irak savaşı sebebiyle daha da kötüye gitti. Bu şartlar altında Kürtlerin talepleri yerine getirilemedi.
+         <br/>
+         <br/>
+         Bugün bir iç bunalımla yüz yüze Beşşar Esad ve Suriye. Son olaylar, Şam yönetimi ile Kürtlerin 1986, 1992 ve 1995 yıllarında karşı karşıya geldiği olaylardan çok farklı. Her ne kadar Suriyeli Araplar, çıkan hadiseleri Kürtlerin meseleyi siyasileştirme girişimi olarak görse de bölgede Pandora"nın kutusu açılmış durumda. Düne kadar "saatli bomba" olarak Suriye"nin iç dinamiklerinin bir parçası olan Kürtler, bugün istikrarı tehdit eden bir unsur haline gelmiş bulunuyor. Suriyeli Kürtler bakalım Irak"takiler gibi uzun vadeli stratejiler üreterek somut kazanımlar mı elde edecekler yoksa reformlarını yapmış bir Suriye"nin parçası haline mi gelecekler? Hep birlikte göreceğiz.
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1895 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11286), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050126115554/http://www.aksiyon.com.tr:80/yazdir.php?id=11286)

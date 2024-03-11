@@ -1,0 +1,100 @@
+# İhtisaslı bir hastane olayı
+
+*Ahmet Dinç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226005554im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20050226005554im_/http://www.aksiyon.com.tr/resim/394/hastane.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Sağlık camiası skandalları ve hizmetteki kusurları ile hiç gündemden düşmedi. Bu konudaki son örnek olay, Türkiye Yüksek İhtisas Hastanesi'nde yaşananlar. Yolsuzluk yaptığı resmi raporlarla tespit edilip hastaneden uzaklaştırılması istenen Doç. Oğuz Taşdemir, "ödül" olarak başhekim yapıldı.
+  <br>
+  </br>
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İsimleri, ileride yazılacak olası bir gazeteci hatıra kitabına saklayıp, haber merkezlerinin birinde geçen yaşanmış bir olayı naklederek başlayalım: Muhabir pürheyecan haber müdürünün yanına koşar ve "Abi ... gümrüğünde bir yolsuzluk yakaladım. Belgeleri de var elimde. Gene ortalığı sarsacağız. Hemen yazmaya başlayayım mı?" diyerek onay bekler. Müdür gayet sakin, sorar: "Kaç paralık bir yolsuzlukmuş bu bakiim?" Muhabir: "Gümrük ... Müdürü 15 milyon dolar götürmüş abi." Müdür yüzünü ekşitir ve şöyle der: "Yaa boşver bu ufak tefek konuları oğlum. Ben de şöyle birkaç milyar dolarlık bir şey sandım. Bu kadarcık bir yolsuzluk yazmaya değmez, kalsın".
+   <br/>
+   <br/>
+   <br>
+    Türkiye"deki yolsuzluk, suiistimal ve hırsızlıkların boyutunun, haber anlayışına yansıması, bu. Habercilerin eline hemen her gün öylesine büyük boyutlu yolsuzluk bilgileri geçiyor ki, devletin 15 milyon dolarını çalan kişi, yazılmaya değer görülmüyor. Hemen her haber merkezinde, yukardakine benzer vakalar mutlaka yaşanmıştır.
+    <br/>
+    <br/>
+    <br>
+     Son dönemde, Türkiye Yüksek İhtisas Hastanesi"nde birtakım ilginç olaylar yaşanıyor. Tam da, haber müdür ve şeflerine, "Yolsuzluk şu kadar rakam olmayınca yazmayız" dedirtecek cinsten. Zaten bugüne kadar medyada kendine yer bulamaması, hastanede olanların "önemsiz" görüldüğünün işareti gibi.
+     <br/>
+     <br/>
+     <br>
+      Önce rapor, sonra mahkeme
+      <br/>
+      <br/>
+      <br>
+       Sağlık Bakanlığı Teftiş Kurulu Başkanlığı"nca hazırlanan bir raporda, o sırada Yüksek İhtisas Hastanesi"nde klinik şefi olarak çalışan Doç. Dr. Oğuz Taşdemir"in bulaştığı iddia edilen çeşitli yolsuzluk ve usulsüzlük olayları göz önüne seriliyor. Yıldırım Aktuna"nın Sağlık Bakanı olduğu 1996 Aralık ayında hazırlanan raporda Taşdemir"in kınama, aylıktan kesme, kademe ilerlemesinin durdurulması, Yüksek İhtisas Hastanesi dışında başka bir yerde vazifelendirilmesi, çeşitli kanunların ilgili hükümleri açıkça belirtilerek öneriliyor. Raporda ayrıca Taşdemir"e idari/mali konularda sorumluluk taşıyan görevler verilmemesi gerektiği belirtiliyor. Aktuna, kendisine sunulan raporun üzerine, önerilenlere onay veren "olur"unu ve imzasını atmış.
+       <br/>
+       <br/>
+       <br>
+        Kullanılmayan cihaza fatura kesildi
+        <br/>
+        <br/>
+        <br>
+         Resmi raporda KardioVasküler Cerrahi Kliniği Şefi Oğuz Taşdemir ve klinikte çalışan bazı personel hakkında ilginç bulgular açıklanıyor: "Açık kalp ameliyatlarından "çalışan kalpte" sistemi uygulananlarda oksijenatör cihazı kullanılmadığı halde, "çalışan kalpte" uygulananlar dahil bütün kalp ameliyatlarında bu cihazın kullanıldığı yönünde fatura belgesi düzenledikleri, böylelikle değişik kurumların zararına sebebiyet verdikleri anlaşılmıştır. "Çalışan kalpte" yöntemiyle ameliyat yaptıkları Bağ-Kur mensubu hastalara dışarıdan aldırdıkları oksijenatörü kullanmadıkları halde, hasta sahiplerine iade etmedikleri, hastanede kalan malzemeler için resmi giriş kaydı yapmayıp akibeti hakkında şaibeye neden oldukları anlaşılmış olup, haklarında kamu davası açılarak, TCK"nın 240. maddesine göre yargılanmaları gerekmektedir."
+         <br/>
+         <br/>
+         <br>
+          Raporda, Taşdemir"in, bazı personelle birlikte "BKC, PKC ve BKT" adlarında, kalp cerrahisi ve yoğun bakım hizmeti veren üç ayrı şirket kurduğu, Yüksek İhtisas Hastanesi"nden Özel Güven Hastanesi"ne hasta sevkedebilmek için "protokol odası" adı altında bir birim oluşturulduğu, buradan  birtakım oyunlarla hasta sevkettikleri, gerçek dışı randevulandırmalarla, görevlerinden doğan yetkilerini kendi çıkarları ve menfaatleri için kullandıkları, ekip olarak mesai saatleri içinde Güven Hastanesi"ne gidip kalp ameliyatı yaptıkları ve ücretlerini sözkonusu şirketler aracılığıyla aldıkları anlatılıyor. Şu ifadeler de rapordan: "Ameliyatlar için ihtiyaç duyulan kalp kapaklarının normal yollardan teminini sağlamak üzere, ihtiyaç bildirmek ve alımını istemek yerine, yasalara ve Bakanlığımız genelgelerine aykırı olarak, ameliyathanenin bir bölümünde, "konsinye emanet statüde" Bıçakçılar A.Ş. firmasınca hastaneye bırakılmış seri halinde kalp kapakları bulundurdukları,  ihtiyaç halinde bu seri içerisinden kullandıkları kalp kapaklarının bedel ödemesi aşamasında hasta sahipleri ile satıcı firmayı karşı karşıya getirdikleri, yasalara aykırı şekilde belli bir firmanın kullanımına yönelik sistem kurdukları incelenen belgeler ve ifadelerden anlaşılmakta".
+          <br/>
+          <br/>
+          <br>
+           Sağlık Bakanı"nın rapor için "gereği yapılsın" demesi pek bir şeyi değiştirmiyor. Çeşitli ayak oyunları başlıyor. Rapor doğrultusunda Taşdemir ve diğerleri hakkında kamu davası açılır. Hastane davaya müdahil olarak katılır. Hastaneyi Taşdemir"e karşı Avukat Muhlis Erdoğan savunur. Fakat raporda, "Mali sorumluluk almamalı, Yüksek İhtisas Hastanesi"nden uzaklaştırılmalı" denilen Taşdemir"e hiçbir şey yapılamaz. Önce, "Taşdemir ve ekibi giderse hastanede kalp amelayatı yapacak kimse kalmayacak" propagandası başlatılır. Ardından siyasi oyunlar... ANASOL-M koalisyonu hükümet olur, ardından Oğuz Taşdemir de Yüksek İhtisas"a başhekim. Mahkemenin sürdüğü bir sırada, Taşdemir "tedviren" başhekim olarak atanır. Diyarbakır Milletvekili Osman Aslan, Taşdemir"in bütün şaibelere ve iddialara rağmen başhekim yapılması konusunu bir soru önergesiyle TBMM gündemine getirir. Soru önergesine verilen cevapta, Taşdemir"in görevden alınmasının, Kalp-Damar Cerrahisi Kliniği"nde çalışan tek şef olması nedeniyle mümkün olmadığı açıklanır.
+           <br/>
+           <br/>
+           <br>
+            Başhekim Taşdemir"in yaptığı ilk icraat, raporda yaptığı belirtilen yolsuzluklar üzerine kendisine karşı açılmış davada hastaneyi savunan Avukat Erdoğan"ın sözleşmesini feshetmek oldu. Böylece savunmasız kalan Yüksek İhtisas Hastanesi, kendi başhekimine karşı açtığı davayı kaybetti.
+            <br/>
+            <br/>
+            <br>
+             Meçhul kanül
+             <br/>
+             <br/>
+             <br>
+              Raporda belirtilen bazı "durumlar", Taşdemir"in başhekim olmasından sonra da değişmedi. Özel Güven(şimdi Çankaya oldu) Hastanesi"yle olan ve raporda belirtilen "ilişkiler" bugün de sürüyor.  MEDOS firmasından hastaneye alınan kanüllerle ilgili, "üretim izninin olmadığı ve sağlıksız" iddiaları bunlardan biri. Hastanenin ihale şartnamesinde, alınacak kardiyopleji kanülünün (kalp ameliyatında kullanılan içi boş plastik boru şeklinde bir alet) özellikleri sıralanırken, "Retrograd kardiyopleji kanülü DLP 94315"in özelliklerine sahip veya muadili olmalıdır" diyor. Son ihalede MEDOS marka kardiyopleji kanülünün alımı uygun görülüyor. Fakat uzmanlar, bu aleti kuşkuyla karşılıyor. Gerçekten de MEDOS ürünleri üzerinde Retrograd marka kanülün ticari olarak kabul edilmiş ismi yok. Kateter üzerinde uygunluk belgesini gösteren CE belgesi (TSE"nin Avrupa standartlarında muadili), patent ya da lisans numarası da bulunmuyor. Sözkonusu kanülün MEDOS"ta üretildiğini gösteren yeterli bilgiye de ulaşamadık. Tüm bilgiler, ambalaj üzerine kolayca çıkacak şekilde yapıştırılan etikette mevcut. Etikette, üretildiği ülke adı da yok. MEDOS firmasının tüm ürünlerinin üzerinde CE belgesi var ama kanülün ilgili firma tarafından üretildiğine ilişkin belge yok. Dahası, bir ürünün marka olabilmesi için adının olması gerekir ama kanül, isimsiz. İlginç olan şu ki, internet üzerinden arama yaptığımızda, MEDOS firmasının ürettiği mallar arasında, hastanenin alımını yaptığı ürünün adına rastlamak mümkün olmadı. Durum böyle olunca, kanülün kuşkulu yollardan yurda sokulduğu, üretim izni olmaksızın fason olarak üretildiği gibi iddialar ortaya çıktı.
+              <br/>
+              <br/>
+              <br>
+               Aynı şey, oksijenatör için de geçerli. Yine MEDOS firmasına ait görünen oksijenatör cihazının da üzerinde, kanül için yukarıda anlattıklarımız var. Sağlık camiasında bu tür fason malların çok fazla rağbet gördüğü, ancak bunların sıhhi açıdan zararlı olduğu söyleniyor. Çok düşük fiyatlarla ülkeye giren bu mallar, hastanelere çok yüksek fiyattan satılıyor. Kazanansa aradaki farkı cebine indirenler oluyor.
+               <br/>
+               <br/>
+               <br>
+                Hemen belirtelim, objektif habercilik saikiyle ve cevap hakkı verme niyetiyle ulaşmaya çalıştığımız Başhekim Oğuz Taşdemir"le, birçok aramalarımıza rağmen görüşemedik.
+                <br/>
+                <br/>
+                <br>
+                 Burada, bir hastane manzarası ortaya koymaya çalıştık; raporlara, mahkemelere kadar yansıyan yolsuzluk iddialarıyla birlikte. Devletin çıkarını korumakla görevli müfettişlerin, bir bir yolsuzluk ve suiistimalleri anlattığı raporda, "Mali konularda görev ve yetki verilmemeli, hastaneden gönderilmeli" dedikleri personelin, dönüp aynı hastaneye başhekim atanması ancak siyasi oyunların, toplumsal krizlerin had safhaya ulaştığı anomi dönemlerinde rastlanılacak bir vaka. Umulan o ki, bütün alanlarda, Türkiye"nin her hücresinde yolsuzluk ve suiistimalde adeta yüksek ihtisas derecesi alan kimseler korunmasın, adalet yerini bulsun.
+                 <br>
+                 </br>
+                </br>
+               </br>
+              </br>
+             </br>
+            </br>
+           </br>
+          </br>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1396), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226005554/http://www.aksiyon.com.tr:80/detay.php?id=1396)

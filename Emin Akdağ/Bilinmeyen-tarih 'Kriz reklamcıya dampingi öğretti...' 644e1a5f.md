@@ -1,0 +1,62 @@
+# 'Kriz reklamcıya dampingi öğretti...'
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041106213745im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041106213745im_/http://www.aksiyon.com.tr/resim/442/62.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Reklamverenler Derneği Asbaşkanı Caner Tunaman, reklam fiyatlarının daha önceleri suni olarak şişirildiğini, kriz sonrası arz talep kanunun işlemesiyle fiyatların yarı yarıya düştüğünü söyledi. Ekonomiyi neredeyse durma noktasına getiren 21 Şubat 2001 krizinden üç beş fırsatçı hariç, olumsuz etkilenmeyen yok.
+ </font>
+ <p>
+  <font class="content">
+   Ancak krizler yıkıcılıklarının yanı sıra bazı yönleriyle öğretici de olabiliyorlar. Tıpkı Şubat krizinde yüzde 50 küçülen Türkiye reklam sektörünün fiyatları aşağı çekmesi örneğindeki gibi...
+   <br/>
+   <br/>
+   2001 krizine kadar Türkiye’deki reklam pastasının büyüklüğü ortalama 1 milyar dolar civarındaydı. Gerçi 1997’den itibaren pasta büyümüyordu ama küçülmüyordu da. Acımasız Şubat krizi kimseye sormadan pastayı ortadan bölerek yarısını alıverdi. Reklamcılar şoktaydı. Personelin yüzde 30’u kapı önüne kondu. Krizde reklam, tasarruf kalemlerinin ilk sırasına yerleştirilmişti. Daha önceki reklam kampanyalarından her açıdan yararlanan çoğu firma bile reklamı kesmeyi tasarruf gördü.
+   <br/>
+   <br/>
+   Bunlar yaşanırken görüştüğümüz reklam veren işadamlarının ve reklamcıların kurumsal başkanları, reklam anlayışındaki bilinç mahrumiyetinden sözediyorlardı. Aradan iki yıl geçmişti. Acaba kriz sonrasında ne tür gelişmeler meydana gelmişti ve gelecek için neler öngörülüyordu? Son zamanlarda reklamlar bayağı fazlalaşmıştı? Bu, pastanın yarısının geri dönmesini mi işaret ediyordu?
+   <br/>
+   <br/>
+   Reklamcılar yüzde 50 fiyat kırdı...
+   <br/>
+   <br/>
+   Reklamverenler Derneği dönemsel başkanlığını devreden ama as başkanlığı sürdüren Caner Tunaman, “Türkiye’nin belki de gelmiş geçmiş en büyük iktisadi krizi” diye nitelediği 21 Şubat 2001’den sonra reklam cirosunun yarı yarıya gerilediğini, 2002’de sadece yüzde 25 arttığını, 150 milyon dolar rakamına varılan 2003’ün ilk üç ayına göre de işlerin pek iyi gitmediğini söylüyor. Tahminlerin fevkinde gelişmeler yaşanmazsa yıl sonu reklam cirosu 600 milyon dolar olabilecek. Bu rakam kriz öncesi 1 milyar dolardı. Türkiye’deki çok sayıda tanınmış markanın fikir babası olan Reckitt Benckiser Kurucu Başkanı Tunaman, cirodaki düşüklüğe rağmen reklamlardaki gözle görünür artışa dikkat çekiyor. Bunun sebebi de, reklam fiyatlarının yüzde 50 ucuzlaması. Yani eski fiyatlar uygulansaydı, yıl sonu cirosu 1 milyar 200 milyon doları bulacaktı. Peki bu ucuzlama nasıl gerçekleşmişti? Tunaman bu konuya şöyle açıklık getiriyor:
+   <br/>
+   <br/>
+   “Baştan beri söylüyorum, lütfen arz talep kanunları çalışsın. Gazetelerin,dergilerin, televizyonların ne kadar yeri varsa reklama açılsın. Reklamveren de bütün parasını ortaya koysun. Türkiye’de reklam fiyatları suni olarak yükseltiliyordu. Bimaş türü kuruluşlar vardı ya... Bunlar üç dört kişinin bir araya gelip suni olarak fiyatları yüksetttikleri çalışmalardı.”
+   <br/>
+   <br/>
+   Reklam ciro üzerinden yüzde ile yapılmalı
+   <br/>
+   <br/>
+   Geçen iki yıllık sürede işadamlarının bilinç düzeyinde bir hayli ilerlemeler kaydedildiğini ama hâlâ reklama bilinçle bakamayan büyük patronlar bile olduğunu anlatan Caner Tunaman, krize rağmen reklamı kesmeyen firmaların büyük kârlar elde ettiğini dile getiriyor. Akbank ve Garanti Bankası’nı da buna örnek gösteriyor. Türkiye’de, dünyadakinin aksine, reklamın bir harcama kalemi görülmesinden yakınan Tunaman, “Reklam bir yatırımdır” diyor ve cironun yüzdesi üzerinden planlanması gerektiğini ifade ediyor: “Türkiye’de reklam bütçeleri para ile ölçülüyor, bu çok yanlış. Reklam verene bunu öğrettik. Ciro gelmedi mi, o ciroya uygun reklam yapılmalı. Kriz senesinde bazı reklam verenler cirosunun çok altında reklam yaptı. Şimdi onların yapması gereken arayı kapamak. Bir zamanlar cirosunun yüzde 4’ünü reklama ayırmış, başarılı olmuş ve zirveye çıkmış firmalar bile kriz diye bunu yüzde 1’e indirmiş. O arkadaşımızın bu sene cirosunun yüzde 7’sini reklama ayırması lazım.”
+   <br/>
+   <br/>
+   Global krizlerde dünya ölçeğinde de reklam pastalarının küçüldüğünü, ama oralarda arz talep kanunları işletildiği için reklam miktarının gerilemediğini vurgulayan Tunaman: “Geldiğimiz noktayı onlar daha önceden gördüler. Avrupa’da, Asya’da, dünyada kriz gerçekten var. Ne oluyor, cirolar azalıyor. Azalınca da ciro yüzdeleriyle reklam yapıldığı için otomatikman pasta küçülüyor. Ama bünyesinde pazarlama kökenli hiçbir Batılı şirket reklam harcamasını yüzdenin altına düşürmez.”
+   <br/>
+   <br/>
+   Dünyadaki en büyük turizm potansiyeline sahip 5 ülkeden biri olan Türkiye’nin SARS paniğinden azami derecede istifade etmesi gerektiğini de belirten Tunaman, “Dünya niçin Arjantin’e borç vermiyor. Çünkü geri ödeme gücü yok. Ama Türkiye’nin var. Türkiye’nin turizmi var, ihracatı var. Avrupa’ya yakınlığı var. Altyapısı var. SARS bizim için bir şans, aynı zamanda bir tehlike. Allah korusun bu bir virüs olayı. Kimseye garantisini veremeyiz. Hatta düşmanımız çok. Tam turizm mevsiminde kadın gidiyor Ankara’nın göbeğinde bomba patlatıyor. Memleketin içinde hain de çok. Basınımız da bazı hadiseleri büyütmemeli. Çok milliyetçi olmak zorundayız. Bakın Amerika 11 Eylül’ü nasıl kapattı. Allah muhafaza İstanbul’da olsaydı...” diyerek uyarıyor.
+   <br/>
+   <br/>
+   Bu hükümet Türkiye için bir şans...
+   <br/>
+   <br/>
+   2001 krizinin etkilerinin ortadan kalkmaya başladığını açıklayan Tunaman, yakın gelecekte iyi gelişmelerle karşılaşacağımızı da düşünüyor: “Türkiye’de büyük bir değişiklik var. Özal hükümetinden beri Türkiye ilk defa liberal konuşuyor. Az buçuk Süleyman Demirel döneminde konuşmuştu ama, daha sonra kötüleşerek, komünist denebilecek kadar koyu bir sisteme bürünmüştü. Bugünkü hükümet liberal bir hükümet. Bu Türkiye için büyük bir şans. Üstelik de kuvvetli bir hükümet. İstediği kanunu çıkarabilecek güçte. Çok pozitif, güzel şeyler yapılmaya başlandı. Şu vergi barışı, tarihe geçecek bir başarı. 1 buçuk katrilyon toplayamazsınız demişler, 8 katrilyon topladılar. Orman vasfını kaybetmiş arazilerin satılması mükemmel bir girişim. Senelerdir devlet malının üzerine oturmuş, ne kullandırıyor, ne de satıyor, ne de değerlendiriyordu. Şimdi çok bilinçli bir iş yapılıyor. Niçin Belgrad ormanlarının içinde bir tane Four Seasons oteli kurulmasına izin verilmesin. Bir tane ama. Üstelik onu kurdururken de, çok iyi şartlar belirlenir. Dünyanın en iyi ikinci Four Seasons oteli olacak gibi... Bir tane de Bursa’ya koydurursun.”
+   <br/>
+   <br/>
+   Reklamcılarla çok iyi ilişkiler kurduklarını, ortak projeler ve eğitim organizasyonları yaptıklarını da belirten Tunaman, “Reklamverenin de reklamcının da hâlâ öğrenmesi gereken çok şey var ” diyerek bir gerçeğin altını çiziyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=2612&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041106213745/http://aksiyon.com.tr:80/detay.php?id=2612&yorum_id=1)

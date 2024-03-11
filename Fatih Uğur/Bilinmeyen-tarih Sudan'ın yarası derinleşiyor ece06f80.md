@@ -1,0 +1,107 @@
+# Sudan'ın yarası derinleşiyor
+
+*Fatih Uğur Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041014152122im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041014152122im_/http://www.aksiyon.com.tr/resim/511/56.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Birleşmiş Milletler Güvenlik Konseyi’nin Sudan hükümetine yönelik kararlarından sonra gözler yine kara kıta Afrika’nın bu bölgesine çevrildi.
+ </font>
+ <p>
+  <font class="content">
+   İnsanî felaket çağrılarıyla başlatılan uluslararası yardımlar Sudan’ın sorunlarını çözmek yerine derinleştiriyor. Sudan’ın batısındaki Darfur bölgesinde, yaklaşık 19 aydır devam eden dram büyüyor. On binlerce insanın hayatını kaybettiği, iki milyona yakın kişinin topraklarını terk etmek zorunda kaldığı bölge, insanî bir felaketle karşı karşıya... Yetersiz beslenme, açlık, sağanak yağmurlar ve ilaç sıkıntısından kaynaklanabilecek salgın hastalıklar, mülteci kamplarında yaşayan on binlerce insanın hayatını tehdit ediyor. Özellikle sıtma, Hepatit E ve malaya (sıtmanın bir sonraki aşaması) salgınlarından korkuluyor... Birleşmiş Milletler Güvenlik Konseyi’nin geçen hafta aldığı bir karar, Sudan hükümetine yönelik talepleri ve siyasi adımları içeriyor. Halbuki, Hartum yönetiminin hazırladığı bir rapor ise bölgede yaşanan dramın boyutlarını gözler önüne seriyor.
+   <br/>
+   <br/>
+   Aylardır dünya kamuoyuna yönelik ‘insani felaket’ çağrılarından sonra başlatılan ve BM koordinasyonunda yürütülen yardım çalışmaları, sorunun çözümünden ziyade daha da kronik hale gelmesine yol açıyor. Ağustosta ve eylül başında Darfur’daki kamplarda görev yapan uluslararası yardım çalışanı Türker Fatih Çelik, otuz üçten fazla sivil toplum kuruluşunun (NGO-Nongovermental Organization) çalıştığı Niyala bölgesi ve çevresinde, insanî yardımdan çok BM inisiyatifi ve siyasî yönlendirmelerin etkili olduğunu söylüyor. Sudan Sağlık  ve İnsanî Yardım Bakanlığı’ndan Türk Büyükelçiliği ve Dışişleri Bakanlığı’na iletilen yardım davetini getiren Çelik, “NGO’lar insanî yardımın gerekli olduğu her yere gider. Halbuki burada yardım çalışmalarına katılan kuruluşlar BM’nin sağ kolu gibi çalışıyor. Gidilecek denilen yere gidiyor, fakat diğer yerlere bakan bile yok. İnsanî yardımın götürüleceği bölgelere gidilmiyor. Sanki, oyalanma üstüne kurulmuş daha kapalı bir yardım ağı çalışıyor” diye konuşuyor.
+   <br/>
+   <br/>
+   Yardım kuruluşlarının şaibeli işleri
+   <br/>
+   <br/>
+   Sudan Sağlık ve İnsanî Yardım Bakanlığı’nın hazırladığı Darfur raporunda, 400 bin kişinin göç etmek zorunda kaldığı, 1,5 milyon insanın bu yer değiştirmeden direkt etkilendiği vurgulanıyor. Raporun satır aralarında dikkat çeken en önemli nokta ise, bölgeye yardım amaçlı gelen kuruluşların yürüttüğü faaliyetlerin mahiyetleri ile ilgili. Örneğin, 2 Eylül tarihli raporda; ağustos ayı sonunda çalışmaları yasaklanan Amerikan insanî yardım örgütü CARE’in Sudan’daki temsilcilerinin güneydeki ayrılıkçı milislerden iki kişiyi işe alıp, savaştıkları kabilelerin kampında iş vermesiyle olayların patlak verdiği anlatılıyor. Kalma Kampı’nda yaşanan olay yerel halka saldırı yapan iki güneylinin kampta CARE adına istihdamıyla başlamış. Halk, bu iki kişiyi linç edip öldürdükten sonra da yardım kuruluşunun çalışmaları durdurulmuş.
+   <br/>
+   <br/>
+   Raporda anlatılanları, Türker Fatih Çelik şöyle yorumluyor: “Gittiği her yerde yerel kaynakları kullanmayı prensip edinen NGO’ların çatışma ve aşiret sabıkası olan kişileri işe alması, üstelik karşı grubun kampında çalıştırması kasıt değilse bile büyük bir ihmâldir. Bu ihmâller kabilelerin birbirleri arasındaki sürtüşmelerden, yardım kuruluşlarına hatta BM temsilcisi ve çalışanlarına sıçrarsa olayların önü alınamaz.”
+   <br/>
+   <br/>
+   Bölgeye sivil yardım kuruluşlarıyla birlikte giden Alman Humedica-NGO temsilcisi Çelik, 50 yıllık profesyonel müdahale yeteneği olan BM’ye bağlı kuruluş ve sivil toplum örgütlerinin Sudan’da oyalama taktiği ile işleri uzattığına dikkat çekiyor.
+   <br/>
+   <br/>
+   300 bin kişiye bir hastane düşüyor
+   <br/>
+   <br/>
+   Sudan Sağlık Bakanlığı kayıtlarına göre Güney Darfur’da 300 bin kişiye bir hastane, 100 bin kişiye bir sağlık ocağı düşüyor. Koordinasyonsuz ve yetersiz her çalışma yeni sağlık zafiyetleri ortaya çıkarıyor. Bu yüzden beş yaşın altındaki çocuklar ile kadınların ölüm oranları, sıralamadaki birinciliğini koruyor. Açılan sağlık ocaklarının yanı sıra, pratisyen hekim ve ebelerle yüz binlerce insana düzenli sağlık yardımı götürülmek isteniyor. Ancak mağdur sayısı ve kimlikleri o kadar değişken ki, bu gayretlerin sonu gelmiyor. Niyala ve çevresindeki üç kampta olduğu gibi şehirlerin banliyölerinden kopup gelen onbinler, çöllerden göçen gerçek mağdurların yer aldığı kamplarda yardım(!) alma peşinde koşuyor. Bölgede iptal edilen bir sayımda görev yapan Çelik, “Gündüz 30 binlerde gözüken kamp, gece yarısından sonra 10 binli nüfuslara iniyor. İç göçten mağdur olmayanlar da mağdur görüntüsü verip hak etmediği halde yardım talep ediyor” diyor.
+   <br/>
+   <br/>
+   Temizlik şartlarının yerine getirilememesi sebebiyle kamplarda en sık görülen hastalıkların başında karaciğer iltihaplanması yer alıyor. Darfur ve çevresinde ölümcül düzeyde bu hastalıkla boğuşan 145 kayıtlı göçmen hasta var. Ancak sivil kaynaklar bu sayıyı binlerle ifade ediyor.  Niyala, Kas, Musa, Ad-El Fursan bölgelerindeki kamplarda kayıtlı göçmen sayısı 160 binin üstünde.
+   <br/>
+   <br/>
+   Sudan hükümeti ve Darfur Eyalet Valiliği’nden Türk Dışişleri Bakanlığı’na iletilen rapor ve davetle eylül başında sivil toplum desteği istendi. Geçen hafta Dışişleri Bakanlığı’nın gündeminde yoğunlaşan Sudan kulisleri ilk meyvesini verdi. Perşembe günü Türk Hava Kuvvetleri’ne ait iki ağır nakliye uçağı Darfur Eyaleti’ndeki Niyala Havaalanı’na indi. Toplam 275 bin dolar değerindeki gıda malzemesi, branda, ilaç ile genel sağlık ve tıbbi laboratuvar malzemelerinden oluşan yardım bizzat milletvekillerinin de yer aldığı Türk heyetince Sudanlı yetkililere teslim edildi.
+   <br/>
+   <br/>
+   Sudan Kızılayı yeniden yapılandırılmalı
+   <br/>
+   <br/>
+   Sudan’a giden Türk heyetinin içinde yer alan Kızılay Genel Müdürü Ömer Taşçı, Türkiye’nin Sudan’a yapacağı en iyi yardımın ‘Sudan Kızılay’ına eğitim-koordinasyon ve yeniden yapılandırma desteği’ olacağını ifade ediyor. Darfur ve başkent Hartum’da kendilerine iletilen en önemli talep bu yönde olmuş. BM, Kızılhaç ve uluslararası yardım kuruluşlarının faaliyetlerini koordine etmekte sıkıntı çeken Sudanlı yetkililer, bizzat Taşçı’dan yeniden yapılandırma desteği talep etmiş. Bölgeye sağlık teçhizatı ve malzemesi ile gıda olmak üzere iki kategoride götürülen yardım halka ulaştırılmış. Taşçı, bölgede tansiyonun düşmeye başladığına işaret ederek, “Daha önce televizyonlardan gördüğümüz insanî dramlar azalmış. Kamplar düzenli hale getirilmiş. Hatta şimdi geri dönüş için Sudanlı yetkililerin ve kamplardaki aşiret liderlerinin yoğun gayretleri var” diyor.
+   <br/>
+   <br/>
+   Özellikle Darfur’da Türk yardımı ses getirmiş. Şehir merkezinden 3 kilometre uzaklıktaki kampta gıda yardımlarının dağıtımına katılan Kızılay Genel Müdürü Taşçı, halkın gözündeki bu kredinin artırılmasının yollarını aradıklarını belirtiyor. Maddi yardımdan çok daha önemlisi Sudan’ın ve halkın yanında olduğunu gösterme amaçlı, eğitim-koordinasyon yardımları geç de olsa bölgede varlığını duyuran Türkiye’yi bir adım öne taşıyacak.
+   <br/>
+   <br/>
+   Misyonerlik ve eve dönüşte çatışma tuzakları
+   <br/>
+   <br/>
+   Darfur’da, kamplardaki göçmenlerin geri dönüşü için yoğun çaba sarfediliyor. Sudanlı yetkililerin dönüş yolunda karşılaşmaktan korktukları en büyük tehlike ise, küçük çaplı çatışma ve saldırılarla yaranın tekrar açılması. Bölgeyi yakından tanıyan bir isim, özellikle aşiretlerin silahsızlandırılması ile ilgili çalışmaların bölgede yeni gerilimler oluşturabileceği uyarısında bulunuyor.
+   <br/>
+   <br/>
+   Güney Darfur Eyalet İnsan Yardım Sorumlusu Cemal Yusuf İdris’in Hartum’daki Türk Büyükelçiliği’ne iletilen raporunda en çok dikkat çeken noktalardan bir diğeri de, göçle birlikte toplu yaşama alanlarına yığılan insanların psikolojik durumu. Şehirlerdeki iş gücünü olumsuz etkileyen göçün kamplardaki insanlarda psikolojik sorunlar oluşturduğunu vurgulayan Yusuf İdris, raporda önemli bir ayrıntıya daha dikkat çekiyor: “Bölgede İslam ülkelerinden insanî yardım örgütü bulunmaması büyük eksiklik. Çoğu Batılı yardım kuruluşlarından oluşan mevcut örgütlerin içinden misyonerlik faaliyetleriyle ilgili girişimler görüyoruz. Geçen hafta Güney Darfur’da 20 Müslüman genç din değiştirerek Hıristiyan oldu. Yurtdışında eğitim amaçlı bu yardım kuruluşlarıyla Sudan’dan ayrılmak için başvuran öğrenci sayısı ise 2 bini geçti.”
+   <br/>
+   <br/>
+   Raporda  acil ihtiyaçlar kısmında insanî yardım örgütleri arasında dengenin sağlanması için Müslüman ülkelerin sivil toplum kuruluşlarından koordinasyon desteği talebinde bulunuluyor. Türk Kızılayı’nın bölgeye götürdüğü yardımların yenisi insan kaynağı şeklinde olacak. Bölgeyle yakından ilgilenen İHH İnsani Yardım Vakfı da Ramazan ayı içinde Sudan’a yönelik yardım kampanyasıyla mağdur halkın yanında olmayı hedefliyor.
+   <br/>
+   <br/>
+   SUDAN HALK KONGRESİ PARTİSİ GENEL SEKRETER YARDIMCISI ALİ HAC: SİYASÎ DRAM, İNSANÎ  DRAMIN ÖNÜNDE
+   <br/>
+   <br/>
+   Sudan’da 1989’daki İslami devrimin fikir mimarlarından Hasan El Turabi’nin yardımcısı Dr. Ali Hac Muhammed Adem, hükümetin iç siyasi hatalarını uluslararası arenaya taşıdığını ileri sürdü. Halen Almanya’da siyasi mülteci olarak yaşayan muhalefetteki Sudan Halk Kongresi Partisi Genel Sekreter Yardımcısı Hac, sorunun siyasi olduğunu belirterek hükümetin değişmesiyle Darfur’daki kabilelerin anlaşma masasına oturup aralarındaki ihtilafları çözebileceğini söylüyor. Bölgede yaşayan nüfusun tamamının Müslüman olduğunu belirten Adem, “Müslüman ülkeler buralara mutlaka yardım eli uzatmalı. Ancak bunu körü körüne yapmak yerine, halkla irtibatlı yapmalı” diye konuşuyor. Hac, Batılıların son 4–5 ayda yoğunlaşan ilgisini ise, “Bu bir nüfuz hareketidir” sözleri ile yorumluyor.
+   <br/>
+   <br/>
+   DARFUR’DA ÇATIŞAN SİLAHLI HAREKETLER
+   <br/>
+   <br/>
+   Aşiret anlayışının güçlü ama ekonomik kaynakların kıt olduğu Darfur’da silahlı mücadele yürüten dört grup bulunuyor. Çatışmalarda başrolü oynayan Fur Kabilesi ile Arap kabileler arasındaki en son çatışma 1989 yılında yaşanmış. Ayrılıkçı Messaliye kabilesi ile hükümet arasındaki son çatışmalara ise 1998’de şahit olunmuş. Her iki sorun da barışla noktalanmış. Son olaylarda aşiret geleneğinin devlet tarafından korunmasının kuşkusuz büyük payı var. Devasa arazilerin korunması için zayıf merkezi hükümetin başvurabileceği tek çözüm yolu silahlı aşiretler.
+   <br/>
+   <br/>
+   Güney Sudan’daki ayrılıkçı Hıristiyan hareketi Sudan Halk Kurtuluş Ordusu (Sudan People Liberation Army - SPLA): Yukarıdaki hareketlerin tümüyle belirli oranda irtibat kuran John Garang liderliğindeki SPLA, merkezi hükümetin zayıf düşmesi için 22 yıldır silahlı mücadele veriyor.
+   <br/>
+   <br/>
+   Sudan Kurtuluş Ordusu (Sudan Liberation Army - SLA): Çatışmalara en yoğun katılan örgütlerden biri olan SLA, Sudan Özgürlük Cephesi’nin silahlı kanadı olarak tanınıyor. Başkanlığını Sudanlı bir avukat olan Abdulvahid Muhammed Nur yapıyor. Fur kabilesine bağlı Nur’a Sudan ve Çad ordularında komutanlık yapmış birçok subay destek veriyor.
+   <br/>
+   <br/>
+   Adalet ve Eşitlik Hareketi (Justice and Equality Movement - JEM): Londra’da ikamet eden sürgündeki Zagava Kabilesi mensubu Halil İbrahim isimli bir doktor liderliğinde hareket ediyor. Darfur’daki operasyonları Ticni Salim Derru adlı bir komutan yürütüyor. Din devlet ilişkilerinin birbirinden ayrılmasını savunuyor.
+   <br/>
+   <br/>
+   Federal İttifak Partisi (Hizbu’t Tahalüf el Federali-HTF): Batı Sudan’daki Fur kabilesine mensup Ahmed İbrahim Dureyc liderliğinde hareket ediyor. Dureyc, halen Londra’da yaşıyor. Çatışmalardaki payı çok düşük.
+   <br/>
+   <br/>
+   Cancevidler: Can (adam), cev (silah taşıyan), vid (at) kelimelerinin birleşmesinden oluşan bu kelime, silahlı süvari anlamında kullanılıyor. Hükümet yanlısı Arap kabilelerden seçilen savaşçılara bu isim veriliyor. Mahalliye, Hebbaniye, Beni Hülbe gibi 8 kabileden seçilmiş binlerce milisten oluşuyor. Liderliğini Musa Hilal yapıyor. Daha önce güneydeki ayrılıkçı hareketle mücadelede kullanılan Cancevidler’in şimdi hükümet adına otorite tesis etmek istediği iddia ediliyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### erkan uçan, 25-Eylül-2004
+> Misyonerlere dikkat!: 
+> “Sudan’ın yarası derinleşiyor” başlıklı yazıda dikkatimi çeken husus, Hıristiyan misyonerlerle ilgili olan bölümdü. Aynı şey şu an Irak’ta da yapılıyor... Üzerimize düşen vazifeyi yerine getiremiyoruz maalesef. Çaresiz kalan insan ne yapmaz ki? Aynı taktiği PKK da denedi ve ne yazık ki başarılı oldu...Yetkili kurum ve kuruluşlarımız ne olur biraz daha duyarlı olsun.
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=15808&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041014152122/http://aksiyon.com.tr:80/detay.php?id=15808&yorum_id=1)

@@ -1,0 +1,38 @@
+# Motif Triko 'kadın modası' oluşturuyor
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041213075710im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041213075710im_/http://www.aksiyon.com.tr/resim/514/78.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Moda denilince akla ilk gençler gelir... Uzun boylu, düzgün fizikli ve yaşı 25’i geçmeyen gençlerin giydiği kıyafetlerin toplumun tümünü yansıttığı zannedilir.
+ </font>
+ <p>
+  <font class="content">
+   Oysaki her yaşın ve her kesimin ayrı bir modası var. Orta yaş erkekler takım elbise kreasyonlarıyla genç modasına karşı bir nebze olsun direnebilirken; orta yaş bayanlar bu konuda oldukça dertli.
+   <br/>
+   <br/>
+   Yaşları 30 ile 50 arasındaki milyonlarca bayanın giyim zevkinin farklı olduğu ve bu yaş aralığındakilerin de sık sık kendi modalarını oluşturmak istedikleri unutulurken Motif Triko, farklı tarzıyla kadınların imdadına yetişti. Ürünlerini, orta yaş aralığındaki kadınlara triko kazak ve tişört üreterek sınırlayan Motif Triko, Türkiye’de lokal bir tüketici grubuna ürün tasarlayan tek firma konumunda.
+   <br/>
+   <br/>
+   Her tekstilcinin her kıyafeti ürettiği Türkiye’de, orta yaş kadınlara sadece kazak üretmenin bir risk olup olmadığını sorduğumuzda firma sahibi Şakir Çoban’dan şu cevabı alıyoruz: “Biz unutulan ama sayısı ve giyim zevkleri hiç de küçümsenmeyecek bir kitle olan 25 yaş üstüne üretim yapıyoruz. Risk taşıyoruz; çünkü alternatif yaş aralığı ürünümüz yok. Ancak tekstilde marka olmanın ya da moda trendlerini izlemenin tek yolu uzmanlaşmadan geçiyor. Lokal üretim yaparken şunu rahatlıkla söyleyebiliyoruz: Modamızı sıkı takip ediyoruz. Başkasını taklit eden değil; takip edilen oluyoruz.”
+   <br/>
+   <br/>
+   Türkiye’de yıllık 400 milyon adet triko üretiminin çok fazla olduğunu söyleyen Şakir Çoban, ayakta kalabilen firmaların trikoyu tek meslek seçenler olduğunu hatırlatarak, “32 yıllık trikocu olmamıza rağmen halen triko üzerine araştırmalar yapıyoruz. Trikomuzu dünyaya tanıtmak için yapılacak çok iş var; ancak sektörde herkesin trikoya yönelmesi Türk ürünleri üzerinde olumsuz tesir yapabiliyor” diyor.
+   <br/>
+   <br/>
+   Motif ürünlerini bayanlar yakından takip ediyor. Hedef kitlelerindeki kadınların kilo problemi olabileceğini de hesaplamış  ve özel tasarımlar yapmışlar; “Uzun araştırmalar, defalarca denemeler yaptık ve bazı ürünlerimizin kilolu bayanları zayıf gösterdiğine kanaat ettik”. Kadınlar, bu tür kıyafetlerden oldukça memnun. Motif Triko’nun orta yaşa yakın bayanlar için önerdiği kış kreasyonunun içinde siyah ve bej renklerin ayrı bir önemi var. Pantolon ve etek üzerine giyilecek trikolar için ilginç yaka çeşitleri de bulunuyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16657&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041213075710/http://www.aksiyon.com.tr:80/detay.php?id=16657&yorum_id=1)

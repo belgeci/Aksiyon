@@ -1,0 +1,115 @@
+# Susurluk tanığı 5 esrarengiz ölüm
+
+*Faruk Mercan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050122213227im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050122213227im_/http://www.aksiyon.com.tr/resim/517/32.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Beşi de Susurluk olaylar zinciri hakkında bilgi sahibiydi. Biri Çatlı’nın ortağı, diğeri MİT görevlisiydi. Susurluk ilişkilerinin peşine düşmüş hakim de, sırlara meraklı milletvekili de, telekulak kahramanı da trafik kazalarına kurban gitti.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Milli İstihbarat Teşkilatı (MİT) görevlisi Ertuğrul Berkman, Başbakanlık Hukuk Müşaviri Hakim Akman Akyürek, Gaziantep Milletvekili Bedri İncetahtacı, Telekulak davalarının kilit sanığı Cengiz Çelik ve MHP'li işadamı Efraim Barut... Son yedi yıl içinde trafik kazaları ile hayatlarını kaybeden bu beş kişinin ortak bir özellikleri daha vardı. Beşi de, 3 Kasım 1996'da Susurluk'ta meydana gelen trafik kazasından sonra başlayan süreçte isimleriyle ön plana çıktı.
+   <br>
+    <br>
+     MİT görevlisi Ertuğrul Berkman, Meclis Susurluk Komisyonu üyesi Fikri Sağlar'a bilgi ve belge desteğinde bulunmaktaydı. Berkman'ın otomobili, 29 Ağustos 1997 günü Bozöyük-Eskişehir yolunda 40 metre sürüklendikten sonra Çimento Fabrikası bahçesindeki ağaçlara çarparak durabildi. 66 yaşındaki Berkman ile birlikte eşi Gülseren Berkman da hayatını kaybetti, kızları Aylin Berkman yaralandı.
+     <br>
+      <br>
+       Hakim Akman Akyürek, Meclis'te kurulan hayali ihracat olayları ve faili meçhulleri araştırma komisyonlarından sonra Susurluk Komisyonu'nda da raportör olarak görev almıştı. Komisyon adına pek çok bilgi ve belgeyi takip eden, bu bilgi ve belgelerin gelip toplandığı kişiydi. 8 Aralık 1997 tarihinde, gece yarısı İstanbul Maslak'ta otomobiliyle bir kamyonun altına girdi. Akyürek'in otomobili, kamyonun kasası ile ters istikametteydi. Yıldız Teknik Üniversitesi Öğretim Üyesi Profesör İrfan Yavaşlıol, otomobilin solda olması ve çarpışmanın soldan meydana gelmesinin eşyanın tabiatına aykırı olduğunu belirtmekteydi. Bu durum, yağmurlu havada trafikte seyreden Akyürek'in üçüncü bir araç tarafından sıkıştırıldığı tezini güçlendirmekteydi.
+       <br/>
+       <br/>
+       Sırlara ilgi duyan milletvekili
+       <br/>
+       <br/>
+       Gaziantep Milletvekili Bedri İncetahtacı, Meclis Susurluk Komisyonu sözcüsüydü. Bir dergide yazı yazdığı köşeye "Sırrın Çözümü" adını vermiş olması, onun "sırlara" olan ilgisini göstermekteydi. 21 Kasım 1999 sabahı Almanya'nın Köln kentine gitmek üzere Meclis lojmanlarındaki evinden çıkıp otomobiliyle Esenboğa Havalimanı'na doğru yola çıktı. Yağmur sebebiyle ıslanmış yolda, önce orta refüjdeki ağaçlara, ardından da aydınlatma direğine çarpan 39 yaşındaki İncetahtacı olay yerinde öldü. O gün Finlandiya Cumhurbaşkanı Ankara'ya geleceğinden, İncetahtacı'nın otomobili hemen yol üzerinden kaldırıldı ve Akyurt Jandarma Karakolu'nun önüne çekildi. Akyurt Savcısının, İncetahtacı'nın otomobilini görmesine izin vermediği Susurluk Komisyonu Başkanı Mehmet Elkatmış'a göre kaza "kuşku verici" idi. Elkatmış, hemen koruma talebinde bulundu.
+       <br/>
+       <br/>
+       Kendisini, çevresine "özel harpçi" ve "MİT'çi" olarak tanıtan 34 yaşındaki Cengiz Çelik, Ankara'da ETG isimli bir elektronik ve güvenlik şirketi ile bir "dedektiflik" bürosunun sahibiydi. Emniyet ve MİT'e elektronik cihazlar satıyor ve takip bürosuyla izleme, dinleme faaliyetleri yapıyordu. Kısa bir süre içinde Ankara ve İstanbul'daki pek çok telekulak olayının aktörü haline geldi. Ankara'daki davanın sanıklarından biri de Korkut Eken'di. Sibel Can'ın eski kocası Hakan Ural’ı, Murat Karayalçın’ı, aralarında savcıların da bulunduğu daha birçok kişiyi dinlemeye, izlemeye alan ekip Cengiz Çelik ve arkadaşlarıydı. Cengiz Çelik davalar sürecinde ABD'ye kaçtı.
+       <br/>
+       <br/>
+       Abilerimizin canı yanmasın diye...
+       <br/>
+       <br/>
+       Türkiye'ye gelişi öncesinde konuştuğu Hürriyet muhabiri Doğan Uluç'a, "Bazı abilerimizin canı yanmasın diye, bugüne kadar sesimi çıkarmadım. Telekulak ile ilgili her şeyi kayıt bantlarına okuyorum. Altı bant doldurdum, dahası da var. MİT ve emniyetten Osman Ak, Nuri Gündeş, Hamdi Tuna, Cevdet Saral gibi çok sevdiğim kişiler var, fazla konuşamıyorum" dedi. Olayların iç yüzünü altı ses kasetine doldurduğunu açıklayan Çelik, gıyabi tutukluluğu af kanunu gereği kalkınca Türkiye'ye döndü. Ve 1 Temmuz Pazar günü saat 03.00'de, beş arkadaşıyla Muğla'dan doğum yeri Dalaman'a giderken şarampole yuvarlandı. Arabadaki beş kişi yaralanırken, hastaneye kaldırılan Cengiz Çelik dört gün sonra öldü.
+       <br/>
+       <br/>
+       Efraim Barut, Abdullah Çatlı'nın ortağıydı. GSC tekstil şirketini birlikte kurmuşlardı. Vefat eden Milliyetçi Hareket Partisi (MHP) eski Genel Başkan Yardımcısı ve Çorum eski Milletvekili Mehmet Irmak'ın Ankara'daki cenaze törenine katılmak üzere MHP İstanbul İl Başkan Yardımcısı İbrahim Uçar'la birlikte 29 Mayıs 2003 tarihinde sabah erkenden Ankara'ya hareket ettiler. Gebze yakınlarına doğru, içinde bulundukları Mercedes'in önüne bir kamyondan çuval düştü. Devrilen arabada Barut ve Uçar vefat etti.
+       <br/>
+       <br/>
+       Her yıl yüzlerce trafik kazasının meydana geldiği ve binlerce insanın öldüğü Türkiye'de, bu beş olaya da birer "nizami" trafik kazası deyip geçmek mümkün. Ancak bu beş isimden özellikle Akman Akyürek ve Cengiz Çelik'in geçirdikleri kazaların zamanlaması oldukça düşündürücü. Çünkü, arabasında çıkan çok sayıda belgenin de gösterdiği gibi Akyürek, Susurluk Komisyonu'nda sıradan bir raportör gibi çalışmamıştı ve değişik ilişkilere sahipti. Cengiz Çelik ise, yarı resmi birçok telekulak olayının kilit ismiydi. Üstelik, ABD'den Türkiye'ye gelişi öncesinde, "Konuşursam yakarım" demişti ve Türkiye'ye geldikten kısa bir süre sonra trafik kazasında ölmüştü.
+       <br/>
+       <br/>
+       Raportörün ilişkileri
+       <br/>
+       <br/>
+       "Akman Akyürek'in Susurluk Komisyonu raportörlüğü görevinden ayrıldıktan sonra Güney Afrika, İspanya gibi birçok ülkede bazı araştırmalar yapmak üzere görevlendirildiği iddia edilmektedir. Bu iddia doğru ise Akyürek'e bu görevler hangi kurum veya kurumlar tarafından verilmiştir? Bu araştırma ve incelemeler hangi konuları ihtiva etmektedir? Anılan araştırma ve incelemelere hangi nedenlerle gerek duyulmuştur ve araştırma sonuçları nelerdir, araştırmaların maliyeti ne kadardır ve hangi kurum tarafından karşılanmıştır? Akyürek'in devlet görevlisi sıfatıyla özellikle görev yaptığı komisyon çalışmaları ve özel araştırmaları sonucu oluşturduğu söylenen kişisel arşivinin korunması ve elde ettiği bilgi ve belgelerin ilgili kurumlarca değerlendirilmesi için herhangi bir işlem yapılmış ve kaybolmaması için gerekli önlemler alınmış mıdır?"
+       <br/>
+       <br/>
+       Bu sorular, Cumhuriyet Halk Partisi İçel Milletvekili olarak Susurluk Komisyonu'nda görev alan Fikri Sağlar tarafından Başbakan Mesut Yılmaz'ın cevaplandırması için Meclis'e verdiği soru önergesinde yer aldı. Soru önergesini Akyürek'in ölümünden birkaç gün sonra veren Sağlar, aynı önergede MİT görevlisi Ertuğrul Berkman'ın ölümü hakkında ise şu soruları ortaya attı: "29 Ağustos 1997'de bir trafik kazasında vefat eden emekli MİT görevlisi Ertuğrul Berkman'ın ölüm haberinin basında yer almaması doğrultusunda bazı basın kuruluşlarının uyarıldığı iddia edilmektedir. Bu iddia doğru mudur? Doğru ise bunun gerekçeleri nelerdir? Berkman'ın geçirdiği trafik kazasının teknik sonuçları nelerdir? Olayla ilgili bir araştırma yapılmış mıdır? Geniş bir arşive sahip olduğu söylenen Berkman'a ait özel arşiv ve notlarına MİT tarafından el konulduğu iddia edilmektedir. Bu iddia doğru mudur?"
+       <br/>
+       <br/>
+       MİT yönetimine göre Fikri Sağlar'ın Berkman'la ilgili bu iddiası ağır ve dayanaksız bir suçlamaydı. Çünkü, Berkman'ın ölümü MİT'te derin üzüntü meydana getirmişti ve kazaya herhangi bir şekilde ambargo konulması ne gerekliydi ne de mümkündü. Berkman olayı, Fikri Sağlar ile MİT yönetimi arasındaki bir tartışma olarak kaldı. MİT, Sağlar hakkında suç duyurusunda bulundu ve Ankara Cumhuriyet Başsavcılığı Sağlar hakkında fezleke hazırladı.
+       <br/>
+       <br/>
+       Akman Akyürek MİT ajanı mıydı?
+       <br/>
+       <br/>
+       Biz yeniden Akman Akyürek olayına ve Akyürek'in ilişkilerine dönelim. Resmi görevi "Başbakanlık Hukuk Müşaviri" olan Akyürek, Ankara'daki çalışmalarını, önceleri Güniz Sokak’ta, sonra Çankaya'da tuttuğu özel bürosunda yapmaktaydı. Raportör olarak görev aldığı Meclis Susurluk Komisyonu'nun araştırmalarına başlamasından kısa bir süre sonra Akyürek'e, "MİT ajanı" suçlaması yapıldı. Bunun üzerine Akyürek 13 Mart 1997'de görevinden istifa etti. Ancak istifasından sonra da araştırmalarını sürdürdü. Nitekim ölümünden kısa bir süre önce ABD ve İngiltere'ye yaptığı gezi başbakanlığın bilgisi dışındaydı.
+       <br/>
+       <br/>
+       Görev aldığı Meclis komisyonlarındaki önemli belgelerin birer örneğini özel arşivine alan Akyürek'in ölümünden iki gün sonra Çankaya'daki bürosu baskına uğradı ve bilgisayarı müdahaleye maruz kaldı. Kullandığı iki cep telefonundan biri, Abdullah Çatlı'nın kimliğini kullandığı Mehmet Özbay'ın avukatı Mehmet Deniz adına kayıtlıydı. Emniyet'in soruşturmasına göre Akyürek, Çatlı'nın ortaklarından Turgay Maraşlı ve Haluk Kırcı ile de görüşüyordu. İskenderun'da toprağa verilen Akyürek'in cenazesinde "Ya Allah, Bismillah, Allahuekber" sloganları atılması ve bozkurt işareti yapılması onun arkadaş çevresini göstermekteydi.
+       <br/>
+       <br/>
+       Arabadan çıkan belgeler
+       <br/>
+       <br/>
+       Başkomiser Zeynel Çolaklı ile dört polisin imzasını taşıyan tutanağa göre Akyürek'in otomobilinden çıkan dosyalar, belgeler, yüksek miktardaki para ve banka dekontları şaşırtıcıydı. Önce Susurluk olaylarını yakından ilgilendiren arabadaki belgelere bakalım.
+       <br/>
+       <br/>
+       İstanbul 4 nolu Devlet Güvenlik Mahkemesi'nden alınmış olan biri 114 sayfalık, diğeri 88 sayfalık belgeler, Yüksekovalı uyuşturucu kaçakçısı Hurşit Han'ın dosyasıydı. Hurşit Han, Yeşil kod adlı Mahmut Yıldırım'ın, "Hurşit büyük adam, sorgulanırsa pek çok olay çözülür" dediği bir kişiydi. Lucky-S ve Kısmetim-1 gemilerine yapılan büyük uyuşturucu operasyonları hakkında Avukat Ekrem Marakoğlu'na sorular sorup bilgi aldığı bilinen Akyürek'in arabasından, içerisinde uyuşturucu madde ticareti ile ilgili kararların bulunduğu Resmi Gazete'nin fotokopisinin çıkması da anlamlıydı. Ayrıca öldürülen kumarhaneci Ömer Lütfi Topal'a ait ifade tutanağı, bazı DGM ve Yargıtay kararları da arabadaydı. Siyah renkli deri çantasındaki dokuz teyp kasetinin içinde neler olduğu ise bugüne kadar açığa çıkmadı.
+       <br/>
+       <br/>
+       Akman Akyürek iki adet cep telefonu taşıdığı gibi, ayrıca üçüncü bir cep telefonu kartı da vardı. Cüzdanından çıkan kontörlü telefon kartları, bazı konuşmalarını bu üç cep telefonundan yapmadığını göstermekteydi. Arabadaki Emlak Bankası'na ait kasa tanıtım kartı, onun önemli bazı evrakları bankadaki kasada sakladığını göstermekteydi. Ankara ve İstanbul'da üzerine kayıtlı çıkan daire ve arsalar, cüzdanından çıkan biri Citibank'tan olmak üzere çok sayıda kredi kartı ve arabadaki hepsi ünlü markalara ait giyim eşyaları, onun yaşam tarzını ve harcama limitlerini göstermekteydi. Üzerinden şunlar çıkmıştı: 14 bin 200 dolar, 1510 mark, adına 43 bin mark alacak kaydedilmiş Alternatifbank dekontu, 4 milyar 55 milyon 700 bin lira tutarlı 18 Eylül 1997 tarihli dekont, 8 Eylül 1997 tarihli repo satış formu, hamiline kesilmiş 350 milyon liralık çek, 15 Kasım 1997 tarihli 1,5 milyarlık senet. Bunlarla birlikte, Fethiye Körfezi, Fethiye Limanı, Ölü Deniz civarını gösteren harita ve fotokopisi ile bir arazinin görüntülerini içeren video kaset de arabadan çıktı.
+       <br/>
+       <br/>
+       Sıradışı bir Telekulak kahramanı
+       <br/>
+       <br/>
+       Cengiz Çelik'in macerası, 1997'de Ankara'da eski milletvekili Haluk Müftüler'in oğlu Faik Müftüler ile kurduğu güvenlik şirketi ve eski polis Murat Peker ile kurduğu "dedektiflik" bürosu ile başlıyor. Sibel Can’ın eski kocası Hakan Ural ve babası Selçuk Ural'ın telefon konuşmalarını kaydedip televizyonlara veren Telekulak çetesi, 1999 mayısında yakalanınca sanıklar, "Cengiz Çelik bize MİT kimliği gösterdi, devlet işidir diye dinlemeleri onun isteğiyle yaptık" dediklerinde gözler Çelik'e çevrildi. Çelik 1998'den beri bu işlerin içindeydi. Sadece özel hizmet vermemiş, devlete yönelik de dinleme ve mankenli şantaj faaliyetleri yapmıştı.
+       <br/>
+       <br/>
+       Ankara'da bir milletvekili ve bir belediye başkanının davalarına bakan Cumhuriyet Savcısı Hüseyin Yalçın'a, check-up yapmaya giden hemşire rolündeki manken Eda Pulan'ı gönderen Çelik'in hedefi savcıyı tuzağa düşürüp gizli kameraya kaydetmekti. Savcı ile Pulan'ın buluşmaları için ev de kiralayan Çelik, Savcı'nın buluşmaları evde yapmaması üzerine gizli kaydı yapamadı. Manken kız sorgusunda, "Beni Korkut Eken ile Cengiz Çelik döverek, zorla Cumhuriyet Savcısı'nı ayarlama işine soktular" diyor. Savcılık iddianamesinde de, "Korkut Eken, Pulan'ı, bu iş için zorlayıp tehdit etti" deniyor.
+       <br/>
+       <br/>
+       Çelik ve arkadaşları hakkındaki savcılık iddianamesinde, "Bazı kişilerin telefonlarını illegal yoldan dinlediler, bu şahısların peşine çete üyesi bayanları takarak beraberliklerini kameraya alma çalışmaları yaptılar. İllegal takiplerle büyük kazançlar sağlamaya çalıştılar" denmesi gizli kamerayla şantaj girişiminin Savcı Yalçın ile sınırlı olmadığını gösteriyor. Ankara Ağır Ceza Mahkemesi'ndeki dava duruşmalarında çok ilginç bir gelişme daha yaşandı. Milletvekili Ö. H. ile eşi N. Y arasında ilişki olduğu söylenen Diş Hekimi A. Y., davada tanık olarak ifade verirken çarpıcı bir iddiayı ortaya attı. Bir gün bürosuna gelen Cengiz Çelik'in kurum kimliği ile kendisini "MİT görevlisi" olarak tanıttığını belirten A. Y., Çelik'in "Milletvekili Ö. H. hakkında ileri geri konuşma, o MİT'e çalışıyor" dediğini öne sürüyor.
+       <br/>
+       <br/>
+       Cengiz Çelik, af kanunu sebebiyle hakkındaki gıyabi tutuklama kararı kalkınca, kaçtığı ABD'den Türkiye'ye döndü. Ancak, 1 Temmuz 2001 gece yarısı memleketi Muğla'da meydana gelen o esrarengiz kazada sırlarıyla birlikte öldü. Ankara ve İstanbul'daki bütün o dinleme ve takip faaliyetlerini kimler adına yapıyordu, yarı resmi bir örgütlenmenin görünen yüzü müydü, bütün o olayların göbeğinde neden Ö. H. isimli milletvekili vardı, bu milletvekilinin Korkut Eken ve dosyada ismi geçen belediye başkanı ile ilişkileri neydi?
+       <br/>
+       <br/>
+       Aynı soruları öteki dört esrarengiz kaza için de sıralamak mümkün. Otobanda seyreden Efraim Barut'un otomobilinin önüne birdenbire o çuval nasıl düştü? Gece yarısı Akman Akyürek'i İstanbul'da sıkıştıran esrarengiz araba neyin nesiydi? Susurluk Komisyonu'nun, "kapıyı araladığını" belirten ve "Susurluk anlayışı iktidara gelebilmek ve iktidarı korumak için; terör, darbe, kara para aklama ve kullanma, tefecilik, kumarhaneler, mafya ve benzeri unsurları kullanmaktadır. Türkiye'de, bundan sonra hiçbir şeyin Susurluk öncesindeki gibi olmayacağına inanıyorum" diyen Bedri İncetahtacı'nın ölümü ile acaba Komisyon Başkanı Mehmet Elkatmış'a gözdağı mı verildi? Acaba MİT gövrevlisi Ertuğrul Berkman, Fikri Sağlar'a o bilgi ve belgeleri temin eden kişi olmasıyla hedef haline mi gelmişti? İşte size beş Susurluk tanığının esrarengiz ölüm hikayeleri...
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### hurşit gökmen, 29-Kasım-2004
+> Beyin takımını merak ediyorum: 
+> Türkiye, özellikle 12 Eylül sonrasında, hapishanelere düşen, sistemin ayıplı saydığı binlerce sabıkalı genç gerçeğiyle karşı karşıya kalmıştır. Bunlar davalarında samimi, yürekli gençlerdi. Öncelikle Avrupa ve Amerika’nın illegal uyuşturucu kaynaklarıyla 80’lerden sonra irtibatlı yerli işbirlikçiler bu insanları kullandı. İşin başında davalarının önde gelenleri olduğu için yaptıkları işi vatan hizmeti gördüler. 1980 öncesinin abi-kardeş diyaloğu devam etti. Onlar vatanın selameti için başkalarının istifade ettiği uyuşturucu paralarını yine vatan hizmetinde kullandılar! Paraları iç edenleri aklamak yerine yok ettiler. Bu paraların çoğu da Allah bilir siyasi dostlarını finanse etmede, kamuoyu oluşturmaya yönelik manipülasyonlarda vs kullanılmıştır....Susurluk çözülemedi. Ölenler, kullanılanlar veya aracılardı. Merak ettiğimiz husus şu: Beyin takımını kimler oluşturuyor? Pasaport ayarlayanlar, lojistik  destek sağlayanlar, zora düşenleri mahkemelerde savunacak avukatları bulanlar kim ve bunların adı milli olan istihbaratla nasıl bu kadar sıkı fıkı? Unutmayalım, kontrolsüz güç, güç değildir; olsa olsa baş belasıdır.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17608&yorum_id=2370), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050122213227/http://www.aksiyon.com.tr:80/detay.php?id=17608&yorum_id=2370)

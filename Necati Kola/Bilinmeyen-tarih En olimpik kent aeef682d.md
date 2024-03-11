@@ -1,0 +1,91 @@
+# En olimpik kent
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214747im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214747im_/http://www.aksiyon.com.tr/resim/331/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Son yıllarda spor tesisi açısından çok büyük aşamalar kaydeden tek kentimiz, 2008 Olimpiyat Oyunları’na aday İstanbul değil.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Tarihi ve tabii güzellikleriyle dünyanın sayılı yerlerinden biri olan Antalya da spor alanında çok büyük atılımlar yapıyor. Türk turizminin merkezi olan bu güzel şehir, gerek iklim, gerek tabii imkanlar, gerek yeni yapılan tesisler, gerekse gençlik potansiyeli sayesinde spor merkezi olabilmek için de emin adımlarla ilerliyor. Yakın bir zamana kadar yılın altı aya yakın kısmını boş geçiren Antalya’daki oteller, sürekli artan spor aktiviteleri sayesinde senenin neredeyse tamamını dolu geçiriyorlar.
+   <br>
+    <br>
+     Futbol takımlarının kamp merkezi
+     <br>
+      <br>
+       Turizm faaliyetlerini canlandıran spor aktivitelerinin başında, futbol takımlarının devre arası kamp çalışmalarını Antalya’da yapması geliyor. Galatasaray, Fenerbahçe, Beşiktaş, Gaziantepspor ve Trabzonspor başta olmak üzere birçok Türk takımı ikinci yarıya hazırlık kamplarını Antalya ve çevresinde gerçekleştirirken, Avrupa’nın büyük kulüpleri de son yıllarda özellikle bu kenti tercih ediyor. Her yıl dört yüze yakın futbol takımının geldiği Antalya, Eurosport tarafından canlı yayınlanan uluslararası bir turnuvaya da ev sahipliği yapıyor. Ayrıca, UEFA da devre arasındaki hakem seminerini Antalya’da yapmaya başladı. Bu yıl ilk kez Antalya’da düzenlenen bu seminere ünlü İtalyan hakem Pierluigi Collina başta olmak üzere toplam elli beş üst düzey hakem katıldı. Bu hakemler, antrenmanlarını ise 100. Yıl Spor Kompleksi’ndeki modern tartan pistte yaptılar.
+       <br/>
+       <br/>
+       En modern ikinci tartan pist
+       <br/>
+       <br/>
+       Sözünü ettiğimiz modern tartan pist, Antalya Büyükşehir Belediyesi, Antalyaspor ve İl Özel İdare Müdürlüğü tarafından 375 milyar liraya yaptırıldı ve iki ay önce hizmete açıldı. Burhan Felek Atletizm Pisti’nden sonra Türkiye’deki ikinci büyük tartan pist olan bu tesis, uluslararası tüm standartlara uygun. Avrupa Atletizm Birliği, 400 metre uzunluğundaki sekiz kulvarlı bu piste tam not verdi. Antalya Spor İl Müdürü Ünal Yurtçu, şu anda okullararası atletizm müsabakaları yapılan ve halka açık olan pistte ilk olarak Balkan Atletizm Şampiyonası’nı düzenleyeceklerini, sonra da daha büyük organizasyonlara ev sahipliği yapacaklarını söylüyor.
+       <br/>
+       <br/>
+       Kros parkuru da tamam
+       <br/>
+       <br/>
+       Antalya, modern tartan pistle birlikte Türkiye’nin en güzel kros parkuruna da kavuşmanın sevincini yaşıyor. Antalya’nın hemen kuzeyindeki Duacı Köyü’nde yer alan parkur, çam ormanlarıyla iç içe. Bu güzel parkur, Türkiye Kros Şampiyonası’nın yanı sıra yerel ve uluslararası organizasyonlara da ev sahipliği yapacak. Antalya halkının hem piknik, hem de spor yapabileceği bu kros alanının Türk atletizminin gelişmesine çok büyük katkılarda bulunacağı muhakkak. Duacı Kros Parkuru’nun hemen yanındaki Gençlik ve İzcilik Eğitim Kampı ise Antalya’nın kavuştuğu bir başka spor tesisi.
+       <br/>
+       <br/>
+       Okçuluğun merkezi de Antalya
+       <br/>
+       <br/>
+       Türk okçuluğu, son on yılda çok büyük aşamalar kaydetti. Türkiye, okçulukta söz sahibi olan beş ülkeden biri. Türk okçuluğunun bu duruma gelmesinde hiç şüphesiz ki Antalya’nın payı çok büyük. Milli okçularımız, 100. Yıl Spor Kompleksi içinde yer alan dünyanın en modern okçuluk tesisinde yılın her günü rahatlıkla çalışabiliyorlar. Bu tesis, her yıl Türkiye Birinciliği’ne ve Altınok Grand Prix Okçuluk Turnuvası’na, zaman zaman da Avrupa ve dünya şampiyonalarına ev sahipliği yaparak ünlü okçuları ağırlıyor. Ayrıca, bu tesisin hemen yan tarafına Halter Kamp Eğitim Merkezi yapılacak ve Antalya bir branşın daha ev sahibi olacak.
+       <br/>
+       <br/>
+       Golf Antalya’da oynanır
+       <br/>
+       <br/>
+       Antalya’nın sahip olduğu dünyanın en güzel spor alanlarından biri de Belek’te. Adora, Altis ve Albeach otellerinin ortaklaşa işlettiği 18 delikli golf sahası, özellikle kış aylarında dünyanın birçok zengin golf meraklısını Antalya’ya çekiyor ve turizmin ölü sezonda canlanmasını sağlıyor. Ayrıca, Belek’teki İnternational Golf Kulübü, bu sporu yaygınlaştırmak amacıyla Antalya’daki orta okul ve lise öğrencilerine ücretsiz kurslar veriyor. İki yıl önce Türkiye ziyareti sırasında Bill Clinton’un da maç yaptığı bu golf sahası, her yıl uluslararası turnuvalara ev sahipliği yapıyor.
+       <br/>
+       <br/>
+       Basketbolun kalbi Antalya’da atacak
+       <br/>
+       <br/>
+       Turizm ve spor potansiyeli yüksek olan Antalya, önümüzdeki eylül ayında Avrupa’nın en önemli basketbol organizasyonuna ev sahipliği yapacak. Basketbol Federasyonu, 2001 Avrupa Basketbol Şampiyonası’nın C ve D Grubu maçlarını bu güzel kentte oynatmaya karar verdi. Bu nedenle C Grubu’nda yer alan Almanya, Hırvatistan, Yugoslavya ve Estonya, D Grubu’nda yer alan Rusya, İtalya, Bosna—Hersek ve Yunanistan, Antalya’nın hem tanıtımına, hem de ekononomisine önemli katkılarda bulunacaklar. Avrupa Basketbol Şampiyonası’nın A ve B Grubu maçları Ankara’da, final maçları ise İstanbul’da oynanacak.
+       <br/>
+       <br/>
+       Doğa sporları denince...
+       <br/>
+       <br/>
+       Doğa sporları, özellikle son yıllarda basında fazlaca yer buldu ve halk da bu sporlara ilgi duymaya başladı. Bu sporların başında da hiç şüphesiz rafting geliyor. Antalya, turizm nedeniyle rafting sporunun en fazla yapıldığı ilimiz. Manavgat yakınlarındaki Köprüçay ile Alanya’daki Dim Çayı, bu sporun en keyifli bir şekilde yapılmasına imkan sağlıyor. Ayrıca, her yıl Alanya Dim Çayı’nda Uluslararası Rafting Triatlon Maratonu düzenleniyor. Sporcular rafting, koşu ve dağ bisikletinden oluşan parkurlarda ter döküyorlar. Alanya’nın ev sahipliği yaptığı organizasyonlardan biri de Avrupa Triatlon Şampiyonası. Her yıl yerli ve yabancı üç yüze yakın sporcunun katıldığı şampiyona, yüzme, koşu ve bisiklet etaplarından oluşuyor. Antalya, doğa sporlarından dağcılık, kayak, treking ve dağ bisikleti için de bol imkanlar sunuyor.
+       <br/>
+       <br/>
+       Yağlı güreş unutulur mu?
+       <br/>
+       <br/>
+       Antalya’daki spor aktivitelerinden bahsedip de yağlı güreşten söz etmemek olmaz. Antalya, geleneksel sporumuz yağlı güreşe en fazla ilgi duyan belki de birinci il. Cami, okul, su ve yol yaptırmak amacıyla hemen her köyün organize ettiği güreşler, iklimin sıcak olması nedeniyle daha nisan ayında başlıyor ve ekim ayının sonlarına kadar düzenleniyor. Güreş organizasyonları, il çapındaki önemli sosyal aktivitelerden. Hem meraklıların, hem de pehlivanların bol olduğu Antalya’da hâlâ düğün güreşleri de yapılıyor.
+       <br/>
+       <br/>
+       Yurtçu: Akdeniz Oyunları’na
+       <br/>
+       <br/>
+       talip olacağız
+       <br/>
+       <br/>
+       Turizm, iklim ve gençlik potansiyeli sayesinde Antalya’nın gerçek manada spor merkezi haline geldiğini söyleyen Spor İl Müdürü Ünal Yurtçu, ilerleyen yıllarda Akdeniz Oyunları’na talip olmak istediklerini söylüyor. ‘Antalya, Türk sporunun merkezi olma yolunda hızlı adımlarla ilerliyor. Okçulukta, rallide, bilardoda, basketbolda, bisiklette, futbolda, triatlonda büyük spor organizasyonlarına ev sahipliği yapmamız bunu gösteriyor. Geçen gün 2 bin 500 kişilik Dilek Sabancı Spor Salonu’nu hizmete açtık. Yeni yapılan tesisler sayesinde bu organizasyonların sayısı artacak. Ayrıca, kürekle, halterle ilgili yeni projeler var. Hedefimiz Akdeniz Oyunları’nı düzenlemek. Şu anda sadece 60 bin kişilik stadımız eksik diyebilirim. Diğer tesisler hemen hemen hazır’. Yurtçu, stat için de birkaç tane arsa alternatifinin olduğunu ifade ediyor ve sözü Antalya’nın oldukça dışındaki Varsak Süleyman Demirel Stadı’na getiriyor. ‘Keşke, siyasi nedenlerle Varsak’a yapılan ve sonra çürük raporu verilerek kullanılmayan 35 bin kişilik bu stat, Akdeniz Oyunları düşünülerek ve kapasitesi artırılarak uygun bir yere yapılsaydı’.
+       <br/>
+       <br/>
+       e—mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13169), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214747/http://www.aksiyon.com.tr:80/detay.php?id=13169)

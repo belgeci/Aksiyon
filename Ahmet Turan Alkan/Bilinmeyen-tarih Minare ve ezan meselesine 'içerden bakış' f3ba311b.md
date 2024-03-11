@@ -1,0 +1,83 @@
+# Minare ve ezan meselesine 'içerden bakış'
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041223171415im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041223171415im_/http://www.aksiyon.com.tr/resim/514/18.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  İçinizden “her işi hallettik de minareler mi kaldı?” diye geçirebilirsiniz. Zaman değişiyor ve camilerin etrafı yüksek katlı apartmanlarla çevrilmiş durumda.
+ </font>
+ <p>
+  <font class="content">
+   Ses yüksekliği iyi ayarlanmamış bir hoparlörle yayınlanan ezandan şekvâ etmeyi belki çoğumuz aklımızdan bile geçirmeyiz ama şikayetçi olanları, din düşmanı diye itham etmek de doğrusu ağır bir hüküm olur.
+   <br/>
+   <br/>
+   Kolay olanı, “yine Ramazan geldi ve açıktan din aleyhtarı olduğunu itiraftan çekinenler, dolaylı yolla dini kurum ve değerlere saldırmaya başladılar” yaklaşımını seçmek ama durup düşünelim ve tartalım.
+   <br/>
+   <br/>
+   Geçen hafta bir yazar, gündelik köşesinde, hoparlörle ezan okunması konusunda yanlış anlaşılmaya müsait şeyler yazdı ve özetle insanları dinden soğutanlara karşı tavır alanları “din düşmanı” gibi gören ve gösterenlerden yakındı; şöyle diyordu: “Oysa bu suçlamaya hedef olan kişilerin çoğu, suçlayanlardan daha Müslüman’dır. Yüreklerinde, vicdanlarında Allah korkusu, Allah sevgisi kendilerini suçlayanlardan çok daha fazladır. Onlar için Müslümanlık, Allah’la kul arasında yaşanan kutsal bir inançtır.”
+   <br/>
+   <br/>
+   Yazar ezandan yakınıyordu. Müezzinlerin minareye çıkmamasından şikayetçiydi ve ezan vakitlerinde müezzinler minareye çıkmıyorsa bu eklentilerin niçin yapıldığını soruyordu?
+   <br/>
+   <br/>
+   Niyetinin pek hâlis olmadığını tahmin etsek de sual haklıdır ve yerindedir. Geçenlerde bir cuma vaazında, minarelerin esasında ‘Tevhid’i remzettiğini ileri süren garip bir yorum dinledim; bu yoruma göre bir camie iki minare yapmanın mânâsını kim, nasıl te’vil edebilecektir? Soğukkanlılıkla kabul etmeliyiz ki minareler günümüzde, yükseklerde bir yere hoparlör cihazı iliştirmek için kullanılan uzunca bir kuleden ve hemen yanıbaşında cami olduğunu ihsas eden bir sembolden başka fonksiyonu kalmamış yapılardır; meğer ki her namaz vaktinde şerefesine kadar çıkıp mü’minleri namaza davet eden bir müezzin bulunmuş olsun! “Çıksa da sesini kime ulaştırır, kim duyar?” denilebilir ama en azından görüntüyü kurtarmak için bu hamleyi yapmak şart gibi görünüyor.
+   <br/>
+   <br/>
+   İslâm’ın mescidi aslında fazlaca tekellüflü bir binâ değildir; hatta vaktiyle uygulanan ama şimdilerde terk edilen “namazgâh” âdetini hatırlarsak mescidin illâ ki bir “binâ” olması bile gerekmez. Orası her hâl ü kârda temiz bir yerdir ve mescidin şimdiki müştemilâtı, yani minber, mihrap, kürsü, son cemaat yeri, fevkaane, kubbe, minare, şadırvan gibi unsurları, dinin değil geleneğin tesiriyle oluşmuş mimari elemanlardır. Geleneklerin de değeri var ama bizatihi dinin kendisiyle karıştırılması fevkalade mahzurlu olabilir. Dolayısıyla minare, mescidin “olmazsa olmaz” cinsinden bir uzantısı değildir. Eski dokusunu koruyabilmiş şehirlerimizin mahalle aralarında hâlâ minaresiz mescidler görmek mümkün; hele içlerinde caminin duvar hacmi içine oyulmuş ve yerleştirilmiş, dış cepheye yönelik şirin ezan yerleri vardır ki maalesef yeni cami inşâ edenler, bu sevimli ayrıntıyı taklid etmek yerine, tepesine en son külahın ‘alem’ini yerleştiren ustalardan başka kimsenin çıkmadığı uzun minareler dikmeyi tercih ediyorlar.
+   <br/>
+   <br/>
+   İçinizden “her işi hallettik de minareler mi kaldı?” diye geçirebilirsiniz. Zaman değişiyor ve camilerin etrafı yüksek katlı apartmanlarla çevrilmiş durumda. Ses yüksekliği iyi ayarlanmamış bir hoparlörle yayınlanan ezandan şekvâ etmeyi belki çoğumuz aklımızdan bile geçirmeyiz ama şikayetçi olanları, din düşmanı diye itham etmek de doğrusu ağır bir hüküm olur. Öyleyse bu mesele, ‘içerden bakış’ın ağırlık kazandığı bir zihni tartışma ortamında çözüme bağlanmalıdır. Minareye müezzin çıkarmaya gücümüz yetmiyorsa bu bir problemdir; nitekim her camiin müezzinini, ezanı usûlüyle ve güzel okuyacak evsafta yetiştiremiyor olmak da bir problemdi ve Diyanet İşleri Başkanlığı, benim içime pek sinmeyen ama mâkul olduğunu kabul etmek zorunda kaldığım bir tarzda çözerek tek merkezden ezan uygulamasını başlattı.
+   <br/>
+   <br/>
+   Şimdi sözü geçen yazarın şu satırlarını sinirlenmeden ama anlamaya çalışarak okuyunuz, diyor ki, “Her yerde cami var, camilerin çevresinde evler var. Bu evlerde küçük çocuklar, hastalar, yaşlı insanlar yaşıyor. Bazıları işe, okula gidecek... Ve daha gün doğarken, milyonlarca insanımız her sabah ezan sesiyle uyanmak zorunda kalıyor.” Tepkinizi ve neler düşündüğünüzü tahmin edebiliyorum ama burada yargılamak değil anlamak mevkiindeyiz. Nitekim yazar, en azından sabah ezanı esnasında hoparlörlerin sair zamanlara göre daha kısık bir sesle açılmasını teklifle şunları ilave ediyor: “Çağımızda her şey elektronik. Çalar saatler, uyandırma servisleri, her şey var. Acaba kaç kişi hoparlörden müezzin sesiyle uyanmayı bekler? Zorunlu olarak uyananlardan kaç kişi sabah namazına gider? Bunca insanı her sabah hoparlörle uyandırmanın anlamı nedir? Müslümanlığın ardına sığınıp insanlarımıza saygıyı yitirmişiz.”
+   <br/>
+   <br/>
+   İncindiğimi, burkulduğumu hissediyorum ama şu yazarın benim ve bizler gibi düşünmemek hakkına sahip olduğunu biliyorum. Eğer meselelerimize içerden bakışla yaklaşmayı denemezsek, -muhâl ihtimâl de olsa- Avrupa Birliği standartlarının bu ülkede câri olduğu gün aynı şeylerin ‘dışardan bakış’la cerh edildiğini görmek vicdanımızı kanatacaktır.
+   <br/>
+   <br/>
+   Yazara hep hak verdik ama hazrette kantarın topuzu her zaman itidali işaret etmiyor. Bu satırların ardından, o çokça duyduğumuz terâneye geçerek gizli ukdesini âşikâr ediyor: “Bu kadar cami yapacağımıza, bunun onda biri kadar okul yapmayı becerseydik, belki eğitim sorununun bir bölümünü çözmüş olurduk.”
+   <br/>
+   <br/>
+   İşte bu yaklaşım, sabır ve hoşgörüyle herhangi bir meselenin müzakeresini tehdit eden bir yaklaşımdır. “Cami yerine okul yapsaydık” hayıflanması saygıyı hak etmiyor zira bu yaklaşımda cami ile okulu birbirinin zıddı gibi gören bir önkabul vardır. Ne cami okulun alternatifidir ne de okul caminin. Peynirle zeytini, ekmekle suyu mukayese ederek bundan câhilâne hükümler çıkarmak, bizde laikçilerin ne yazık ki vazgeçemediği bir davranış türüdür. Keşke tenkidlerinde art niyetli olmadıklarını ve yapıcı davrandıklarını açıkyüreklilikle izhar edebilmiş olsalardı!
+   <br/>
+   <br/>
+   Kolayca tahmin edebileceğiniz gibi yazar, hızını almışken bir de Ramazan davulcularına tokmağı indiriyor. Ramazan davulu gelenektir; olmasa da olur ama sahura yakın zamanlarda şöyle töresiyle çalınan bir davulun şehir iklimine kattığı o kendine mahsus lezzetten kolay vazgeçebilir miyiz? Âmennâ ıslah edelim; âmennâ oruç tutmayanların huzurunu davulcu terörüne kurban etmeyelim; her işin bir mâkul çözüm noktası var. Onu arayıp bulalım ki meseleye dışardan bakanlar hiç değilse sarılacak bahâne edinemesinler.
+   <br/>
+   <br/>
+   “Kendi ülkemizde bir ekalliyet unsuru gibi sinik yaşayalım” anlamına gelir mi bu sözler? Bence gelmez; bütün mesele, kendini Müslüman hissedenlerin problem çözmekte enerjik, yapıcı ve pozitif tavırlar geliştirebilmesinden ibaret. Bugüne kadar Müslümanların pek çok davranışı eleştirildi ve bu eleştirilerden çoğu haksızdı ama haklı olanlar da vardı. Hakk’ı bâtıldan ayırmak bir mü’minin esas vazifesidir, bu vazife çok geniş kapsamda mütalâa olunmalıdır. Çoğumuza “ufak tefek şeyler” gibi görünen bu konular, aslında Müslümanların problem çözmek konusundaki kabiliyetini ölçen unsurlardır.
+   <br/>
+   <br/>
+   Bir de o gözle bakmayı deneyelim!
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Ali Aktaş, 17-Kasım-2004
+> İslam akıl ve mantık dini: 
+> Sayın A.Turan Alkan, önerinizi olumlu buluyorum. Çünkü; İslam dini; akla, mantığa ve düşünmeye çok önem veren bir dindir. Pek çok ayette düşünmeye, akıl ve mantığı çalıştırmaya yönelten tavsiyeler  olduğu gibi, düşünmemeyi de olumsuz bir davranış olarak değerlendirmektedir. Yani, gerek dini ve gerekse dünyevi işlerimizi yaparken, bize verilmiş olan akıl nimetini en iyi şekilde kullanmamız gerekiyor. Özellikle, dinimizle ilgili konuları gerektiği şekilde düşünmediğimiz için, akla ve mantığa uymadığı gibi dinimize de ters düşen uygulamalar ortaya çıkıyor ve devam edebiliyor. Minareler konusu bunlardan biri, İslam'ın ilk dönemlerinde ezan sesinin daha uzağa gitmesi için ezan yüksek yere çıkılarak okunmuş, daha sonra da ezan okumak için yüksek yer olarak minareler inşa edilmeye başlanmıştır. Sesi yükselten hoparlörlerin ortaya çıkması ile yüksek yere çıkarak ezan okumaya gerek kalmadığı halde, camilerin yanına birer de minare yapılmaya devam edilmiştir. Oysa, hoparlör sisteminin ortaya çıkması ile birlikte minare inşa edilmesi uygulamasına hemen son verilmesi gerekirdi. Çünkü, gerekçesi ortadan kalkmıştır.
+
+### Tuncay Yıldız, 03-Kasım-2004
+> Hopörlerden okunan ezan: 
+> Sayın Ahmet Turan Alkan, ezan konusuna makul bir bakış açısıyla yaklaşmış. Katılmamak mümkün değil. Ezanın ses cihazı vasıtasıyla okunmasına, hafızam yanıltmıyorsa, 1960'lı yıllarda başlandı. Bu yıllara kadar ezan çıplak sesle okundu. Bu konuyu dinî bir unsur gibi görmemek gerekir. Fakat ezanın ses cihazıyla okunmasına karşı olmadığımı da belirtmeliyim. Ses cihazı vasıtasıyla okunabilir; ama insanların kulaklarını tırmalamadan okunsun. Bazı camilerimizde ses cihazı kalitesiz, bir de müezzinin kötü sesi eklenince ezan-ı Muhammedî adeta katlediliyor. Bazı eleştiriler art niyetli olabilir; fakat ortada da bir gerçek var.
+
+### Halil İbrahim Karabulut, 15-Ekim-2004
+> Şu ezan meselesi: 
+> Sayın A.Turan Alkan, takdire şayan hoşgörüsüyle meseleyi izah ediyor. Ancak ben, muhalif düşünen zat-ı muhterem ve onun gibilerin bu konuda nalıncı keseri gibi hep kendine yontmaya çalıştıklarını görüyor ve bundan rahatsız oluyorum. Zira bu anlayışın, devamlı sorun çıkarmakla iştigal ettiği pek çoğumuzun malumu. Daha da kötüsü ise bu sorunların çözümlerinin hep dindarlardan bekleniyor olmasıdır. Yani her zaman için orta yolu bulması, bunun için de fedakarlık yapması gereken dindarlardır. Müslümanların dinlerine uygun yaşayıp yaşamadığı ayrı bir konudur. Ancak yaşamak isteyenlerin bu anlamda tam özgür olduklarını söylemek, ne kadar yersiz bir iddia ise; taviz vermede hep dindarlardan beklenti içine girmek de o kadar yersiz ve haksız bir eylemdir.
+
+### Ahmet  Beyaz, 14-Ekim-2004
+> Bu işi teknoloji çözer: 
+> Şu anda camilerde kullanılan ses yayın cihazlarının ve hoparlörlerin kaç tanesi dijitaldir? Hiç araştırılmış mı? Sinemalarda kullanılan mükemmel ses sistemlerini düşünün. Film izlerken rahatsız olan var mı? Camilerin çoğunda kalitesiz ses yayın cihazları ve sesleri boğuk çıkartan hoparlörler bulunmaktadır. Teknolojinin imkânları sayesinde, kötü bir sesten dahi güzel ezan dinleyebiliriz.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16675&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041223171415/http://www.aksiyon.com.tr:80/detay.php?id=16675&yorum_id=1)

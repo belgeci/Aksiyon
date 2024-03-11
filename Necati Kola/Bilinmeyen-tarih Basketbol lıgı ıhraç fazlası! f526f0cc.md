@@ -1,0 +1,70 @@
+# Basketbol lıgı ıhraç fazlası!
+
+*Necati Kola Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227092545im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227092545im_/http://www.aksiyon.com.tr/resim/349/70.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir zamanlar Türk Basketbol Milli Takımı başarısızdı ama kulüplerimiz ve ligimiz Avrupa standartlarındaydı. Şimdi ise tam tersi. Yerli ve yabancı yıldızlarını ihraç eden takımlarımız zayıf, kulüpleri bir bir kapanan ligimiz kalitesiz, yurt dışında oynayan oyunculardan kurulu Milli Takım ise güçlü
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk basketbolu son on yılda Naumoski, Aydın Örs, Efes ve Ülker ile birlikte yükselişe geçmiş; Türkiye, potada dünyanın en hızlı çıkışını gerçekleştiren ülke olmuştu. Bu yükselişe paralel olarak, hem müesseseler basketbola daha çok yatırım yapmaya, hem yerli yıldızlar dünya standartlarına ulaşmaya, hem de yabancı yıldızlar Türk takımlarında seve seve oynamaya başlamışlardı. Öyle ki bundan iki-üç yıl önce Zan Tabak, Drobnjak, David Rivers, Abdulrauf, Koturovic, Marko Milic, Mc Rae, Zoran Savic, Rimac, Karasev ve Rashard Griffith gibi oyuncuların aynı anda ülkemizde bulunmalarından dolayı Türkiye Basketbol 1. Ligi’ne otoriteler tarafından NBA benzetmesi yapılmıştı. Peki, şimdi ne oldu? Ekonomik kriz nedeniyle basketbola yatırım iyice azalınca yerli ve yabancı yıldızlar bir bir yurt dışına gittiler. Bazı kulüpler de kepenkleri indirince takım sayısı on ikiye düştü ve Basketbol 1. Ligi sıradan bir lig haline geldi.
+   <br>
+    <br>
+     Herşey Tofaş’la başladı
+     <br>
+      <br>
+       Türk basketbolu, Efes ile yükselişe geçmiş; Ülker, Türk Telekom, Kombassan, Pınar, Troy ve Oyak Renault’tan sonra Tofaş’ın da rekabete ortak olmasıyla birlikte kalite tavana vurmuştu. Efes, Ülker ve Türk Telekom dışındaki müessese takımları zirveye oynamasalar da basketbola önemli katkılarda bulunuyorlardı; ama Bursa seyircisi gibi bir seyirciye sahip olan Tofaş’ın basketbola çok büyük yatırım yapma kararı alması hakikaten bambaşka olmuştu. 1997 ile 2000 yılları arasına damga vuran Mavi-Beyazlı takım, bu dönemde bir kez Koraç Kupası’nda final oynadı, iki kez Türkiye Kupası’nı kazandı, iki kez de Türkiye şampiyonu oldu. Kadrosunda David Rivers, Rimac ve Rashard Griffith gibi dünya standartlarında oyuncular bulunduran Tofaş, 2000 yılında kazandığı Türkiye şampiyonluğuna ise sadece birkaç gün sevinebildi. Çünkü, ekonomik nedenlerden dolayı basketbola yatırım yapmaktan vazgeçme, ligden çekilme ve oyuncuların sözleşmelerini feshetme kararı alınmıştı. Tofaş yetkililerinin aldığı bu karar, spor kamuoyuna bomba gibi düşmüştü. Ne yazık ki Basketbol Federasyonu’nun ve spor kamuoyunun tüm ikna çabalarına rağmen değişen bir şey olmamış ve Türk basketbolu ağır bir darbe almıştı.
+       <br/>
+       <br/>
+       Efes’te neler oluyor?
+       <br/>
+       <br/>
+       Türk basketbolu, geçen yıl Tofaş ile yaşadığı sıkıntıyı bu yıl Efes ile yaşıyor. Geçtiğimiz yıllarda, kaybettiği bir yıldızın yerini fazlasıyla hemen dolduran Lacivert-Beyazlı ekip, bu yıl arka arkaya ayrılan starların yerine henüz oyuncu almış değil. Öyle gözüküyor ki Türk basketbolunun lokomotifi olan Efes, eski günlerini aratacak. Peki, sekiz kez Türkiye şampiyonluğunu, beş kez Türkiye Kupası’nı, bir kez de Koraç Kupası’nı (1996) kazanan Efes, bu duruma nasıl düştü?
+       <br/>
+       <br/>
+       Gerek Türk basketbolu, gerekse Efes tarihi açısından Mirsad Türkcan’ın 1998 yılında NBA takımlarından Houston Rockets’a gitmesi oldukça önemli. Her ne kadar başarılı olamayıp bir yıl sonra Efes’e dönse de Mirsad’ın bu cesareti diğer oyuncularımızı teşvik etti. Nitekim, geçen sezonun başında, Efes formasını giyen iki oyuncudan İbrahim Kutluay Yunanistan’ın AEK takımına, Hidayet Türkoğlu da NBA takımlarından Sacramento Kings’e gitti. Her iki oyuncu da çok iyi bir performans gösterdi ve İbrahim Kutluay Panathinaikos’a transfer oldu, Hidayet Türkoğlu da Sacramento Kings’in banko oyuncusu olacağını gösterdi. Geçtiğimiz günlerde ise yurt dışına giden Efesli oyunculara takım kaptanı Hüseyin Beşok da eklendi. Geçen sezon Suprolig şampiyonu olan Maccabi Tel Aviv’e giden Beşok, İsrail takımıyla üç yıllık anlaşma imzaladı. Beşok’un takımdan ayrılmasının iki sebebi vardı. Birincisi, diğer arkadaşları gibi yurt dışında oynama düşüncesi, ikincisi de ekonomik krizdi. Efes, ünlü oyuncuyla sabit dolar kuru (1 milyon) üzerinden anlaşmak istiyor, Beşok ise bunu kabul etmiyordu. Sonuçta anlaşılamadı ve Beşok Maccabi’nin yolunu tuttu. Beşok’un ardından ilk beşte oynayan Mulaömeroviç, Drobnjak ve Scepenoviç de takımdan ayrılarak başka takımlara gittiler. Şu anda Efes’te kaliteli oyuncu olarak Ömer Onan ve Mehmet Okur kaldı. Mehmet Okur’un da önümüzdeki yıl NBA takımlarından birine gideceğini hatırlatalım. Geçen sezonun ortasında Efes'ten ayrılan antrenör Ergin Ataman ise İtalya'nın siena takımıyla anlaştı. Bu arada Efes, Benetton'dan Brown'ı, Tau Ceramica'dan Stombergas'ı ve NCAA'de oynayan Letonyalı Kambala'yı kadrosuna dahil etti.
+       <br/>
+       <br/>
+       Kriz, basketbolu fena vurdu
+       <br/>
+       <br/>
+       Galatasaray, Beşiktaş ve Fenerbahçe gibi kulüplerin basketbolu ikinci planda gördükleri öteden beri biliniyordu; ama müessese takımlarına özenerek basketbola az da olsa kaynak ayırdıkları da bir gerçekti. Geçen yıl ve bu yıl maalesef ne müessese takımları, ne de kulüp takımları basketbola fazla kaynak ayıramadı. Sebebi, herkesi derinden etkileyen ekonomik krizdi. Nitekim, takımlar bu yıl basketbola ayıracakları paraları iyice kısarlarken, kapanan kulüpler bile oldu. Tofaş’ın ardından Troy ve Kombassan, kepenkleri indirmeyi tercih eden kulüpler oldular. Bu iki kulüpten sonra ise 1. Lig’i kaldıramayacağını düşünen Samsunspor, 2. Lig’de mücadele edeceğini açıkladı.
+       <br/>
+       <br/>
+       Diğer takımlara kısaca göz atacak olursak... 1. Lig’deki takım sayısının iyice azalması nedeniyle düşmenin olmayacağı sezon öncesinde, Beşiktaş, yıldız oyuncularını satarak altyapıya önem verme kararı aldı. İki yıldır ciddi bir para sıkıntısı yaşayan Galatasaray da Beşiktaş’tan farklı bir şey düşünmüyor. Eski antrenörü Murat Özgül ile anlaşan Fenerbahçe, bonservisleri elinde olan Zaza, Mrsiç ve Nedim Dal’ı aldı. Telekom, diğerlerine göre biraz daha iyi. Radoseviç, Jurkoviç ve Cüneyt Erden kulüpte kaldı. Takviye olarak Polonyalı bir pivot alındı ve Ufuk Kaçar Pınar Karşıyaka’ya, Aice Earl de Saratov’a gitti.
+       <br/>
+       <br/>
+       Ülker’in transferleri Eurolig için
+       <br/>
+       <br/>
+       Şu anda kadrosunu koruyan ve en fazla transfer yapan kulüp Ülker. Turuncu-Yeşilli kulüp, oyuncularının çoğuyla lira üzerinden anlaştı. Bu arada transfer borsasının ne kadar düştüğünü göstermek için şu örneği mutlaka vermek gerekiyor. Asım Pars, üç sezon önce Ülker’den Tofaş’a üç milyon dolar karşılığında transfer olmuştu. Ve oynadığı iki sezonda da iki milyon dolar net ücret almıştı. Aynı oyuncu bu sezon Fenerbahçe’den Ülker’e 30 bin dolara transfer oldu. Handlogten, Ufuk Sarıca ve Orhan Güler’i gönderen Ülkerspor, Asım Pars’ın yanı sıra Beşiktaş’tan Bud Eley ve Muratcan Güler, Pınar Karşıyaka’dan Stelmahers ve Fenerbahçe’den Mustafa Abi’yi kadrosuna dahil etti. Kadrosunda bu oyuncuların yanı sıra Harun Erdenay, Haluk Yıldırım, Tutku Açık, Kerem Gönlüm, Zaza Pachulia ve Miljan Goljevic gibi kaliteli oyuncular bulunan Ülker, Türkiye 1. Ligi’nin yanı sıra Eurolig’de de iddialı. Böylesine kaliteli bir takımın daha ziyade Eurolig için kurulduğunu da hemen belirtelim.
+       <br/>
+       <br/>
+       Efes ve Ülker Eurolig’de ne yapar?
+       <br/>
+       <br/>
+       Ülkerspor kadrosunu Eurolig için güçlendirdi, Efes de güçlendirmeye çalışıyor. Peki, bu iki takımımız devlerin mücadele edeceği Eurolig’de neler yapabilir? Kura çekimine Efes’in dördüncü, Ülkerspor’un da beşinci torbadan katılması durumu özetliyor aslında. Ülker için de, Efes için de Eurolig’de bu sezon başarılı olmak hakikaten çok zor. Efes’in grubunda Maccabi Tel Aviv, Olimpiakos, Benetton, Unicaja Malaga, Alba Berlin ve Zepter; Ülker’in grubunda da Kinder Bologna, Barcelona, Zalgiris Kaunas, Peristeri, Union Olimpija, London Towers ve Opel Skyliners gibi güçlü takımlar var.
+       <br/>
+       <br/>
+       E-mail: kolaca@hotmail.com
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12534), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227092545/http://www.aksiyon.com.tr:80/detay.php?id=12534)

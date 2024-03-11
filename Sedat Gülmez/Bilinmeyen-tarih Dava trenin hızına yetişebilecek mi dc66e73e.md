@@ -1,0 +1,55 @@
+# Dava, trenin hızına yetişebilecek mi?
+
+*Sedat Gülmez Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   40 yıllık hızlı tren rüyası 22 Temmuz akşamı 19:42’de kâbusa dönüştü. Avukatlar bile davanın 6 aydan hatta bir yıldan önce bitmeyeceğini söylüyor. Anlaşılan mahkeme süreci trenin hızına yetişemeyecek.
+   <br/>
+   <br/>
+   “Hayatımda ilk kez hızlı tren kullanmıştım.” Vicdan azabıyla birlikte söylenmiş bu söz, üç ay önce Türkiye’yi derinden sarsan hızlandırılmış tren kazasının aktörlerinden makinist Fikret Karabulut’a ait.
+   <br>
+    <br>
+     Geçtiğimiz hafta, Türkiye’nin ilk hızlandırılmış tren faciasının duruşması Adapazarı 2. Ağır Ceza Mahkemesi’nde başladı. Sanık makinistler ilk kez konuştu. TCK’nın tren kazaları ile ilgili 389. maddesindeki “tedbirsizlik, meslek veya sanatında tecrübesizlik neticesi demiryolu üzerinde bir kazaya neden olmak” hükmüne göre yargılanan tren şefi Köksal Coşkun ve makinistler Fikret Karabulut, Recep Sönmez hakkında 5 yıla kadar ceza isteniyordu.
+     <br>
+      <br>
+       Sanıklardan Recep Sönmez’in tahliyesine, Fikret Karabulut’un tutukluluk halinin devamına karar veren mahkeme heyeti, duruşma dosyalarının incelenmesi, bilirkişi raporlarının ilave edilmesi ve eksik belgelerin hazırlanması amacıyla davayı 10 Kasım tarihine erteledi. Davanın avukatları bile mahkemenin en az altı ay, hatta bir yıl süreceğini söylüyor. Avukatları Fikret Karabulut’un da ikinci celsede tahliyesini umut ediyor.
+       <br>
+        <br>
+         Mahkemedeki ön önemli iddialardan biri, TCDD yetkililerinin kazadan sonra olay yerinde yaptığı çalışmalarla delilleri kararttığıydı. Sanık avukatı Salih Ekizler, bu iddiasını ortaya atarken TCDD 1. Bölge Müdürü Üzeyir Ülker’i olayın sorumlusu olarak gösteriyor. İkinci önemli iddia ise yolda çökme olduğu yönünde. Ekizler, çöküntünün kaza noktasından başlayıp devam eden 300 metrelik bir uzunluğa sahip olduğunu ileri sürüyor.
+         <br/>
+         <br/>
+         Aileler davayı izleyemedi
+         <br/>
+         <br/>
+         Kazada yakınlarını kaybeden ya da mağdur olanlardan sadece Berrin-Mehmet Alaattin Candan çiftinin mahkeme salonunda davayı takip etmesi dikkat çekiciydi. Eskişehir’den ulaştığımız birçok mağdur aile ise davadan haberdar olmadıkları için katılamadıklarını dile getirdi. 21 yaşındaki üniversite öğrencisi kızlarını faciada kaybeden anne babanın tek isteği sorumluların bulunması. Anne Candan’a kızından geriye sadece bir telefon mesajı kalmış. Olay gecesi arkadaşı Burcu’ya saat 19:43’te yolladığı mesaj. Şöyle diyor genç kız son mesajında, “Yaw bu hızlandırılmış tren manyak bir şey”. Argo gibi gelen bu cümle belki de olayla ilgili her şeyi anlatıyor.
+         <br/>
+         <br/>
+         Kazada ölenler adına davayı izleyen müdahil avukatlarından Şener Atılgan, Enver Dedeağaç ve Ertuğrul Güven mahkeme müddetince sanıkların ve avukatlarının savunmalarına müdahale etmedi. Müdahil avukatların ortak fikri sanık makinistlerin treni hızlı kullandıkları yönündeydi.
+         <br/>
+         <br/>
+         Kazadan sonra Ulaştırma Bakanı Binali Yıldırım hakkında CHP tarafından verilen ‘gensoru’ hadisesi de mahkemede gündeme geldi. Sanık avukatlarından Mustafa Kıvanç’a göre, partilerin gensoru görüşmesi yapması Anayasa’nın 138. maddesinin 3. fıkrasında belirtilen, ‘devam eden bir dava ile ilgili olarak TBMM’de herhangi bir görüşme yapılamaz’ hükmü ile çelişiyor.
+         <br/>
+         <br/>
+         Tutuksuz yargılanan Köksal Coşkun, kaza yapan trenin şefi. Her yolculuktan önce seyir defterine kimin kaçıncı makinist olacağını yazmak da onun görevi. O gün de bu sıralamayı şu şekilde yapmış; Fikret Karabulut: 2’nci, Recep Sönmez: 1’inci makinist. Ancak kaza anında treni Karabulut kullanıyordu. Coşkun, bunun çok önemli olmadığını çünkü ikisinin de kullanmaya yetkisi bulunduğunu söylüyor. Treni kullanan makinist Fikret Karabulut ise, 128 km hızla giderken olay yerinden 50 metre önce fren yapmış. Karabulut, hızlı treni ilk defa kullandığını ve herhangi bir kurs görmediklerini söylüyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 664 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=16927), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050218203828/http://www.aksiyon.com.tr:80/yazdir.php?id=16927)

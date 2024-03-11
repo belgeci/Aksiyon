@@ -1,0 +1,127 @@
+# Bilinen markaların bilinmeyen öyküleri
+
+*Harun Odabaşı Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050226214358im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050226214358im_/http://www.aksiyon.com.tr/resim/338/38.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Büyümek, rakiplerine göre avantaj kazanmak, imaj oluşturarak katma değer yaratıp daha fazla kâr etmek isteyen şirketler er ya da geç ‘marka’ gerçeği ile yüzyüze geliyorlar. Marka geniş çerçeveli bir konu. Sadece şirketlerin değil Türkiye’nin bir gerçeği.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Turizm ve yatırım çerçevesinden bakıldığında bile Türkiye’yi de bir marka olarak düşünürsek; Türkiye’nin marka imajı ile turizm ve yabancı sermaye yatırımında gelişmiş ülkelere göre hangi noktada olduğu arasında birebir bir ilişkinin kurulması mümkün.
+   <br>
+    <br>
+     Türkiye’nin handikapları ülke imajı ile bitmiyor. Global oyunun aktörü olmak isteyen bir sürü marka ve markacıklarımız var. Bunlardan bazılarının mazisi eskilere dayandığı ve markalarına yatırım yapıldığı için yurt içinde epey bir mesafe almış durumdalar. Ama global bir markamız hâlâ yok. Markalarımızın önemli bir kısmı ise daha yolun başında. Marka oluşturmak belki de o ürünü geliştirip üretmekten daha fazla bir yatırımı gerektiriyor. Riskli ve geri dönüşü şüpheli olduğu için Türk işadamları genelde fason üretip marka olmaktan kaçınmışlar!
+     <br>
+      <br>
+       Marka deyip geçmeyin
+       <br/>
+       <br/>
+       Marka deyip de geçmeyin. Sırf isminden dolayı bazı ülkelerde başarılı ya da başarısız olan markalar var. Örneğin Coca Cola ve Mc Donald’s. Bu markalar Amerikan kültürü ve kültürel emperyalizmle o kadar bütünleşmiş durumda ki bazı üçüncü dünya ülkelerinde Amerikan emperyalizmi bu markalar üzerinden eleştiriliyor ve örneklendiriliyor. Protesto için bir yer taşlanacaksa ilk akla gelen Mc Donald’s firması oluyor.
+       <br/>
+       <br/>
+       Veya bir Japon markası olan Sony ismi uzun bir çalışmanın ardından konulmuştur. Ürün global ölçekte tasarlandığı için bütün dünya dillerinde çok rahat söylenen bir kelime aranmış ve Japonca’da güneş anlamına gelen Sony kelimesinde karar kılınmıştır.
+       <br/>
+       <br/>
+       Her markanın bir öyküsü var. Bazılarınınki hem ilginç hem de komik. Herkes tarafından bilinen markaların herkes tarafından bilinmeyen öyküleri var.
+       <br/>
+       <br/>
+       Fendi’nin kökü Efendi
+       <br/>
+       <br/>
+       Dünyaca ünlü elbise markası olan Fendi ismi İzmirli bir levanten aileden gelme. Ataları İzmir’de Efendizade ailesine mensup olan bu şahıs, Efendi kelimesinin başındaki ‘ e’ harfini atarak Fendi markasını vermiş ürünlerine.
+       <br/>
+       <br/>
+       Böylesi dünya markalarının ilginç hikâyeleri olduğu gibi Türkiye’nin kendi içinde tanıdığı Abbate, Migros, Beko, Kiğılı, DYO, Yumatu, Kombassan, Yimpaş, KVK, Enka, Akbank, HES, STFA, Ramsey, Sur—ko Jeans, Vakko, Beymen markalarının da böyle ilginç hikâyeleri var. Bakalım ne kadarını biliyorsunuz:
+       <br/>
+       <br/>
+       Enişte—Kayınbirader: ENKA
+       <br/>
+       <br/>
+       ENKA: Enişte ve kayınbirader unvanlarının ilk heceleri birleştirilerek oluşturuldu. Enişte Şarık Tara, kayınbirader de Sadi Gülçelik. Sadi Gülçelik, Şarık Tara’nın kızkardeşi ile evlenmiş. Bu ikili 1957’de ENKA Kollektif Şirketi’ni kurarak müteahhitlik faaliyetlerine başlıyor. Daha sonra Kollektif Şirket Anonim Şirket şekline, 1972’de de ENKA Holding A.Ş’ye dönüşüyor.
+       <br/>
+       <br/>
+       K.V.K: 1993 yılında kurulan K.V.K. Mobil Telefon Sistemleri Ticaret AŞ, Türkiye’nin en büyük cep telefonu distribütörü. Kurucuları olan Mehmet Emin Karamehmet, Murat Vargı ve Osman Kavala’nın soyadlarının baş harfi biraraya getirilerek oluşturulmuş bir isim. Kavala Grubu 1998 yılında mali kriz nedeni ile Türkcell hisselerini Bikka’ya (Bilgi ve Kaynak A.Ş.) devretmiştir. K.V.K. Turkcell’in SIM kartlarının distribütörlüğünü de yapan, satış noktalarının sayısı tüm Türkiye’de 1000’lere ulaşan yaygın cep telefonu satış ağına sahip. Ayrıca Ericsson, Nokia, Alcatel, Philips, Siemens ve Raks gibi markaların cep telefonu ve aksesuarlarının temsilciliğini yapmakta olan K.V.K., Dect telefonlarının, Compaq Presario ürünlerinin, IBM mobil ürünlerinin, Handspring cep bilgisayarlarının, Targus mobil ürün aksesuarlarının ve güvenlik ürünlerinin, Globalstar uydu bağlantısı, DigiTurk, Zed GSM bilgi kartları ve ÖSM üniversite sınav kartlarının satışını da gerçekleştirmekte.
+       <br/>
+       <br/>
+       Durmuş Yaşar ve Oğulları: DYO
+       <br/>
+       <br/>
+       DYO: Durmuş Yaşar ve Oğulları Boya ve Vernik Fabrikaları A.Ş.nin kısaltılmışı. 1954 yılında kuruldu. Yaşar Holding Boya Grubu’nun ilk boya fabrikası ve aynı zamanda Yaşar Holding’in ilk kuruluşu. Yaşar Holding Boya Grubu’nda yer alan (Yaşar Boya ve Kimya Sanayi ve Ticaret A.Ş.) DYO bayilerinin de ortaklığı ile halka açık bir şirket olarak 6 Nisan 1979’da İzmir’de kuruldu. YASAŞ’ın Genel Müdürlüğü Gebze’de. Türkiye’nin çeşitli illerinde 8 bölge müdürlüğü ile 750 bayiye; 50 toptancı bayi aracılığı ile 15 bin satış noktasına hizmet götürmekte. Gebze ve İzmir’de toplam 4 bin 500 ton kapasiteli iki modern sevkiyat deposuna sahip olan Yasaş’ın tüm birimleri on—line ile birbirine bağlı ve iletişim Türksat uydusu üzerinden sağlanmakta. YASAŞ bugün, DYO markası ile inşaat boyaları ve altyapı malzemelerinin; DYO — Transocean markası ile deniz boyalarının üretimini ve pazarlamasını yapıyor. Ayrıca yine DYO markası ile, uygulama aletleri, fırça ve rulo üretim ve pazarlaması gerçekleştiriyor.
+       <br/>
+       <br/>
+       Hacılar Elektrik Sanayii: HES
+       <br/>
+       <br/>
+       HES: Mesai arkadaşlarım arasında en fazla yanlışlığa düşülen isim bu oldu. Çoğunlukla HES’i Hacılar Erciyes Spor olarak telaffuz ettiler ama doğrusu Hacılar Elektrik Sanayii olacak. İstikbal ve Bellona Grubu’nun da sahibi olan Hacı Boydak’a ait olan şirket sanayinin ihtiyaç duyduğu kabloları üretiyor. HES KABLO 1974 yılında Kayseri’de kuruldu. Başlangıçta sadece AG enerji kabloları üretimi hedeflendi ve gerçekleştirildi. 1979 yılında PVC granül üretimi, 1983 yılında elektrolitik bakır üretimi gerçekleştirildi. Bakır iletkenli haberleşme kablolarının üretimine 1986 yılında başlandı. 1993 yılında emaye bobin teli üretimine başlandı.
+       <br/>
+       <br/>
+       Özellikle 1990 yılından itibaren firmanın büyüme hızı ivme kazandı ve kısa zaman içerisinde HES KABLO’ya bağlı bir çok şirket kuruldu. Yeniden yapılanma sürecine giren HES şirketleri 1999 yılında ayrılarak kendi oluşumlarını sağladılar. Bu süreç içerisinde HES KABLO, İstikbal Şirketler Grubuna dahil edildi.
+       <br/>
+       <br/>
+       Adana—Kayseri Bankası: Akbank
+       <br/>
+       <br/>
+       AKBANK: Adana—Kayseri Bankası. Sakıp Sabancı’nın geçmişi Babası Hacı Sabancı’nın memleketi Kayseri’ye uzanıyor. Aslen Kayserili olmakla birlikte iş dünyasındaki devleşmeleri Adana’da gerçekleşti. Sabancı ailesi 1959 yılında Adana ve Kayseri’nin baş harflerini birleştirerek Akbank’ı kurdular. Akbank bugün Türkiye’nin en büyük 3. özel bankası konumunda.
+       <br/>
+       <br/>
+       KİĞILI: Fenerbahçe eski yöneticisi ve Futbol Federasyonu eski Başkanı Abdullah Kiğılı’nın sahibi olduğu bir hazırgiyim markası. Anlaşılacağı üzre soyadlarını marka ismi yapmışlar. Aile köken olarak Bingöl’ün Kiğı ilçesinden göçme olduğu için soyadı kanunu çıktığında Kiğılı soyadını almışlar. Bir marka ismi olarak ilk planda söylenmesi ve akılda tutulması çok zor bir isim olduğu için dezavantaj gibi görünüyor. Ancak kamuoyu tarafından yeterince duyulduğunda ilginçliğinden dolayı avantaj bile oluyor.
+       <br/>
+       <br/>
+       ABBATE: Türkiye’de kalitesi ile tanınan ve  üst sınıfa hitap eden bir gömlek ve kravat markası. İtalyanca bir kelime. İtalyanca’da zirvedeki adam ve başarılı işadamı anlamına geliyor. İtalya’da bir bot markasının ismi olduğu ifade ediliyor. Ahmet Tayan’ın firması Abbate Giyim Tekstil Sanayii ve Pazarlama A.Ş, “Avrupa’nın en büyük gömlek üreticisi” unvanını taşıyor. Tayan, ilk şirketi Öztay Konfeksiyon’u 1984’te kurdu. Abbate markası ise 1991 yılında ortaya çıkartıldı.
+       <br/>
+       <br/>
+       30 milyon dolara malolan Bilecik tesisleri ile grubun yıllık üretim kapasitesi 6 milyon adede yükseldi. Bu tesis Abbate’ye Avrupa’nın en büyük gömlek üreticisi unvanını kazandırdı. Abbate üretim büyüklüğü açısından dünyada ilk beş sırada yeralıyor.
+       <br/>
+       <br/>
+       BEYMEN: Boyner Grubu’na ait olan bu markanın isminin geçmişi de ilginç: Erkek giyimi üzerine bir üretim ve mağazacılık yapma kararı verildiğinde konu ile ilgili toplantıya katılanların hepsi erkek yani ‘bey’ imiş. Hem de marka o dönemde sadece erkekleri düşünerek konumlandırılıyor. Bir de global bir hüviyet kazandırmak için İngilizce adam anlamına gelen ‘men’ kelimesi ile birleştirilerek Beymen markası ortaya çıkıyor. Beymen bugün hem erkeklere hem de bayanlara hitap eden ve hedef kitle olarak üst gelir grubunu belirlemiş Türkiye’nin önde gelen bir hazırgiyim markası.
+       <br/>
+       <br/>
+       MİGROS: 1954 yılında İsviçre Migros Kooperatifler Birliği ve İstanbul Belediyesi’nin girişimleri ile kuruldu. Türkçe bir anlamı yok. Gıda ve tüketim maddelerini belediye kontrolü altında üreticiden toplayıp ve sağlığa uygun koşullarda ve ekonomik fiyatlarla İstanbullulara ulaştırma amacıyla kurulmuş. İlk zamanlar tüketim maddelerini İstanbullu tüketicilere 45 satış arabası ile ulaştırırken, daha sonra ilki 1957’de Balık Pazarı’nda Beyoğlu mağazası olmak üzere çeşitli semtlerde mağazalar açıldı. Migros bu dönemde İstanbulluların güvenini ve ilgisini kazandı.
+       <br/>
+       <br/>
+       1975 yılında Migros’un çoğunluk hisseleri KOÇ Grubu’na devredildi. Bu tarihten itibaren yeni bir anlayışla çalışmaya başlayan Migros, İstanbul içinde mağaza sayısını hızla artırdı. Kurduğu dev merkez deposu ile, meyve ve sebzelerin taze ve ekonomik olarak tarladan tüketiciye ulaşması için meyve sebze alım bürolarının gelişmesi ile sağlıklı bir dağıtım için gerekli altyapıyı oluşturdu. Migros aynı zamanda 1991 yılında halka arzedilen ilk marketler zinciri.
+       <br/>
+       <br/>
+       Yusuf Mahmut Tuncer Kardeşler: Yumatu
+       <br/>
+       <br/>
+       YUMATU: Bir televizyon markası. İlk planda herkesin aklına Sony ya da Yamaha gibi bir Japon markası çağrışımı yapmasına rağmen bir Türk markası. Açılımı Yusuf, Mahmut ve Tuncer kardeşler. Üç kardeşin ilk heceleri biraraya gelerek bu isim ortaya çıkmış. Japon firmaları piyasada isminden dolayı Japon markası zannedilen ama aslında taklit üretim yapan Yumatu’dan oldukça şikayetçi.
+       <br/>
+       <br/>
+       RAMSEY: Bir hazırgiyim markası. Ramsey Yönetim Kurulu Başkanı Remzi Gür’ün isminin bir türevi. Marka imaj olarak Türkiye’de iyi bir noktada. Yabancı marka çağrışımı yapıyor ve bu da hedeflerden bir tanesi. Mısır firavunu Ramses’i hatırlattığı için ihraç markası olarak da akılda kalırlık oranı yüksek.
+       <br/>
+       <br/>
+       VAKKO: Vitali ve Alber adlı iki kardeşin isimlerinin baş harflerini ve Hakko soyadının ‘kko’ kısmını birleştirerek oluşturduğu bir marka. Hakko kardeşler tarafından Şapka Devrimi’nin ardından 1934 yılında Şen Şapka firması adı ile kuruldu. İlk mağazası 1962 yılında Beyoğlu’nda açıldı. İlk eşarbı 1938 yılında üretmeye başladılar. Türkiye’de bayan şapkasının yoğun bir şekilde kullanıldığı dönemde Vakko en büyük çıkışlarından birisini yaptı. Bugün de eşarp ve kravat deyince Türkiye’nin ilk akla gelen markası.
+       <br/>
+       <br/>
+       KOMBASSAN: Konya Basım ve Ambalaj Sanayii olarak 1989 yılında Konya’da bir kimya öğretmeni olan Haşim Bayram tarafından kuruldu. İlk çıkışı matbaa sektöründe olmasına rağmen bugün, gıda, turizm, petrol, pazarlama gibi birçok alanda faaliyette bulunmakta. Çok ortaklı bir şirket olup, en büyük ortaklık hissesi yüzde biri geçmeyen ve bugün sayıları 150 bini bulan ortak sayısına sahiptir.
+       <br/>
+       <br/>
+       YİMPAŞ: Yozgat İhtiyaç Maddeleri Pazarlama Anonim Şirketi’nin başaltılmış hali. Yozgat’ta kuruldu. Yimpaş Mağazalar Zinciri Türkiye’de 35 ilde 43 mağaza, Avrupa’da 10 mağaza, Türk cumhuriyetlerindeki Orta Asya’nın en büyük mağazaları ve tüm dünyadaki diğer mağazalarıyla geniş bir yelpazede hizmet sunmakta. Yimpaş Mağazalar Zinciri, 2000 yılında iş dünyasında yapılan geniş katılımlı bir araştırmada tüm iş dünyasının tercihlerinde, perakende sektöründe 2000 yılının en başarılı 2. firması seçilmişti. Tıpkı Kombassan gibi çok ortaklı bir şirket.
+       <br/>
+       <br/>
+       Aslında bu listeyi daha da uzatılabilir. Ama markalarla alâkalı yeni bir haber ihtiyacı olursa bu inşaallah bir Türk markasının nasıl bir global marka haline geldiğinin hikayesi olur...
+       <br/>
+       <br/>
+       e—mail: harunodabasi@usa.net
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12996), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226214358/http://www.aksiyon.com.tr:80/detay.php?id=12996)

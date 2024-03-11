@@ -1,0 +1,58 @@
+# Mağaza faresı kaçiyor, teknolojı kovaliyor
+
+*Turhan Bozkurt Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050224095323im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050224095323im_/http://www.aksiyon.com.tr/resim/390/43.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Modern alışveriş merkezlerini mekân edinen mağaza fareleri, asırlık geleneğe sahip bakkallığı çok kısa sürede mağlup eden hipermarket sahiplerinin gururunu kırdı. Çünkü mağazalardan çalınan ürünlerin yekûnu yüzde 2’ler gibi hiç de görmezden gelinemeyecek boyutlara ulaştı
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Önce mahalle aralarında küçük bakkallar vardı. İşçi, memur herkes bakkalların veresiye defterlerine yazdırırdı aldıklarını. Hayat böylece akıp giderken tüketim kültürünün en son pazarlama teknikleri ile donatılmış ve başına ‘hiper’ ya da ‘gros’ kelimeleri eklenmiş marketler çıktı karşımıza. Büyük binaların içine konuşlanan bu yeni bakkallar kısa sürede alışkanlık yaptı. Veresiyeci bakkalın yerini bol limitli kredi kartları aldı. ‘Falanca hipermarketten alışveriş yaptık’ demek sosyal bir statü alameti bile oldu. Hayatı kolaylaştıran ve güzelleştiren unsurlardaki gelişmeye bağlı olarak suç işleme biçimleri de çağa ayak uydurdu. Artık kaba metodlarla bakkal soymak yerine alışveriş merkezlerine dadanan prafesyonel hırsızlarımız var. Ve hipermarketlere alıştığımız gibi onlara da alıştık. Bu işi meslek haline getirenler arasında adeta bir branş haline gelen ‘mağaza hırsızlığı’ yerinde saymıyor, aksine gün geçtikçe kendini geliştiriyor ve tırmanıyor. Maskeli soygunculara gerek kalmadı. Müşteri kılığında mağazaya giriyorlar ve beğendikleri ürünü gizlice dışarıya çıkarmanın keyfini (!) yaşıyorlar. Dünya bu yeni hırsız türüne kısa sürede isim de buldu; mağaza fareleri. Modern alışveriş merkezlerini mekân edinen bu fareler, asırlık geleneğe sahip bakkallığı çok kısa sürede mağlup eden hipermarket sahiplerinin gururunu kırmıştı. Çünkü mağazalardan çalınan ürünlerin yekûnu yüzde 2’ler gibi hiç de görmezden gelinemeyecek boyutlara ulaştı. İngiliz araştırma şirketi Retail Of Research’ün (RR) yaptığı son araştırmaya göre, Avrupa’da 2001 yılında 1 milyon 160 bin kişi hırsızlık yaparken suçüstü yakalandı. Hırsızların üzerinden çıkan ürünlere bakarak yapılan değerlendirmelerde Avrupa’da büyük alışveriş merkezlerinden müşteri kılığında çalınan ürünlerin mağaza sahiplerine yılda 10 milyar Euro’ya mal olduğu belirtiliyor. RR’nin araştırmasında mağaza farelerinin daha çok sigara, hediyelik eşya, giysi, oyuncak ve alkollü içecekleri tercih ettikleri vurgulanıyor.
+   <br>
+    <br>
+     Krizde mağaza hırsızlıkları arttı
+     <br>
+      <br>
+       Müşteri kılığında hırsızlığın Türkiye’de ne durumda olduğuna ilişkin şu ana kadar kapsamlı bir çalışma yapılmazken, ülkemizdeki mağaza zincirlerinin kayıp kalemlerinin başında bu tür hırsızlıkların geldiği bilinen bir gerçek. 1,5 yıldır tarihinin en ağır ekonomik bunalımından çıkmaya çalışan ülkemizde araştırma şirketlerinin pilot mağazalarda yaptıkları incelemelere göre hazırladığı raporlar, mağaza hırsızlığının krizde tür ve miktar olarak önemli değişiklikler gösterdiğini ortaya koyuyor. Krizden önce özenti nedeniyle daha çok markalı giyim ürünlerini tercih eden hırsızlar artık temel ihtiyaç maddelerine yöneldi. Bunların başında da gıda ürünleri geliyor. Yani krizde işsiz kalan insanlar aç kalmamak için hipermarketlerden makarna, ekmek, sebze–meyve çalmaya başladı. Mağazalara güvenlik hizmeti veren ve Türkiye’de pazarın yüzde 80’ini elinde bulunduran Detay Güvenlik’in yaptığı pilot incelemeler de gösteriyor ki 1997’de yüzde 1,5 civarında olan hırsızlık oranı son 1 yılda yüzde 2’yi geçmiş durumda. Alım gücünün azalmasına bağlı olarak düşen satışlar yetmezmiş gibi bir de hırsızlıklardan kaynaklanan kayıpların büyümesi zincir mağazaları kara kara düşündürüyor. Mağaza hırsızlığından yakınan Migros Genel Müdürü Ömer Bozer, hırsızlık vakalarının toplam cirolarının binde 2’sini oluşturduğunu ifade ediyor. Bozer, geçen yıl Migros marketlerinde müşteri hırsızlığından dolayı 1,4 milyon dolarlık (yaklaşık 1,5 trilyon lira) bir kayıp gerçekleştiğini ve krizle birlikte hırsızlık vak’alarının arttığını vurguluyor.
+       <br/>
+       <br/>
+       Türkiye çapında 5 büyük ilde marketleri bulunan Real’in Kurumsal Geliştirme Departman Müdürü Müjdat Özgöz ise, geçen yıl 21 bin hırsızlık vak’ası ile karşı karşıya kaldıklarını söylüyor. Hırsızların büyük bir çoğunluğunun erkek ve orta yaş üstü olduğuna dikkat çeken Özgöz, “Bu kişilerden birçoğunun kleptomani (hırsızlık hastası) rahatsızlığından dolayı çaldıklarını belirledik. Çünkü çalınan mallar içinde akla hayale gelmedik ürünler bile var” diyor. Özgöz’ün verdiği bilgilere göre, hırsızlık olayları sigara üzerinde yoğunlaşıyor. Bu yüzden Real, sigara satışları kasa yakınında yapıldığı için bütün mağazalarındaki kasaları tekrar dizayn etmek zorunda kalmış. Metro Grosmarket Yönetim Kurulu üyesi Ali Osman Engiz de, perakendecilerde hırsızlık oranının toplam cironun yüzde 2’sine tekabül ettiğini belirtiyor. Kendi mağazalarının sadece kartlı üyelere açık olması nedeniyle bu oranın Metro’da yüzde 0,4 olduğunu vurgulayan Engiz, “Hırsızlık oranı Avrupa’da bize göre daha yüksek. Çünkü orada profesyonel mağaza hırsızları var. Böyle bir hırsızlık çeşidi Türkiye’de yok” diyor. Metro’da ise, genellikle küçük ebatlı ve pahalı eşyalar çalınırken, bunların başında Gillette marka traş bıçakları geliyor.
+       <br/>
+       <br/>
+       Gizli etiket devri başladı
+       <br/>
+       <br/>
+       Mağaza sahipleri hırsızlıktan dert yanarken, güvenlik firmalarının araştırma–geliştirme çalışmaları da sürüyor. Aynı zamanda Amerika merkezli Checkpoint Meto güvenlik şirketinin Türkiye temsilciliğini de yürüten Detay Güvenlik’in genel müdürü Murat Keklik, alışveriş merkezlerinin başlangıçta önemsemediği mağaza farelerinin artık şirket kârlarını kemirmeye başladığını söylüyor. “Başlangıçta küçücük kayıplar için güvenlik önlemleri alarak müşterileri ürkütmeye gerek yok diye düşünenler artık mevcut yöntemlerin daha da geliştirilmesini talep ediyor” diyen Keklik, ‘kaynaktan koruma’ adı verilen yeni bir yöntemin bu tür hırsızlıkları önemli ölçüde azaltacağını dile getiriyor. Yöntemin mantığı çok basit. İmalat aşamasındaki ürüne sadece firmanın bildiği gizli bir etiket yerleştiriliyor. Dışarıdan bakıldığında etiket görülmüyor. Kaynaktan korumanın en çok giyim reyonlarında rağbet görmesi bekleniyor. Hırsızlar mağazalarda denemek için giydikleri elbisenin etiketini sökerek üzerine kendi elbiselerini giyiyor. Sonuçta güvenlik çemberine yakalanmadan mağazadan çıkabiliyordu. Ancak Avrupa’da şu anda 10 bin mağazada kullanılmaya başlayan gizli etiket hırsızları tam anlamıyla pusuya düşürüyor. Söktüğü etiketin dışında ikinci bir güvenlik etiketinin varlığından haberdar olmayan hırsızlar antenler tarafından anında tespit ediliyor. Yeni yöntemin Avrupa’da kısa sürede çok olumlu sonuçlar verdiğini belirten Keklik, teklif götürdükleri şirketlerin ilgisi ile karşılaştıklarını ve Türkiye’de de kaynaktan etiketli ürünlerin ağustos ayından itibaren raflardaki yerini alacağını kaydediyor. Keklik, öncelikle sigarada kaynak etiket uygulamasına geçeceklerini vurguluyor. Bunun nedenini de şöyle açıklıyor: “Sigara sadece tüketilmek için değil, aynı zamanda satılıp paraya dönüştürülmek için çalınan bir ürün. Sigarayı çalmak pek çok ürüne göre daha kolay. Bu yüzden hipermarketler sigaraları ancak kasaların yanında sınırlı bir alanda sergileyebiliyor. Bunun önüne geçmek için sigaralara gizli etiket vurulacak.”
+       <br/>
+       <br/>
+       Keklik’e göre, hırsızlıkların yol açtığı zarar işletmelerin tahmin ettiği rakamlardan yüksek. Türkiye’nin bütün perakende hacminin 40 milyar dolar olduğunu hatırlatan Keklik, “Türkiye’de yöresel olarak değişmekle beraber mağaza hırsızlığı oranı yüzde 2’dir. Antalya, İstanbul ve Adana en fazla vak’a ile karşılaştığımız illerin başında geliyor. Yüzde 10’luk kâr marjı ile çalışıyorsanız ve o ürün grubunda bir ürünü çaldırıyorsanız o gruptaki 10 ürünün kârını kaybediyorsunuz. Bu nedenle kaynak etiketleme yöntemi daha da önem kazandı” şeklinde konuşuyor.
+       <br/>
+       <br/>
+       Kasiyerlere kötü haber!
+       <br/>
+       <br/>
+       Keklik, hırsızlık var diye modern mağazacılıktan vazgeçilmesinin mümkün olmadığının altını çizerek, teknolojideki gelişmelerle birlikte ürünü korumaya endeksli yöntemlerin artık ürünü tanımlama imkânı da vermeye başladığına dikkat çekiyor. Keklik’in verdiği bilgilere göre, Mitsubishi ile Checkpoint Meto’nun ortaklaşa yürüttüğü çip projesi sonuçlandığında ürünlerin üzerine yerleştirilen çipli etiket devri başlayacak. Çipli etiketler kasiyerleri işsiz bırakacak. Çünkü çipte ürünle ilgili bütün bilgiler yer alacak ve kasaya gelindiğinde ürünün ücreti kredi kartından otomatik olarak kesilecek. Ayrıca ürünün fabrikadan tüketiciye kadar geçirdiği aşamalarda ayrı ayrı kayıt tutmaya gerek kalmayacak. Stok maliyetleri de aşağıya çekilecek. RFID adı verilen bu yöntemle antenler arasından geçerken barkod sistemi de devre dışı kalacak. Çipler üzerinde ürünün modeli, rengi ve fiyatı gibi tüm özellikleri yeralacak. Ürünleri tek tek saymaya gerek kalmadan bir el aparatı ile stok sayımı kısa sürede gerçekleştirilebilecek. Fabrika çıkışı ile mağaza girişi arasındaki uyumsuzluklar anında bilgisayar ekranına yansıyacak ve alarm verecek. Çipin maliyeti 80 cente kadar düşürüldü. 10 centin altına indiği zaman uygulamanın daha da yaygınlaşması bekleniyor. Gizli etiketler üzerine yerleştirilecek çipler ilave bir güvenlik de sağlayacak. RFID halen değerli kitap koleksiyonlarının bulunduğu kütüphanelerde uygulanıyor. Detay Güvenlik Genel Müdürü Murat Keklik, RFID’nin 10 yıl içinde tüm dünyaya yaygınlaşacağını belirterek, “Bundan 4 yıl öncesine kadar bu bir hayâldi. Kütüphanelerde memur olmadan bu yöntem başarı ile uygulanıyor. Çip maliyeti daha da aşağıya çekildiğinde mağazalarda da kullanılacak. Mağaza sahipleri çok cüz’i bir maliyetle kalıcı ve verimli bir çözüm üretmiş olacak” diyor.
+       <br/>
+       <br/>
+       Güvenlik şirketlerinin hırsızlara karşı geliştirdiği yeni yöntemler sürecek. Ancak sektörün içindeki isimler ne tür yöntem geliştirilirse geliştirilsin hırsızlıkların sıfıra indirilebileceğine ihtimal vermiyor. Buna rağmen sektörün öncelikli hedefi, giderek artan ve milyar dolarla ifade edilen maddi kayıplara yol açan müşteri hırsızlıklarını frenlemek. Ardından bu oranı daha da aşağılara çekmek... Murat Keklik, çipli etiketlerin yakın bir gelecekte alışveriş merkezlerinin şeklini değiştireceğine inanıyor ve ekliyor: “İlk başta kasiyerleri işsiz bırakacakmış gibi görünen RFID aslında kasiyerlerin mağaza içine geçmesini sağlayacak. İşletmeciler müşteriye artık daha çok vakit ayırmak zorunda kalacak. Kurunun yanında yaşın da yanması ancak bu şekilde önlenebilir. Bütün çabamız alışverişi keyif ve huzur veren bir hale getirmek.”
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11872), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050224095323/http://www.aksiyon.com.tr:80/detay.php?id=11872)

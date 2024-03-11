@@ -1,0 +1,217 @@
+# 'Çakıcı'yı dönmesi için ben ikna ettim'
+
+*Aydoğan Vatandaş Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041015052441im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041015052441im_/http://www.aksiyon.com.tr/resim/510/26.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Uzun yıllar Özel Harp’te ve MİT’te çalışan Yavuz Ataç, Gladyo'dan Alaattin Çakıcı’nın kullanıldığı özel operasyonlara ve Mehmet Eymür’ün iddialarına kadar birçok konuda açıklamada bulundu.
+  <br/>
+  Türkiye Gladyo'yu ilk kez, 3 Mayıs 1990 günü üç İtalyan jandarmasının Kuzey İtalya'da, şüphelendikleri bir araçta arama yapmak için bagajı açmalarıyla başlayan olaylar sırasında duydu.
+ </font>
+ <p>
+  <font class="content">
+   Çok sayıda kitaba konu olan Gladyo, geçenlerde bir kez daha gündeme geldi; Özel Harp'te ve Milli İstihbarat Teşkilatı'nda (MİT) uzun yıllar çalışmış bir devlet görevlisinin, Yavuz Ataç'ın, Milliyet gazetesinde yayımlanan "Türkiye'de Gladyo'nun başıydım" sözleriyle.
+   <br/>
+   <br/>
+   MİT'in dış operasyonlardan sorumlu eski daire başkan yardımcısı olan Ataç, yarbay rütbesinde MİT'e girdi. 1986'da patlak veren MİT Raporu skandalından etkilenmeyen tek kişiydi. Mehmet Eymür ve Hiram Abas ayrılmak zorunda kalırken, o teşkilatta kalmayı başardı. MİT'ten kendi isteğiyle ayrıldığı güne kadar Sudan, Afganistan, ABD, Çin, Malezya, İran, Irak, Suriye, Lübnan ve birçok Avrupa ülkesinde kurs gördü, görev yaptı.
+   <br/>
+   <br/>
+   Hanefi Avcı, Susurluk Komisyonu'na verdiği ifadede; Ataç'ın, arandığı sırada Tevfik Ağansoy'u yurtdışına kaçıran, Alaattin Çakıcı'yı koruyan ve yurtdışına giriş-çıkış işlerini organize eden MİT görevlisi olduğunu ileri sürdü. 1997'de Pekin'e idarî ataşe olarak gönderildi. Şenkal Atasagun'un MİT Müsteşarlığı'na gelmesinden sonra, Çakıcı'nın yakalanmasıyla üzerinden çıkan diplomatik pasaportun Ataç tarafından verildiği öne sürüldü. Ataç, bunun üzerine görev yeri olan Pekin'den geri çağırıldı.
+   <br/>
+   <br/>
+   27 Eylül 1998'de MİT'e verdiği dilekçeyle emekliye ayrılan Ataç hakkında; Çakıcı'ya "kaç" demek, kırmızı pasaport sağlamak ve çetelere yardım etmekten soruşturma başlatıldı. Yavuz Ataç'la, Gladyo'dan Mehmet Eymür'ün iddialarına kadar birçok konuyu konuştuk.
+   <br/>
+   <br/>
+   -Medyada, "Gladyo'yu ben kurdum" dediğinize ilişkin sözler yer aldı. Gerçekten Türkiye'de böyle bir organizasyon var mı? Bunu siz mi kurdunuz?
+   <br/>
+   <br/>
+   Gladyo, Türkiye'ye has bir tabir değil. İtalya'da ortaya çıkmış bir şey iken birileri bunu aldı, ülkemizdeki yapıya zarar vermek için Türkiye'ye monte etti. Gladyo diye tabir edilen ve Türkiye'de 'Özel Harp'e yakıştırılan, öyle sürekli sevk ve idare edilen organize bir yapı yok. NATO'nun askerî harekâtı, gizli servisleri ve gayr-i nizami dediğimiz unsurları için kurulmuş bir yapı var. Askerî harekâtlarda bunlar dikkate alınır. Türkiye harbe girdiğinde sadece ordu mu savaşacak? Hayır. Herkes üzerine düşen görevi yapacak. Türkiye işgal edilirse, işgal edilmiş topraklarda direnişi organizeli şekilde yürütmek ve bunun da hazırlığını şimdiden yapmak gerekir. Hazırlığı olmayan bir hareketin başarı şansı olamaz. Futbol takımı bile antrenman yapıyor. Dolayısıyla, bu kağıt üzerinde yapılan bir planlamadır.
+   <br/>
+   <br/>
+   -Kimlerden oluşuyor bu tür ekipler?
+   <br/>
+   <br/>
+   Burada görev alacaklar, barış zamanında belirlenir, ne yapacağı konusunda eğitilir. Sonra, o şahıs kendi hayatını yaşamaya başlar. Harp başladığında gördüğü eğitimi kendiliğinden yerine getirir. Bunun organik yapılanması da vardır. Onun da usulleri bellidir.
+   <br/>
+   <br/>
+   -Herkes bu organizasyona girebilir mi?
+   <br/>
+   <br/>
+   Buradaki yapı gönüllülük esasına dayanıyor. Gönüllü olmayanı bu işe alamazsınız. Elbette, başvuranlar hakkında "bu şahıs gerçekten iyi niyetle mi yoksa başka amaçla mı katılıyor" diye bir araştırma yapılır.
+   <br/>
+   <br/>
+   -Sizin göreviniz neydi?
+   <br/>
+   <br/>
+   Ben bu organizasyonun NATO makamları nezdindeki temsilcisiydim. "Sorumlusuydum" derken böyle bir şeyin yöneticiliği yok aslında. Ben, kendi bünyemizdeki organizasyonun karargah hizmetlerini belli bir süre yürüttüm.
+   <br/>
+   <br/>
+   -Özel Harp Dairesi'nde ve MİT'te çalıştınız. Bahsettiğiniz organizasyonun NATO'daki bazı toplantılarına katılıyordunuz. NATO'nun tehdit algılamalarının nasıl değiştiğini en iyi bilenlerin başında geliyorsunuz.
+   <br/>
+   <br/>
+   Bu çok derin bir konu. NATO'yu doğrudan hedef almam doğru olmaz. Ama burada bir husus var. 1979-1982 yılları arasındaki görevim, NATO'daki askerî misyon şefi koramiralin güvenliğini sağlamaktı. O tarihte Ermeni terörü çok üst düzeydeydi. "Bordo Bereliler" denilen birlikte yüzbaşıydım. Lisan imtihanına girdim. Yeterli notu alınca NATO'ya tayin ettiler. O sırada misyon şefi koramiralin hem emir subayıydım hem de güvenliğinden sorumluydum. Belçika mahkemelerinin kararıyla silah da taşıyabiliyordum.
+   <br/>
+   <br/>
+   -MİT'te çalışırken de Avrupa'da bulundunuz mu?
+   <br/>
+   <br/>
+   Evet. Çeşitli görev ve toplantılar vesilesiyle MİT'teki görevim başladıktan sonra da Avrupa'da bulundum. Gizli servislerin NATO bünyesindeki toplantıları sırasında bir ara İspanya'nın Sudan'ı gündeme getirdiğini hatırlıyorum. İspanya, daha sonraki yıllarda da çeşitli vesilelerle karşıma çıktı. Hıristiyanlık tarihi açısından çok önemli bir ülke.
+   <br/>
+   <br/>
+   -Ne diye gündeme geldi Sudan?
+   <br/>
+   <br/>
+   Bu toplantıların birinde İspanya, Sudan'daki terör kamplarını gündeme getirdi. Hem oradaki askerî istihbarat yetkilisini hem de MİT sorumlusunu aradım. Sudan'da terör kampları olmadığını söylediler bana.
+   <br/>
+   <br/>
+   -Hiç Sudan'da bulundunuz mu?
+   <br/>
+   <br/>
+   Evet. O dönemde Sudan'da İslamî bir yönetim vardı. Batı dünyası Sudan'ı tecrit etmişti. Ambargo uygulanıyordu. Onlar, bunların doğru olmadığını anlattılar bana. Bildiğiniz gibi "Medeniyetler Çatışması" diye bir tez var. İslam dünyasının hedef tahtasına oturtulduğu belli. Daha o yıllarda bunların temeli atılıyordu.
+   <br/>
+   <br/>
+   -Niçin?
+   <br/>
+   <br/>
+   Elbette, NATO'nun varlığı için. Çünkü, Varşova Paktı yoktu artık; komünizm bir tehdit olmaktan çıkıyordu.
+   <br/>
+   <br/>
+   -İspanya'ya düşen rol neydi peki?
+   <br/>
+   <br/>
+   Bu genel faaliyet çerçevesinde İspanya'ya özel bir görev düştü, o da bunu uyguladı. Aslında, İspanya ile Sudan'ın bir irtibatı yok. Sudan'da petrol var. Bu petrolü Çin ve Malezya çıkarıyor. Sudan, İslamî ağırlığı en çok olan bir ülke. Stratejik konumu ile İslam'ı Afrika'ya yayabilecek bir potansiyele sahip. Batı dünyası Sudan'ı tecrit edince, onlar da Malezya ve Çin'e yanaştı.
+   <br/>
+   <br/>
+   -Sudan'ın 22 yıldır bir iç savaş yaşaması tesadüf değil o zaman?
+   <br/>
+   <br/>
+   Sudan'ın güneyinde bir ayrılıkçı hareket var. Başında, John Garang isimli bir yarbay var. Bu adamın ABD'nin Özel Harp Merkezi'nde eğitim gördüğünü biliyorum.
+   <br/>
+   <br/>
+   -Mehmet Eymür, "Yavuz Ataç bomba uzmanı mı ki, Uğur Mumcu suikastinde olay mahalline gidip araştırıyor" diyor. Neden gittiniz oraya?
+   <br/>
+   <br/>
+   Uğur Mumcu'nun öldürülmesi Türkiye için çok önemli bir olaydı. Kendisi hassas konuları da ele alan bir gazeteciydi. Bu, ilgili bütün kurumları harekete geçirmesi gereken bir olaydı. MİT, bu tür olaylarda görevli olduğunu kabul etmiyor. Yazılı mevzuatında yok.
+   <br/>
+   <br/>
+   -Patlayıcılar konusunda uzman mısınız?
+   <br/>
+   <br/>
+   Bu konuda gerek Türkiye'de gerekse yurtdışında eğitim aldım. Bu bilgileri kendime saklamak için edinmedim. Öğrendiklerimi bir şekilde devletin hizmetine sunmam lazımdı. Ayrıca, bu olayın teknik açıdan nasıl yapıldığını yerinde görmek istedim. Bugün ona yapıldı, yarın bir başkasına yapılabilir.
+   <br/>
+   <br/>
+   -Olay yerindeydiniz yani...
+   <br/>
+   <br/>
+   Evet, o gün suikast mahalline gittim. Evini bilmiyordum. Polise sordum. Olay mahallini gördüm. Patlama sonrası araştırma eğitimi almış biriyim. Bunun nasıl yapılması gerektiğini biliyorum. O tarihte görevlilerin bu konudaki eğitim düzeyi düşüktü. Araştırmanın orada layıkıyla yapılamayacağı açıktı. İmkan bulamadılar. Bomba uzmanları iyi niyet ve özveriyle çalıştı. Oradaki resmi görevli arkadaşlarla da konuştuk. Kendilerine, gayr-i resmi geldiğimi söyledim.
+   <br/>
+   <br/>
+   -Sonra ne oldu?
+   <br/>
+   <br/>
+   Akşam döndük geldik. Ertesi sabah, o tarihteki MİT Müsteşarı Sönmez Köksal beni odasına çağırdı. "Hemen emniyete git, Uğur Mumcu olayıyla ilgili bilgi al" dedi. O tarihte, teşkilattaki görevim bu tür bir olayı kapsamıyordu. Terör Şube Müdürü idim; ama bizim alanımızda değildi. Müsteşara, olay mahalline gayr-i resmi gittiğimi söyledim. "Durum nedir?" diye sordu. Ben de yeni bir bilgi olmadığını söyledim.
+   <br/>
+   <br/>
+   -Mehmet Eymür niye ve ne maksatla gitmiş diyor.
+   <br/>
+   <br/>
+   Böyle bir olayı bu şekilde değerlendirmek ancak art niyetli olabilir.
+   <br/>
+   <br/>
+   -Mehmet Eymür, MİT'e dönmesini, kontr-terörün başına geçebilecek tek kişi olarak görüldüğü için bizzat Şenkal Atasagun'un teklifi olduğu şeklinde açıklıyor.
+   <br/>
+   <br/>
+   Mehmet Eymür, 1988'de MİT'ten ayrıldı, 1994'te de döndü. O tarihte kontr-terör diye bir şey yoktu. Hatta, lafı bile edilmiyordu. Sonradan kendi icat ettiği bir şeydir. O tarihte teşkilatta yeni bir birim kurulması, özellikle dünyadaki gelişmeler sebebiyle gerekiyordu. Bu teşkilatın kurulmasında en önemli rolü ben oynadım.
+   <br/>
+   <br/>
+   -Nasıl oldu bu?
+   <br/>
+   <br/>
+   İç yapılanmada bir ihtiyaç hasıl oldu. Nasıl giderileceği soruldu. İlgili birimler birer rapor yazdı. Ben de yazdım. Neticede müsteşar, benim yazdığım uygulamaların yararlı olacağı düşüncesiyle "Bunları uygulayalım" dedi. Bunun üzerine neler yapılması gerektiğini yazdım. Neticede o özel birim kuruldu. Zamanla bu birimde Özel Harp'ten 20'ye yakın kişi görev aldı.
+   <br/>
+   <br/>
+   -Asıl amaç neydi bu yapılanmaya gidilirken?
+   <br/>
+   <br/>
+   Kuzey Irak'taki istihbarat faaliyetlerini yürütmekti. Bu birim kuruldu. Bir daireydi bu ve başında da ben vardım. Gayet de uyumlu çalışıyorduk, hiç bir sorunumuz yoktu.
+   <br/>
+   <br/>
+   -Burada tabii Adil Öngen boyutu var.
+   <br/>
+   <br/>
+   Adil Öngen benim delikanlılık döneminden arkadaşım. 17-18 yaşlarında askerî lisede okurken, benim mahalle arkadaşlarımdan birkaçının samimi arkadaşıydı. O dönemde tanıştım. Kendisi bankacı olmuş. 20 yıl boyunca görüşmemişiz. Sonra kendisiyle bir yerde buluştuk. Benim bağlantılarımı görünce, "Bazı şeyler yalıda biter" dedi. O tarihte basında Çiller'e yönelik bir kampanya var. Kişilere hizmet etmediğimizi söyledim.
+   <br/>
+   <br/>
+   -Ne oldu sonra?
+   <br/>
+   <br/>
+   Ben bunu reddedince, Adil Öngen bu kez Mehmet Eymür'le temas kuruyor. Eymür'ü, Özer Çiller'le tanıştırıyor. Eymür, öyle MİT'e girdi. "Beni Şenkal önerdi falan" diyor. Bunu Şenkal Atasagun ile de görüştüm. Kendisi aracı olmuş, ama şu amaçla: Mehmet Eymür "Dev-Sol'un ölüm listesindeyim. Tehdit alıyorum" diyor. Şenkal Atasagun, "Biz onu korumak için MİT'e aldık" dedi. Burada enteresan bir şey var. Hiram Abas dışarıda kalıyor öldürülüyor. Mehmet Eymür korunmak için MİT'e alınıyor.
+   <br/>
+   <br/>
+   -Eymür'ün MİT'e geleceğini nasıl öğrendiniz?
+   <br/>
+   <br/>
+   Sönmez Köksal beni çağırıp, Eymür'ün geri döneceğini söyledi. Bir şey söylemedim. Bizim birimin başına geçeceğini söyleyince, bunu kabul edemeyeceğimi belirterek, "O zaman ben ayrılayım" dedim. Sönmez Köksal'ın söylediği aynen şudur: "Üzerimde baskı var. Gelecek. Rica ediyorum, sen de kalacaksın ve yetkili olacaksın." Hatta bana bir de unvan uydurdular: Yardımcı Daire Başkanı. Halbuki, öyle bir unvan yok. Böyle bir unvan uydurup Eymür'ün iki numaralı adamı konumuna getirdiler. O tarihe kadar Sönmez Köksal'la son derece uyumlu faaliyet yürüttük. Hiç bir sorun yoktu. Eymür'ün dönüşüyle sorunlar yeniden başladı. Asala operasyonları falan diyor. Nuri Gündeş'ten, Şenay Gürvit'ten bahsediyor. Niye onlar yürütmüş? Operasyoncu ise o zaman kendisinin yürütmesi gerekirdi.
+   <br/>
+   <br/>
+   -Eymür, Öcalan'ın ortadan kaldırılması için taşeronlara yüklü paralar verildiğini söylüyor. Hatta o tarihte PKK kampları ve Öcalan’ın kaldığı yer bilinmiyormuş. Bunlara ne diyeceksiniz?
+   <br/>
+   <br/>
+   Mehmet Eymür, 6 sene dışarıda kaldıktan sonra teşkilata dönmüş biri. Ondan çok önce sadece Öcalan'la ilgili değil, PKK ile ilgili son derece kapsamlı çalışmalar yapıldı Kuzey Irak'ta. Ben öteden beri bu tür işlerde taşeronların kullanılmasına karşıyım. Dünya kadar paralar verildiğini söylüyor. Hiç öyle paralar verilmedi. Birtakım masraflar yapıldı. Bu adamları da biz kendimiz bulmadık. Ya cumhurbaşkanı, ya başbakan ya da yetkili birileri gönderdi. Bu insanlarla görüştüm ve çoğunu da reddettim. Bir iki kişi oldu. Çok da faydalandık. Çok cüz'i miktarlarda masrafları verildi. Kendisi çok daha fazla para sarf etmiştir bu işlere.
+   <br/>
+   <br/>
+   -Ancak Eymür'ün geçmişinde iki önemli operasyon var. Biri Savaşman, diğeri de Turan Çağlar'a suç üstü olayı...
+   <br/>
+   <br/>
+   Ben o tarihlerde teşkilatta değildim, ama bu olaylara da temkinli yaklaşıyorum. Elimde belgeler yok. Bütün teşkilatlara sızmalar olur, olmuştur. Hiç kimse ile ilgili kesin bir bilgim yok. Ama kimisi bizden bilgi almak, kimisi de iç yapıyı sabote etmek için kendisi bile farkında olmadan başka güçlere hizmet edebilir.
+   <br/>
+   <br/>
+   -Birinci Körfez Savaşı'nda Kuzey Irak'taki göreviniz tam olarak neydi?
+   <br/>
+   <br/>
+   Müttefiklerimizin Irak'taki operasyonlarının Türkiye üzerinden yürütülenlerinin koordinasyonuydu. Amerikalıların 38. paralelin ötesinde yürüttükleri istihbarat operasyonlarında irtibat noktalarına tayin edildim. Biz de millî politikalarımız çerçevesinde yardım ediyor ya da etmiyorduk. Amerikalıları iyi tanırım. Onları epey tahdit ettim. O sıralarda Amerikalıları Ankara'nın doğusuna geçirmezdim. Bize ihtiyaçlarınızı söyleyin, yerine getiririz derdim. Bütün görüşmelerimizi Ankara'da yapardım. Kuzey Irak'taki tüm görüşmeler bizim gözetimimizde olurdu. Amerikalıları pek rahat ettirmedik yani. Mehmet Eymür daha sonra beni by— pass etti. Buradaki faaliyeti kendi yürütmeye başladı.
+   <br/>
+   <br/>
+   -İspanya'nın bölgeye özel bir ilgisi olduğunu söylüyorsunuz?
+   <br/>
+   <br/>
+   Birkaç tane unsur var. Amerikalılar Kuzey Irak'tan Türkiye'ye gelen mülteciler arasından kendilerine hizmet edecek olanlara İspanyol vatandaşlığını garanti ediyordu. Acaba niye Amerikan değil de İspanyol vatandaşlığını garanti ediyor? Sonra bu 10 bin Kürt peşmergesi niye Guam adasına götürüldü? Bunlar hep manidar konular. Ayrıca İspanyol büyükelçiliğinden birileri Birinci Körfez Harekatı bittikten sonra çok sık aralıklarla Erbil'deki üniversiteye niçin "ders vermeye" gidiyordu?
+   <br/>
+   <br/>
+   -Alaattin Çakıcı ile ilişkiniz nasıl başladı?
+   <br/>
+   <br/>
+   1984'te PKK faaliyeti başlamıştı. Gayr-i nizami harp usulleriyle faaliyet gösterdiği için PKK'ya yönelik çalışmaları, planlamaları büyük oranda Özel Harp Dairesi yürütüyordu. Bu sırada Özel Harp birliklerinin eğitilmesi görevi bana verilmişti. 1986'da Polis Özel Harekat Timleri'nin eğitilmesiyle ilgileniyorduk. Ben, Korkut Eken ve Kaşif Kozinoğlu bu görevi birlikte yürütüyorduk. Bu sırada İsrail'de de bir kurs gördük. Erkan Gürvit de benimle birlikteydi. 1987'de Hiram Abas, benimle görüşmek istedi. Ertesi sabah buluştuk ve bana yurtdışında yapılacak bir operasyonun yürütülmesi ile ilgili bir teklifte bulundu. 1986 mayısıydı. Korkut Eken'e konuyu açtım. Tamam dedi. Uygulama Şube Müdürü olarak görev benim şubem tarafından yürütülecekti.
+   <br/>
+   <br/>
+   Bir sene sonra 13 Mayıs 1987'de MİT'e katıldım. Mehmet Eymür bu sırada Daire Başkanı'ydı. MİT Müsteşarı da Burhanettin Bigalı'ydı. Şimdi burada üstüne basa basa belirtiyorum. Biz bu operasyonun gerçekleştirilmesini sağlamaktan sorumluyduk. Kimlerle gerçekleştirileceğini belirlemek ve planlamaktan değil. Bu operasyonun kimlerle gerçekleştirileceğini planlayanlar Mehmet Eymür ve dönemin MİT Müsteşarıydı. Ben o sırada teşkilatı tanımıyordum. Biz bu operasyonda görev alacak insanların eğitilmesinden ve görevin başarıyla tamamlanmasını sağlamaktan sorumluyduk.
+   <br/>
+   <br/>
+   Nitekim bu tür operasyonlarda aylarca süren tecrit süreci yaşanır. Alaattin Çakıcı ve dört arkadaş ile birlikte aynı ortamda aylarca birlikte yaşadık. Bu tür görev insanlara 'Git, ailenle helalleş, bir daha onları göremeyebilirsin' denir. Bu süreçte bu insanların güvenilir olup olmadıkları, sır verip vermeyecekleri de ortaya çıkar. O sırada Mehmet Eymür yine büyük bir tecrübesizlik örneği sergiledi. Hedefin fotoğraflarını bunların önüne attı. Acele etti. Çünkü tecrit süreci bitmemişti.
+   <br/>
+   <br/>
+   -Bu operasyonda görev alan diğer isimler kimlerdi?
+   <br/>
+   <br/>
+   Ben bu isimleri söylemeye mezun değilim. Aladdin Çakıcı'yı devletin yöneticileri açıkladıkları için artık isim vererek konuşabiliyorum. Biz bu arkadaşlarla yurtdışına hareket ettik. Ben hedef mahalline gittim. Keşif yapacaktım. Bir de baktım ki hedef mahalli mühürlenmiş. Yani hedef ülke operasyonu haber almış. Operasyon deşifre olmuştu. Gruba ya sızma olmuştu ya da operasyon bir şekilde karşı tarafa duyurulmuştu. Harekat güvenliği zedelenmişti. Çakıcı, benden haber bekliyordu. Operasyon ertelendi ve icra edilmedi. Alaattin Çakıcı, oraya kadar gönüllü geldiğine göre görev yapılmış kabul edilir. Suçlu olabilir. Hesabını verir. Nitekim ben o sırada Çakıcı'nın polis tarafından arandığını bilmiyordum. Türkiye'ye döndüğümüzde öğrendim. Öğrendikten sonra da kendisiyle konuştum ve onu ikna ettim. Derhal polise teslim oldu. Yargılandı. 1-5 sene kadar cezaevinde kaldı. Sonra tahliye oldu. Benim kızkardeşinin düğünü sırasında çekilen fotoğrafım, sabıkalı ama aranmadığı dönemde olmuştur. Alaattin Çakıcı, 1993 yılında yine teşkilatla bağlantılı bir şekilde yurtdışına çıktı.
+   <br/>
+   <br/>
+   -Görev neydi?
+   <br/>
+   <br/>
+   Bu görevi söylemeye yetkim yok. Çakıcı'nın bağlantılarını devlet biliyor. Böyle bir adamın yabancı servislerin eline geçmesine devlet müsaade etmemeliydi. Çünkü her ülke böyle bir adamın ne bildiğini bilmek ister. Eymür teşkilata dönünce Çakıcı'yı kendi özel işlerinde kullanmak istedi. Özel bazı talepleri oldu. Öğrendiğim kadarıyla Eymür, Çakıcı'ya arandığı dönemde de bazı vaatlerde bulunmuş.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=15465&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041015052441/http://aksiyon.com.tr:80/detay.php?id=15465&yorum_id=1)

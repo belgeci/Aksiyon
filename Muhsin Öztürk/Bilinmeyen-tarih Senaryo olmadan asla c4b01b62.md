@@ -1,0 +1,88 @@
+# Senaryo olmadan asla
+
+*Muhsin Öztürk Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175641im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175641im_/http://www.aksiyon.com.tr/resim/308/56.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Ünlü edebiyatçılardan Attila İlhan’ın sinemadan kopuş hikayesi şöyle; yazdığı senaryolar yönetmenler tarafından filme alınmış fakat çoğu zaman senaryoya sadakat oranı yüzde 30—40 düzeyinde kalmış.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu yüzden olsa gerek Attila İlhan senaryolarını Ali Kaptanoğlu müstearıyla yazmış ve bir süre sonra da Yeşilçam’dan kopmuş.
+   <br>
+    <br>
+     Türk sinemasında her zaman var olan, 80’li yıllardan sonra iyiden iyiye su üstüne çıkan nitelikli senaryo yazma sıkıntısı, pek çok sinema yönetmeninin zaman zaman dillendirdikleri birşey. Gelişmekte olan Türk sinemasının en yaya kalmış unsuru olarak ele alınıyor senaryo. Görsel kültür gelişedursun, sinematografi anlamında yazılı kültürde boy gösteren bir kaç kıpırtıyı saymazsak sessizlik hakim.
+     <br>
+      <br>
+       Sinemacılar kendi hayatlarını çekiyor
+       <br/>
+       <br/>
+       Senaryo, filmin temel unsuru; eğer zayıfsa film de, oyunculuk da, izleyici de zayıf oluyor doğal olarak. Fakat bu önemliliğine rağmen en hafife alınan ve en az yatırım yapılan alan senaryo. ‘Ne olacak bu Türk sinemasının hali?’ sorusuna senaryodan başlamak yanlış olmaz diye düşündük.
+       <br/>
+       <br/>
+       37. Antalya Film Festivali’nde En İyi Senaryo ödülü alan “Güle Güle” filminin senaristi Fatih Altınöz, senaryo sıkıntısının, film yapan kişilerin hayat tarzları ve bu hayat tarzlarını sinemaya taşıma uğraşlarının bir sonucu olduğu düşüncesinde. Türkiye’de ciddi bir değer yitiminin olduğu bir dönemde sinemacıların kendileri gibi bunalım içinde hayat süren, barları mekan tutan insanların anlatıldığı marjinal filmlerle ortaya çıkması hiçbir zaman Türkiye’nin sosyolojisini yansıtmadı ve önemli bir eleyici unsur olan seyirci bu filmleri eledi. Yani izlemedi. Fatih Altınöz, kötü bir reji ve hikayelere rağmen bu tarz filmlerin hâlâ çekiliyor olmasının Avrupa Film Fonu’ndan yapılan destekle mümkün olduğunu söylüyor. Fatih Altınöz aslında mesleğini aktif olarak sürdüren psikiyatrist doktor. İlk yazdığı senaryo Güle Güle’nin senaryosuydu, En İyi Senaryo ödülünü aldı. Sinema dünyasının ortasında olmamasının, dışarıdan gözlem yapabilme ve daha objektif bakabilme fırsatı verdiğini söylüyor.
+       <br/>
+       <br/>
+       Bugünlerde “Yeşilçam Sineması” ile gündemde olan yönetmen Reis Çelik, gazetecilik geçmişine karşılık uzun yıllar sinemanın içinde. Reis Çelik trajik olan bir yöne işaret ediyor; beyaz perdeye yansıyan hayat tarzları sinemacıların hayat tarzları da değil, özentileri. Reis Çelik’e göre temel problem kendini aydın—sanatçı gören, topluma yukarıdan bakan, toplumdan kopuk, “samimi olmayan” kişiler. Reis Çelik, 12 Eylül sonrası bastırılan sivil hayatın içe dönük, çıkışsız, bunalımlı döneminde kendini ifade edemeyen insanlar gibi sinemanın da dilsiz kaldığı, giderek marjinalleştiği konusunda Fatih Altınöz’le hemfikir. Çelik bunu ringe çıktığı ilk anda rakibinin amansız saldırısı ile karşılaşan ve bocalayan boksörün durumuna benzetiyor; şaşkın, ürkek ve korkak, kendine gelmesi zaman alacak.
+       <br/>
+       <br/>
+       Sinema Türkiye gibi
+       <br/>
+       <br/>
+       Şüphesiz Amerikan film piyasasının ağır hegemonyası, izleyici üzerinde kendi biçim ve tarzını oluşturmuş, kendimize özgü senaryo yazımını çelişkiye düşürmüş. “Çelişki içindeki yerli sinema mantığının o modeli adapte edebilmesi için ciddi bir senaryo yatırımına ihtiyaç var. Artık senaryo bir kişinin kafasından çıkan bir öyküyü oturup yazmasıyla olmuyor. Diyalogların oluşturulması, aksiyonların oturtulması, kişiliklerin ve karakterlerin birbirini tamamlaması uzun süreli bir çalışımayı ve yatırımı gerektiriyor.” 200—300 milyon verilerek senaryo yazdırılmasının doğal sonucu olarak zayıf senaryolar ve zayıf filmler karşımıza çıkmakta Reis Çelik’e göre. Aslında çarpık kentleşmeden, çarpık sosyal ilişkilere kadar her tarafa sirayet etmiş geçiş toplumu özelliklerinin sinemaya yansıması bu. “Ülkenin genelinde hangi çarpıklıkları görüyorsanız sinemasında da, edebiyatında da aynı çarpıklığı görüyorsunuz”. Bir de Batı kültürüyle bakan burjuva kültürünü kıstas kabul eden bir eleştirmen grubu var ki ayakları yere basan bazı projeler, eleştirmenlerin hışmından korkulduğu için hasıraltı edilmekte ya da değiştirilmekte...
+       <br/>
+       <br/>
+       Türkiye’de sinema sektör değil
+       <br/>
+       <br/>
+       Görüştüğümüz yönetmen, senarist ve oyuncuların hemen hepsi iyi senaryo yokluğunun nedenini sektörün oluşamamasına bağlıyor. Fatih Altınöz’ün “Son on yılda çektiği filmlerle doğru dürüst bir sinematografi oluşturmuş tek bir yönetmen var mı?” sorusu bunu açıklıyor aslında. Devlet Tiyatrolarında çok kötü yazıldığı gerekçesiyle bir oyunu protesto eden, protesto etme biçiminden dolayı Devlet Tiyatrolarından atılan Ali Sürmeli de sektörün oluşmamasını önemli bir faktör olarak görüyor. “Amerika’da sinema önemli sektör. Bir yerde denizaltının batması ve 10 kişinin ölmesi onlar için bir malzeme kaynağı, film yapabilirler ve bundan para kazanabilirler. Bizde bu olmadığı için, yazarı da hoşnut edecek bir para kazanılmadığı için yazar da uzağında duruyor”. Ali Sürmeli özgürlük sorununun senaryo üretiminde önemli bir faktör olduğu görüşünde. Yazarların, senaristlerin aykırı bir şey dile getirmekten dolayı tutuklanma, horlanma gibi muamele görmektense ‘niye yazayım ki?’ diyerek işin içinden çıktıklarını söylüyor.
+       <br/>
+       <br/>
+       Kültürel atmosfer oluşmamış
+       <br/>
+       <br/>
+       Sırf bu nedenle tozlu raflara kaldırılmış pek çok senaryonun varlığını kabul ederek bu yıl Antalya’dan En İyi Yönetmen titriyle dönen yönetmen—senarist Derviş Zaim’in dediklerine kulak verelim. Zaim “Özgürlüklerin kısıtlanması olayını en son sıraya koyuyorum” diyor. “İspanyol sineması Franko sansürü altındayken en verimli yıllarını yaşadı. Deneyimlere açık, yeni anlatım tarzları tutturmayı kendine amaç edinmiş bir sinema çıkardı ortaya. Oysa inanılmaz bir sansür vardı buna rağmen İspanyol sinemacıları çok tarihi bir çalışma yaptılar. Franko döneminden sonra sansür kalktı ve birden bire İspanyol sinemasında bir kabızlık başgöstermeye başladı. Özgürlüklerin sonuna kadar bu ülkede olmasını isterim fakat temel sorun o değil”.
+       <br/>
+       <br/>
+       Derviş Zaim’e göre sinema endüstrisinin iyi bir senaryo talebi yok. Komedi ya da melodram tarzı senaryolar talep ediliyor, dolayısıyla insanlar böyle senaryolar yazmaya meylediyor. "Mesela gangster filmi olsun, bilim—kurgu türünde filmler olsun ya da bütün bu türlere kendi aralarında kısa devre yaptırıp yeni şeylere yönelme gibi çabalar bizde pek gözükmüyor" diyor Derviş Zaim. Sanatçıya göre bu sıkıntı her zaman vardı fakat son zamanlarda daha da yoğunlaştı. Senaristlerin daha çok belli tip senaryolar üzerinde teksif olmasını, endüstrinin gelişmişlik düzeyine ve kültürel atmosfere bağlıyor. Peki kültürel atmosferden kasıt ne?: "Kültürel olarak insanlarda, halkın böyle ürünlere pek fazla rağbet göstermeyecek olması gibi bir izlenim doğması. İkinci olarak bu kültürel ortamda işi kotarabilecek kapasitedeki insanlar yetişmiyor olması. Kültürel olarak onları besleyebilecek şartlar henüz çok verimli değil". Zaim kaliteli denilen ürünlerin dağıtım ağına takılıp kaldığını da hatırlatmadan edemiyor.
+       <br/>
+       <br/>
+       Edebiyatçılar sinemadan çekildi
+       <br/>
+       <br/>
+       Girişte Attila İlhan'ın sinemadan nasıl soğutulduğundan bahsetmiştik. Attila İlhan sadece bir örnek. Sağlıklı iletişim kuramadığı için beyaz perdeye küsen edebiyatçı ve senaristlerin sayıları pek âlâ çoğaltılabilir. Antalya Film Festivali'nde sinemaya olan ilgisine tanık olduğumuz, bir hayli zamandır senaryo yazmaktan uzak kalan Sabahat Emir, televizyon ve sinema ortamının her zaman çok ilkesiz olduğunu, bu yüzden bu işlerden soğuduğunu söylüyor. “İlişkileri çok sağlıklı değil. Galiba sinema ve televizyonla uğraşanlar bütün iktidarı ellerinde tutmak istiyorlar. Bir edebiyatçının senaryoyu yazmış olması onlar üzerinde baskı oluşturuyor sanki. Bu bir kompleks mi, hoşlarına mı gitmiyor çözemedim. Ben ve pek çok edebiyatçı bir kez denedi bunu, ağızlarının tadı bozuldu ve çekildiler”. Sabahat Emir de senaryo sorununa maddi—manevi motivasyonsuzluğu sebeb gösteriyor: “Eğer teşvik edilmez, belli ilkeler oturmaz ve ekip çalışmaları yapılmazsa kolay kolay nitelikli senaryo üretimi yapılmaz gibi geliyor bana”. İyi senaryonun yazılmamasında ifade özgürlüğü sorunu ne kadar etkili? Sabahat Emir'e göre biraz ve zaman zaman. Özgürlük aldatmaca bir kavram olarak karşımıza çıkıyor. Teknoloji sayesinde insanları kontrol etmek, nerede ne yaptığını gözlemlemek her zamankinden daha kolay. Gerçek anlamda özgür olmak belki hayal, ancak rüyalarda gerçekleşebilir. Ama hiçbir zaman kaybedilmemesi gereken şey varsa, o da “özgürlük duygusu”dur.
+       <br/>
+       <br/>
+       Türk sinemasına ne oldu da...
+       <br/>
+       <br/>
+       Uzun bir bocalama evresinden sonra Türk sineması yıllardan sonra kendi dilini ve daha da önemlisi kendi senaryosunu arıyor. Sinemamızın son ürünlerine bakarak, yapısal ve kültürel açmazlarına rağmen, ‘inşallah iyi olacak” iyimserliği taşımak da mümkün, “bir çiçekle bahar gelmez” demek de... Filler ve Çimen’in yönetmeni Derviş Zaim kısa süreli iyimserliğe kapalı olanlardan: “Yurt dışındayken şöyle sorular soruluyor: Son zamanlarda yeni Türk sinemasıyla ilgili örnekler görüyoruz. Ne oldu, ne değişti de Türkiye’de de bu filmler çıkmaya başladı. Yani bir televizyon para mı yatırıyor, yeni bir yapımcı mı çıktı yön verdi Türk sinemasına? Yoksa bir toplumsal hareket mi oldu? Hayır diyoruz, üç beş tane deli var bir arada, onlar birşeyler yapmaya çalışıyorlar. Dolayısıyla geleceğe dair, toplu olarak tezahür edecek olumlu bir birikimler silsilesinden bahsetmek için henüz erken”.
+       <br/>
+       <br/>
+       Fatih Altınöz’e göre ise Türkiye’de ayakları yere basan senaryolar üretildiği zaman çok sinematografik bir alan üzerinde olduğumuzun farkına varacağız. Üstelik televizyon döneminin o haşin saldırısı bitiyor, televizyonlar sinemada prodüktör olarak yer alıyor, yeni prodüktörler yatırım yapıyor, sinema salonları çoğalıyor vs. Reis Çelik de “samimi olan” ürünlerin elbette rağbet göreceği inancında.
+       <br/>
+       <br/>
+       Hey senaristler! Öyle senaryolar yazın ki, binbir senaryolar içinde yaşamaya devam eden, şaşırma duygusunu yitiren bu ülke insanını şaşırtın. Yoksa sinemanın şansı yok gibi.
+       <br/>
+       <br/>
+       E—mail: muhsinozturk@usa.net
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13787), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175641/http://www.aksiyon.com.tr:80/detay.php?id=13787)

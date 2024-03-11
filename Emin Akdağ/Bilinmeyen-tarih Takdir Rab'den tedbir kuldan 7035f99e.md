@@ -1,0 +1,82 @@
+# Takdir Rab’den tedbir kuldan
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225163344im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050225163344im_/http://www.aksiyon.com.tr/resim/379/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Kutsal Kitap (İncil) bize Allah’ın bazen;  deprem, salgın hastalık, sel, göktaşı, fırtına vs. gibi doğal afetleri bir ceza aracı, ibret, ya da ilahi adaletin bir tecellisi olarak kullandığını anlatıyor. Nuh Tufanı, Sodom ve Gomora’nın ateşle yok edilişi, Babil Kulesi’nin ve kentinin yıkılışı, Mısır’ın ve firavunun belalarla vurulması bu konuda getirilebilecek örneklerdir”
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   İstanbul, eldeki tarihi verilerin 250 yılda bir gerçekleştiğini kaydettiği büyük depremi bekliyor. Bu depremin tam vakti de, diğerleri gibi kestirilemiyor. 17 Ağustos 1999 depremi akabindeki en net açıklama, beklenen depremin önümüzdeki 30 yıl içinde her an kapımızı çalabileceği yönündeydi. Belleklerimiz 'her an'ı sümenaltı edip ‘30 yıl’ın rehavetine kapılmış gidiyordu ki, geçen hafta Marmara Denizi’nde oluşan 4.8’lik sarsıntı bütün dikkatleri yeniden bu durdurulması imkansız olaya çevirdi.
+   <br>
+    <br>
+     Bilim, vaktini belirleme dışında deprem olgusunun hemen hemen her ayrıntısına vâkıf. Konunun uzmanı akademisyenler yaklaşık iki yıldır öylesine bilgilendirme faaliyeti içindeler ki, artık deprem nedir, fay denir, kaç çeşittir bilmeyen yok. Depremin hangi zeminlerde ve ne tür binaların yıkılıp gitmesine sebep olduğuna dair araştırma sonuçları ise apaçık ortada. Son günlerdeki açıklanmayan rapor tartışmaları da aslında nafile. Çünkü neler hayata geçirilmez ve gerekli tedbirler alınmazsa, herkes başına ne geleceğinin çok iyi farkında.
+     <br>
+      <br>
+       Deprem, sel gibi afetler haliyle birer tabiat olayı. Aksini söylemek abesle iştigal. Ama bir de olayın dini ya da ilahi boyutu var. Nedense bu boyut genelde ya gözardı ya da reddediliyor. Hatırlanacağı üzere Marmara Depremi ardından tabii afetlerin ilahi boyutu hakkında Müslüman kişilerin dini görüşleri yüksek sesle kamuoyuna yansıdı ve büyük tartışmalar yaşandı. Açıklamalar ‘28 Şubat Süreci’ ile irtibatlandı; olay birden  ‘laik—antilaik’ ya da ‘çağdaş—gerici’ noktalarına vardı. Hatta dini açıklamaları dolayısıyla hapis cezasına çarptırılanlar oldu. Acaba tartışmalar sırasında pek gündeme gelmeyen diğer samavi dinler, Hıristiyanlık ve Yahudilik deprem ve sel olaylarını nasıl yorumluyorlar; insanlara neleri haber veriyor ve ögütlüyorlardı? Soruyu, Rum ve Ermeni Partikhaneleri ile Türkiye Hahambaşılığı’na yönelttik. Gelen cevapları yanlış anlaşılma ve algılamaları  bertaraf etmek için, üzerinde minimum işlemde bulunarak pasajlar halinde sunuyoruz.
+       <br/>
+       <br/>
+       “Herşey Rabb’in kontrolünde”
+       <br/>
+       <br/>
+       Ermeni Patrikhanesi’nden rahip Sahag Maşalyan, tabii afetlerin ‘Allah—evren, Yaradan—yaratılan’ ilişkisi içinde ele alınması gerektiğini vurgulayarak başladığı açıklamasında, “Hıristiyanlık Teistik bir yaklaşımla Allah’ın evreni bir kez yaratıp terk etmediğine, ama aynı zamanda her an onu varlıkta tuttuğuna inanır. Yaratılış süregelen dinamik bir süreçtir. Allah bu sürecin hiçbir anında ya da noktasında devre dışı kalamaz. Allah yarattığı evreni doğa yasalarının mutlak determinizmine terk etmemiştir. Onun izin vermediği hiçbir şey varolamaz. O’nun için büyük küçük, önemli önemsiz olan bir olay yoktur. Atomu da, galaksiyi de aynı yetkinlikle ve ilgiyle kontrol eder. Bu genel çerçevede ele alındığında, her olay gibi doğal ya da insani afetlerin de Rabb’in mutlak kontrolü ve bilgisi altında gerçekleştiğini kabullenmeliyiz. Bu olayların insanlar için trajik oluşu yüzünden bu temel ilkeyi inkar edip Deistik bir Allah inancına sapmamalıyız” diyor.
+       <br/>
+       <br/>
+       “Her olayın ilk sebebi Allah’tır”
+       <br/>
+       <br/>
+       Allah’ın mevcut her şeyin ve olayın ilk sebebi olduğunu söyleyen rahip Maşalyan, şöyle devam ediyor: “Ancak Allah kurduğu evrene yasalarla belli bir düzen ve Kendi kudretiyle desteklenen bir otonomi vermiştir. Bu sistemde olayları diğer olaylarla açıklamak mümkündür. Öyleyse varolan her şeyin ve olayın Allah’tan başka sebepleri de vardır. Geometrik konuşursak, eğer Allah her şeyin zorunlu dikey sebebiyse, ikincil yasalar ve sebep—sonuç, etki tepki ilişkileri şeylerin yatay işleyen doğal sebebidir. Her depremin ilk sebebi Allah’tır. Çünkü dünyayı, toprağı ve jeolojik yasaları O yarattı. Ama 17 Ağustos depreminin Allah’tan başka doğal ve ruhsal sebepleri de vardır. Allah—tabiat kutuplarından sadece birini seçip diğerini dışta bırakarak bu depremi açıklamaya kalkmak yanlıştır. Afetlerin kompleks işleyişini basite indirgemek onları yanlış anlamaktır.”
+       <br/>
+       <br/>
+       “İnsan, günahlarının maddi ve
+       <br/>
+       <br/>
+       manevi sonuçlarına katlanmalıdır”
+       <br/>
+       <br/>
+       İnsanlığın Allah’tan kopuk ve yabancılaşmış bir varoluş biçimini seçmesinden dolayı tabiat olaylarının zaman zaman trajedilere dönüştüğünü dile getiren Maşalyan, şunları anlatıyor: “Yeryüzünde Allah’ın vekili olarak yaratılmış insan kendi icadı olan günahlarının maddi ve manevi sonuçlarına katlanmalıdır. İnsanın düşüşü ya da kurtuluşu doğanın bereketlenmesini ya da lanetlenmesini beraberinde getirir. Doğanın lanetlenmesi Allah’ın bütün rahmetlerinin yok olması anlamına gelmez. Lanetleme kısmi bir yozlaşmayı getirir. Yani sahip olduğunuz şeyler gerektiği gibi, ya da olması gerektiği gibi bir türlü işlemez. İnsanlığın katkısı ne olursa olsun, doğal afetler bize dünyanın cennet olmadığını kanıtlar. Allah her ne kadar, büyük merhametiyle günahkar insanların bu dünyada yaşamasına izin verse de, ona Kendi ilahi korumasının ve lütuflarının tamamını sunmaz. Günah varoldukça bu dünyada Rabb’in koruyuculuğu ve lütufkârlığı da kısmi olacaktır. Kutsal Kitap bize Allah’ın bazen; deprem, salgın hastalık, sel, göktaşı, fırtına vs. gibi doğal afetleri bir ceza aracı, ibret ya da ilahi adaletin bir tecellisi olarak kullandığını anlatıyor. Nuh Tufanı, Sodom ve Gomora’nın ateşle yok edilişi, Babil Kulesi’nin ve kentinin yıkılışı, Mısır’ın ve firavunun belalarla vurulması bu konuda getirilebilecek örneklerdir. Vahiy kitabı Allah’ın bazen aktif olarak doğal afetleri harekete geçirdiğini ve dünyadan yükselen günah bulutlarını lanet ve bela olarak insanlara geri döndürdüğünü yazmaktadır. Ancak bu gibi durumlarda bile, sevgi olan Allah, gazabını hep en az ölçüde gerçekleştirir. Eğer bize layık olduğumuzu verseydi, dünyada insan kalmazdı.”
+       <br/>
+       <br/>
+       Afetlerden ders almalıyız...
+       <br/>
+       <br/>
+       Maşalyan, tabii afetlerin aynı zamanda olgunlaşmakta direnen insanlığa Allah’ın pedagojik bir tavrı olduğuna da vurgu yapıyor: “İnsanlar yanlışlarının, Allah’ın, aklın ve ahlakın kurallarına aykırı yaşamanın sonuçlarını görmelidirler. Maalesef  bu dersler hep teorik olarak öğrenilemiyor. Hz. İsa ne güzel dile getiriyor bunu: “Benim bu sözlerimi kim işitir ve onları yaparsa, evini kaya üzerine kuran akıllı adama benzer. Yağmur yağar, seller eser ve o eve çarparlar; ev yıkılmaz; çünkü kaya üzerine kurulmuştur. Ama benim bu sözlerimi işiten ve yapmayan herkes evini kum üzerine kuran budala adama benzer... Ev yıkılır ve onun yıkılışı büyük olur.” (Matta 7:24—27). Malzemeden çalan müteahhit, onu hoş gören rüşvetçi memur, rüşveti meşrulaştıran toplum, çarpık kentleşme, insafsız ekonomik ve siyasal sistemler, hepsi doğruların reddedilişidir. Bunların bize neye mal olduğunu görmekte direnirsek, yaşayarak öğrenmek zorunda kalırız.”
+       <br/>
+       <br/>
+       Maşalyan, açıklamasını şöyle tamamlıyor: “Bu yaklaşımları Hıristiyanlığın genel sistemine dayanarak dile getirsek bile, yine de bunlar her felaketi açıklayacak dinsel formüller olarak görülmemelidir. Evrende her olay özeldir ve özel bir yaklaşım gerektirir. Bazı felaketlerin nedenini bazen sadece Allah bilir ve bizim şablonlarımıza uymayabilir. Doğal afetler belki de dünyada hiçbir beynin çözümleyemeyeceği komplekslikte oluşan olaylardır. Bu esneklikle doğal afetleri anlamaya çalışalım ama zamanından önce tek bir yargıyla sonuçlara sıçramayalım. Onlar ibret için oradadırlar. Herkes onlardan kendi dersini alsın.”
+       <br/>
+       <br/>
+       Dünya bütün özellikleriyle Allah’ın eseri
+       <br/>
+       <br/>
+       Rum Patrikhanesi’nden Konstantin Ananyadi imzasıyla gelen açıklamada ise şöyle deniyor: “Bizler, görünen ve görünmeyen tüm varolanların Tanrı tarafından yaratıldığına inanmaktayız. Dünyamız ve insanoğlu da bu yaratılanların bir parçasıdır. Dünyamız sahip olduğu tüm özellikleriyle bir bütün olarak Tanrı’nın eseridir. Bu mükemmel dengenin içinde depremler de vardır. Depremler sadece bugün değil tarihte de sürekli olarak vardı ve gelecekte de olmaması için bir neden yoktur. Bu vesileyle, depremler gizemli ve beklenmeyen bir nitelik arz etmezler. İnsanoğlunun, kendisine Tanrı tarafından bağışlanan aklı ile depremlerin zararını asgariye indirmesi  mümkündür. Deprem gibi afetler, dünyanın gelip geçiciliğini, ölümün kaçınılmazlığını, maddi değerlerin kolayca kaybedilebileceğini, sevginin ve dayanışmanın önemini tüm çıplaklığıyla ön plâna çıkarmaktadır. Böyle zamanlarda Tanrı’ya sığınmak ve şükretmeye devam etmek gerekmektedir.”
+       <br/>
+       <br/>
+       Allah dünyayı değişmeyen bir düzende yarattı
+       <br/>
+       <br/>
+       Konuya ilişkin Türkiye Hahambaşılığı’ndan yapılan açıklamada da şunlar dile getiriliyor: “Tevrat’a göre Tanrı dünyayı değişmeyen bir düzen doğrultusunda yaratmıştır. Bu düzen dahilinde doğanın kanunları meydana gelmiştir. Yağmurların yeterinden fazla yağması sellere neden olur ki sonucunda doğal bir afete dönüşür. Rüzgarların şiddetle esmesi fırtınalara yol açtığı gibi, deniz kabarmalarına ve dalgalanmalarına yol açar ve felaketlerle karşı karşıya kalırız. Yer altında toplanan fazla enerji ile lavlar oluşur, yanadağları harekete geçirir. Aynı şekilde yer altında biriken fazla enerji sarsıntılara yol açar. İşte tabii afet dediğimiz olaylar böyle oluşur ve insanlığa zararlar getirir. Bizim insan olarak amacımız bu doğal afetlerden günümüzün teknolojisinden faydalanarak korunma çarelerini, Ulu Tanrı’dan zihin açıklığı ile niyaz etmektir. Zira insanoğlu Tevrat’a göre doğayı tekamül ettirip korumakla görevlendirilmiştir.(Tevrat’ın Tekvin bölümü 2—15) ”
+       <br/>
+       <br/>
+       E—mail: e.akdag@zaman.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=12506), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225163344/http://www.aksiyon.com.tr:80/detay.php?id=12506)

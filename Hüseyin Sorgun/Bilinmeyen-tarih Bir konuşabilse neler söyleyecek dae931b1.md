@@ -1,0 +1,66 @@
+# Bir konuşabilse neler söyleyecek
+
+*Hüseyin Sorgun Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Bir Amerikalı kendisinden kaçarsa, nerede ne bulur? Sofia Cappola, insan sıcaklığında bir senaryo ortaya koyuyor.
+   <br/>
+   <br/>
+   KÜNYE
+   <br>
+    "Bir Konuşabilse"/"Lost in Translation"
+    <br>
+     Oyn:Scarlett Johansson, Bill Murray,
+     <br>
+      Giovan ni Ribisi, Anna Faris
+      <br>
+       Sen ve Yön: Sofia Coppola
+       <br>
+        <br>
+         İnsanın dilinin kilidi bazen uzaklarda çözülür. Yaşadığı ve kanıksadığı bir ortamdan uzaklarda"  Hayatın üzerine giydirdiği gömleğin düğmeleri birer ikişer çözülürken, yalın, duru ancak imkansız ve uzakta bir hayatın kapısı açılabilir aniden. Lost In Translation / Bir Konuşabilse, iki Amerikalının Uzakdoğu"da çözülen yaşamlarını konu ediniyor. Sofia Coppola"nın senaryosunu yazdığı (En iyi senaryo Oscar"ı aldı) ve yönettiği film, orta yaş krizinde olan Bob Haris (Bill Murray) ve hayatın ilk basamağında tereddütler yaşayan Charlotte"un (Scarlett Johansson) hayat hikayelerinden hareket ederek farklı bir arayış öyküsünü beyaz perdeye taşıyor.
+         <br/>
+         <br/>
+         Amerikalı kendinden kaçarsa"
+         <br/>
+         <br/>
+         Tamamı Tokyo"da geçen film, Uzakdoğu"da çekilmiş bir Amerika eleştirisi olarak da algılanabilir. Hoş, film yer yer bu kanıyı boşa çıkartacak cılız ve gereksiz sapaklara dalmıyor değilse de, bu durum yukarıdaki izlenimi tamamen geçersiz kılmıyor. Orta yaşlarında Amerikalı bir aktör, girdiği aile bunalımı bir yana herkesin zannettiği gibi renkli yaşantının uzağında ölgün ve rutine bulanmış bir yaşamdan aklını çelerken, gittiği yerde duramamanın da çelişkisini yaşar. Bir reklam filmi için Tokyo"ya gelen Haris, "gassalın elindeki meyyit" misali edilgen insan tipinin ileri örneğidir. İşkolik kocasının peşi sıra Tokyo"ya gelen Amerikalı genç kız Charlotte ise, aldığı evlilik kararının doğruluğunu sorgularcasına yalnızlığın içerisindedir. Bu ikiliyi bir araya getiren saf ve temiz bir arkadaşlığın peşi sıra hayatın farklı pencerelerinden bakmaya yönelten, kendi yalnızlıkları, tutarsızlıkları ve yaşamın dayattığı kurgudan başkası değildir. Açıkçası filmin başlarında, bir Amerikalı kendisinden kaçarsa, nerede ne bulur diye düşündüm. Bu düşüncemin nedeni, yaygın bir kültürde aidiyet sorunu yaşanan insanların her gittiği yerde sorguladıklarından izler bulup bunalıma girmeleri ile örtüşüyordu.
+         <br/>
+         <br/>
+         Her yer Amerika!..
+         <br/>
+         <br/>
+         Bu çelişik durum, öykünün iki kahramanı Haris ve Charlotte için geçerli. Uzakdoğu"da önce otel odasında başlayıp sonra Tokyo sokaklarında devam eden "aynı"lık krizi, aynı ülkenin vatandaşı iki insanın dostluğu ile bir ölçüde farklılaşıyor. Otellerin o kendine özgü soğuk dizaynı, içindekileri önce dışarıya davet eden bir yeknesaklıkta ustalıkla yansıtılıyor. "Otel insanı psikolojisi", iki Amerikalıyı bir süre sonra sokaklarda ve mekanlarda buluşturuyor. Bu buluşma, bu kez de iki farklı kültürün "aynılaşması"na gönderme yapıyor. Eğlence mekanları, gündelik alışkanlıklar, arkadaşlıklar ve insan ilişkilerindeki çözülme ve yaygın kültüre benzeşme; o kültürün ileri temsilcisi gibi görünen Haris ve Charlotte için bir süre sonra çekilmez hale geliyor. Ve alıp başını giden bu sığlık, temelsiz ve tuhaf kültürel doku içerisinde, yalın, duru ve insanın farkındalığında gelişen bir dostluk başlıyor Haris ve Charlotte arasında"
+         <br/>
+         <br/>
+         İtirafı mümkün olmayan hayatlar
+         <br/>
+         <br/>
+         Haris, evli ve çocukları olan ünlü bir aktör" Chorlote, ünü gitgide yayılan bir fotoğrafçı ile evlenip Tokyo"da Park Hyatt Otele yerleşen genç bir kadın" Haris, hayatın rutinliğini her an anımsatan bir kadınla evli. Öyle ki, kocasının fikrini sormak için Tokyo"ya halı örnekleri gönderecek kadar. Charlotte, işkolik bir fotoğrafçı ile evli. Film, biri hayatın makarası sonları gösterirken; diğeri daha başındayken hayatın travmasını yemiş iki insanın, itiraf edemedikleri ve değiştiremedikleri gerçeklerin uzağında bir insan sıcaklığı aramalarının öyküsünü anlatıyor bir bakıma. Sofia Coppola, iki farklı cinsin yakınlaşmasındaki olası beklentilerin uzağında, insan sıcaklığında bir senaryo çıkarıyor ortaya. Gerçeklerin üzerinden değil ancak, gerçeklerin uzağında bir insan dramı, Bir Konuşabilse"
+         <br/>
+         <br/>
+         Uzakdoğu"da yakın arayışlar
+         <br/>
+         <br/>
+         Lost In Translation / Bir Konuşabilse, kimi zaman komik, kimi zaman trajik durumlar üreten, ancak temel bir temaya konsantre olamaması nedeniyle, zekice eleştiriler getirebileceği durumları bazen ıskalayıp cılızlaşan bir film. İki Amerikalının Uzakdoğu"da kendini arayışları ve hayatı sorgulayışları bir yandan duyumsatılırken, öte yandan kendinden kaçan insanların Uzakdoğu"da kendilerini bulmaları anlatılıyor. Her ne kadar film, bütün ağırlığını bu temalar üzerine inşa edememiş olsa da bu iki tema öne çıkıyor. Yaygın kültürün temsilcisi iki Amerikalının trajedisine, komik dokunuşlarla tanık olmak isteyenler için Bir Konuşabilse, seyredilebilecek bir film.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 1301 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11558), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050219074421/http://www.aksiyon.com.tr:80/yazdir.php?id=11558)

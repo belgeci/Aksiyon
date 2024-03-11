@@ -1,0 +1,76 @@
+# Emir komuta bende
+
+*Emin Akdağ Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Nezih Demirkent’in vefat ettiği gün,  yayın yönetmeni Osman Arolat, Dünya gazetesinin şimdiki patronu Didem Demirkent Ersinan’a  “Ne yapacaksınız?” diye soruyor. Vefatına kadar babası Demirkent’le neredeyse her an beraber olan Ersinan, “Sizler yardımcı olursanız, ben götürürüm, merak etmeyin” diye cevap vererek işleri devraldığını ilan ediyor
+   <br/>
+   <br/>
+   Dünya gazetesi, 2001 Şubat’ında iki büyük sarsıntı geçirdi. 11 Şubat sabahı duayen gazeteci ve gazetenin patronu Nezih Demirkent vefat etti. Bu olay gazetede hayatın durması anlamına geliyordu. Çünkü Dünya gazetesi, Nezih Demirkent demekti. İkinci büyük sarsıntı ise bütün Türkiye’yi şoka sokan 21 Şubat kriziydi. Şimdi ne olacaktı? Yoksa Dünya’nın sonu mu gelmişti?
+   <br>
+    <br>
+     Demirkent’in vefat ettiği gün, bayan Demirkent’in evinde Dünya gazetesinin yayın yönetmeni Osman Arolat ile gazetenin bugünkü patronu Didem Demirkent Ersinan arasında şöyle bir diyalog yaşanıyor. Arolat, Ersinan’a “Ne yapacaksınız?” diye soruyor. Ersinan soruya, “Siz ne diyorsunuz?” sorusuyla karşılık veriyor. Bunun üzerine Arolat, “Siz ne diyorsanız, saygı duyarız” deyince; Ersinan, “Sizler yardımcı olursanız, ben götürürüm, merak etmeyin” sözleriyle diyaloğa noktayı koyuyor. O gün bugündür de buna dair başka hiçbir şey konuşulmuyor ve Dünya eskisi gibi dönüyor.
+     <br>
+      <br>
+       Zor günler aşıldı...
+       <br>
+        <br>
+         Türkiye’nin şu andaki tek bayan gazete patronu Ersinan başlangıçta çok zor günler geçirdiklerini söylüyor: “Manevi ve maddi depremler yaşadık. Kelimelerle anlatmak imkansız. 11 Şubat sabahı Nezih Bey’i kaybettik. Tek evladıyım. Ortada bin— bin 500 kişilik bir grup var. Bunun ağırlığını hep hissediyordum; ama herkes gibi büyüğümün öleceğini hiç düşünmüyordum. Sanki onlar hep vardırlar. Bu grup ne olacaktı? Ben bunu taşıyabilecek miydim? Bir de babanızı kaybetmişsiniz, bunun manevi çöküntüsü var. Yaşanılması ve yapılması gereken vazifeler neyse o günlerde yaptık. Arkadaşlarım ve ekibim sayesinde. Hepsine minnettarım. 7. gece duasında 21 Şubat krizi patladı. O gece eyvah, ne olacak dedim. Şirketimizin çok borcu yoktu ama herkesin olduğu kadar vardı. Yine herkesin olduğu kadar taahhütlerimiz sözkonusuydu. Piyasamız işlemeli, çark dönmeliydi. Sabah akşam zor günler geçirdim. Geçti ama zor geçti. Aştık çok şükür. Bugün dahi hiçbir arkadaşım neden böyle yaptık diye sormaksızın küçülmeye çalışarak bunu atlattık. Şirketlerin yapısını küçülttük. Dört tane yabancı iş yapan şirketimiz vardı, teke düşürdük. Aynı işi yapan iki üç firmamız vardı bire indirdik. Şirket yapısını küçülttük ki masrafları azaltalım. Ancak küçülürken çok az personel indirimine gittik.”
+         <br/>
+         <br/>
+         Yazı işlerine karışmıyor...
+         <br/>
+         <br/>
+         Didem Demirkent Ersinan, gözünü dünyaya açtığından bu yana, 44 yıldır gazeteciliğe aşina. Ama bilfiil Dünya grubunda çalışmaya, kızı okul çağına geldikten sonra, yani 15 yıl önce başlıyor. Fransa’da dil üzerine yüksek öğrenim gören Ersinan, doğal bir tercihle Dünya grubunun yabancı yayınlarında görev alıyor. Babasının vefatı sonrası gazetenin başına gelene kadar, gruba bağlı kitap evlerinde ve pazarlama departmanında yöneticilik yapıyor. Bu sürede hiç gazetenin içinde bulunmuyor: “Şu anda da gazetenin bilfiil içinde değilim. Yani yazı işlerinde çalışmıyorum. Sadece idaresine bakıyorum. Yazı yazmıyorum. Yazı işleri kısmını sayın Arolat götürüyor. Yazı işleri toplantılarına da katılmıyorum. Aynı eskisinde olduğu gibi devam ediyor. Babam da yazı işlerini serbest bırakmıştı. Ancak Nezih Bey, gazeteciydi, yazı işleri toplantılarına katılır ve müdahale ederdi. Benim böyle bir nosyonum yok. Onlara müdahale etme şansım olamaz. Bilmediğim işi de bilen arkadaşların yapmasını tercih ederim. Yazı işlerine bilfiil karışmıyorum ama her sabah gazetede olan biten ne varsa, yarın ne çıkacaksa beraber konuşuyoruz. Akşamleyin gazeteye bakıp öyle çıkıyorum. Değişecek bir şey varsa değiştiriyoruz. Çünkü benim bir hedefim var. Nezih Bey’in koyduğu yoldan çıkmamak.”
+         <br/>
+         <br/>
+         Ersinan, kolay kolay yayınla ilgili müdahalesini gerektirecek bir durum meydana gelmediğini de ekliyor: “Arkadaşlarla uzun süredir beraber çalışıyoruz. Onların düşüncelerinin benden veya Nezih Bey’den farklı olduğunu sanmıyorum. İzliyorsanız, bir buçuk yıldır hiçbir değişiklik yapmadan, her alandaki bağımsızlığımızı, özgürlüğümüzü koruyarak gidiyoruz. Yolumuzda bir şaşma yok. Nezih Bey de akşam gazeteye bakardı, şu haberi şuraya koyun, bunu şuraya alın, bunu büyütelim derdi.”
+         <br/>
+         <br/>
+         Dürüst ol ve çalış...
+         <br/>
+         <br/>
+         Baba Demirkent ile kızı Didem Hanım arasında hep sıkı fıkı bir ilişki yaşanmış. Babası ona adeta bir arkadaşı gibi davranmış, fazla müdahaleci olmamış: “Biz sabah 9, akşam 9 beraberdik. Hiç birbirimizden kopuk olmadık. Hayatım boyunca olmadım. İş hayatımda hiç olmadım. Annemi daha az gördüm ama babamı her gün gördüm. Toplantı masalarına beraber oturduk. Bir tecrübem ve bildiğim varsa tabii ki Nezih Bey sayesinde. Babamın Hürriyet tecrübesi de var. Talebelik yıllarımı Hürriyet binasının içinde geçirdim. O tecrübelerini de bana aktardı. Bana ne derdi diye sorarsanız, sadece dürüst ol ve çalış derdi. Çalışmaktan başka hiçbir şeyin mukaddes olduğuna inanmıyordu. En mühim şey çalışmak ve çalışarak bir şeyleri başarırsın derdi. Bana şunu şöyle yap, bunu böyle yap hiçbir zaman dememiştir. Ama bazen yetiştirme tarzınız ve aile yapınız sizi o yola itiyor. Ahmet ile çalış, Mehmet ile çalış diye yorum yapmadı.”
+         <br/>
+         <br/>
+         Kurumsallaşma yeni oluyor...
+         <br/>
+         <br/>
+         Nezih Demirkent’in bir başına yaptıklarını şimdi onlarca kişi yapmaya çalışıyor. Çünkü o hayattayken bilgisi ve görgüsüyle her işin altından kalkmayı başarıyor. Şirket adata Demirkent’in omuzlarında yaşıyor. Ersinan, babasının karizmasıyla ayakta duran şirketin yeni yeni kurumsallaştığını ve buna mecbur olduğunu söylüyor: “İşler hiçbir zaman tıkır tıkır olmaz, içerden de dışırdan da zorluklarımız oldu. Günü geldi kağıt alamadınız... Nezih Bey’in kurduğu bir düzen vardı, bize 22 yıllık bir deneyim ve bir şirket bıraktı ama kurumsallaşma şimdi oluyor. Neden yeni? Çünkü Nezih Bey bir başına bir şirketti, hem avukatlık, hem de gazetecilik yönü vardı. Onun tek başına yaptığı işi bugün 20—25 kişi yapıyoruz. Onun yaptıklarını ben delege ederek yürütüyorum. Hiçbir zaman Nezih Bey olamam, olmaya da niyetim yok. Türkiye’de o vasıfta biri olacağını da düşünmüyorum. Şirketi daha kurumlaştırmaya çalışıyorum. Yapmak istediğim bu.”
+         <br/>
+         <br/>
+         Sonraki veliaht da bayan...
+         <br/>
+         <br/>
+         Dünya gazetesinin gelecekteki veliahdı da bir bayan. Eşi mimar olan Ersinan’ın da babası gibi bir evladı var, o da kız. Dedesinin tavsiyesiyle hukuk eğitimi alıyor. Dedesi gibi yazmaya ve gazeteciliğe meraklı. Kitap dergisinde yazılar ve gazetede sinema yazıları kaleme alıyor. Dedesi onu işe alıştırmak için kadroya bile almış.
+         <br/>
+         <br/>
+         Dünya gazetesinin tirajı 50 bin civarında. Demirkent sonrası artma ya da azalma olmamış. Abone usulü dağıtıldığı için de gazete çoğu işadamı olan kemikleşmiş bir okur kitlesine sahip.
+         <br/>
+         <br/>
+         Demirkent’in Dünya plazadaki odası olduğu gibi muhafaza ediliyor. Ersinan, her gün temizlenen odayı sadece devlet erkanından birileri ve üst düzey misafirler gelirse kullanıyor. Ersinan’ın yönetim anlayışı babasına göre biraz daha sert. Onunla çalışmak, ancak onun ilkelerine riayet etmekle mümkün. Titiz. İlkelerine saplantı seviyesinde bağlı.
+         <br/>
+         <br/>
+         E—mail: e.akdag@aksiyon.com.tr
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 11 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=11994), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022824/http://www.aksiyon.com.tr:80/yazdir.php?id=11994)

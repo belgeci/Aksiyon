@@ -1,0 +1,73 @@
+# Yüksek dağlar fırtınalı olur!
+
+*Durmuş Hocaoğlu Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050227161719im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050227161719im_/http://www.aksiyon.com.tr/resim/336/blank.gif" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  “Yüksek dağlar fırtınalı olur!”. Böyle der, tarihî tecrübenin sağlam bir mahsûlü olan bir Türk atasözü. Bir yandan Türkler çok fırtınalı bir millet; diğer yandan Türkiye ise coğrafyası, tarihî mîrâsı ve misyonu ile yüksek bir dağ, hem de çok yüksek; bu yüzden de fırtınalı, çok fırtınalı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Bu kadar fırtınalı ve muhâtaralı bir coğrafyada mukîm, bu kadar ağır bir tarihî mîrâsı ve bu kadar ağır bir tarihî misyonu, istese de istemese de, sevse de sevmese de hâmil, sırtında taşımaya mahkûm olan bir ülkenin, dâima son derece kavî ve ganî, son derece müteyakkız, hep birinci dereceden kırmızı alarm durumunda bulunması gayr—i kaabil—i içtinab bir zarûrettir, hattâ bir mecbûriyet ve hattâ bir mahkûmiyet. Türkiye, bu sıfatlarla muttasîf olmaya mahkûmdur; başka türlüsü bir tasavvur olarak dahi imkânsızdır; bu O’nun isteği, arzusu, irâdesi ve tercîhi hâricindedir. Zira, bulunduğu Yüksek Dağ, başka türlüsünü kabul etmez, edemez, edebilemez; aksi, izmihlâldir. Evet; bir tek kelime ile: İzmihlâl!
+   <br>
+    <br>
+     Kabul edilmelidir ki, Biz Türkler herhangi bir millet değiliz; tarihte çok iş yaptık; çok kişilerle çok kavgamız oldu; çok didiştik, çok dalaştık, çok boğuştuk. Her büyük millet gibi, dostumuz az, düşmanımız çoktur. Bu sebepledir ki, her büyük millet gibi, dâima “büyük” olmaya mahkûmuz; hele bu coğrafyada; aksi izmihlâldir; bir tek kelime ile: İzmihlâl!
+     <br>
+      <br>
+       Bir entellektüelin en başta gelen vazîfesi, dürüstlüktür; o sebeple de, “artık düşmanlık devri kapandı” kabîlinden piyasa malı naylon entellektüel aforizmalarına kulak asmadan, açık ve seçik, dobra—dobra konuşmak gerektir: Düşmanlıklar devri kapanmamıştır, hiç bir zaman da kapanmaz ve kapanmayacaktır. Tarihte asla kapanmayan, asla kapatılmayan, asla kapatılmayacak olan “dosyalar” vardır; bunlar büyük milletlerin büyük kavgalarının dosyalarıdır. Biz Türkler, bu dosyanın en büyüğünü, en hacimlisini, en kalınını da bu coğrafyada açtık; Anadolu denen bu fırtınalı yüksek dağda.
+       <br/>
+       <br/>
+       ***
+       <br/>
+       <br/>
+       Bu coğrafya yüksek bir dağ, çok yüksek ve çok fırtınalı. Unutanlara hâtırlatalım: Antik dönemleri hiç hesaba katmadan, sâdece son ikibin yılda, bu belâlı coğrafya  nerdeyse sayısız denecek kadar mebzûl miktarda küçük devletler ve devletçikler dışında  tam dört adet cihan imparatorluğunun başını yemiştir: Roma (Büyük Roma), Doğu—Roma (Bizans), Selçuklu ve dahi Osmanlı; “Devlet—i Ebed Müddet Osmanlı”.
+       <br/>
+       <br/>
+       İmdi:
+       <br/>
+       <br/>
+       Ey Türk Milleti, ey bu ülkenin vatandaşları, ey Türkiye Cumhuriyeti’nin zimamdarları!
+       <br/>
+       <br/>
+       Siz, hangi dehşetli yanardağın volkan ağzının tam üstünde oturduğunuzun farkında mısınız? İlkokuldan başlayarak bütün tahsil hayatınız süresince mecbûren okuduğunuz Tarih’i bu defa tekrar ve tekrar okuyunuz; birtakım hâdiselerin anlamsız kronolojik yığını olarak değil, bir ibretler kitabı, bir ahlâk kitabı olduğunu kabul ederek ve anlayarak, anlamak isteyerek, rûhuna nüfûz ederek okuyunuz. Tâ Platon’dan başlayarak Tarih üzerine derinlikli düşünceler ileri süren mütebahhir filozofları olanca ciddiyetinizle ve kemâl—i dikkatle okuyunuz; bilhassa İbn—i Haldûn’u. Hayır! Sâdece okumak yetmez; İslâm dünyasının bu son büyük filozofunun dizinin dibine çökünüz ve nasıl dehşet verici şeyler söylediğini can kulağı ile dinleyiniz. Dinleyiniz ve akıbetinizi görünüz. Dinleyiniz; Haldûn, altıyüz yıl öncesinin bu Berberî İslâm düşünce devi, sizlere konuşuyor ve istikbâlinizi söylüyor.
+       <br/>
+       <br/>
+       Okuyunuz, dinleyiniz ve düşününüz; Âlemlerin Rabbinin, omuzlarımızın üstünde taşıdığımız bu başı ve onun içindeki beyni ne için ihsan buyurduğunu; niçin Mukaddes Kitab’da sekizyüz defadan ziyâde “düşünmeyi, tefekkürü, tezekkürü, akletmeyi” emir ve tavsiye buyurduğunu tefekkür ve tezekkür ederek o başın ve o beynin ve onları veren Yerin ve Göğün Sâhibi’nin hakkını veriniz; ibâdet eder gibi, okuyunuz, dinleyiniz ve düşününüz.
+       <br/>
+       <br/>
+       Tefekkür ve tezekkür ediniz ve sâdece Osmanlı coğrafyasında bugün müesses devlet adedinin kırkı bulduğunu aklınızın bir tarafına not düşerek; her birisi Türkiye Cumhuriyeti gibi düzinelerce devleti kaplayacak vâsî arâzîlerinde, muhtelif ve muhtelit ırkları, halkları, dilleri, dinleri yönetmiş; her birisi en az birkaç düzine Türkiye Cumhuriyeti’ne bedel olan; bakışları, duruşları, nefes alışları dahi dünyayı velveleye vermeye kifâyet eden, hem derin bir saygı ve gıpta ve hem de korku ve husûmet kaynağı olan bu cihan devletlerine kalmayan, onlara yâr olmayan, onları yutan ve tarihe gömen Tarih’in, bu fırtınalı yüksek dağın, üstündekileri dibe çeken bir bataklık gibi olan bu coğrafyanın ebediyyen ve de hele bu kafa ile, bu hâl ve gidiş ile, size mi kalacağı, size mi yâr olacağı; o devlerin taşkın adaleli omuzlarını çökerten ağır yükün sizin sıska vücûdunuzu ne hâllere dûçâr edeceği suâline çok iyi bir cevap hazırlayınız. Cevabınızı şimdiden sıkıca temrin ediniz; zira Kıyâmet günü amel olmaz ve dahi, Belâ gelince ammeten gelir. Evet; düpedüz “belâ”dan söz ediyorum: Yapılması lâzım gelen yapılmazsa Belâ şart olur. Kant’ı bir kere daha hâtırlayalım: “Yapılması lâzım gelen yapılmazsa”, der Kant, “o zaman Tabiat  —burada “tabiat” kelimesinin dar anlamına takılmayınız ve onu ‘Kavaanîn—i İlâhî’ diye okuyunuz—  kendisi müdâhale ederek îcâb edeni bizzat îfâ eder; ancak, ekseriyetle, bunu yaparken hoşumuza gitmeyen metodlar kullanır.” İşte, Kant’ın sözünü ettiği işbu “hoşa gitmeyen metodlar”ın tümüne birden “belâ” tesmiye olunur.
+       <br/>
+       <br/>
+       Belâ bir cemiyete gelince o cemiyeti bir “bütün” olarak kabul eder ve kırk günlük bebek ile doksanlık dede de dâhil, kimsenin gözünün yaşına bakmaz; kimsenin feryâdını duymaz, hiçbir fîgan O’na kadar ulaşmaz; hepsini birden ayaklarının altına alır, hepsini birden çiğner, hepsinin birden canını yakar; kâffeten ezer ve Tarih’in çöp sepetine atar.
+       <br/>
+       <br/>
+       Tarih’in hiç kimseye özel bir imtiyaz tanımadığını, hiç kimseyi kayırmadığını anlayabilmek hususunda îcâb eden basîret, ferâset ve zekâyı ve mûcibince amel edebilme ahlâk ve cesâretini ne zaman göstereceksiniz; ne zaman göstermeyi düşünmektesiniz? Daha doğrusu, böyle şeyleri düşünmeyi ne zaman düşünmektesiniz!
+       <br/>
+       <br/>
+       ***
+       <br/>
+       <br/>
+       Ey bu ülkenin yöneticileri; size gelince: Bakınız, hep birden bir araya gelseniz tozunu bile yakalayamayacağınız Sezar, gerçek Sezar, yâni Jullius Gallius Ceasar için Shakeaspeare Hamlet’te ne diyor; bakınız da ibret alınız:
+       <br/>
+       <br/>
+       “Büyük sezar öldü, çamura inkilab etti. O çamur bugün güney rüzgârlarına karşı bir duvarın deliğini kapatıyor. Vaktiyle cihanı titreten bir kahraman, bugün âdi bir duvarı rüzgâra ve kara karşı koruyor.”
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13025), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050227161719/http://www.aksiyon.com.tr:80/detay.php?id=13025)

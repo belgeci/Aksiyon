@@ -1,0 +1,121 @@
+# Soykırım ABD’den sonra AB’de
+
+*Ogün Duru Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302174049im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302174049im_/http://www.aksiyon.com.tr/resim/305/19.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Türkiye—ABD ilişkilerinde tek taraflı olarak gerilime yolaçan sözde Ermeni soykırımı yasa tasarısı, Ermeni lobisi tarafından Türkiye’nin olaylarda bir sorumluluğun olmadığı şeklinde bir ifadeyle yumuşatılsa da, başından beri gözlerden kaçan bir nüans aynen korundu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Nitekim, olayların 1915—23 yılları arasında geçtiği iddia edilerek, bu yılların asıl aktörü Anadolu Hükümeti de isim verilmeden sorumlu tutuluyor. Kritik nokta, Anadolu Hükümeti’nin, bugünkü Türkiye—Ermenistan sınırını düzenleyen Kars—Ardahan anlaşmalarını yaptığı sırada Batılı ülkeler tarafından tanınmıyor oluşu. Dolayısıyla Ermeni lobisinin önemli bir hedefi de, bu anlaşmaları halen tanımayan Ermenistan devletinin iddialarına, tarihi bir zemin kazandırmak.
+   <br>
+    <br>
+     Ermeni lobileri, sözde soykırımın ABD’den sonra Avrupa Birliği gündemine taşınması için de çalışmalarını yoğunlaştırdılar. Ermeni diasporasının haber kaynaklarına göre, konunun AB gündemine daha kolay taşınabilmesi için öncelik, 1998’de Fransa Ulusal Meclisi’nde kabul edilen sözde soykırımın Senato’dan geçirilmesine verilecek. Konunun Senato’ya gelmesi ise casus uydu ihalesini son anda İsrail’in elinden alan Fransız hükümetini, Türkiye’ye verdiği güvence konusunda oldukça zor bir duruma sürükleyecek. Sözde soykırımın Kanada Parlamentosu’nda kabul edilmesinde yine, Quebec eyaletinin Fransız kökenli parlamenterleri etkili olmuştu.
+     <br>
+      <br>
+       Öte yandan İtalya’da otuzun üzerinde belediyenin kabul ettiği sözde soykırımın, 24 Ekim’de İtalyan Parlamentosu’nda gündeme alınması kesinleşti. AB ülkelerinden Yunanistan (1996) ve Belçika (1998) sözde soykırımı tanımış durumda. Son olarak da İsveç’de, mart ayında konuyla ilgili bir tasarı parlamentoda kabul edildi.
+       <br/>
+       <br/>
+       Avrupa’daki Ermeni diasporasının, İngiltere ve İsviçre’de dost parlamenter gruplar ismiyle oluşturduğu gruplar sözde soykırımın gündeme alınması için harekette geçerken, yalnızca Hollanda’da benzer girişimler Türkler’in tepkisi ile karşılaştı. Avrupa’daki Ermeni örgütleri konuyu; Almanya, İspanya, Portekiz, Avusturya ve İrlanda ile İskandinav ülkelerinde de gündeme getirmeye çalışırken şu ana kadar bir başarı kaydedemediler.
+       <br/>
+       <br/>
+       AB—İran ekseninin avantajı
+       <br/>
+       <br/>
+       Ermenistan, 1998 yazından bu yana Avrupa Birliği ile İran arasında hızla gelişmeye başlayan ilişkilerde, köprü rolü oynuyor.
+       <br/>
+       <br/>
+       AB, Türkiye’yi dışlayan enerji nakil güzergahlarında Hazar enerji kaynaklarının Karadeniz üzerinden taşınmasına destek verirken, son olarak İran doğalgazının Türkiye üzerinden değil Ermenistan üzerinden geçirilmesi projesini ortaya attı. İranlı yetkililerin de resmen destek verdikleri projeyi, petrol boru hattının da izlemesi sözkonusu. Geçtiğimiz yaz, Tahran’da Ermenistan—Yunanistan—İran arasında gerçekleşen toplantının ardından Erivan’a giden AB yetkilileri, Ermenistan’ın AB—İran ekseninde önemli bir halka olduğunu bildirdiler. Ermenistan’ın Karadeniz ve kuzeyinden Batı’ya açılmasını kolaylaştıracak bir diğer proje ise TRACECA. Türkiye, Büyük İpek Yolu olarak da bilinen haritanın bel kemiğinde yeralmazken, Ermenistan proje ile Yunanistan üzerinden Avrupa’ya bağlanıyor.
+       <br/>
+       <br/>
+       Ermenistan’ın Avrupa Birliği’nin lokomotifi durumundaki Fransa ve Almanya ile olan ikili ilişkileri son iki sene zarfında büyük ilerleme kaydetti. Fransa’nın Ermenistan’a; telekomünikasyon, yüksek eğitim ve ulaştırma alanında gerçekleştirdiği yüzlerce milyon franklık yatırımları devam ediyor. Almanya da, Ermenistan’ın anayasal yapısının değiştirilmesine yardımcı olurken bu ülkede onbinlerce kişiye imkan sağlayan üçyüz milyon marka yakın yatırıma sahip. Ayrıca Ermenistan’ın işgali altındaki Kelbecer’den çıkartılan 5 tona yakın altın, geçtiğimiz yıl Alman şirketleri tarafından satın alındı.
+       <br/>
+       <br/>
+       Ermenistan’ın gerek AB—İran eksenindeki köprü rolü gerekse Fransa ve Almanya ile gelişen ikili ilişkileri, Türkiye’nin tecrit politikasının etkilerini zayıflatacak düzeyde.
+       <br/>
+       <br/>
+       ABD’den sonra AB gelir
+       <br/>
+       <br/>
+       Türk—Ermeni İş Geliştirme Komitesi Başkanı Kaan Soyak, ABD’deki tasarı olayını iki ay öncesinden bildiklerini kaydederek, Türkiye—Ermenistan ilişkilerinin düzelmemesi halinde bir sonraki ülkenin Fransa olacağını söylüyor. Yakın zamana kadar Türk yetkilileri ile Ermeniler arasında temaslar olduğunu da belirten Kaan Soyak’la yaşanan süreci görüştük.
+       <br/>
+       <br/>
+       * * *
+       <br/>
+       <br/>
+       — Tasarının ABD’de gündeme geleceğini daha önceden nereden biliyordunuz?
+       <br/>
+       <br/>
+       ABD’deki Ermeni diasporası ile sıkı temastayız. Programlarını görmüştük. Zaten biz, 1998 yazında Sayın Cumhurbaşkanı’na bir mektup vererek uyarıda bulunduk. Konunun ciddi biçimde ABD’nin gündemine geleceğini, sonra da AB’ye kayacağını ifade ettik. Buna engel olunması gerektiğini, dönemin Başbakanı Mesut Yılmaz’ın “Tarihi tarihçilere bırakalım” şeklindeki beyanı çerçevesinde bu çalışmaları başlatmaya hazır olduğumuzu bildirdik.
+       <br/>
+       <br/>
+       — İnisiyatifin Ermenistan devletinde değil de ABD’deki diasporada olduğunu söylerken neye dayanıyorsunuz ?
+       <br/>
+       <br/>
+       1915 olaylarıyla ilgili olan kuşaklar Ermenistan’da değil şu an diasporada olan kimseler. Dolayısıyla Ermenistan’ın ağır bir vicdani sorumluluğu yok. Ayrıca ABD diasporası, Erivan üzerinde ekonomik baskı kuruyor. Las Vegas’ın ve ABD Ermeni Cemaati’nin en varlıklı ismi olan Kirk Kirikorian, Ermenistan yönetimine bir anda 100 milyon dolar bağış yapabiliyor. ABD’ye zamanında yerleşen Ermeniler, doğrudan ABD vatandaşı olmuşlardı. Bugün hayatın her ama her alanındalar. Yalnızca benim bildiğim beş kişi var; bir milyar doları nakit olarak kenarda bekletip, işine gücüne ara verip kâr amacı gütmeyen bu tür faaliyetlere eğilen.
+       <br/>
+       <br/>
+       — Ermeni lobilerinin 1990—97 arasındaki uyku dönemini nasıl açıklıyorsunuz?
+       <br/>
+       <br/>
+       Sanırım bu dönem Ter Petrosyan dönemiydi.
+       <br/>
+       <br/>
+       — O zaman Ermenistan devletinin de olup bitenler üzerinde önemli bir etkisinin olduğu söylenebilir mi ?
+       <br/>
+       <br/>
+       Bu söylenebilir. Ancak Petrosyan, Koçaryan’ın şu anki durumuna göre daha güçlüydü ve diasporaya “Hayır” diyebiliyordu. Diasporanın uluslararası alanda, mesela BM gibi bir yerde kullanabileceği bir platform olması gerekiyor. ABD vatandaşı olarak bunu yapamazlar. İşte burada Ermenistan devletine “Hadi şunu yap bunu yap” şeklinde baskı yapıyorlar. Zaten ABD’deki gelişmelerin sürükleyicisi de ANCA çevresinde toplanan ve diyaloğa pek de açık oldukları söylenemeyecek gruplar. Amerikan Ermeni Asamblesi (AAA) gelişmelerin karşısında yeraldı diyemeyiz ama her zaman için diyaloğa açık olduğunu söyleyebiliriz.
+       <br/>
+       <br/>
+       — Türkiye—Ermenistan ilişkileri son iki sene içinde yumuşama seyrine girmişti. Resmi temas gerçekleşmiş miydi?
+       <br/>
+       <br/>
+       Yakın zamana kadar bazı Türk yetkililerinin diaspora ile temasları oldu. Bu kimseler ılımlı grup olan Amerikan Ermeni Asamblesi’ndendi.
+       <br/>
+       <br/>
+       — ABD’den sonra sırada hangi ülke var?
+       <br/>
+       <br/>
+       Eğer ABD’den çıkarsa, ki umarım çıkmaz... Sırada Fransa olacak. Bugünkü statüko devam ederse Ermenistan’ın diasporasına bağımlılığı artacak. Yani Moskova’da 850 bin kişiye ulaşan, ABD’de 1 milyonu aşan ve Fransa’da nüfuzlu kimselerden oluşan diasporaya.
+       <br/>
+       <br/>
+       — Türkiye’nin Ermenistan’a uygulayacağı yaptırımlar etkili olur mu?
+       <br/>
+       <br/>
+       Ben mevcut durumdan daha kötü bir durum ortaya çıkacağını zannetmiyorum. Önce Ermenistan’a, sonra ABD’ye, sonra Fransa’ya, sonra İtalya’ya sertleşilecek. Ama sertleşmenin sonu yok.
+       <br/>
+       <br/>
+       — Peki olay tarihçilere bırakılırsa ne olur ?
+       <br/>
+       <br/>
+       Bununla tarih tarihe bırakılsın diye bir şey kastedilmiyor tabii. Ortak platform olmalı. Devletlerarası tarihçiler komisyonu mu olur, uluslararası hakemlik mi olur, üniversiteler arası komisyonlar mı olur?
+       <br/>
+       <br/>
+       — Farzedin ki tarihçiler Ermenilere katliam yapıldığı üzerinde görüş birliğine vardı. O zaman bu tarih kitaplarına yazılmakla mı kalacak yoksa başka talepler bunu izleyecek mi?
+       <br/>
+       <br/>
+       Bu en az 10 sene sürer. Toprak taleplerini ise gerçekçi bulmuyorum. Ama diasporaya karşı mücadele etmek zor. Bu arada Türkiye Ermeni Cemaati’nin de tasarının yumuşatılmasında etkili olan girişimlerde bulunduğunu söylemek istiyorum.
+       <br/>
+       <br/>
+       Türkiye ve Ermenistan’ın ilişkilerinin bu durumda olmasından hiçbir taraf fayda görmez.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13876), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302174049/http://www.aksiyon.com.tr:80/detay.php?id=13876)

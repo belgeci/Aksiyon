@@ -1,0 +1,39 @@
+# Uzay avcıları
+
+*Mehmet Kamış Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050225005308im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <font class="content">
+    Yakın geçmişte yer yer akıl, yer yer bilim adı altında insanlığın uzun yürüyüşünde ona rehberlik etmiş olan bütün değerler yerlerinden edilmek istendi. Büyük dinlerin aksine insanlığı daha bu dünyada cennetle müjdeleyerek zihinleri çalan bu akım komünist ülkelerde ciddi ciddi tecrübe edildi. Bilimde, sanatta ve birçok alanda hâlâ etkisini sürdüren bu ideolojinin siyasi alandaki uygulamasının Sovyetler örneğinde paramparça olması insanlığı sahte bir uykudan uyandırdı.
+   </font>
+   <br/>
+   <p>
+    <font class="content">
+     Bir yanda insanlık tarihinin uzunluğu içindeki bu istisnai dönemin yaralarını sarmaya çalışan geleneksel dinler var. Ortodoks kilisesi Rusya’da kendini toparlamaya çalışıyor. El konulmuş topraklarını, mülklerini toparlamaya ve inananlarının hizmetine sunmaya çalışıyor. Doğu bloku ülkelerinin hemen hepsinde aynı sancılı dönem yaşanıyor. Yer yer bazı aşırı uçlar da verse, İslam dünyasında dinle yeniden barış konusunda çok büyük bir hareketlilik yaşanıyor.
+     <br>
+      <br>
+       Diğer yanda ise insanlığın bu yarı uykulu haliyle, metafizik, ruhani hayat ve maneviyat konusundaki ihtiyaçlarını sahte müsekkinlerle geçiştirmeye çalışan, onları rasyonel cinnetten metafizik cinnet koridorlarına davet eden akımlar var. Bu hafta Aksiyon’da marjinal de olsa Türkiye’de bile kendisine taban bulabilen bir akımdan, ufolardan, kıyametten, Atlantis Medeniyeti’nden bahseden Amon Hareketi’ni ele alıyoruz. Dosya, insanımızın maneviyat ihtiyacının boyutlarını, sapık teolojilerin de dinin saltanatına göz dikerken ondan nasıl hınzırca kopya çektiklerini, gerçek dini inancı ortadan kaldırmak için hangi esasları hedef aldıklarını göstermesi bakımından ibretlerle dolu.
+       <br>
+        <br>
+         Almanya’da yaşayan 2,5 milyon Türk’ün Türkiye’den görünüşünü ve çeşitli zamanlarda, çeşitli sebeplerle dolandırılmalarını işleyen dosyamızın yanısıra, büyük tefekkür adamımız Hekimoğlu İsmail’in tevekkülünü, ayrıca ‘işadamı’ Sedat Peker’le yaptığımız ilginç röportajı zevkle okuyacağınızı ümit ediyoruz.
+         <br/>
+         <br/>
+         Sağlıklı, mutlu ve hür bir hafta dileğiyle.
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </font>
+   </p>
+  </p>
+ </font>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11928), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225005308/http://www.aksiyon.com.tr:80/detay.php?id=11928)

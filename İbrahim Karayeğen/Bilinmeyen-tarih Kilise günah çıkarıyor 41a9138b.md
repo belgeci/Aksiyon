@@ -1,0 +1,51 @@
+# Kilise günah çıkarıyor
+
+*İbrahim Karayeğen Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143340im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <font class="content">
+    Haçlı Seferleri üzerinden tam dokuz asır geçti ama olayın korkunç yüzü İslâm âleminin bilinçaltından silinmedi. Çünkü, insanlık tarihi böylesine bir zulmü çok az görmüştü.
+   </font>
+   <br/>
+   <p>
+    <font class="content">
+     Yalan ve iftiralarla aldatılmış eli silahlı kalabalıklar defalarca İslâm coğrafyasını talan etti, yüz milyonlarca insan katledildi.
+     <br>
+      <br>
+       Papa tarafından yönlendirilen insanların kin ve nefreti yıllarca sürdü. Hak, hukuk ve kural rafa kalktı. Kutsal bir misyon için yola çıktıklarını iddia edenlerin aslında dünyevî menfaatlerini gözettikleri anlaşıldı. Haçlı zulmünün karşısına ilk çıkan ise her defasında Selçuklular oldu.
+       <br>
+        <br>
+         Tarihin gördüğü en vahşi savaşlardan biri 21. yüzyıla girerken bizzat Hıristiyanlar tarafından eleştirilmeye başlandı. Önce Papa II. Paul, bu savaşların ‘tarihi hata’ olduğunu itiraf etti ve Müslümanlardan özür diledi. Şimdi de savaş propagandasının başladığı yerde açılan bir sergi ile günah çıkartılıyor. Katolikler, dinlerarası diyalog adına özeleştiri süreci başlatıyor.
+         <br/>
+         <br/>
+         Almanya’nın Mainz şehrinde Dom Kilisesi’ne ait bir müzede gerçekleştirilen sergi, Haçlı Seferleri’ni ilk kez objektif biçimde ele alıp masaya yatırdı. Sergiye, Katolik Kilisesi adına Mainz Piskoposu Kardinal Karl Lehmann sahip çıktı. Bu sergi 11 Eylül’den sonra daha bir önem kazanıyor. Bush’un önce söyleyip sonra tashih ettiği ancak zihin arkasını yansıtan “Haçlı Seferi” söylemine de reddiye anlamı taşıyor. Önce Afganistan daha sonra Irak’a giren ABD’nin İslâm coğrafyasını dönüştürme projesinin Huntington’un ‘Medeniyetler Çatışması’ tezini haklı çıkartacak düzeye gelmesi dolaylı biçimde eleştiriliyor bu sergi ile.
+         <br/>
+         <br/>
+         Bu serginin bir başka önemi, Avrupa Birliği’nin kapısına dayanan Türkiye’nin kıyasıya tartışıldığı bir döneme rastlamasıydı. Avrupa’da bize karşı tereddüt var. Dananın kuyruğu 17 Aralık’ta kopacak. Avrupa’da tereddüt var. Ama unutulmamalı ki Türkiye, onlarca milleti bir arada tutan çok hukuklu, çok kültürlü Osmanlı Devleti’nin bakiyesidir. Coğrafî konumu, kültürü ve tarihî geçmişi ile asırlardır doğuda olduğu kadar batıdadır da. Haçlı Seferi’nden dolayı pişmanlık duyan Avrupa, umarım, birliğe katılma konusunda da ileride aynı duyguyu yaşamaz.
+         <br/>
+         <br/>
+         Hepinize iyi haftalar...
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </font>
+   </p>
+  </p>
+ </font>
+</div>
+
+
+## Yorumlar
+
+### cafer bekkaya, 07-Ekim-2004
+> Hizmetçi değil, efendiymişler: 
+> Kilise günah çıkarıyorsa demek ki pişman olmuş. Çözüm diye sunduğu şeyler çözüm değil, bir felaketmiş. Sürekli başrolde oldukları için olayları istedikleri yere çekme gücüne de sahipler. Manevi doyuma ulaşamayan halklarının kandırılması da kolay oluyor. Nasıl manevi doyuma ulaşsınlar ki, Kur’an dışındaki bütün kitaplar kendi din adamları tarafından sürekli tahrif edilmiş. Neden zamanında sorumluluk sahibi insanlar gibi davranmadılar da şimdi özür dileyerek güvenilirliklerinin tartışılmasına yol açmaktadırlar? Bu aslında bir beceriksizliğin ifadesidir. Müslüman olsun, Hıristiyan olsun hiçbir insanın hayatı ucuz ve değersiz değildir. Hepsinin değeri niyetleri ve amellerine göredir. Bir kilisenin başında bulunmak, insanları sonu belli olmayan maceralara sürükleme yetkisine sahip olmak anlamına gelmez. Bu yetkiye sahip olduğunu düşünenler kendilerini “hizmetçi” değil “efendi” olarak görüyordur.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16490&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143340/http://www.aksiyon.com.tr:80/detay.php?id=16490&yorum_id=1)

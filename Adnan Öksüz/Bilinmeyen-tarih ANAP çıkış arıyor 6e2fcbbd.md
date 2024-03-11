@@ -1,0 +1,55 @@
+# ANAP çıkış arıyor
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030623230327im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="/web/20030623230327im_/http://www.aksiyon.com.tr/resim/39/24.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  3 Kasım seçimlerinden hemen önceydi. ANAP’ın etkili ve sevilen isimlerinden, Milli Eğitim eski Bakanı Vehbi Dinçerler’le konuşuyoruz. Yaklaşık 10 yıldır dile getirdiği ve kendi ifadesiyle ‘bir türlü anlatamadığı’ bir söyleminin altını çiziyordu. Şöyle diyordu, Dinçerler; “Tüm yeni oluşumlar Özalvari bir parti kurma noktasında birleşiyorlar. Ben de diyorum ki, bu anlayışın tapusu ANAP’tadır.
+ </font>
+ <p>
+  <font class="content">
+   Bunun bizim partimizde aranması lazım. Bunu ya mevcut parti yönetimi gerçekleştirir ya da halk ANAP’ı cezalandırır.” Bu ifadelerini çeşitli platformlarda defalarca ifade ettiğini belirtiyor.
+   <br/>
+   <br/>
+   Ve 3 Kasım seçim sonuçları... Türkiye’nin köklü partisi, tarihinde ilk kez parlamento dışında kalıyordu. Eski Bakan söylemlerinde haklı çıkmış, seçmen tarihinde görülmedik bir biçimde partisini cezalandırmıştı. Geçtiğimiz hafta, 11—12 Ocak tarihlerinde gerçekleştirilen partinin 3. Olağanüstü Kongresi sonuçları Dinçerler’in bu söylediklerinin ışığı altında daha bir anlam kazanıyordu. Dinçerler, sürekli ‘Özal ruhunu geri getirmekten’ söz etti, işte yeni kongre bu açıdan da önemliydi.
+   <br/>
+   <br/>
+   Özal, damgasını vurdu
+   <br/>
+   <br/>
+   Çünkü, Atatürk Kapalı Spor Salonu’nda yapılan kongrede iki gün boyunca sürekli olarak ANAP’ın kurucusu ve ilk genel başkanı, Türkiye’nin sekizinci Cumhurbaşkanı merhum Turgut Özal konuşuldu. Tüm temalar onun üzerineydi. Hatta Genel Başkanlığı bıraktıktan sonra İstanbul’da inzivaya çekilen, kongreye gelmeyen ve posterinin salona asılmasını dahi istemeyen eski Başbakan Mesut Yılmaz’a vekalet eden Ekrem Pakdemirli kongreye davet mektubunun her sayfasına Özal’ın resimlerini koymayı tercih etmişti. Aynı zamanda Özal’ın ilginç bir yaklaşımını; “Kabul etmek lazım ki, siyaset inişli çıkışlıdır. Kazanırsınız da kaybedersiniz de. Her zaman kazanmak mümkün olmayan bir şeydir. Her zaman kazanan yanlıştır. Kaybetmesini de bilmek lazım. Ancak bunlar yapıldığı zaman, parti tam manasıyla bizim arzu ettiğimiz, bizim düşündüğümüz sağlam bir parti haline gelir.” Özal’ın 16 Ekim 1989’da sarfettiği bu sözler, seçim yenilgisinden çıkmış ANAP’lılar için ferahlatıcı, serinletici bir unsur oldu.
+   <br/>
+   <br/>
+   Aynı çizginin isimleri
+   <br/>
+   <br/>
+   Kongrenin sonuçlarına bakıldığında ANAP tabanını rahatlatan diğer bir faktör de adayların nitelikleriydi. Ali Talip Özdemir, Lütfullah Kayalar, Ekrem Pakdemirli, Işın Çelebi, Perihan Genç, Yaşar Barut ve Adil Aşırım’ın ortak özellikleri Özalcı bir çizgiden geliyor olmalarıydı. Kongrede öne çıkan iki isimden biri, daha önce de Mesut Yılmaz’ın karşısında genel başkan adayı olan ve hatırı sayılır bir oy alan eski bakanlardan Lütfullah Kayalar’dı. Tarım Bakanı ve ardından da Maliye Bakanlığı yapan Kayalar, esasen Selanik’ten Türkiye’ye göç eden bir ailenin çocuğu. Öteki önemli aday da Ali Talip Özdemir’di. Her ikisinin de çıkış noktasını Özal politikaları oluşturuyor.
+   <br/>
+   <br/>
+   Olağanüstü Kongre mücadelesinden Ali Talip Özdemir galip çıktı. Özdemir, 640 oyla ilk turda genel başkan seçilirken, Lütfullah Kayalar 428 oyda kaldı. Partinin etkili organı Merkez Karar ve Yönetim Kurulu’na (MKYK) gözatıldığında da Özal ruhunun yansıdığını söylemek mümkün; Sami Selçuk, Birkan Erdal, Yaşar Eryılmaz, Vehbi Dinçerler, Ergün Özbudun, Oltan Sungurlu, Sefer Ekşi, Ekrem Pakdemirli, Niyazi Kahveci, Mehmet Keçeciler, Abdullah Akarsu, Veysel Atasoy, Abdulkadir Baş ve Ahmet Özal 50 kişilik kurulun bazı isimleri. Başkanlık Divanı da şöyle belirlendi: Nesrin Nas, Ediz Hun, Birkan Erdal, Vasfi Orbay, İbrahim Çebi, Levent Mıstıkoğlu ve Nihat Gökbulut. İlginç taahhütler
+   <br/>
+   <br/>
+   Kongre sırasında gerçekleşen ilginç bazı vaatler de dikkat çekti. Bunlardan birisi genel başkan adaylarından Adil Aşırım’dan geldi. Aşırım, Ankara 26. Noteri’nde aldırdığı taahhütnamesinde genel başkan seçildiği takdirde yapacaklarını sıralıyor ve yapamadığı takdirde genel başkanlıktan istifa edeceğine dair söz veriyordu. Aşırım’ın vaatleri arasında ‘milletvekilliği ve mahalli seçimlerde aday tesbitlerini tamamen illerin yönetimine bırakacağı’ geliyordu. Neler değişecek? A. Talip Özdemir’in seçimler öncesinde verdiği taahhütlerinin başında teşkilatlara daha fazla önem vereceği geliyordu. Bunu, “Şimdi teşkilatlara sesleniyorum, bana kendi yataklarının yanıbaşında bir yer ayırsınlar. Bundan sonra artık lüks otel odaları yok, teşkilatımın neferi nasıl yaşıyorsa ben de öyle yaşayacağım’ şeklinde dile getirmişti. Genel Başkan olduktan sonra yaptığı konuşmada ‘Tarih, millet ve Allah’ın huzurunda söz veriyorum ki; bugünden itibaren hayatın bütün hazlarını bir tarafa bırakıyorum’ ifadeleri bunu teyid ediyordu. Bu konuşmalardan yola çıkarak bundan böyle ANAP’ın yönetim kadrolarının şatafat ve lüksten uzak duracağı söylenebilir. Özdemir’in üzerinde durduğu önemli bir konu da teşkilatlara daha fazla yetki tanınması. Milletvekili ve yerel seçimlerde aday tesbitlerinin merkez yoklaması yerine mahallinde gerçekleştirilmesi de yeni yönetimin yapacağı icraatlar arasında olacak. Elbette bunların da ötesinde, Özdemir’in bundan böyle üzerinde çalışacağı proje, ANAP’ı bir şekilde Meclis’te temsil ettirmek.
+   <br/>
+   <br/>
+   ANAP’ı kendine getiren ve bir bakıma özüne yolculuk yaptıran olağanüstü kongre bir bakıma 3 Kasım seçimlerinin bir sonucu. Şimdi Milli Eğitim Bakanı olan Erkan Mumcu 3 Kasım seçimlerinden önce partisinin olağanüstü kongre yapması konusunda ısrarlı bir tutum sergiledi, olmayınca da ayrılıp AK Parti’ye geçti. Şimdi sorulan soru şu; Mumcu’nun isteği doğrultusunda olağanüstü kongre yapılsaydı, bugünkü siyasi tablo acaba nasıl oluşurdu?
+   <br/>
+   <br/>
+   <br/>
+   ÖZDEMİR KİMDİR?
+   <br/>
+   1953 yılında Konya’nın Ereğli ilçesinde 12 çocuklu bir ailenin çocuğu olarak dünyaya gelen Ali Talip Özdemir, küçüklüğünde terzi ve berber çıraklığı yaptı. İlk ve orta öğreniminin ardından Ankara Devlet Mimarlık ve Mühendislik Akademisi Makine Mühendisliği’nde mezun oldu. Yüksek lisansını da aynı bölümde gerçekleştirdi. Başından beri Özal’la birlikte olan ve ANAP’ın kurulduğu yıllardan itibaren Anadolu’da partisinin sözcülüğünü üstlenen Özdemir, 1984 yerel seçimlerinde Ereğli’den belediye başkanı seçildi. 1987’da yapılan milletvekili genel seçimleri öncesinde belediye başkanlığı görevinden istifa etti, Konya’dan milletvekili seçildi. Partide Özal’ın yardımcılığı’nı üstlendi. 1991’de yapılan kongrede genel başkan seçilen Mesut Yılmaz’ın kurduğu yeni hükümette ilk Çevre Bakanı olarak görev aldı. 1992’de yapılan yerel seçimlerde Bakırköy Belediye Başkanı seçilen Özdemir, Bakırköy’deki hizmetleriyle İstanbul’un yanısıra ülke çapında tanınmasını sağladı. Bir sonraki genel seçimlerde yine milletvekili seçilen Özdemir, üç aylık Anayol kabinesinde Devlet bakanı oldu, 18 Nisan 1999’da genel seçimlerle birlikte yapılan yerel seçimlerde partisinin İstanbul Büyükşehir Belediye Başkanı adayı oldu, ancak kazanamadı. İnternete ve teknik gelişmelere meraklı olan Özdemir evli ve üç çocuk babası.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2329), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030623230327/http://www.aksiyon.com.tr:80/detay.php?id=2329)

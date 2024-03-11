@@ -1,0 +1,82 @@
+# Sayım, vekil ailelerine yaradı...
+
+*Adnan Öksüz Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050302175100im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050302175100im_/http://www.aksiyon.com.tr/resim/308/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir sayım günü geldi geçti. 22 Ekim 2000 tarihi belleklere ‘dışarı çıkılamayan gün’ olarak kazındı.  O gün, birçok kişi evlerinde saat 17:00’ye kadar ‘birikmiş’ işlerini yaptı.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kimi kütüphanesini yeniden düzenledi, kimi elektrik aksamını yeniledi ve onardı, kimi biriken notlarını düzenledi, kimi de ailesiyle biraraya gelme fırsatını yakaladı. İşte milletvekilleri de bu son kategorideydi. Birçok vekil, aylardır bulamadığı fırsatı yakalamış ve ailesiyle, çocuklarıyla sabahtan akşama kadar birlikte olma şansını elde etmişti, sayım gününde.
+   <br>
+    <br>
+     Milletvekili lojmanları, Başkent’in Oran semtinde bulunuyor. Kızılay’dan Çankaya yönüne doğru gittiğinizde, Cinnah Caddesi’nden doğru geçiyorsunuz, ardından Turan Güneş Bulvarı’na giriyorsunuz, yaklaşık 5 km. sonra milletvekilleri lojmanlarına gelmiş bulunuyorsunuz. Yol üzerinde TRT’nin —çok görkemli ama işlevsel olarak o kadar olmayan— devasa binası dikkatlerden hiç kaçmıyor. Milletvekili lojmanları tripleks olarak düşünülmüş. Bir giriş, girişin hemen karşısında bir çalışma odası, girişin üzerinde salon ve mutfak, onun üzerinde ise yatak odaları. Yıllarca önce inşa edildiklerinde lüks denilebilecek lojmanlar, günümüzde o kadar da tutulmuyor. Hatta birçok milletvekili, parlamenter seçildikten sonra kendi evini, lojmanlara tercih edip taşınmıyor bile. Amasya Milletvekili Akif Gülle bunlardan birisi... Ancak buna rağmen milletvekili sayısı 450’den 550’ye çıkarıldıktan sonra tripleks lojmanlar yetersiz kaldığı için Meclis Başkanlığı bunların yanısıra, eski lojmanlara göre daha kullanışlı, 22 katlı iki blok daha ekleme kararı aldı. Bu blokların her katında 4’er daire bulunuyor.
+     <br>
+      <br>
+       Lojmanlar, milletvekili eşleri ve çocukları açısından oldukça sessiz ve sakin geçen bir ortam olması bakımından çekici. Restoranları, kreşleri, koşuyolları, servisleri ve diğer imkanları ile sosyal açıdan da geniş imkanları var. Bu açıdan vekil eşleri ve çocuklarının rahat bir ortamda hayat sürdürdükleri söylenebilir. İşte bu sebepten olsa gerek bir vekil, seçimi kaybetse bile lojmanını kolay kolay terkedemiyor. Vekil eşleri ve çocuklarının bu anlamda tek bir sıkıntısı belki ailelerine daha fazla vakit ayıramamaları.
+       <br/>
+       <br/>
+       Metin Şahin’in kedileri...
+       <br/>
+       <br/>
+       İşte sayım günü, bunun için bulunmaz fırsat oldu. Pek azı haricinde ekseri vekiller, sayım gününü lojmanlarda ve çoluk çocuğunun yanında geçirdiler. Aksiyon ekibi de lojmanlardaydı ve vekillerin bugünü nasıl geçirdiğini yakından gözlemledi.
+       <br/>
+       <br/>
+       İlk durağımız DSP’li Metin Şahin’di. Şahin, DSP Antalya Milletvekili ve Meclis Plan ve Bütçe Komisyonu Başkanı. Parti içinde Ecevit’e yakın çalışan, itidalli ve yapıcı bir kişiliği olmasıyla biliniyor. Komisyonda yapılacak seçimlerde yeniden Başkan olması bekleniyor. Dileği, bugüne kadar çalıştığı ekibin yine aynı olması. Bunun için koalisyon partilerini oluşturan MHP ve ANAP Meclis Grup Başkanvekillerinden aynı vekillerin komisyonda görevlendirilmeleri için ricada bulunacağını ifade ediyor. Tek amacı, 2001 bütçesini sağ salim Meclis’ten geçirmek. ‘Ben kafamda bunu bitirdim, bütçe tavkvimini yaptım’ diyor ama daha fazla da ayrıntı vermiyor. Zaten, salona girdiğimizde salonun bir köşesinde dosyalar, kağıt, kalemler sabahın erken saatlerinden itibaren yoğun işe daldığını gösteriyor. Gelecek hafta görüşülmesi beklenen kanun tasarı ve tekliflerini de yine bu tatil günlerinde okuyor, değerlendiriyor, notlar alıyor. Peki sayım gününün çok özel bir anlamı var mıydı, Şahin için. ‘Hayır’ diyor. Ancak en az sokaktaki vatandaş kadar Metin bey de sayımın şeklinden şikayetçi; “Sayım zamanı herkes şikayetçi olur. Nedendir anlaşılmaz, hep de böyle devam eder. Bilgi çağındayız umarım bu hep böyle sürmez. Böyle bir dönemde bu tür eve hapisler olmaz, bu fevkalâde ayıptır. Nüfus hareketlerinin ve genel karakteristik hareketlerin bilgisayar ortamına girmesi lazım. Sicilinde bir yanlışlık mı var, bir hata mı yaptı, tüm bunların belli olması lazım”.
+       <br/>
+       <br/>
+       Şikayetçi ancak Meclis’te Bütçe’nin patronu olarak DİE’nin bilgisayar ortamına girmesi için para da verecek mi? Şahin’in buna cevabı ‘Biz zaten gerekli desteği veriyoruz’ oluyor. Demokratik Sol Parti’nin Türk siyasi geleneğine getirdiği  önemli  özelliklerden  birisi de —kimileri parti içi demokrasi açısından eleştirse de— ‘yukarı’dan beklenti olsa bile bunu açıkça dile getirmeme. DSP’li hemen hiçbir milletvekilinin bugüne kadar Ecevit’e, Ecevit ailesine ima yollu da olsa ‘bakanlık beklentisini’ iletmemesi belki de bu yüzden. Metin Şahin de bunu doğrularcasına ‘Kabinede revizyon var mı, sizin bakanlık beklentiniz var mı?’ şeklindeki sorumuza karşılık önce gülümsüyor, ardından, eşi Gülşen hanımla gözgöze geldikten sonra da ‘Hayır, kesinlikle. Bizde zaten böyle birşey düşünülmez, yapılır. Benim bakanlık beklentim yoktur. Kaldı ki şu anda doldurduğum koltuk —TBMM Plan ve Bütçe Komisyonu Başkanlığı—bakanlıklarla eş güçte olan bir makam. Bakanlar hep bana gelirler’ yorumunu yapıyor. Şahin, sürekli olarak gündeme getirilen Başbakan Bülent Ecevit’in sağlık durumunun da oldukça iyi gittiğini, endişe edecek bir durumun sözkonusu olmadığını da ekliyor.
+       <br/>
+       <br/>
+       Metin Şahin ve eşi Gülşen hanım sayım günü saat 07:00 dolaylarında kalkmışlar. Şahin’in evinde o saatlerde başka uyumayanlar da vardı; Bikini ve Hüseyin. Bunlar Şahin ailesinin iki sevimli kedisi. Bikini anne, Hüseyin ise Bikini’nin erkek yavrusu. Bikini, yabancı olduğu zaman kesinlikle salona girmez, bir köşede saklanırmış, yine öyle yaptı. Hüseyin ise daha sıcakkanlı. Gülşen Şahin ‘İki kızımız —Ela ve Ebru— da yurtdışında. Bu yüzden biz de yalnızlığımızı bunlarla paylaşıyoruz. Onlar bizim herşeyimiz’ diyor.
+       <br/>
+       <br/>
+       Gül, önce çay demledi
+       <br/>
+       <br/>
+       İkinci durağımız, Fazilet Partisi Kongresi’nde Genel Başkan adayı olan ve o kadar tazyike karşılık büyük oy alan FP’nin yenilikçi kanadının lideri, eski Devlet Bakanı ve Kayseri Milletvekili Doç. Dr. Abdullah Gül. O da çalışmaları sebebiyle evine fazla uğrayamayanlardan. Her zaman olduğu gibi sayım günü de erkenden kalkmış, 06:00’da ayaktaymış  Abdullah bey. Biraz koşu ve spor... Belli ki ‘gelecek muhtemel hızlı günlere’ zinde girmek istiyor.  İstanbul St. Josep Lisesi’nde öğrenim gören büyük oğlu Ahmet Münir Gül, fırsattan istifade ile anne—babasının yanına gelince —diğer çocuklar Kübre ve Mehmet Emre ile birlikte— evde başka bir telaş göze çarpıyor, hemen. Ahmet Münir ne de olsa gurbetten geliyor. Bu telaş arasında bazı ev işleri de Gül’e havale edilmiş. Mesela, sabah kahvaltısı için çayı demleme işi kendisine kalmış. Evi, tripleks bloklarda olduğu için Aksiyon ekibini, girişin hemen karşısında bulunan çalışma odasında karşılıyor. Kitaplar, bilgisayar, tablolar, ilginç bir elips sehpa, kurt başlıklı bir baston vb. bu küçük çalışma odasına sığdırılmış. Gül, ne kadar hoşnut böylesi bir günden;  ‘Başka zamanlar birlikte olma şansına sahip olamıyoruz. İşte böyle günlerde çocuklarla birlikte olabiliyoruz’. Gül’ün sürekli dışarda olmasından en çok şikayetçi olan ise, 1980 ihtilalinden kısa süre önce, 21 Ağustos 1980 tarihinde hayatını birleştirdiği Hayrunnisa hanım. Ancak, evde bulunduğu zamanlar Abdullah bey ‘babacan’ tavırlarıyla dikkat çekiyor, çocuklarının çoraplarının giyinik olup olmadığıyla bile ilgileniyor. Abdullah bey, sayımın şeklinden memnun muydu, peki? Daha doğrusu eve hapis olmak iyi yanlarının ötesinde nasıl bir duyguydu; “Artık herşey çok gelişti. Bilgisayar ortamı inanılmaz bir gelişme gösterdi. İnsanları eve hapsetmek elbette hoş değil. Umuyorum bu son olur”. Soruları nasıl bulmuştu, Abdullah bey; “Başka sorular da sorulabilirdi. Türkiye’de Müslüman olmayan kesimler de var. Bu doğrultuda sorular olabilirdi. Etnik bazı orijinlerle ilgili sorular yöneltilebilirdi ama sanıyorum ülkemiz buna kendini hazır hissetmiyor”.
+       <br/>
+       <br/>
+       Doç. Gül’ü evde bulmuşken biraz da politika. Fazilet Partisi’nin kapatılma davası konusunda fazlaca bir yorum getirmek istemiyor ve ‘Gelişmelere göre hareket tavrımızı belirleyeceğiz’ demekle yetiniyor. Meclis Başkanlığı seçimleri sonucu konusunda da genel kanaati dile getiriyor; “Ömer İzgi sürpriz oldu ve ben şahsen son ana kadar çeşitli formüllerin gündeme sokulabileceğini hep söylemiştim. Ben kişisel olarak Murat Başesgioğlu’nun seçilmesinden yanaydım”. Sonbahar Formülleri’nin gündeme getirildiği bu sıralarda koalisyonun ömrünü ne kadar görüyordu? Soruya bir muhalif milletvekilinden beklenmeyecek cevap veriyor. “Bence bu hükümet sonuna kadar devam eder. Yani 2004 yılına kadar bu hükümetin yıkılması mümkün değil. Allah bilir elbette ancak Başbakan Bülent Ecevit’in sağlık durumunda bir değişiklik olsa bile bu hükümet yine devam eder” görüşlerini iletiyor.
+       <br/>
+       <br/>
+       ‘Bir trafik kazasıydı, geldi geçti’
+       <br/>
+       <br/>
+       Bu özel günde üçüncü ve son durağımız ise MHP’nin ‘ele avuca sığmaz, afacan miletvekili’ Cemal Enginyurt oldu. Adını ağırlıklı olarak, Sadi Somuncuoğlu olayı ile duyurdu. Cumhurbaşkanlığı seçimlerinde Somuncuoğlu da aday olunca, bunu engellemek isteyen MHP’li vekillerin başını çekti, daha doğrusu orada 20 kadar milletvekili olmasına karşın hep o, önplanda gözüktü. Geçen bunca zamanın ardından daha sağlıklı düşünmek için fırsat bulmuş Cemal bey ve bu olaydan son derece üzgün olduğunu dile getiriyor. Açıkça söylemekten de çekinmiyor; “Bu bir trafik kazasıydı. Geldi, geçti. Bunu unutmak istiyorum”. Enginyurt, olayla ilgili olarak ilk kez bu kadar açık konuşuyor belki de.
+       <br/>
+       <br/>
+       Enginyurt’un ilk kez Aksiyon sayfalarında yeralmasını arzu ettiği bir başka husus ise, yazdığı kitap; ‘Milletvekili ne iş yapar?’ sorusuna cevap arayacak kitap. Böyle bir kitap yazmaya bir telefon konuşmasının gerekçe olduğunu ifade ediyor: “Bir telefon geldi, Ankara Karşıyaka’dan arıyordu. Bir yakını vefat etmiş, Karşıyaka Mezarlığı’nda yer bulmuşlar ancak buldukları mezar yeri biraz yüksekte. Seviyesi daha düşük yerlerde yer bulmak için de Mezarlık Müdürlüğü’nü arayıp torpil yaptırmak gerekiyormuş. Ben bir telefon edebilir miymişim? Yahu biz niçin Ankara’ya milletvekili olarak geldik? Mezar yeri bulmak için mi, yoksa proje üretmek için mi?” Enginyurt’un vurguladığı bir başka nokta ise Genel Başkanı Bahçeli ile ilgili oluyor. Ona göre Bahçeli politik olarak sadece bugünü değil, 20 sene sonrasını düşünerek adımlarını atmakta. Bahçeli’nin çok mütevazı olduğunu ve görüşmek için randevu almadıklarını, istedikleri zaman görüştüklerini belirtiyor. Hem Başbakanlıkta, hem de Genel Merkez’de bu böyleymiş. Milletvekilinden al haberi ilkesinden yola çıkarak Bahçeli’nin evlenip evlenmeyeceğini öğrenmek istiyoruz, Enginyurt’tan. Ordu Milletvekili bu sorumuza, Bahçeli’nin bir cümlesiyle cevap veriyor; “Ecelle nikahın ne zaman geleceğini Allah’tan başkası bilemez”.
+       <br/>
+       <br/>
+       Eşi Hatice hanım, Enginyurt’un bu sert çıkışlarından dolayı zaman zaman tedirginlik duyduklarını ancak bunları da politikanın bir cilvesi olarak gördüklerini iletiyor. Hatice hanımın merhum babasının koyu DSP’li olması ise ‘Cemal bey demek ki ta o günlerden bugünleri görüyormuş’ esprilerine yolaçtı. Peki Cemal bey dışarda olduğu kadar evin içinde de sert miydi? ‘Beraber olduğumuz süre içinde patron benim’ diyor, Hatice hanım. Enginyurt, çocukları Miraynaz ile Alptürk’e de koalisyonun iki güçlü kanadının sembollerini öğretmiş, ikisi de kurtların ve kuşların seslerini çıkarmaya çaba gösteriyorlar.
+       <br/>
+       <br/>
+       Enginyurt da diğer vekiller gibi bugünün en büyük faydasının ‘ailesiyle birlikte güzel bir gün geçirmeleri’ olduğunu ekliyordu.
+       <br/>
+       <br/>
+       Milletvekili lojmanlarında bir sayım gününden bazı enstantaneler böyleydi...
+       <br/>
+       <br/>
+       E—mail: adnan@aksiyon.com.tr
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=13796), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302175100/http://www.aksiyon.com.tr:80/detay.php?id=13796)

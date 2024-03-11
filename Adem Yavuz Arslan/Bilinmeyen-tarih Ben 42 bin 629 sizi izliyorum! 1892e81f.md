@@ -1,0 +1,44 @@
+# Ben 42 bin 629 sizi izliyorum!
+
+*Adem Yavuz Arslan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20030626153756im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20030626153756im_/http://www.aksiyon.com.tr/resim/444/22.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Bir şehrin nabzını en iyi taksicilerin tuttuğuna inanılır. Peki bir taksici aracına binenlerin hikayesini yazarsa ne olur? Londra’da yaşayan bir Türk taksici sıradışı bir iş yapıp müşterilerini, sokakları ve şehir hayatını kaleme alıp görüntüledi. Kitap büyük ilgi gördü, bir haftada iki baskı yaptı. Hatta Kraliçe ve Tony Blair bile yazara teşekkür mektubu yolladı.
+ </font>
+ <p>
+  <font class="content">
+   Büyük Britanya’nın kendine özgü başkenti Londra’nın başka hiç bir yerde benzeri olmayan özelliklerinden birisi de şekli ve modeli hiç değişmeyen ‘Siyah Taksi’leridir. Şoför için özel bölmesi olan bu araçlara binenler, camın arkasından sadece gidecekleri adresi söyler ve ineceği zaman da parasını verirler. Şoförle yolcular arasında başka bir diyalog da yaşanmaz. Yüzlerce yıllık bu geleneği bir Türk, İbrahim Mustafa bozdu ve aradaki cam bölmeyi ortadan kaldırarak yolcularıyla sohbet etti, zaman zaman fotoğraflarını çekti ve sonunda Londra gibi bir metropolde yaşayan, gezmeye gelen ya da meraklı gözlerle cama yapışmış yüzlerce insanın hikayesinden oluşan ilginç bir kitaba imza attı.
+   <br/>
+   <br/>
+   Aslında taksi şoförlerinin çalıştıkları şehrin nabzını en iyi tutan kesim olduklarına inanılır ve araştırmacılar ya da gazeteciler sık sık taksicilerle konuşup nabız yoklarlar. Fakat dünyanın hiçbir yerinde taksicilerin yolcularını ve sokak sokak, ev ev ezberledikleri şehrin hikayesini yazdıklarına şahit olunmamıştı, Londra’da yaşayan Kıbrıs asıllı Türk M. İbrahim Mustafa’ya kadar. Şiire ve kitaplara merakı ile sıradışı bir taksi şoförü olan Mustafa, taksisinden ayırmadığı fotoğraf makinesi ve lap top bilgisayarı ile başından geçenleri, yolcularının enteresan hikayelerini, diğer taksi şoförlerinin yaşadıklarını ‘kabinde oturan adam’ olarak yazdı. “In a Year of a London Cabbie” adıyla yayınlanan kitap piyasaya sürüldüğü anda anormal ilgi gördü, ilk haftada 3 bin adet satılarak ikinci baskıya girdi, Amazon.com’da en çok satanlar listesine yerleşti ve tüm İngiliz medyasında geniş yankı buldu. Hatta Financal Times gibi dünya ekonomisine yön veren çok ciddi gazetelerin haftasonu eklerine bile konu olunca İngiliz Kraliçesi ve başbakanının teşekkür mektupları yollandı Türk yazara.
+   <br/>
+   <br/>
+   İnat uğruna yazar oldu
+   <br/>
+   <br/>
+   M. İbrahim Mustafa’nın kendisinin de ilginç bir hikayesi var aslında. Ailesi Kıbrıs’ın Akıncılar bölgesinden 52 yıl önce İngiltere’ye göç eden 42 yaşındaki İbrahim Mustafa’nın kitaba ve dile olan merakının temeli lise dönemlerine rastlıyor. Çünkü her göçmen ailenin çocuklarının sorunu olan ‘aksanlı konuşma’ onun da problemidir ve İngilizce öğretmeni “İngilizcen yürekler acısı” diyerek ‘senden adam olmaz’ mealinde bir şeyler söyler. Bu tavır lise sıralarındaki Mustafa’nın eğitim hayallerini suya düşürür. Üniversite hayalleri alt üst olan, demoralize edilen İbrahim Mustafa hocasının sözlerini gurur meselesi yapar ve kitaplara yoğun ilgi gösterir. Okuldan sonra ailesinin fabrikasında çalışır, daha sonra internet teknolojileri üzerine eğitim alır ancak taksi şoförü olmaya karar verir. Fakat insanları kurallara bağlılıkları ile bilinen İngiltere’de taksi şoförü olmak için özel eğitim gereklidir. İbrahim Mustafa da uzun bir eğitimden sonra 42 bin 629 numaralı taksi şoförü olarak Londra sokaklarına çıkar. Özellikle taksilere yoğun olarak turistlerin bindiği Euston Station civarında çalıştığı dönemlerde taksisine binen yaşlı bir çiftin başından geçenleri öğrenince müşteri hikayelerini not almaya karar verir. Kendi ifadesiyle kaydettiği her hikaye kendisine yeni ufuklar açar. Direksiyonunun yanındaki fotoğraf makinesiyle de müşterileri, şehir hayatını ‘kabinde oturan adam’ olarak görüntüler. Hatta bu konu obsesyon derecesinde zihninde yer eder. Sırf daha fazla ve daha ilginç hikayeler bulmak için şehrin değişik yerlerinde daha fazla mesai harcar, eve döndüğünde de bunları yazmak için gece boyu çalışır. İbrahim Mustafa başlangıçta hikaye toplamayı kitap yapma amacıyla hedeflemediğini anlatıyor; “Yapım gereği insanlarla sohbet etmeyi seven birisiyim. Yolcularla başlayan diyalogları biriktirmeye başlamıştım. Bir gün arabama Caroline Walsh adlı bir yolcuyu almıştım. Onun hikayesini öğrenmeye çalışırken neden bu konulara ilgi duyduğumu sordu. Ardından da ‘Eğer bu konuyu kitap yapmak istersen beni ara’ diyerek kartvizitini verdi. Yayınevi işleten Walsh’ın kitaba büyük katkısı oldu. 18 yıl taksi şoförlüğü yaptığım bu şehirde tanıştığım, hikayelerini dinlediğim insanların başlarından geçenleri, şahit oldukları olayları bazen kendi bakış açımla yorumlayarak, bazen olduğu gibi anlatarak yansıtmaya çalıştım. Fotoğraf makinemle çektiğim görüntülerle de bütünleştirdim. Kitabı özel yapan da dünyada hiçbir taksicinin bunu yapmamış olması.”
+   <br/>
+   <br/>
+   İbrahim Mustafa’nın kitabı yayınlandıktan sonra büyük ilgi gördü. İlk haftada ikinci baskısı yapılan kitap Amazon.com üzerinden de satışa çıktı ve en çok satanlar listesine yerleşti. Kitabın gerek konu olarak ilginçliği gerekse de milyonlarca insanın merakını cezbeden bir bakış açısına sahip olması nedeniyle İngiliz medyası yazara ve kitaba büyük ilgi gösterdi. The Times, Financal Times gibi önemli gazeteler haftasonu eklerinde yazarı ile söyleşiler yaparken BBC ve bazı özel televizyon kanalları kitaba geniş yer verdiler. Londra’da yaşayan, Londra’ya uğrayan ya da bu şehri anlamaya çalışan herkesin kitaba gösterdiği ilgi yayın dünyasında pek rastlanmayan bir olaya da neden oldu. İngiltere Kraliçesi ile Başbakan Tony Blair, kitabın yazarına bir teşekkür mektubu yazdılar. Londra’daki 23 bin taksi şoförü arasında çok popüler hale gelen İbrahim Mustafa’nın gördüğü ilgi her geçen gün artıyor. Mustafa kitabın gördüğü ilginin verdiği cesaretle ikinci kitabı yazmayı bile planlamış. “Birincisi kadar orijinal olmayabilir. Çünkü artık insanların beni tanımaya başlamaları doğallığını bozacak” diyor.
+   <br/>
+   <br/>
+   Londra’nın yaşayan, gayri resmi tarihi oldu
+   <br/>
+   <br/>
+   Peki kitapta neler var? Orion Yayınları tarafından basılan kitapta yüzlerce farklı hikaye ve şehir yaşamından fotoğraflar var. İngiliz Turizm Bakanlığı ise amatörce hazırlanmış kitaba ‘turizme katma değer’ olarak görerek büyük önem verdi. Bakanlık yetkilileri “Her yıl milyonlarca insanın geldiği bu şehri daha iyi anlatamazdık” diyerek görüşlerini dile getiriyorlar. Peki bu kitapta ne tür hikayeler var: İşte yazarın ağzından onlardan birisi; “Yağmurlu bir kış sabahı erkenden arabama atlayıp Southgate İstasyonu civarında müşteri beklemeye başlamıştım. Yaşlı bir çifti aldım ve Charing X İstasyonu’na doğru yola koyulduk. Yaşlı çift birbirine sokulmuştu ve bayanın yüzü sabah güneşi gibi aydınlıktı. Bir hikayeleri mutlaka vardı ve ben konuşmaya başladım. Hikayelerini sordum, kadın anlatmaya başladı: ‘Savaştan önceydi ve ben her gün Oxford’a giderken treni kullanıyor, nefis manzarası olan kasabalardan geçiyordum. Bu kasabalardan birinde her gün aynı saatte, aynı şekilde kibar bir beyi görüyordum. Her gün aynı kabine biniyor, aynı koltuğa oturuyordu. Etrafındakilerle sadece günaydın ya da iyi günler tarzında bir kaç kelimelik konuşmalar yapıyordu o kadar. Birkaç ay sonra savaş başladı ve ben her gün gördüğüm bu kişiyi bir daha göremedim. Kimse de ne olduğunu bilmiyordu. Daha sonraları da tanıştığım, bir süre çıktığım birisiyle evlendim. Fakat savaşa seçildi ve Uzakdoğu’ya gitti eşim. Bir süre sonra da Burma Esir Kampı’nda öldüğünü duyduk. Tüm yaşamım felç olmuştu, yaşama dair bir beklentim kalmamıştı. Aylar sonra bir arkadaşın ısrarlarıyla bir restorana yemeğe çıktık. Gönülsüzdüm ama ısrarları kıramamıştım. Siparişlerimizi beklerken karşı masadan birisiyle göz göze geldik. Evet hatırlamıştım, bu hiç konuşmadığım ama her gün aynı vagonda yolculuk yaptığımız şahıstı. Benim masama geldi ve konuşmaya başladık. Başından geçenleri anlattı uzun uzun ve o akşam bir arkadaşının ısrarıyla geldiği bu restoranda hayatının nasıl değişebileceğini gördüğünü söyledi. O günden sonra da hiç ayrılmadık. Bugün 3 çocuğumuz 6 torunumuz var. Bu hafta 50. evlilik yıldönümümüzü kutlayacağız ve hâlâ birbirimizi seviyoruz’ dedi. Charing X İstasyonu’na geldiğinde ise kapıyı açıp inerken ‘Hayatı sev’ diyerek kalabalığa karıştılar.”
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=2662&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20030626153756/http://www.aksiyon.com.tr:80/detay.php?id=2662&yorum_id=1)

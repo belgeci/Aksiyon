@@ -1,0 +1,77 @@
+# Küçük dörtler üç büyüklere karşı
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040419170422im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040419170422im_/http://www.aksiyon.com.tr/resim/481/12.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Avrupa Birliği, 1 Mayıs’tan itibaren 10 yeni üyeye daha kapılarını resmen açıyor. Böylece birlik 25 ülkenin üye olduğu devasa bir yapıya dönüşecek. Karar alma mekanizmaları yavaşlayacak ve hantal bir yapı haline gelecek. AB’nin karar alma mekanizmaları şimdilerde yeni formüller arıyor, muhtemel yönetim sorunlarının üstesinden gelebilmek için... Brüksel’de yapılan son zirvede, birliği geleceğe taşıyacak anayasa konusunda üye ülkelerin bir mutabakat sağlayamaması, Brüksel’deki mekanizma içerisindeki çatlağın ne kadar derinlerde olduğunu gösteriyor.
+  <br>
+  </br>
+ </font>
+ <p>
+  <font class="content">
+   Almanya, Fransa ve İngiltere liderlerinin Berlin’de üçlü bir zirve yapması, tepkilere yol açtı. AB’nin geleceğini 3 büyük ülkenin tartışıyor olması, diğer üye ülkelerde ciddi rahatsızlık meydana getirdi. Gerhard Schröder, Jacques Chirac ve Tony Blair’in üçlü toplantıda birliğin işleyişiyle ilgili bazı öneriler saptamaları ve bunları birlikte imzaladıkları bir deklarasyonla kağıda dökmeleri bardağı taşırdı. İtalya Başbakanı Berlusconi, üçlü zirveyi “gayretkeşlik” olarak nitelendirdi ve “Avrupa’nın böyle direktör ülkeler anlayışına ihtiyacı ve tahammülü yok. Bu zirve, sadece büyük kargaşa çıkarır” diye konuştu.
+   <br/>
+   <br/>
+   İtalya’nın başını çektiği Akdeniz havzasındaki diğer ülkeler şimdi karşı bir cephe oluşturuyor. AB’nin üç büyüklerinin buluşmasına kızan sağcı liderlerin iktidarda olduğu ‘dört küçükler’ Atina zirvesi ile misilleme yapmaya hazırlanıyor. İtalya Başbakanı Silvio Berlusconi, İspanya Başbakanı Jose Maria Aznar, Portekiz Başbakanı Jose Manuel Durrao Barroso ve Hollanda Başbakanı Jean Peter Balkanende Avrupa Parlamentosu’nda en çok koltuğa sahip Avrupa Halkçı Partisi’nin çağrısıyla, Yunan ana muhalefet partisi Yeni Demokrasi’nin ev sahipliğinde Atina’da buluşacak. Mini zirveye Mayıs’ta AB üyesi olacak Malta ve Çek Cumhuriyeti de katılacak.
+   <br/>
+   <br/>
+   Berlin’deki zirvede, birliğin yeniden yapılanmasıyla ilgili öneriler tartışıldı ve sadece ekonomi ve sanayi konuları ile ilgilenmek üzere bir süper bakanlık, yani komisyon başkan yardımcılığı makamı oluşturulması gündeme getirildi. Üç lider, bu açılımla yeni ürünler, bilim ve bilimsel araştırmaya yönelik yeni yatırımlar ve bunların önünü açacak gerekli yeni düzenlemeler yapmayı umuyor.
+   <br/>
+   <br/>
+   AB, genişleme dalgasını başarıyla tamamlamış görünüyor. Ancak, birliği yönetecek mekanizmanın nasıl oluşturulacağı konusunda galiba Brüksel, bir süre daha dalgalanmaya devam edecek.
+   <br/>
+   <br/>
+   <br/>
+   Haftada 5 gün sabah saat 9.30'da
+   <br/>
+   <br/>
+   Kıbrıs’ta, baş döndürücü görüşme trafiğinden sonra müzakereler nihâyet başladı. Taraflar, haftada 5 gün bir araya gelecekler ve çözüm için uzlaşmaya çalışacaklar. Görüşmelerin ilk gününde Türk ve Rum liderler, Annan planını esas alarak karşı çıktıkları argümanları masaya koydu. AB de, çözüm planının kabulünden sonra uzlaşmanın Avrupa mahkemelerinde değiştirilemeyeceğine dair yazılı teminat verdi. AB’nin Genişlemeden Sorumlu Komiseri Günther Verheugen de, aynı konuya temas ederek, ortaya çıkacak muhtemel anlaşmanın Avrupa mahkemelerinde değişme riski olmadığını vurguladı.
+   <br/>
+   <br/>
+   KKTC Cumhurbaşkanı Rauf Denktaş, Rumların görüşmelerde takındığı ‘çok rahat’ tavrın değişmesini umduğunu belirtirken, Rum lider Tassos Papadopoulos ise Türk tarafının tekliflerinin Annan Planı’nın çerçevesi dışında olduğunu ve planın özünü ‘sulandırdığını’ savundu. Müzakereleri yürütün BM Genel Sekreteri Kofi Annan’ın Kıbrıs Özel Temsilcisi Alvaro De Soto ise iki liderin tutumlarının da son derece olumlu olduğunu söyledi.
+   <br/>
+   <br/>
+   22 Mart tarihine kadar sürmesi beklenen müzakerelerin nasıl bir netice vereceği şimdilik meçhul. Ancak, Kıbrıs’ta yeni bir sürecin başladığı ve eskiden yaşanan müzakere maratonlarına benzemediği çok açık. Taraflar da bunun farkında olmalı ki her iki kesimin temsilcileri, hem kendi tezlerini kabul ettirebilmek hem de masadan kaçtı damgasını yememek için olağanüstü çaba sarf ediyor.
+   <br/>
+   <br/>
+   Masada yürütülecek müzakereler kadar kamuoyu oluşturmak da her iki kesimin öncelikleri arasında. Özellikle, psikolojik harp teknikleri uygulanarak hem kendi kamuoylarında hem uluslararası toplum nezdinde olumlu bir izlenim bırakmak istiyorlar. Bakalım usta diplomatların oynadıkları bu satranç maçı bir sonuca ulaşabilecek mi?
+   <br/>
+   <br/>
+   <br/>
+   İran’da sancılı seçim
+   <br/>
+   <br/>
+   İran’da cuma günü seçimler yapıldı. Seçim sürecinin başlarında Anayasa Koruyucular Konseyi’nin (AKK) reform yanlısı adayların başvurularını reddetmesi büyük bir siyasi kriz çıkardı. Adaylıkları kabul edilen 607 kişi, sırf AKK’nin tavrını protesto etmek amacıyla seçime katılmama kararı alırken, 125 milletvekili de istifa etti. İran, 1979 yılında gerçekleştirilen devrim sonrası ilk kez bu kadar çetin bir siyasi bunalımla karşı karşıya kaldı.
+   <br/>
+   <br/>
+   Yaklaşık 46 milyon seçmen siyasi krizin gölgesinde sandık başına giderken, bundan en fazla etkilenen kişi kuşkusuz Cumhurbaşkanı Muhammed Hatemi oldu. 1997 yılında halkın üçte ikisinin oyunu alarak iktidara gelen Hatemi, aradan geçen 7 yılda halkın beklentilerine cevap veremedi. İran’da, seçim sistemine göre oylamanın geçerli olması için katılım oranı şart değil. Dolayısıyla muhafazakârların Meclisi ele geçireceğine kesin gözüyle bakılıyor.
+   <br/>
+   <br/>
+   <br/>
+   D–8 ülkelerinin
+   <br/>
+   niyeti güçlenmek
+   <br/>
+   <br/>
+   Necmettin Erbakan’ın başbakanlığı döneminde gündeme gelen D—8 projesi, sessiz sedasız yoluna devam ediyor. Büyük Ortadoğu Projesi’nin tartışıldığı bir dönemde D—8 grubuna üye ülkelerin liderleri Tahran’da bir araya geldi. Zengin ülkeleri bir araya getiren G—8 grubuna alternatif olarak hayata geçirilen D—8 projesinin, Müslüman ülkelerin sahip olduğu jeoekonomik kaynakları en verimli şekilde kullanmak, aralarındaki ekonomik işbirliğini geliştirmek ve geri kalmış Müslüman ülkelerin kalkınmalarına yardımcı olmak gibi hedefleri bulunuyor.
+   <br/>
+   <br/>
+   Aralarında zengin petrol yataklarına sahip ülkelerin bulunduğu D—8 birliğinde, üyeler arasında büyük ekonomik farklılıklar olması, ortak karar alma mekanizmalarının hayata geçirilmesini zorlaştırıyor. Üyeler arasındaki ticari dengesizlikler ve bu ülkelerin kendi aralarındaki ticaret hacimlerinin düşüklüğü, Batılı gelişmiş devletlerle yüksek oranda bir ticari ilişki içinde bulunmaları büyük bir handikap olarak söz konusu projenin karşısına çıkıyor.
+   <br/>
+   <br/>
+   D—8 ülkelerinin yıllık ihracat hacmi 250 milyar dolar civarında. Buna karşılık yapılan ithalat miktarı ise 230 milyar dolar. İthalatın çoğu ise Avrupa ülkeleri ya da ABD ile yapılıyor. Müslüman ülkelerin ekonomilerinin gelişmesi ve dünya konjonktüründe iyi bir yer edinebilmeleri için D—8 ülkelerinin kendi aralarında da ticarete öncelik vermeleri gerekiyor. Sadece kendi aralarındaki iyi işbirliği, az gelişmiş Müslüman ülkelerin durumunu düzeltmeye ve dünya piyasasında söz sahibi etmeye yardımcı olabilir.
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11177&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040419170422/http://www.aksiyon.com.tr:80/detay.php?id=11177&yorum_id=1)

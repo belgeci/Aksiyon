@@ -1,0 +1,100 @@
+# Kudüs'te unutulan Osmanlılar
+
+*İbrahim Doğan Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050408214156im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050408214156im_/http://www.aksiyon.com.tr/resim/511/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  KUDÜS - Osmanlı’nın son döneminde, bugünkü İsrail’de askerdiler. Ancak bölgenin kaybedilmesi onların askerliklerini sona erdirdi. Kimi çalıştığı yerde kaldı, kimi Anadolu’ya döndü. İsrail’de kimliklerini yitirmemek için direnen son Osmanlılar, Anadolu’ya geri dönmek istiyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Kudüs’ün daracık sokaklarında binlerce yıllık tarih gizlidir... Her köşe başını döndüğünüzde sizi hayrete düşüren bir manzara ile karşılaşırsınız. Asırların yorgunluğunu taşıyan binalar, mabetler alır götürür sizi hiç tanımadığınız bir dünyaya. Sadece onlar mı? Ara sokaklarda, caddelerde karşınıza çıkan farklı din ve ırktan birçok insan da şaşırtır sizi. Geleneksel kıyafetleri içinde, kendi lisanlarını konuşan bu insanlar arasında kimler yoktur ki; Yahudiler, Ermeniler, Süryaniler, Katolikler, İtalyanlar, Araplar, Türkler...
+   <br>
+    <br>
+     Bunlar arasında sizi en fazla şaşkına çevirecek olanı, Kudüs’te yaşayan son Osmanlılardır herhalde... Mescid-i Aksa’nın muhteşem kubbesinin görülebildiği ‘Eski Şehir’deki üç katlı bir evde yaşayan Yüzbaşı ailesi bunlardan biri mesela. Beyaz başörtüsü, işlemeli elbisesi ile bizi kapıda karşılayan Melek Yüzbaşı, bir Arap aslında. Türk olmamasına rağmen Osmanlı ile gönül bağı var; çünkü, dedesi Diyarbakır doğumlu bir Osmanlı komutanı. Yemen, Diyarbakır, Kerkük, Süleymaniye gibi önemli Osmanlı şehirlerinde görev yapmış. Son durakları ise Kudüs olmuş. Melek Yüzbaşı’nın eşi ise bir Türk. İsmi Faruk Yüzbaşı. Onun dedesi de bir Osmanlı askeri: Ahmet Ağa Yüzbaşı.
+     <br>
+      <br>
+       Osmanlının çekilmesiyle başlayan dramatik hayatlar
+       <br>
+        <br>
+         Bu insanların hikayesi, Osmanlı devletinin tarih sahnesinden çekilmesiyle başlıyor. Birinci Dünya Savaşı’nda İtilaf Devletleri’nin hedeflerinden birisi de Filistin bölgesidir. İngiliz kuvvetlerine karşı Osmanlı, Filistin’i askerî üs olarak seçer. İngilizleri püskürtmek üzere girişilen Kanal Harekatı’nın başarısızlıkla sonuçlanması üzerine bölge 1918 yılında kaybedilir. Devlet-i Aliye, uzun yıllar elinde tuttuğu toprakları terk etmek zorunda kalır.
+         <br>
+          <br/>
+          22 Ekim 1516’da Yavuz Sultan Selim’in Mısır seferi sırasında Kudüs’e giren Türkler, yaklaşık 400 yıl adaletle hükmettikleri bir coğrafyayı güç de olsa geride bırakmak zorunda kalır. Filistin cephesine gönderilen binlerce askerin bir kısmı cephede şehit olur. Geride kalanlardan kimi Anadolu’ya döner, kimi de uğruna savaştıkları kutsal topraklarda kalmayı tercih eder. Bugün Onbaşı, Yüzbaşı, Kolağası, Batmani, İzmirli, Alayemini gibi soyadlara sahip onlarca Türk’ün Kudüs’te yaşıyor olmasının sırrı da burada yatıyor zaten...
+          <br/>
+          <br/>
+          Ahmet Ağa’nın Kudüs aşkı
+          <br/>
+          <br/>
+          Osmanlı’nın Kudüs’le bağları koparmasından sonra Ahmet Ağa için zor günler başlar. Dönüp dönmeme konusunda büyük bir tereddüt yaşar ilk başlarda... Kararını vereceği günlerin arifesinde Ömer Camii’ne gider. İçine doğan Kudüs aşkı ile oracıkta kararını verir: Bu şehirde kalıyorum.
+          <br/>
+          <br/>
+          Hz. Peygamber Efendimizin Mirac’a çıktığı bir kentte yaşamayı tercih eder Ahmet Ağa, Kudüs’e yerleşir. Bir süre sonra Bağdatlı Abdülkadir Geylani’nin soyundan gelen bir hanımefendi ile evlenir. İki erkek (Ahmet Haşim ve Muhammed Halil), üç de kız çocuğu olur.
+          <br/>
+          <br/>
+          Ahmet Ağa’nın çocukları, çok kültürlü bir ortamda büyür. Birçok lisanın konuşulduğu topraklardır artık yaşadıkları yer... Unutmamak için Türkçe’yi aile ortamında konuşmayı tercih ederler uzunca bir süre... Türklüklerini kaybetmemek için başka yöntemlere de başvururlar. Ahmet Ağa’nın oğlu Muhammed Halil, bir Türk kızıyla evlendirilir mesela. Ancak, içinde bulundukları kültürel ortam, onların geçmişle bağlarının zayıflamasına da yine de engel olamaz.
+          <br/>
+          <br/>
+          Bu evlilikten 5 erkek, 3 kız çocuğu dünyaya gelir. Çocuklara Mahmut, İbtihac, İftihar, İntisar, Adnan, Faruk, Nebil, İbrahim isimleri verilir. 2 erkek ile 3 kız Türkçe’yi çok iyi olmasa da konuşmayı becerir. Ancak Faruk, Nebil ve İbrahim ise neredeyse hiç öğrenemez.
+          <br/>
+          <br/>
+          Kudüs’te bir İstanbul beyefendisi
+          <br/>
+          <br/>
+          Faruk, evlilik çağı geldiğinde hayatını Kudüslü Nammari Ailesi’nden Melek ile birleştirir. Bu evlilikten İhed ve Rami adında 2 erkek, Rölin, Şirin ve İman adında 3 kızları dünyaya gelir. Melek Yüzbaşı eşi için “O Türk gibi çok inatçı. Bir şeyi yapmayacağım diyorsa kesinlikle yapmaz. Türk aklına sahip. Eğer sen bir şeyi istemiyorsan o istiyor; bu kez istiyorsun ama o istemiyor” diyor.
+          <br/>
+          <br/>
+          “Damarlarımda Türk kanı dolaşıyor”
+          <br/>
+          <br/>
+          Kudüs’te doğan Faruk Yüzbaşı, ne Araplara, ne Yahudilere ne de Hıristiyanlara benziyor. Duruşu, hareketleri ile tam bir İstanbul beyefendisi... Saçlarına düşen aklar, kavruk yüzü, beyaz teni ile tipik Anadolu insanından bir farkı yok aslında. Uzun yıllar Kudüs belediyesinde çalışan 67 yaşındaki Faruk Yüzbaşı, şimdi emeklilik günlerini yaşıyor. Kudüs’te birçok Türk ailenin yaşadığını söyleyen Melek Yüzbaşı, “Onlar, Türk olduklarını biliyorlar. İsimleri bile Türkçe. Ama, hepsi ana lisanlarını unutmuş” diyor.
+          <br/>
+          <br/>
+          Faruk Yüzbaşı, Kudüs’teki herkes gibi Arapça, İbranice ve İngilizce biliyor. Türkçe’den ise sadece bir iki kelime kalmış belleğinde. Türkiye dendiğinde dalıp gidiyor önce. Sonra ağzından, kendini Türk gibi hissettiği sözleri dökülüyor kesik kesik... “Benim damarlarımda Türk kanı dolaşıyor” diyor ve ekliyor: “Bu duygu, derinden geliyor. Burada pek arkadaşım da yok. Şu an bile Türkiye’de yaşamayı isterim. 100 yıl öncesine dönme imkanı olsaydı, Türk topraklarında kalmayı isterdim.”
+          <br/>
+          <br/>
+          Kudüs’te Osmanlı askeri olarak görev yapanların birçoğu Anadolu’nun bir köyünde ya da şehrinde doğmuş. Kimi İzmir’den gelmiş, kimi Pınarbaşı’ndan ya da Konya’dan... Cephede savaşan bu askerlerin gazi olanlarından bazıları vatanlarına dönerken bazıları da kutsal topraklarda kalmayı tercih etmiş. İstanbul Ticaret Üniversitesi Öğretim Üyesi Prof. Dr. Mim Kemal Öke, Osmanlı askerinin bölgede kalmasını sadece bu toprakların kutsallığına bağlamıyor. Osmanlı sonrası Anadolu’da yaşanan değişime dikkat çeken Öke, “Yeni Cumhuriyetin kurulduğu dönemdeki sıkıntılar yüzünden, gidenler dönemedi. Osmanlı’dan kalanların dönüşü için bir girişim de olmadı. Talep etselerdi dahi geri dönmeleri mümkün olmazdı” yorumunu yapıyor.
+          <br/>
+          <br/>
+          Kutsal topraklarda kalan Osmanlı askerlerinden bir diğeri Hayreddin İzmirli. Soyadından da anlaşılacağı üzere kendisi İzmirli. O da Ahmet Ağa gibi geri dönmemiş. Hatıralarını ve ismini bugün torunu Şükrü Bey yaşatıyor Kudüs sokaklarında. Yeşil gözleri, arkaya doğru taranmış bembeyaz saçları, kareli ceketi ve gömleği ile tipik bir Egeli sanki... Dış görünüşü ile hemen fark ediliyor. Bildiği birkaç kelime dışında o da Türkçe’yi öğrenememiş. İçinde bulundukları kültürel ortama ayak uydurdukları anlaşılıyor. Şehirdeki Osmanlı eserleri ile iftihar ederek, geçmişle irtibatı sağlayan son halkayı koparmak istemiyor.
+          <br/>
+          <br/>
+          Türk Kültür Merkezi kimlik dağıtıyor
+          <br/>
+          <br/>
+          Faruk Yüzbaşı, “Ben Arap değilim. Türk’üm diyorum. Ama, çocuklar aynı şeyi söylemiyor. Belki onlar da hissediyordur benim gibi ama dillendirmiyorlardır” diye duygularını açığa çıkarıyor. “Çocuklarımızın Türk okullarına gitmesini ve Türkçe öğrenmesini isteriz” diyen Yüzbaşı ailesi, küçük kızları İmam’ı Kudüs’teki Türk Kültür Merkezi’ne göndermiş. Birkaç aylık eğitim İmam’ın Türkçe’yi az da olsa öğrenmesini sağlamış. Melek Yüzbaşı, kızının eğitim için Türkiye’ye gitmesini istiyor.
+          <br/>
+          <br/>
+          Filistin’deki Türk nesli kayboluyor
+          <br/>
+          <br/>
+          Osmanlı ile tarihi bağları bulunan Filistinliler için 1999’da Türk Kültür Merkezi kurulmuş. Türk kültürünü Araplara tanıtmayı ve sevdirmeyi amaçlayan Kültür Merkezi, Türkçe kursları düzenliyor. Kudüs Üniversitesi’nde seçmeli yabancı dil olarak düzenlenen kursun eğitmenliğini Zübeyir Yazıcı yapıyor. Şimdiye kadar Türkçe kursuna 110 Filistinli katılmış. Bunların arasında Türk olanlar da varmış. 50 yıllık geçmişe sahip Fransız ve İspanyol Kültür Merkezleri’nin kurslarına katılımın 30’u geçmediği düşünüldüğünde Türk Kültür Merkezi’ne ilgi oldukça iyi.
+          <br/>
+          <br/>
+          Fotoğraf ve resim sergileri açan, Türk Film Günleri düzenleyen Türk Kültür Merkezi’nin Başkanı Gürol Baş, hem Kudüs’teki kültürel hayatı canlandırdıklarını, hem de Türkiye’nin varlığını belirginleştirdiklerini söylüyor. Kudüs’te yaşayan Türk neslinin kaybolmasını engellemeye çalıştıklarını da belirten Gürol Baş, “Filistin’deki Türk nesli kayboluyor. Birinci ve ikinci nesil Türkçe konuşuyordu. Üçüncü ve dördüncü nesil ise konuşmuyor; ama sempati ile bakıyor. Biz bu nesillerin kaybolmamasını istiyoruz” diyor. Gürol Baş, Kültür Merkezi’ne gelenlerin Türkiye’yi merak ettiklerini ve eğitimlerini Türkiye’de sürdürmek istediklerini de sözlerine ekliyor.
+          <br/>
+          <br/>
+          Bir gün yolunuz Kudüs’e düşerse, kentin sokaklarını dolaşırken sadece tarihi binalara, mabetlere, vitrinlere bakmakla yetinmeyin. Beyazlara bürünmüş, kıvırcık saçlı, koyu esmer tenli Arapların, başlarında kipaları ile siyah elbiseler içindeki Yahudilerin arasında gözünüze kavruk yüzlü birileri takılabilir. Kim bilir, belki de karşınıza Faruk Yüzbaşı, Şükrü İzmirli gibi bir Osmanlı torunu çıkıverir.
+          <br/>
+         </br>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=15817), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050408214156/http://aksiyon.com.tr:80/detay.php?id=15817)

@@ -1,0 +1,97 @@
+# Orada kimse var
+
+*Tuba Özden Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050124192318im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050124192318im_/http://www.aksiyon.com.tr/resim/518/20.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Her hafta çarşamba akşamı Anadolu’nun yoksul insanlarını ekranlara taşıyan “Kimse yok mu?” programı, fakir ailelerin maddî problemlerine, onları kardeş ailelere teslim ederek çözüm buluyor.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Türk televizyonlarında her dönem ‘yardım’ programları oldu. Bazısı işi reality show üslubuyla tamamen ajite etti, bir kısmı da sınırları zorlayıp programları amacından saptırdı. Bazı programlar hakkında ise bir süre sonra soru işaretleri oluşmaya başladı. İşte bu hengâmede Samanyolu Televizyonu’nda başlayan “Kimse yok mu?” programı farklı tarzı ve getirdiği “kalıcı” çözüm yöntemleriyle dikkat çekiyor. Her çarşamba akşamı Samanyolu’nda yayınlanan program, “Komşusu açken tok yatan bizden değildir” hadisini kılavuz edinerek rotasını farklı şehirlerdeki ihtiyaç sahiplerine yöneltiyor. Program, ailelerin yaralarına merhem olmakla kalmayıp evsizlere ev, işsizlere iş bularak mağdurlara yeni bir hayat sunuyor. Bununla da yetinmeyip mağdur aileyi ömür boyu ihtiyaçları ile ilgilenmek üzere gönüllü bir kardeş aileye emanet ediyor.
+   <br>
+    <br>
+     “Kimse yok mu?” programı, adını 1999’da yaşanan depremdeki mağdurların çağrısından almış. Çıkış döneminde Perihan Savaş’la deprem mağdurlarının sorunlarına ekranlar aracılığı ile çözümler bulunmuş, yardımsever ailelerle mağdurlar tanıştırılmıştı. Fakat gerek ilk programın başarısı gerekse de sorunlara bulduğu kalıcı çözümlerden cesaret alan televizyon yönetimi bir buçuk yıldır yola İkbal Gürpınar’la farklı bir formatta devam ediyor. Programın getirdiği yenilik ise yardıma muhtaç kişilere bir defaya mahsus olmak üzere destekte bulunmak değil, onları, durumu iyi bir aileye emanet etmekti.
+     <br>
+      <br>
+       Gözümüz arkada kalmıyor
+       <br/>
+       <br/>
+       Yönetmen Yardımcısı Zeliha Ataman, fikrin ortaya çıkışını şöyle anlatıyor: “Programı yaparken, sorunlar ve çözümler bir arada olsun ve izleyici bunu görsün istedik. Biz bölgeden ayrıldıktan sonra gözümüz arkada kalmasın dedik ve kardeş aile fikri çıktı.” Şimdiye kadar 100 mağdur aileyi kardeş aileye teslim eden ekip düzenli olarak da bu kardeş ailelerle irtibat kuruyor.
+       <br/>
+       <br/>
+       Yardıma ihtiyacı olanlar programa mektupla ulaşıyor. Çoğu zaman bu talep komşulardan ya da tanıdıklardan geliyor. Başvuruları kontrol etmek üzere ekipten, Tuncer Erzurum ve Murat Çopur bölgeye gidiyor ve araştırmalar yapıyor. Eğer gelen mektupta dile getirilenlerle araştırma sonuçları çelişiyorsa başka çözüm yolları aranıyor. Söz konusu kişi yerel yöneticilerle tanıştırılıyor. Sosyal Hizmetler’den yeni isimler alınarak çalışmalar başlatılıyor.
+       <br/>
+       <br/>
+       “Kimse yok mu?” ekibi, hem ihtiyaç sahiplerinin hem de yardımseverlerin tespit edilmesinde bölge halkından yardım alıyor. En büyük yardımcıları ise Zaman gazetesi il temsilcilikleri. Gazete temsilcileri ne, nereden alınır çok iyi bildikleri için aslında İkbal Gürpınar ve ekibine çok iş düşmüyor. Ekip, yardımların ihtiyaç sahiplerine ulaşması için tam hız çalışıyor. Yapılan yardımların listesi kabarık. Ailelerin yiyecek içecek her türlü ihtiyacını karşılayan ekip, evsiz ailelere dayalı döşeli ev sağlarken, işsizlere iş buluyor, hastaların tedavisi için hastane ayarlıyor.
+       <br/>
+       <br/>
+       Kendimi o insanların yerine koyuyorum
+       <br/>
+       <br/>
+       Programın sunucusu ise İkbal Gürpınar. Her zaman “Gezelim Görelim” tarzında bir program yapmanın hayallerini kuran Gürpınar, dualarının biraz farklı da olsa kabul edildiğini düşünüyor. İkbal Hanım, bir buçuk sene önce kendisine programın sunuculuğu teklif edildiğinde önce tereddüt etmiş. Duygusal bir insan olduğu için göreceklerinden çok etkilenmekten korkmuş. Korkuları ise kısmen gerçekleşmiş. Programa başladığı dönemden bu yana sağlık sorunlarıyla beraber saçlarındaki aklar da artmış, geceleri uyuyamaz olmuş.
+       <br/>
+       <br/>
+       Fakat bu olumsuzluklardan çok, hayata bakışındaki olumlu değişiklikleri önemsiyor. “Kendimi o insanların yerine koyuyorum ve artık kendimle ilgili hiçbir şeyi dert etmiyorum.” diyor. İmkânsız zannettiği şeylerin gerçekleşmesini, sağlıksız bir sürü ortama girdikleri ve ayda yaklaşık 35 bin km yol aldıkları halde hiç kaza yapmamalarını ise arkalarından yapılan dualara bağlıyor.
+       <br/>
+       <br/>
+       Sağlık sorunlarına rağmen bütün direnci ve pozitif enerjisi ile ayakta durmaya çalışan sunucu İkbal Gürpınar, programı on kişilik ekibiyle yapıyor. Gençliğinin verdiği enerjiyi sarf eden yönetmen yardımcısı Zeliha Ataman, elinden düşmeyen kamerasıyla yaşananları hissedilir biçimde aktarmaya çalışan kameraman Nevzat Özer ve asistanı Mustafa Gözüm, ekibi yol gözleyenlere tam hız yetiştirmeye çalışan Erman Çolak programa emeği geçen diğer isimler. Programın yönetmeni Fedai İpek, Yapımcısı Ömer Önder, Yapım Yönetim Yardımcısı ise Fatma Çiçel.
+       <br/>
+       <br/>
+       Zeliha Ataman, ekipte herkesin belirli bir görevi olduğunu, fakat gerektiğinde herkesin her işi yaptığını anlatıyor: “Biz sadece yardım değil program da yapıyoruz, onun için yükümüz ağır. Önemli olan yaptığımız işin en iyi biçimde ortaya çıkmasıdır.”
+       <br/>
+       <br/>
+       Mağdur ailelere yeni ev
+       <br/>
+       <br/>
+       Ekip geçtiğimiz hafta Niğde’deydi. Biri şehir merkezinde, diğeri Bor ilçesinde yaşayan iki yardıma muhtaç ailenin sıkıntılarını giderdi. Kardeş aile olmak isteyen Musa ve Arzu Torun çifti de ekiple beraberdi. Mağdur ailenin annesi Selma Akçar, dört çocuğu ile beraber yaşayan 34 yaşında bir dul. Çocuklarının en küçüğü on aylık, en büyüğü sekiz yaşında. Eski eşi, daha sonra tekrar evlenen Selma Akçar’i uzun süre tehdit etmiş ve sonunda Selman Hanım’ın ikinci eşini öldürmüş. Şehrin dışında, suyu olmayan bir evde yaşayan Selma Hanım, ilk zamanlar “Dayanamam ölürüm” diye düşünmüş; fakat çocuklarının varlığı onu hayata bağlamış. Hiçbir geliri olmadığı için komşuların yardımı ile ayakta duruyor.
+       <br/>
+       <br/>
+       Ekip, Selma Akçar’in en ciddi ihtiyacı olan barınma sorununu ev kiralayarak gidermiş. Evin bir senelik kirası ise ödenmiş. Niğde Belediye Başkanı Mümin İnan, bir sene sonra belediyenin konutlarından bir ev ve sigortalı olarak temizlik işi için söz vermiş. Kalınacak evi ayarlayan ekip, gerekli olan mobilya ve benzeri eşyaları temin etmek için minibüsle, kardeş aile ise arabasıyla şehrin dört bir yanındaki alışveriş merkezlerinde ihtiyaçları karşılamak üzere harekete geçti. Bir evin ihtiyacı olan her şey, hayırsever esnaftan karşılandı. Kardeş aile aracılığı ile yapılan bu alışverişlerde özellikle bir konuda hassas davranılıyor: Yardım eden esnafla ihtiyaç sahibi aile asla bir araya getirilmiyor.
+       <br/>
+       <br/>
+       Niğde’nin çeşitli mağazalarında Semra Hanım’ın yeni evi için yapılan alış- verişler tamamlandıktan sonra  ekip, kardeş aile ile birlikte yeni evi düzenlemek üzere yola çıktı. Yorgunlukları dinmeden, evi yerleştirmeye başlayan ekibin hızına bakarak, bu konuda ne kadar profesyonelleştiklerini görmek mümkün. Yeni evde koltuklar yerleştirildi, perdeler takıldı, elbiseler, ayakkabılar, çamaşır makinesi, fırın, yiyecekler hatta çocuklar için oyuncaklar yerlerini aldı. Evin içindeki düzenlemeler tamamlandıktan sonra İkbal Gürpınar ve kardeş aile mağdur ailenin yanına giderek yeni evlerine onları getirdi. Karşısına çıkan dayalı döşeli evi görünce gözleri dolan Semra Hanım’ın şaşkınlıkla mutluluk arası duyguları yüzünden okunurken çocuklar oyuncakların renklerine çoktan dalmışlardı bile. Ekip buradaki ilk aileyi sıcak evine yerleştirdikten sonra, vakit kaybetmeden ikinci aileye yardım için yola çıktı.
+       <br/>
+       <br/>
+       Trajik bir öykü
+       <br/>
+       <br/>
+       Sıradaki aile daha trajik bir öyküye sahip. Çekimler için Kiraz Hanım’ın evine girildiğinde durum hakkında bilgi sahibi olmak bile tablo karşısında irkilmeye engel olmuyor. Bor ilçesinin Keçikalesi kasabasında yaşayan Kiraz Emire’nin 8 çocuğu var. Üçü zihinsel özürlü. Çocuklardan biri zincire bağlı yaşıyor. Eşi 5 sene önce çocuklar özürlü olduğu için evi terk etmiş. En büyük oğlu da babası gibi bir süre sonra evden ayrılmış. Evin diğer abisi ise askerde.
+       <br/>
+       <br/>
+       Altı çocuğu ile bir başına kalan Kiraz Hanım’ın, geçen yıl evinin yanması sıkıntılarını bir kat daha artırmış. Kiraz Emire, bir senedir tek odalı bir mekanda 6 çocuğu ile birlikte yaşıyor. En büyük yardımcısı 14 yaşındaki kızı Yurdagül. Sorulan soruları cevapsız bırakması, yerden kaldırmadığı bakışları ve yüzüne sinmiş  ifadesiyle derdini anlatıyor. Bu derece sıkıntı içinde yaşayan aile ile karşılaşılınca her kaybedilen dakika israf sayılarak, ihtiyaçlar karşılanmak üzere hemen Bor’a dönüldü. Daha önce kaymakamdan alınan söz üzerine hazırlanan bir oda ve mutfaktan ibaret olan evi doldurmak için 16 yardımseverin kapısı çalındı. Kimi dershane öğrencisi, kimi dükkan sahibi olan hayırseverler dolaşılırken, Bor halkı da ilgi ve merakı ile STV’nin aracını yalnız bırakmadı. Her durakta aracın yanına yaklaşan Bor halkı, kimi zaman yardıma ihtiyacı olan bir tanıdığının adını veriyor, kimi zaman İkbal Hanım’la tanışmak istiyor. Her halûkarda minibüsün civarında birileri bulunuyor. İlerleyen zamanla beraber kararan havaya ve yoğun ilgiye rağmen kapı kapı dolaşan ekip, son yardımseverin kapısını da çaldıktan sonra derin bir nefes almadan, kardeş aile ile birlikte yeni evi kurmak üzere Keçikalesi’nin yolunu tuttu.
+       <br/>
+       <br/>
+       Bor’un uzun yollarının ardında Kiraz Hanım’ın evine geldikten sonra evi düzenleyen ekip, aynı tempoyu yeniledi. Düzenlenmiş eve giren Kiraz Hanım, karşısına çıkan buzdolabını, çamaşır makinesini, çekyatları görünce şaşkınlığını gizleyemedi. Röportajlar, çekimler yapıldı. Kimden ne yardım geldiği açıklandı, kardeş aileye mağdur aile teslim edildikten sonra ekip gönlü rahat bir şekilde aracına binerek farklı ihtiyaçlara doğru yol aldı.
+       <br/>
+       <br/>
+       Şakalaşarak sıkıntılarını dağıtıyorlar
+       <br/>
+       <br/>
+       İkbal Hanım ve ekibin, minibüse bindikten sonra mağdur ailenin evinden uzaklaştıkça, aldıkları mesafeler nispetinde hüzünleri de dağılıyor. Şakalar yapılıyor, hatıralar tazeleniyor. Gürpınar, araca bindikten sonra özellikle şakalar yapıp iyi vakit geçirmeye çalıştıklarını yoksa gördükleri manzaraların tesirinden daha zor çıktıklarını söylüyor. Gittikleri illerde karşılarına çıkan hazin olaylar karşısında her defasında şaşkınlıklarının tazelendiğini söyleyen Gürpınar; “Başlarda dayanamayıp ağlıyordum fakat artık ağlayamıyorum. Bu savunma mekanizması bence. Bünyem, yok farz ediyor” diyor. Gürpınar, bu kadar derin acılar ve inanması güç olaylarla karşılaşmalarına rağmen gördüklerine alışmalarının mümkün olmadığını da sözlerine ekliyor.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Ayse Seref, 09-Kasım-2004
+> Muhacir-Ensar kardeşliği: 
+> Ben yurtdışından bir okuyucunuzum. Her sabah önce internetten gazete okurum, sonra da Aksiyon dergisini karıştırırım. İlgimi çeken şeyleri arkadaşlarımla mutlaka paylaşırım. Biz de okul olarak ramazan ayına mahsus yardım kampanyası başlattık. Öğrencilerimiz de, biz de çok yorulduk; ama işin hazzı bütün yorgunluğumuzu aldı götürdü. Muhacir-Ensar kardeşliğini örnek alan "Kimse yok mu?" ekibine teşekkürler.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=17908&yorum_id=2241), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050124192318/http://www.aksiyon.com.tr:80/detay.php?id=17908&yorum_id=2241)

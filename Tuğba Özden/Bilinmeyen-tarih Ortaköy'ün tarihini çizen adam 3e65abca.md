@@ -1,0 +1,50 @@
+# Ortaköy’ün tarihini çizen adam
+
+*Tuğba Özden Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20040930043619im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20040930043619im_/http://www.aksiyon.com.tr/resim/500/94.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Fethi Develioğlu, nam-ı diğer Ortaköy ressamı, evinde ,işinde, tablolarında, sohbetlerinde her daim İstanbul’u arayan bir isim. Senelerdir çizdiği resimlerle hem yaşıyor hem yaşatıyor bu şehri.
+ </font>
+ <p>
+  <font class="content">
+   İstanbul gizemli bir şehir. Evliya Çelebi’nin Seyahatname’sinde aktardığı gibi yirmi yedi tepesinde yirmi yedi tılsım var mıdır bilinmez ama atmosferinde, mimarisinde, denizinde insanı büyüleyen bir hali vardır şehrin. Öyle bir büyü ki, havasını soluyan bir daha kopmak istemez bu şehirden. İstanbul’dan kopamayan ve şehrin büyüsüne kapılan bir isim, nam—ı diğer Ortaköy ressamı, Fethi Develioğlu. Evinde, işinde, tablolarında, sohbetlerinde her daim İstanbul’u anan Develioğlu, senelerdir Ortaköy’deki mekanında çizdiği resimlerle hem yaşıyor hem de yaşatıyor bu şehri. Develioğlu’nun tablolarında, İstanbul’un her rengi ile karşılaşmak mümkün. Sarısı, kırmızısı, siyahı, beyazı hepsi bir arada uyumla var olmayı bilen bu renkler, onun ruhunun sıcaklığı ile sentezleniyor. Develioğlu, “Bu renkler benim içimdeki renkler” diyor. Renklerin arasına sıkıştırdığı İstanbul sakinlerini ise daha çok arkadaşlarından seçiyor. Ortaköy’de balığa bile  kravat takarak çıkmasıyla ünlü Kravat Seyfi, Arnavut Ali, İskele Aziz resimlerde başroldeler çoğu zaman. Alfred Hitchcock’un kendi yönettiği filmlerde kendisinin oynamasından esinlenen Develioğlu, çizdiği tablolarda kalabalığın arasında kendisine de yer veriyor.
+   <br/>
+   <br/>
+   Geçimini sattığı tablolardan kazanan Develioğlu, yurt dışında ve içinde katıldığı karikatür yarışmalarından birçok ödül kazanmış. İlk karikatürü Akbaba Dergisi’nde yayınlanan Develioğlu’nun, 1978 yılında bir yapıtı Toletino’da bulunan Dünya Karikatür Müzesi’nde sergilenmiş. Yurt dışında 135’in üzerinde, Türkiye’de ise 57 karma sergide eserleri yer almış. Karikatürlerini 4 ayrı karikatür kitabında yayımlamış. Ortaköy’ü ve İstanbul’u çizgilerine aktararak senelerce yurt dışında temsil etmiş ve etmeye devam ediyor.
+   <br/>
+   <br/>
+   Her ne kadar bir İstanbul âşığı olsa da Develioğlu için Ortaköy’ün ayrı bir önemi var, doğup büyüdüğü Haliç—Fener kıyılarına benzetiyor semti. Develioğlu, Ortaköy’ü en önemli kılan unsurlardan birinin, üç dini bir arada barındırabilmesi olduğunu ifade ediyor. Ezan ve çan seslerinin birbirine karıştığı Ortaköy ile ilgili, büyüklerinden, Türklerin Ermenilerle, Rumlarla bir araya gelip sahilde pompalı ocaklarını çıkarıp, yiyecekleriyle birlikte dertlerini, tasaları ve mutluluklarını paylaştıklarını ve bir aile gibi yaşadıklarını çok dinlemiş. Fakat yakın geçmişte Ortaköy’e olan yoğun talep karşısında Ermeni ve Rumların birçoğu, mülklerine verilen yüksek fiyatlara boyun eğerek, semtten ayrılmış. Bu, Ortaköy’e has kültür mozayiğinin de zamanla erimesine neden olmuş. Sayıları azalsa da semtte hâlâ yaşayan Ermeni, Rum ve Yahudiler var. Paylaşım devam ediyor ve farklı dinlerin kendilerine ait (aşure günü gibi) özel günlerde yapılan ikramlarla daha görünür kılınıyor.
+   <br/>
+   <br/>
+   Develioğlu, Ortaköy’de yaşamanın bir ayrıcalık olduğunu söylüyor. Semtin tarihini bilenler için bunu daha yoğun hissetmek mümkün. Kendini Ortaköy’e adayan ve bu semtin tarihini insanlara anlatmayı misyon edinen Develioğlu, bu amaçla bir çizgi roman hazırlamış. Ortaköy’ün antik çağdan itibaren tarihini çizgiler ve metinlerle anlatan bu kitabı yayımlatamayınca rafa kaldırmak zorunda kalmış. Fakat insanlara Ortaköy’ün tarihini anlatmaktan yine de vazgeçmemiş. Hikaye özetle şöyle:
+   <br/>
+   <br/>
+   Antik çağda adı Arkheion olan Ortaköy’de, M.S. 4. ve 5. yy.da çoğunlukla Hıristiyanlar yaşamış. O dönemde bölgede daha çok kilise ve havraların olduğu biliniyor. Bizans döneminde, Boğaziçi’nin iki yakasında seyrek balıkçı köyleri kurulmuş, bunun yanında kıyılara köşkler ve manastırlar yapılmış. Türklerin Ortaköy’e yerleşmesi ise Kanuni Sultan Süleyman döneminde (1520—1566) gerçekleşmiş. 16. yy.da Ortaköy Deresi vadisinin iki yamacına yerleşen Türkler, 17. yy. ortasında dere içinde İslam mahallesinde, kıyıda ise yalılarda yaşamış. Fakat bu yalılar ve Beşiktaş Mevlevihanesi, Abdülaziz tarafından 1871’de yaptırılan Çırağan Sarayı’nın inşaatı için geniş bir alana ihtiyaç duyulunca ortadan kaldırılmış.
+   <br/>
+   <br/>
+   Ortaköy’ün sembolü haline gelen Ortaköy Camii ise Mehmet Ağa tarafından 18. yy. başlarında inşa ettirilmiş. Abdülmecid zamanında cami tamamen yıktırılarak, Ermeni olan Mimar Nigoğos Balyan’a yeniden yaptırılmış.
+   <br/>
+   <br/>
+   Günümüzde Ortaköy Meydanı; çevresindeki dar organik sokak dokusu, yapılarda bahçe olmaması, cumba ve cephe uyumları ile kendine has bir görünüşe sahip. Meydan ve çevresi, sanat atölyeleri, kahveleri, bar ve lokantalar, hafta sonları açılan elişi, antika ve sanat pazarıyla, gece gündüz hareketli bir mekan.
+   <br/>
+   <br/>
+   Fethi Develioğlu, el sanatları pazarının da kurucularından. Ortaköy’e 1982’de geldiğinde, arkadaşlarıyla beraber el sanatları çarşısını kurmaya karar vermiş. 20—25 kişi bir araya gelerek kurdukları çarşıda ilk dönemlerde herkes kendi yaptığı ürünleri satmış. Fakat zamanla artan talep karşısında çarşı bugünkü halini almış. Şu anda çarşıda yaklaşık 400 kişi çalışıyor fakat bunların arasında el sanatları yapan ancak 10 kişi var. Diğerleri ise aldıkları ürünleri satıyor. Bu durum kendi yaptıkları ürünleri satarak kültürünü insanlara sunmaya çalışan sanatçıların işlerini zorlaştırıyor. Çarşının bugünkü halinden şikayetçi olan Develioğlu, eski arkadaşlarının çoğunun buradan uzaklaştığını sadece kendisi ve birkaç arkadaşının bu işi inatla sürdürdüğünü dile getiriyor. Gümüş yüzük yapan Orhan Akaştica, mumdan heykeller yapan Engin Öztok ve batik elbiseler yapan Semra Hanım bunlardan birkaçı.
+   <br/>
+   <br/>
+   Develioğlu, her şeye rağmen Ortaköy’de resim çizmeye devam edeceğini şu sözlerle dile getiriyor: “Ben bu olumsuz duruma rağmen Ortaköy’de resim yapmaya devam edeceğim. Eserlerim dünyanın her yerinde var, mesela şu an Japonya’da bir evin salonundayım ve bunu bilmek beni mutlu ediyor. Kimse destek olmasa da Ortaköy için elimden geleni yapmaya devam edeceğim, çünkü Ortaköy’ü seviyorum. Zamanla buradaki insanlar değişecek ama Ortaköy aynı kalacak. Ardımdan insanlar bir Fethi Baba vardı, iyi adamdı desinler yeter bana.”
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=11941&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20040930043619/http://www.aksiyon.com.tr:80/detay.php?id=11941&yorum_id=1)

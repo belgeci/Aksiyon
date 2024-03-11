@@ -1,0 +1,43 @@
+# Yaşamak yasak, ölüm serbest
+
+*Mehmet Kamış Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   Neredeyse 200 yıldır, dünya üzerinde Müslümanlar’ın hayatından daha ucuz bir meta yok. Her yerde kanları seylap seylap akıyor. Sanki bir emir var gizli meclislerden, ‘Dünyada sürekli Müslüman kanı akmalı’ diye.
+   <br/>
+   <br/>
+   Yalnız son 10 yıla bakın: Karabağ’da Türkler’in kanı kesilmeden, Balkanlar’da Boşnaklar’ın kanı akmaya başlıyor. Orada kesilmeden Kafkaslar’da Çeçenler’inki başlıyor. Sonra tekrar Balkanlar’da Kosovalı Arnavutlar’ın kanı. Keşmir’i, Afganistan’ı, Cezayir’i, Filipinler’i  ve diğerlerini ekleyerek listeyi uzatmak mümkün. Ama gerek var mı?
+   <br>
+    <br>
+     Sayıların ne önemi var? Bir insanın ölümüyle, binlerce, milyonlarca insanın ölümü arasındaki fark ne? Bir insanı öldürmek, tüm insanlığı öldürmek anlamına gelmiyor mu zaten? Ama akılları, ruhları ve kalpleri gözlerine inmiş yaşadığımız dünya için sayılar çok önemli. İnsan hakkı ihlallerinin tolere edilebilir bir eşiği var. Şayet özel bir çıkar yoksa, egemen güçlerin harekete geçmesi için daha büyük sayılar gerekiyor.  Bosna için bu eşik 200 binde aşıldı. Ruanda’da 500 binde bile aşılamadı.
+     <br>
+      <br>
+       Aslında hangi inanç, dil ve ırktan olursa olsun, biz insan türü için canını kaybetmekten daha tehlikeli olanı onurunu, haysiyetini ve insanlık duygusunu kaybetmek değil mi? Türümüzü diğerlerinden ayıran bu özellikleri kaybettikten sonra dünya üzerinde varlığımızın ne önemi kalacak? Hatta akıl ayrıcalığı ve kendi türünü ortadan kaldırmayı bile mübah sayabilmesi nedeniyle bütün türlerin en canavarı olmaz mıydık?
+       <br>
+        <br>
+         11 Eylül trajedisi yaşandığında herşeye rağmen bir umut ışığı doğmuştu. Güya dünyaya hükmeden güçler nerede yanlış yaptığı konusunda bir nefis muhasebesi yapacaktı. Geçen 7 ayda bu olaydan ders alındığını gösteren en küçük bir pırıltı yok. Aksine herkes beğenmediğini kendi Ladin’i ilan edip, yakıp yıkmaya devam ediyor. Şaron da kendi yarım hesaplarını görmek isteyenlerden yalnız biri. Bunun için kasabalar işgal ediliyor, hastaneler kapatılıyor, elektrikler kesiliyor. Mahalleler bombalanıyor. Evlere baskın düzenlenip erkekler, gençler bilinmeyen yerlere götürülüyor. İsmi bir toplumla özdeşleşmiş bir lider aşağılandıkça aşağılanıyor. Medyaya yasak getirilip her türlü şerre kapı açılıyor.
+         <br/>
+         <br/>
+         Evet, yalancıktan Filistin idaresine bırakılan topraklar işgal altında bugün ve orada yaşamak yasak, ölmek ise bedava.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 10 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12001), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022850/http://www.aksiyon.com.tr:80/yazdir.php?id=12001)

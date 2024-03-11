@@ -1,0 +1,109 @@
+# Futbolun da adaleti var!
+
+*Behram Kılıç Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050117143313im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050117143313im_/http://www.aksiyon.com.tr/resim/512/58.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Hep derler ya futbol nankördür diye. Lucescu, Fatih Terim, Del Bosque, Şenol Güneş, Oğuz Çetin ve diğerlerinin başına gelenlere baktığımızda meğerse futbolun da adaleti varmış.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Hepimiz biliriz de göz ardı ederiz. Meşhur sözdür; "Alma mazlumun ahını, çıkar aheste aheste." 'Bir ah çeksem dağı taşı eritir' der Karacaoğlan. Peygamberimiz ise 'Mazlumun ahını almaktan kork' demişti herkesten önce. Ah almak futbol camiası için de geçerli. Özellikle son yıllarda karşılaştığımız olaylar oldukça şaşırtıcı boyutlarda. Fazla uzağa gitmeye gerek yok. Geçen haftaya baktığımızda konuşulan iki konu, Süper Lig'de bir türlü istikrarı yakalayamayan Beşiktaş ile İspanya'nın dünyaca ünlü futbol devi Real Madrid'in içinde bulunduğu durumdu. Gazetelerde bu iki takım ile ilgili atılan başlıkların ortak noktasını ise 'ah aldıkları' için bu duruma düştükleri yönündeydi.
+   <br>
+    <br>
+     İki takım arasındaki benzerlik oldukça ilginç. R.Madrid kendisini başarıdan başarıya koşturan bugünkü Beşiktaş Teknik Direktörü Del Bosque'yi 1 yıl önce kapı önüne koymuş ve o günden beri başarıya hasret kalmıştı. Keza Beşiktaş da, takımı 100. yılında şampiyon yapan Lucescu'ya aynı sonu reva görmüştü. R.Madrid, Bosque'nin; Beşiktaş da Lucescu'nun ahını almıştı.
+     <br>
+      <br>
+       Futbolumuzdaki ah alma olayları sadece bunlarla sınırlı değil. Fatih Terim ve G.Saray, Lucescu'nun; Ali Şen, Oğuz ve Aykut'un; Özkan Sümer, Hami Mandıralı'nın; Oğuz Çetin, Werner Lorant'ın; Haluk Ulusoy, Şenol Güneş'in ahını almış olabilir miydi? İşte son dönemde futbol camiasında yaşanan bazı dramadik hadiseler:
+       <br/>
+       <br/>
+       "Aynı suda iki kere yıkanılmazmış"
+       <br/>
+       <br/>
+       Her şey çok güzeldi. Fatih Terim, Türk futbolunda bir efsane olarak doğmaya başlamış, A Milli Takım da yardımcısı olduğu Sepp Piontek'ten çok şey öğrenmiş, ondan sonra devraldığı bayrağı göndere çekmeyi başarmıştı. 1996 yılında ise Milli Takım Teknik Direktörlüğü'nden yıllarca top oynadığı G.Saray'ın teknik direktörlüğüne yelken açtığında hâlâ kendisine burun kıvıranlar vardı. O 1996-2000 yılları arasında G.Saray'a 4 yıl üst üste kazandırdığı şampiyonluğun yanı sıra UEFA Kupası'nı da getirince kendisini ispatlamakla kalmamış, 'imparatorluk' payesine erişmişti. Artık ünü ülke topraklarını da aşmıştı. Kendisini önce Fiorentina’da, buradaki başarısının ardından da Milan'da buldu. Lakin burada 'kurtlar sofrası'na düştü. Ve 9 hafta sonra görevine son verildi. Türkiye'de ise onun bıraktığı bayrağı devralan, İtalya tecrübesini yaşamış Romen Mircea Lucescu'ydu. Romen hoca Terim'in hemen ardından G.Saray'a Süper Kupa'yı kazandırdı. İkinci yılında da takımı şampiyon yaptı.
+       <br/>
+       <br/>
+       Şampiyonluk kupasını kaldırdıktan bir gün sonra G.Saray Başkanı Özhan Canaydın onun işine son verdi. Romen hocanın şampiyonluk şarkıları yarım kalmıştı. Canaydın takımın başına 'camiamızın gönlündeki isim' diyerek Fatih Terim'i getirdi. Hedef Avrupa Şampiyonlar Ligi şampiyonluğuydu. Lucescu'ya ise Beşiktaş kucak açtı. Başkan Serdar Bilgili 100. yıl için takımı ona emanet etti.
+       <br/>
+       <br/>
+       Evet, Terim'in ikinci kez takımın başına getiriliş şekli onun çok sık kullandığı ifadeyle "şık" değildi. Şampiyon hocanın takımdan uzaklaştırılması sadece Sarı Kırmızılı taraftarda değil, futbolla ilgilenen hemen her izleyicide bir burukluk meydana getirdi. Terim gelirken bir mazlumun ahını almıştı. Belki bu yüzden ikinci imparatorluk dönemindeki görevinde başarılı olamadı. Üstelik şampiyonluğu Lucescu'ya kaptırdı. İtalyan basını Lucescu'nun Beşiktaş'ı 100. yılda zafere taşımasını 'Lucescu öcünü aldı' şeklinde yorumladı. La Gazzetta dello Sport, "Beşiktaş, Sergen'in golüyle Milan'ın eski teknik direktörü Terim'in Galatasaray'ının hesabını görüyor ve Türkiye şampiyonluğunu kazanıyor" şeklindeki haberini, "Rumen teknik adam için büyük bir öc alma. Lucescu tekrardan gülüyor. Terim'i mağlup ediyor ve rakibi önünde şampiyonluğu fethediyor" diye okuyucularına duyurdu. Corriere della Sera da, ''Lucescu, öcünü aldı'' değerlendirmesini yaptı.
+       <br/>
+       <br/>
+       Terim'i getirme vaadiyle başkanlığı kazanan Özhan Canaydın da ah alanlardandı. Terim'in başarısızlığı onun başarısızlığıydı. Nitekim ikinci yılda da umulan neticeler gelmedi. 1,5 yıllık sürede tam 31 oyuncu transfer edildi. Fatih Terim her başarısızlık sonrasında "operasyon" yaptı. Bülent, Arif ve Baliç'i bile kadro dışı bıraktı. Geçen sezonun ortalarında Cim-Bom Avrupa Kupaları'ndan elendi, Türkiye Kupası'nda Ç.Rizespor'a İstanbul'da 5-0 yenildi. Lige de havlu attı. Her yenilgi sonrası operasyon yapan Terim, son operasyonu kendisi için yaptı. Villereal maçından sonra takımdan ayrılmak istediğini açıkladı. Önündeki seçimi düşünen Başkan Özhan Canaydın da ona hiç ses çıkartmadı.
+       <br/>
+       <br/>
+       "Lucescu yoluna devam ediyor"
+       <br/>
+       <br/>
+       Mircea Lucescu, G.Saray'dan ayrıldıktan sonra Beşiktaş'ın yolunu tuttu (2002-2003 sezonu). Romen hoca, Siyah-Beyazlı takımı -ki Beşiktaş 1995 yılından beri şampiyon olamıyordu- 100. yılında şampiyon yaptı. Üstelik şampiyonluğu Fatih Terim'den aldı. Yine aynı yıl Beşiktaş'a UEFA Kupası'nda Çeyrek Final yaşattı. Bir yıl sonra ise Luce'li Kara-Kartal'lar Süper Lig'de ilk yarıyı en yakın rakibine 11 puan fark atarak lider tamamladı. Herkesin lig bittiği dediği ortamda Samsunspor karşısında alınan 4-1'lik mağlubiyet sonun başlangıcı oldu. Beşiktaş sezonu ancak üçüncü tamamlayabildi. Başkan Serdar Bilgili de Beşiktaş-F.Bahçe maçında taraftarların kendisine yönelik yaptığı kötü tezahüratları öne sürerek görevinden istifa etti. Ardından Lucescu da gönderildi.
+       <br/>
+       <br/>
+       Bilgili'den boşalan koltuğa Yıldırım Demirören oturdu. Demirören, takımın başına dünyaca ünlü Vicente Del Bosque'yi getirdi. Onun yanında 13 yeni oyuncu alındı. Ancak Beşiktaş lige çok kötü başladı ve ligin ilk 6 haftasında liderin tam 10 puan gerisine düştü. Beşiktaş'tan gönderildikten sonra alması gereken tazminatı İnönü Stadı'nın yapımı şartıyla kulübe hibe eden Lucescu ise Ukrayna'da Shakhtar Donetsk'in başına geçti. Yeni ekibini Şampiyonlar Ligi'ne taşıdı. Ligde de 7 maçta 7 galibiyete imza attı.
+       <br/>
+       <br/>
+       Real Madrid'de Del Bosque sesleri
+       <br/>
+       <br/>
+       Geçtiğimiz hafta yaşanan olaylardan biri de Real Madrid yönetiminin Teknik Direktör Jose Antonio Camacho'nun istifasını kabul etmesi ve onun yerine Camacho'nun yardımcısı Mariano Garcia Remon'u getirmesiydi. Gerekçe ise Real'in Şampiyonlar Ligi'nde B.Leverkusen'e 3-0 mağlup olması, ligde de bir türlü istikrarı yakalayamamasıydı. 2003 yılında Beşiktaş'ın şu anki hocası Vicente Del Bosque'yi kovduktan sonra geçen yıl Carlos Quieroz yönetiminde tarihinin en kötü sezonlarından birini geçiren Real Madrid'de kaos bir türlü bitmedi. Kaosun sebebi takıma 2002-2003 sezonunda La Liga'daki 29. şampiyonluğunu yaşatan Bosque'nin şampiyonluk kutlamalarından 24 saat sonra Başkan Florentino Perez tarafından kapı önüne konmasıydı. Çünkü, Real Madrid Del Bosque'nin ahını almıştı.
+       <br/>
+       <br/>
+       Bosque, 1999'da Madrid'in başına geçtikten sonra, hem sportif hem de ekonomik anlamda büyük bir kriz yaşayan kulübe 2 Şampiyonlar Ligi, 2 İspanya Ligi şampiyonluğu yaşatmış, 1 Süper Kupa, 1 Kıtalararası Kupa kazandırmıştı. Bugünlerde yine Real Madrid'li taraftarların gönlündeki isim Vicente Del Bosque.
+       <br/>
+       <br/>
+       Ulusoy da, Güneş'in peşinden gitti
+       <br/>
+       <br/>
+       2000 yılının Haziran ayında A Milli Futbol Takımı'nın başına getirilen isimdi Şenol Güneş. Federasyon Başkanı Haluk Ulusoy, kişiliği, karakteri ve kariyeri sebebiyle onu bu göreve getirdiğini açıklamıştı. Güneş, 'çıta daha da yükselecek' demişti. Türkiye 2002 Dünya Kupası'nda dünya üçüncüsü oldu. Bu üçüncülükten sonra ise başarıyı paylaşamama sendromu yaşandı. Güneş ile Ulusoy'un araları hiç bir zaman eskisi gibi olmadı. Ulusoy, Güneş'in maaşlarını problem etti. Güneş ise o dönem itibariyle yapılanlara ses çıkartmadı.
+       <br/>
+       <br/>
+       2004 Avrupa Futbol Şampiyonası elemelerine de Güneş ile devam edildi. Grupta İngiltere'nin gerisinde kalan Türkiye baraja kaldı. Barajdaki rakip ise Letonya idi. Letonya'ya elendik ve Avrupa Futbol Şampiyonası finallerine gidemedik. Kamuoyu büyük şok yaşadı. Güneş'in istifa etmesi beklendi. Ancak o sözleşmesi haziran ayına kadar sürdüğü için istifaya yanaşmadı. Güneş yönetimindeki milli takım 2006 Dünya Kupası hazırlıklarına başladı. Danimarka ile Adana'da özel maç yapıldı. Bu maçtan sonra Ulusoy, Şenol Güneş'in sözleşmesini tek taraflı feshetti. Bu sefer Güneş şoka uğradı. Ulusoy, hocasının tazminatını da ödemiyordu. Yaşananlar hiç de hoş değildi. Ulusoy, Güneş'in ahını almıştı. Hocanın işine son vermesinin üzerinden birkaç ay geçmeden o da Federasyon Başkanlığı koltuğundan oldu.
+       <br/>
+       <br/>
+       "Oğuz benim en büyük hatamdı"
+       <br/>
+       <br/>
+       Yıllarca futbolcu olarak F.Bahçe'de başarıdan başarıya koştu. 2000-2001 sezonunda teknik direktör Mustafa Denizli'nin yardımcısı olarak F.Bahçe için eşofman giydi. Takım ilk yıl şampiyonluğa ulaştı. İkinci yıl ise ilk yarıda oynanan D.Bakırspor maçından sonra Denizli görevinden alındı. Ancak o istifa etmedi. Bu davranışı yadırgandı. Denizli'nin yerine Alman Werner Lorant getirildi. Yardımcısı yine oydu. Lorant da bir sezon sonra yine bir D.Bakırspor yenilgisinin ardından görevinden alındı (09.12.2002). Bu sefer ise görev ona verildi. O Oğuz Çetin'di. F.Bahçe taraftarlarının gönlünde taht kuran İmparator Oğuz Çetin ilk açıklamasında, "Buraya başkanın büyük desteği ile geldim. Hedefim bir gün Fenerbahçe'nin başına çalıştırıcı olarak gelmekti. O gün bugündür. Başkanımıza ve yönetim kurulumuza bana bu görevi verdikleri ve güven duydukları için çok teşekkür ederim" dedi. Ancak Lorant'ın ahını aldığının farkında değildi. Ertesi gün Ogün, Abdullah, Yusuf, Ali Akdeniz ve kaleci Oğuz'un kadro dışı bırakılmasına ses çıkartmadı. Ligdeki ilk maçında da Göztepe ile 0-0 berabere kaldı. 4 ay sonra Adanaspor karşısında alınan 3-1'lik yenilginin ardından (26. hafta) ise işine son verildi. Lorant, Oğuz Çetin ile ilgili olarak çok sonraları, "O benim en büyük hatamdı. Onu yanımda tutmamalıydım" diyecekti (25.02.2004 Zaman Gazetesi).
+       <br/>
+       <br/>
+       Hami Mandıralı, 219 gol attı ama...
+       <br/>
+       <br/>
+       Hami Mandıralı Trabzonspor'un unutulmaz oyuncusu olarak tarihe geçti. Dile kolay, liglerde tam 219 gol attı. Hami Mandıralı çok sevdiği formasından istemediği bir şekilde uzaklaştırıldı. Onu formasından koparan 2002-2003 sezonunda Samet Aybaba'yı takımın başına getiren dönemin başkanı Özkan Sümer'di. Sümer'in, Aybaba'yla yaptığı anlaşmanın sözleşmeye yansımayan bir maddesini Hami'nin gönderilmesi teşkil ediyordu. Hami, çok sevdiği formasından ayrılırken içinde hep burukluk hissetti. Gittiği A.Gücü'nde mutlu olamadı. Tekrar Trabzonspor'a dönmek istediyse de ona hiç kapı açılmadı. Hami'yi Bordo-Mavili renklerden koparan Özkan Sümer ise 2003-2004 sezonunun ikinci haftasında oynanan Trabzonspor-F.Bahçe maçında çıkan olaylarda Profesyonel Futbol Disiplin Kurulu'nun F.Bahçe'ye verdiği cezayı Tahkim Kurulu'nun iptal etmesi sonrası görevinden istifa etti. Onun ayrılmasından sonra Samet Aybaba da birkaç ay daha çalıştığı Trabzon'la yollarını ayırdı.
+       <br/>
+       <br/>
+       Ali Şen'in Oğuz ve Aykut'u gönderişi hâlâ unutulmadı...
+       <br/>
+       <br/>
+       Ali Şen, F.Bahçeliler için efsane başkandı. Tribünler takım kötü gittiği zaman hep onu çağırırdı. O gelecek, dertler bitecekti. F.Bahçe'yi 1995-96 sezonunda şampiyonluğa taşıdı. Şampiyonluktan sonra Kadıköy'de görkemli bir kutlama töreni hazırlandı. Kutlama törenlerinin bir bölümünde Sarı-Lacivertlileri şampiyonluk düğümünü çözen 5 Mayıs 1996 tarihli Trabzon deplasmanında 2-1'lik galibiyete taşıyan golleri atan Oğuz ve Aykut'un boyunlarına çiçeklerden yapılmış bir kolye taktı. Birkaç gün sonra da bu iki futbolcuyu kapı önüne koydu. Bu oyunculara karşı aldığı karar bugün bile unutulmadı. Ali Şen bir daha F.Bahçe'de şampiyonluk göremedi. 1998 yılında da delegelerin şirketleşme istediğine izin vermemesi üzerine kongreye girmedi. Desteklediği Vefa Küçük de başkanlığı 1 oyla Aziz Yıldırım'a kaptırdı.
+       <br/>
+       <br/>
+       Sakaryaspor yanlıştan döndü, ilk puanını aldı
+       <br/>
+       <br/>
+       Şaban Yıldırım, Sakaryaspor'u Süper Lig'e çıkartan hocaydı. Geçen yıl Sakaryaspor'un altyapısını çalıştırıyordu. Ancak A takım 2. Lig’de kötü gidince ona emanet edildi. Yıldırım, son sırada aldığı Sakaryaspor'u şampiyon yaparak Birinci Lig'e taşıdı. Bu sezon başında ise yönetim Şaban Yıldırım ile yollarını ayırdı. Yerine yine bir altyapı hocası olan Necmettin Sert'i getirdi. Sakaryaspor, Necmettin Sert ile çıktığı 5 maçta sıfır çekti. Sert istifa etti. Yönetim yanlışından döndü ve yine her bir oyuncuyu çok yakından tanıyan Şaban Yıldırım'ı takımın başına getirdi. Sakaryaspor, Yıldırım'la çıktığı ilk maçta B.Ş.B.Ankaraspor ile deplasmanda 1-1 berabere kaldı. Böylelikle Yeşil-Siyahlılar bu sezon Süper Lig'deki puanla tanıştı.
+       <br/>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### aksiyoner, 03-Ekim-2004
+> Nerede benim yorumum: 
+> Bu haber için kaç tane yorum yayınlandı. Benim ki neden yayınlanmıyor. Nerede bu yorumlar.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=16179&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050117143313/http://www.aksiyon.com.tr:80/detay.php?id=16179&yorum_id=1)

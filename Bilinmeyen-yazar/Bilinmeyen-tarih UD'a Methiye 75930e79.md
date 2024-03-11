@@ -1,0 +1,43 @@
+# UD'a Methiye
+
+*Bilinmeyen-yazar Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20050313193311im_/http://www.aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20050313193311im_/http://www.aksiyon.com.tr/resim/519/75.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Kalan Müzik yaklaşık 5 yıldır üzerinde çalıştığı, "Türk Kayıt Tarihi / Türk Müziği Ustaları" adlı yeni albüm serisinin ilk ürünlerinden "Ud" albümünü 2 CD halinde udseverlerin hizmetine sundu.
+ </font>
+ <br/>
+ <p>
+  <font class="content">
+   Özellikle Türk Kayıt Tarihi'nin, genç kuşaklar tarafından tanınması açısından, Türk müziği ustalarıyla ilgili en geniş kapsamlı çalışma olan bu albüm, dünyanın dört bir yanındaki akademiler ve akademisyenler için de önemli bir başvuru kaynağı olacak şekilde Türkçe ve İngilizce olarak hazırlandı. Tamamı hayata gözlerini yummuş olan on dört virtüöz udîmizi ve ud icracımızı bir araya toplayıp en seçme icraları sunan bu çalışmada, daha önce çeşitli firmalarca CD ve kaset olarak yayınlanmış eserlerin dışındakilere ağırlık verildi. Birinci CD'de virtüöz ünvanlı üç sanatçı bulunuyor. Udi Nevres Bey, Şerif Muhiddin Targan ve Yorgo Bacanos. Bunları takiben, üstad icracılardan Fahri Kopuz ve Mısır'lı İbrahim Efendi ile birinci CD sona eriyor. İkinci CD'de ise, Sedat Öztoprak, Udi Neşet Bey, İbrahim Ziya Bey, Şerif İçli, Udi Hrant, Cahit Gözkan ve Cinuçen Tanrıkorur gibi kıymetli udilerin taksimleriyle çeşitli icraları mevcut. Seçilen icralar, taksim ve saz semaisi formları dahilinde. CD'lerin tam basım aşamasında, kayıtları fazla hışırtılı bulan Hasan Saltık'ın imdadına eşsiz arşiviyle Bülent Aksoy yetişmiş. Aksoy'un yanısıra Osman Nuri Özpekel, Nihat Doğu, Fikret Bertuğ, Mutlu Torun, Barihüda Tanrıkorur, Afşin Germen, Halit Gözkan da arşivlerini bu CD'lerin oluşması için seferber etmiş.
+   <br>
+    <br>
+     Türk Müziği Ustaları / Ud / Kalan Müzik
+     <br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+</div>
+
+
+## Yorumlar
+
+### Emine Şule Çankaya Demirtaş, 19-Aralık-2004
+> BÜYÜK USTA CAHİT GÖZKAN: 
+> Dünyanın gelmiş geçmiş en büyük ud üstadının artık bir kayıtta olması geç olmuş ama güzel olmuş. Ud dinlemek isteyen herkes için.
+
+### besim balcı, 28-Kasım-2004
+> ud bizim entrümanımız: 
+> Ud ile alakalı internet sayfalarında daha çok Arap ağırlığı var. Halbuki ud bizden çıkmış, büyük üstatlar yetiştirdiğimiz bir enstrüman. Ama maalesef konservatuarlarda belli bir süre Türk musikisinin yasaklanmasıyla arada bir kopukluk olmuş. Yine büyük üstatlar yetiştirmişiz; fakat bunlar sayıca az. Kendimizi tanımamıza ve müziğimizi dünyaya tanıtmamıza katkıda bulunan Kalan Müzik'e ve “Türk Kayıt Tarihi/Türk Müziği Ustaları” CD’sinin hazırlanmasında emeği geçenlere teşekkür etmek istiyorum.
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=18127&yorum_id=2369), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050313193311/http://www.aksiyon.com.tr:80/detay.php?id=18127&yorum_id=2369)

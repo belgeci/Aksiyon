@@ -1,0 +1,153 @@
+# Son hedefi medyaya girmekti
+
+*Fuat Akyol Bilinmeyen-tarih*
+
+<div>
+ <font>
+  <img border="0" height="1" src="/web/20041116153553im_/http://aksiyon.com.tr/images/blank.gif"/>
+ </font>
+ <font class="content">
+  <p>
+   <img border="0" hspace="5" src="http://web.archive.org/web/20041116153553im_/http://www.aksiyon.com.tr/resim/467/urfi.jpg" vspace="5"/>
+  </p>
+ </font>
+ <font class="content">
+  Urfi Çetinkaya, 15 yıldır tekerlekli sandalyeye mahkum olmasına rağmen, dünya çapında en etkili uyuşturucu şebekelerinden birini kurmakla suçlanıyor. İlk uyuşturucu olayına ismi 1988’de karıştığı halde bugüne kadar hiç ceza almadı. Arkadaşları arasındaki unvanı “Ağa”ydı. Ama kendisi için uygun gördüğü kod ismi “Budala Tavuk”tu. Trilyonları aşan servetiyle son projesi bir televizyon kanalı ve gazetenin sahibi olmaktı.
+  <br/>
+  “Son projesi televizyon ve gazete sahibi olmaktı...” Bir narkotik yetkilisi, televizyon (Kanal 6) ve gazete (Günaydın) ismi de vererek, yüzyılın en etkili uyuşturucu şebekelerinden birini kurmakla suçlanan Urfi Çetinkaya’nın, bu gazete ve televizyonu satın almak için altı ay boyunca girişimlerde bulunduğunu açıklıyor.
+ </font>
+ <p>
+  <font class="content">
+   İspanyol Çingenelerinden Kuzey Irak’ta Barzani’ye ve Dubai’ye, oradan İstanbul’a uzanan devasa bir uyuşturucu organizasyonunun lideri olarak görülen Urfi Çetinkaya’ya yönelik operasyona “Son Tango” ismi verilmesinin gizli bir anlamı vardı. 1980’lerden itibaren bu piyasada varlığını sürdüren Behçet Cantürk, Hüseyin Baybaşin gibi isimler teker teker tasfiye edilirken, Çetinkaya o jenerasyondaki tek isim olarak kalmıştı. İlginç olan, bu kadar eski bir geçmişe sahip olmasına ve 10 yıl içinde Avrupa’ya 12 ton uyuşturucu sevk ettiği belirtilmesine rağmen, yakalandığı 5 Kasım 2003 tarihine kadar uyuşturucu suçundan hiç mahkumiyet almamış olmasıydı.
+   <br/>
+   <br/>
+   Kayıtlara göre, Çetinkaya ilk olarak 15 yıl önce, 30 Kasım 1988 günü İstanbul Ataköy’deki bir dairede ele geçirilen 70 kilo eroin olayında yakalandı. Ancak o tarihten itibaren isminin karıştığı hiçbir uyuşturucu davasından ceza almadı.
+   <br/>
+   <br/>
+   Çetinkaya ve yakın zamana kadar en güçlü ortağı olan Cemal Nayır için, bir dava dosyasındaki resmi belgede şu değerlendirmeler yapılıyor: “Urfi Çetinkaya’nın yurtdışına uzun yıllardan bu tarafa uyuşturucu madde gönderdiği, gönderdiği uyuşturucuların bir çoğunun yakalandığı, bu yakalamalarla ilgili olarak ülkemizde sağlıklı bir tahkikatın yapılmadığı, bu suçların bir çoğundan ülkemizde yargılanmadığı, yargılandığı olaylarda ise delil yetersizliğinden gerekli cezaya çarptırılmadığı anlaşıldı... Cemal Nayır’ın da 1982 yılında uyuşturucu madde kaçakçılığına başladığı, bir çok olayda tesbit edilmesine rağmen ona da Urfi Çetinkaya gibi sağlıklı bir yargılamanın yapılmadığı, bir çok olayda yargılanmadığı, yargılandığı olaylarda ise beraat ettiği anlaşıldı.”
+   <br/>
+   <br/>
+   Tutuklanıp cezaevine gönderilirken, Devlet Güvenlik Mahkemesi kapısında “Uyuşturucu bana ait değil. Komplo kurbanıyım” diye bağıran Urfi Çetinkaya’nın, bu davadan da yakasını kurtarıp kurtaramayacağı şimdilik bilinmiyor. Ancak, onun, hazırlık aşaması beş ay süren bir operasyon neticesinde 800 kiloyu aşan miktarda bir uyuşturucuyla yakalanması, Türkiye’deki uyuşturucu piyasasında taşları yerinden oynattı. Çünkü, eğer bu operasyon beklendiği gibi Çetinkaya için “son tango” olursa, doğacak boşluğu yeni isimlerin dolduracağına kesin gözüyle bakılıyor. Bu durum, Türkiye üzerinden Avrupa ve ABD’ye her yıl sevk edilen ortalama 400 ton uyuşturucu trafiğinde sahneye yeni aktörlerin çıkması anlamına geliyor.
+   <br/>
+   <br/>
+   Türk narkotik polisinin son rakamlarına göre Türkiye üzerinden Avrupa ve Amerika’ya sevk edilen uyuşturucu miktarı yılda 400 ton olarak gerçekleşiyor ve bu uyuşturucunun parasal değeri 4 milyar euro. Rakamlara göre, bu uyuşturucunun kilosunun Afganistan ve İran’daki fiyatı 3-4 bin euro iken, mal İstanbul’a geldiğinde fiyat 8 bin euroya yükseliyor. Eroin Avrupa ülkelerine ulaştığında, bu piyasadaki fiyatı ise 15-18 bin euro arasında değişiyor.
+   <br/>
+   <br/>
+   Bu paranın ilk dilimini Afganistan ve Pakistan’daki haşhaş tarlası sahipleri alıyor. İkinci dilimini uyuşturucuyu İran’a geçiren ve İran’dan Türkiye’ye sevk eden kişiler alıyor. Üçüncü dilimini, İstanbul’dan bu uyuşturucuları Avrupa ve Amerika’ya sevk eden Türk kaçakçılar, dördüncü dilimini ise Avrupa ve ABD piyasasında bu uyuşturucuyu alıp tüketiciye dağıtan şebekeler alıyor. Bu yönüyle uyuşturucu trafiğindeki para paylaşımı, dünya üzerindeki en iyi işleyen bir ticari konsorsiyum olarak görülüyor. Aynı düzenin diğer kaçakçılık dallarında da geçerli olduğu biliniyor. Örneğin, kaçakçılar İngiltere’ye soktukları bir konteynır kaçak sigaradan bir milyon sterlin kazanıyorlar.
+   <br/>
+   <br/>
+   İspanya-Dubai hattındaki iki İranlı
+   <br/>
+   <br/>
+   Uyuşturucu trafiğinin Afganistan, İran ve Türkiye güzergahını izlemesi ve malın Türkiye-İran sınırını kolay geçmesinin temelinde, sınırın her iki tarafındaki nüfus yapısının “Beluç Kürtleri”nden oluşması yatıyor. Buradaki Beluçlar, İran’daki akrabaları ile işbirliğine gittikleri için Hakkari’nin Yüksekova ilçesi uyuşturucu trafiğinde en önemli istasyon haline gelmiş durumda. Aralarında “Beluç Kürtçesi” adı verilen lehçeyi konuşan bu gruplarla birlikte, İran’da Şah’ın devrilmesinden sonra kaçıp Türkiye’ye gelen bir milyon civarında İranlıdan önemli aşiret ve ailelere mensup bazı kişiler de bu trafikte rol aldılar.
+   <br/>
+   <br/>
+   Örneğin Urfi Çetinkaya organizasyonunun hem İspanya, hem de Dubai ayağındaki kişiler birer İranlıydı. Avrupa ülkelerine ulaşan eroin parasını İspanya’da kurduğu şirket üzerinden kuryeleri vasıtasıyla Dubai’ye, oradan da İstanbul’a sevk eden kişi İran asıllı Lokman Godsi idi. 1965 Urumiye doğumlu Godsi, bu hizmeti yalnızca Urfi Çetinkaya’ya vermiyordu. Başka pek çok şebekenin para transferinde yine başroldeydi. Örneğin kamuoyunda “Kurye Dilek” olarak bilinen Dilek Örnek, İstanbul’da Atatürk Havalimanı’nda yüklü miktarda döviz ile yakalanması üzerine, paranın göndericisi olarak verdiği isim Lokman Godsi’ydi.
+   <br/>
+   <br/>
+   Çetinkaya organizasyonunun İran ve Dubai ayağı ise Lütfü Şahmezar’dı. 1956 İran doğumlu ve uyuşturucu âleminde “Hacı” kod ismiyle bilinen Lütfü Şahmezar (Lotfollah Ghasemiazar) hem İran’dan Çetinkaya’nın organizasyonuna uyuşturucu sevkiyatı yapan kişiydi, hem de Duabi’ye ulaşan dövizlerin İstanbul’a getirilmesinde rol oynamaktaydı.
+   <br/>
+   <br/>
+   Uyuşturucu piyasasından kesin olarak tasfiye olup olmayacağı şimdilik bilinmeyen Çetinkaya, kurduğu organizasyonun yapısıyla, İspanya ve Portekiz’e gönderdiği birer kiloluk eroin paketlerine kırmızı kurdeleler bağlayıp hediye paketi süsü vermesiyle, kendisine “Budala Tavuk” kod ismini yakıştıracak kadar enteresan kişiliğiyle, İstanbul’da Terkos gölünün kenarında 500 dönümlük araziye kurduğu altı katlı görkemli şatosuyla bu dünyanın en ilgi çekici portrelerinden biri haline geldi.
+   <br/>
+   <br/>
+   Budala Tavuk’un hikayesi
+   <br/>
+   <br/>
+   Uyuşturucu piyasasının gelmiş geçmiş en büyük isimlerinden biri kabul edilen Çetinkaya, 8 Ocak 1949 tarihinde Malatya’nın Pötürge ilçesinde dünyaya geldi. İlkokul mezunu olan Çetinkaya, ilk olarak 4 Nisan 1977 tarihinde sigara kaçakçılığı suçlamasıyla yakalandı. 12 Eylül 1980 askeri müdahalesinden sonra yayınlanan Sıkıyönetim bildirilerinde arandığı duyurulan ilk isimlerin başında o gelmekteydi. Silah, mermi ve gümrük kaçakçılığı suçundan, 9 Aralık 1980 tarihinde yakalandı ve tutuklandı. Çetinkaya, ifadelerinde o günleri anlatırken, “1980’den önce altı yıl gümrük kaçakçılığı yaptım. Sigara, demir, kalay, bakır, kurşun, hırdavat, kakao türü maddelerin kaçakçılığını yaparak çok büyük paralar kazandım. Bu suçlardan hiç yakalanmadım. Ancak 12 Eylül’den sonra yakalandım ve 59 ay Ankara Mamak Cezaevi’nde yattım” diyor.
+   <br/>
+   <br/>
+   24 Ağustos 1987 günü tabanca ile adam yaralamaktan yakalanan Çetinkaya, bir yıl sonra 18 Mayıs 1988 günü İstanbul’da polisten kaçarken açılan ateşle belinden yaralandı ve felç oldu: “1988 yılında bir kadın arkadaşımla tartışırken polis geldi. Polisten kaçarken, ateş açılması sonucu yaralandım ve sakat kaldım.” Kayıtlar, bu tarihten itibaren Çetinkaya’nın Türkiye ve İspanya’da değişik zamanlarda yakalanan yüksek boyutlarda uyuşturucunun sahibi olarak arandığını, her yakalanışında da serbest kaldığını gösteriyor.
+   <br/>
+   <br/>
+   1992 yılında İspanya’ya giriş yaparken yakalanan Çetinkaya, burada dört yıl cezaevinde kaldı. Ondan önce de ortağı Cemal Nayır 1989’da İspanya’da yakalandı ve cezaevine girdi. Cezaevi hayatı Çetinkaya ve Nayır’a, İspanyol Çingeneleri ile tanışma imkanı verdi. Yine bu ülkede bulunan ve cezaevine düşen Suriye Kürtlerinden Mahmut ve Nurettin Abdi kardeşler, İspanyol Çingenelerinin Çetinkaya organizasyonunda yer almasını sağladılar.
+   <br/>
+   <br/>
+   İki adamının Barzani’ye yaptığı ziyaret
+   <br/>
+   <br/>
+   Abdi kardeşlerin rolü bu kadarla bitmiyordu. Mahmud Abdi’nin bir İspanyol ile birlikte kurduğu iki şirketten biri olan Barselona Gönüllüleri Kuruluşu’nun amacı, Türkiye ve Suriye’deki Kürtlere yardım etmekti. Bu yardımın nasıl yapıldığını dosyadaki bir başka belgeden öğreniyoruz. Çetinkaya ekibindeki İspanyol Çingenelerinden Juan Palomeras Vigas, “Mahmud’la birlikte Barzani’yi ziyaret etmek için Kürdistan’a gittik. Kürt halkı için 3 milyon Peseta (İspanyol parası) hibe ettik” diyor. Uyuşturucu dünyasında bu tür ziyaret ve hibelerin “karşılıksız” olmadığı göz önüne alındığında, Mesut Barzani’ye yapılan ziyaret oldukça önem kazanıyor.
+   <br/>
+   <br/>
+   Urfi Çetinkaya ifadesinde, “İspanya’da tutuklu iken, hakim sorguda bana hakaret etti, ben de edince uzun süre hapis yattım. Uyuşturucudan beraat ettim” diyor ama, Çetinkaya İspanyol mahkemesinde beraat etmedi. İspanyol kanunları, mahkemenin en geç dört yıl içinde karar vermesini, aksi halde tutuklu kişinin serbest bırakılmasını öngörmekteydi. 1996’ya gelindiğinde bu süre doldu ve Çetinkaya serbest kalarak İspanya’dan kaçtı. Onu sorgulayan hakim, sonraki yıllarda Şili’nin eski diktatörü Augusto Pinochet hakkında, Pinochet rejimi döneminde Şili’de İspanyolların da öldürüldüğü gerekçesiyle tutuklama kararı çıkararak tarihe geçen Balthazar Garzon’du.
+   <br/>
+   <br/>
+   Bir duruşmada Balthazar Garzon ile Urfi Çetinkaya arasında sert bir tartışma yaşandı. Savcı, duruşmadaki hareketlerini beğenmediği Çetinkaya’ya ‘Pis Türk’ diye bağırdı. Öfkelenen Çetinkaya, önündeki su dolu bardağı savcının üzerine fırlattı. Yüzüne gelen suyla çileden çıkan savcı hakaretlerini sürdürürken Çetinkaya da, “Sen bana nasıl ‘Pis Türk’ dersin” diye bağırmaktaydı. Ama Savcı, “Pis Türk, pis Türk” sözleriyle hakaretlerini sürdürdü. Çetinkaya, hiç unutmadığı ünlü savcıdan intikamını ilginç bir yöntemle aldı. 1999’da İspanya’ya gönderdiği 317 ve 760 kiloluk eroin paketlerinin üzerine “alıcı” olarak savcının ismini ve şu yazıyı yazdırmıştı: “Savcı Balthazar Garzon’un sağlığına iyi gelir.” Hatta, eroin ambalajlarının üzerine savcının adını yazmakla kalmayıp, yaptırdığı özel mühürle damgalattırmıştı.
+   <br/>
+   <br/>
+   İspanya Kralı kadar meşhurum
+   <br/>
+   <br/>
+   Çetinkaya’nın, “İspanya halkının tamamı, İspanya kralını nasıl tanırsa beni de öyle tanır” sözleri boşuna değildi. İspanya’ya sevk ettiği eroin paketlerinde bile kendine özgü bir tarz oluşturmuştu. Birer kilo olarak preslenen eroinler, kırmızı kurdele ile bağlanmış hediye paketi görünümündeydi. O İspanya’da iken kendisi ile aynı ismi taşıyan oğlu, 13 Ağustos 1993 tarihinde Smith Wesson marka tabanca ile Rus ruleti oynarken hayatını kaybetti.
+   <br/>
+   <br/>
+   Çetinkaya, İspanya’dan döndüğü 1996’dan, “altın hilal” adı verilen operasyonla ilk yakalanışı olan 2000 yılı mart ayına kadar faaliyetlerini İstanbul Bahçeşehir’deki villasında ve Terkos gölü kenarındaki şatosunda yürüttü. Mersin’de ele geçirilen 22 ton esrarın ve 630 kilo eroinin sahibi olarak yakalanan Çetinkaya, Mersin Adliyesi’nden serbest bırakıldı. Beş ay sonra bu sefer “Matador” adı verilen operasyon yapıldı ve Ankara Devlet Güvenlik Mahkemesi Savcısı Talat Şalk’ın gerçekleştirdiği soruşturmayla tutuklandı. Açıklanan rakamlara göre, ağırlıklı olarak İspanya ve Portekiz’e olmak üzere 1990-2000 arasında Avrupa’ya 12 ton uyuşturucu sevk etmiş ve 500 trilyon kazanmıştı.
+   <br/>
+   <br/>
+   Avrupa’ya sevk edilen uyuşturucunun miktarını gösteren en çarpıcı örnek, Çetinkaya’nın bir seferinde tam 20 ton asit anhidrit siparişi vermiş olmasıydı. Bu, 20 ton eroin imal edileceği anlamına geliyor. Çünkü bir ton morfine bir ton asit ilave edildiğinde bir ton eroin üretilmiş oluyor. Cemal Nayır’ın Avrupa ile yaptığı şifreli bir telefon görüşmesinde, “Ağabeyim (Çetinkaya) kel kafası için su (asitik anhidrid kastediliyor) istiyor” dediği görülüyor.
+   <br/>
+   <br/>
+   Devlete dokuz okul bağışlayıp takdirname aldı
+   <br/>
+   <br/>
+   Dava dosyasında Çetinkaya’nın eline ulaşan paranın boyutları ile ilgili çarpıcı rakamlar yer alıyor. Buna göre, Çetinkaya’ya ait Tem Döviz Bürosu’na haftalık giren para miktarı 800 bin dolarla 1,5 milyon dolar arasında değişmekteydi. Para İstanbul’a ulaşırken kuryeler vasıtasıyla İspanya-İsviçre-Zürih-Türkiye veya İspanya-Dubai-Türkiye güzergâhını izlemekteydi. Ancak Çetinkaya, hiçbir ifadesinde eroin kaçakçılığı suçlamasını kabul etmedi. Servetinin kaynağını şöyle açıkladı: “Kaçakçılık ve inşaat işlerinden 25 milyon dolar sermaye yaptım. Bunu da 1980’de cezaevine girmeden önce İstanbul Tophane’de bir tefeciye faize verdim. Çıktığımda param 60 milyon dolar olmuştu.” Beyanları inandırıcı bulunmayan Çetinkaya hakkındaki kara para araştırması, onun toplumda ve devlet nezdinde yer edinmek için uyguladığı yöntemleri gözler önüne serdi.
+   <br/>
+   <br/>
+   Maliye başmüfettişleri Recep Can ve Mehmet Gökçimen’in imzasını taşıyan 4 Haziran 2001 tarihli 57 sayfalık kara para raporuna göre, üzerinde hiçbir mal varlığı gözükmeyen Urfi Çetinkaya, TEM Şirketler Grubu adına devlete dokuz okul yaptırıp bağışladı. Müfettişler, okul bağışları Çetinkaya adına yapıldığından, TEM şirketlerinde tespit ettikleri 6,5 trilyon lirayı Çetinkaya’ya ait uyuşturucu gelirine delil gösterdi.
+   <br/>
+   <br/>
+   Terkos gölünün kenarındaki altı katlı şatoya giren narkotik uzmanlarının, duvarları boydan boya süsleyen takdirname, üstün hizmet belgeleri, nişan ve plaketlerle karşılaşmasının sebebi buydu. Bunlar, “hayır işleri” sebebiyle Çetinkaya’ya devlet kuruluşlarınca verilmişti. İfadesinde, “İzmir’deki bir inşaat işini bitirdikten sonra kendimi hayır işlerine adadım. Sekiz okul, bir jandarma karakolu, bir sağlık ocağı yaptırdım. Şu ana kadar uyuşturucu işine girmediğim gibi, kendim de uyuşturucu kullanmadım” diyen Çetinkaya, bu kimliğini pekiştirmek için her fırsatı değerlendirmekteydi. Örneğin 20 Nisan 1999 akşamı ATV’de yayınlanan Bay Turnike programında adeta şov yaptı. Kosovalı bir mülteci olan ressam Ethem Baymak tarafından yapılan bir tablo, Kosovalı mülteciler için canlı yayında açık artırmayla satışa çıkarılmıştı. 100 milyon ile başlatılan artırmanın galibi Çetinkaya oldu. 75 milyar lirayla tabloyu alan Çetinkaya, parayı avukatı Rahmi Özkan’a verip stüdyoya gönderdi ve barış günlerinde Bosna’da Neretva Irmağı üzerinde bulunan Mostar köprüsünün tuale yansıtıldığı tablo avukatına teslim edildi.
+   <br/>
+   <br/>
+   Medya patronu olabilecek mi?
+   <br/>
+   <br/>
+   Çetinkaya, Adalet Bakanlığı’nda Genel Müdürlük yapmış veya İstanbul’da Ağır Ceza Mahkemesi Başkanlığı’ndan emekli olmuş hakimleri kendisine avukat tutabilecek kadar maharetliydi. Her yakalanışında ceza almadan tahliye olmasını işte bu becerisine borçlu. Bunca maceradan sonra son rüyası, bir televizyon kanalı ve bir gazetenin sahibi olmaktı. Eğer mahir avukatları onu bir defa daha DGM’nin elinden kurtarırsa, belki bu hayalini de gerçekleştirir ve Türkiye’nin medya patronları arasındaki yerini alır.
+   <br/>
+   <br/>
+   <b>
+    URFİ ÇETİNKAYA’DAN ÖNCEKİ TASFİYE SÜRECİ
+   </b>
+   <br/>
+   <br/>
+   Urfi Çetinkaya’nın, bu sefer mahkumiyetini sağlayacak güçlü delillerle yakalanması, uyuşturucu piyasasındaki son yaprak dökümü olarak kabul ediliyor. Çentinkaya’dan önce, uyuşturucu dünyasının Türk Escobarları lakaplı Hurşit Han ve Ramazan Yıldız, Radar Sami lakaplı Sami Yıldırım, Mehmet Kasar, Yaşar Öz, Abuzer Uğurlu, Zaza Hikmet lakaplı Hikmet Sevcan gibi ünlüler, dört yıl içinde İstanbul Devlet Güvenlik Mahkemeleri’nin (DGM) verdiği ağır hapis cezalarıyla sarsıldılar.
+   <br/>
+   <br/>
+   İlk tasfiyeye uğrayanlar, 1980’lerden itibaren Urfi Çetinkaya ile birlikte uyuşturucunun en büyük isimleri kabul edilen Behçet Cantürk ve Hüseyin Baybaşin oldu. Cantürk, 14 Ocak 1994 günü İstanbul’da faili meçhul cinayete kurban gitti, cesedi Sapanca’da bulundu.
+   <br/>
+   <br/>
+   1995 yılında Akdeniz’de Lucky S gemisinde yakalanan 14 ton uyuşturucunun sahibi olarak aranan Baybaşin, Türk ve Hollanda polisinin “Siyah Lale” kod adını verdiği ortak operasyonuyla Hollanda'da 27 Mart 1998’de yakalandı. Baybaşin yargılama sonucunda 18 yıl hapis cezası aldı ve Baybaşin ailesinin trilyonlarla ifade edilen değişik ülkelerdeki mal varlığına el konuldu.
+   <br/>
+   <br/>
+   6 Aralık 1999’da Mehmet Kasar, 560 kilo eroine finansman sağladığı gerekçesiyle 20 yıl ağır hapis cezası aldı. 20 Haziran 2000 günü 4 nolu DGM bu kez Yaşar Öz’e 15 yıl hapis cezası verdi. Uyuşturucu dünyasında ‘Türk Escobarı’ lakabına layık görülen iki isimden biri olan Hurşit Han, 10 Ekim 2001 günü 6 nolu DGM’ce 24 yıl hapis cezasına çarptırıldı. Baybaşin ailesinden Nizamettin Baybaşin, 10 Mayıs 2002 tarihinde Almanya’da 15 yıl hapis cezasına çarptırıldı, Mahmut Baybaşin ise İspanya’da yakalanarak tutuklandı.
+   <br/>
+   <br/>
+   1980’li yıllardan bugüne sürekli ön plana çıkan isimlerden Abuzer Uğurlu, 1 nolu DGM’de 23 Mayıs 2002 günü 25 yıl hapis cezası aldı. Türk Escobarı lakaplı ikinci ünlü isim olan Ramazan Yıldız, uluslararası operasyonla 26 Nisan 1999’da İstanbul’da yakalanmasından sonra, yargılandığı 5 nolu DGM’de 16 Nisan 2002 günü 8 yıl 4 ay hapis cezasına çarptırıldı.
+   <br/>
+   <br/>
+   Radar Turizm’in sahibi Sami Yıldırım da, 5 nolu DGM’deki yargılama sonucunda 25 Nisan 2002 günü 15 yıl ağır hapis cezası aldı. Öte yandan Avrupa piyasasında Hüseyin Baybaşin’den sonra en büyük isim olarak görülen Nuru Olcay da Hollanda’da tutuklandı ve malvarlığına tedbir konuldu.
+   <br/>
+   <br/>
+   Yine, Avusturya’ya 300 kilogram eroin götürülmesiyle ilgili 13 yıldır gıyabi tutuklu olarak aranan Hikmet Sevcan, 6 Mart 2000 günü İstanbul Yeşilköy’de yakalandı ve DGM’de ağır hapis cezasına çarptırıldı.
+   <br/>
+   <br/>
+   Son olarak İstanbul 2 numaralı Devlet Güvenlik Mahkemesi, 24 Ekim cuma günü önemli bir davada çok önemli bir karar verdi. Mahkeme, Jandarma’nın 31 Mart 2002 günü Hendek’te yaptığı operasyonla yakalanan 7,5 ton uyuşturucunun sahibi pozisyonundaki İran asıllı İngiliz vatandaşı Abdülgasım Gomçey’i, 36 yıl ağır hapis cezasına çarptırdı.
+   <br/>
+   <br/>
+   Uyuşturucu âlemindeki en ilginç isimlerden biri olan Abdülgasım Gomçey’in İngiltere’de de şirketleri vardı. Avrupa’ya bu kadar büyük mal sevkiyatı yapan bir şahsın bugüne kadar İngiliz makamlarının dikkatini çekmeyişi, Türk narkotik polisinin ilgisini uyandırmıştı. Gomçey, İngiltere ile Türkiye arasında mekik dokuyor, işlerini İstanbul’da Bağdat caddesindeki ofisinden yürütüyordu. Gomçey, cezaevinde iken ziyaretine gelen bir yakınına büyük bir endişe içinde, “Beni öldürecekler” demekteydi.
+   <br/>
+   <br/>
+   Afganistan ve Pakistan’daki haşhaş tarlalarından Londra ve New York sokaklarına uzanan uyuşturucu trafiğinin bir yüzünde milyar dolarlar varsa, öteki yüzünde devletlerin en hassas noktalarına kadar uzanan bu ilişkiler ağı bulunuyor. Avrupa ülkelerinin, önüne geçemeyeceklerini anladıkları uyuşturucu trafiğinde, artık bu piyasanın büyük isimlerini kontrolleri altına alıp bu şekilde bir çözüm yoluna gitme politikasını geliştirdikleri gözlemleniyor. Hollanda’nın Hüseyin Baybaşin’i, İngiltere’nin Nurettin Güven’i kontrol altına alma girişimleri bu şekilde değerlendiriliyor.
+   <br/>
+   <br/>
+   Uluslararası uyuşturucu trafiğindeki karmaşık ilişkilerin en çarpıcı iki örneği yakın zamanda Türkiye’de yaşandı. Musevi kökenli bir kaçakçı olan Türk vatandaşı Abraham Sardaş, 1998’de tutuklu bulunduğu İmralı Cezaevi’nden kaçmayı başardı. İlginç olan Abraham’ın, İstanbul’da gözaltına alınır alınmaz, MOSSAD yetkililerinin Emniyet’e gelerek, sanığın kendilerine teslim edilmesini istemeleriydi. Bir diğer kaçakçı olan Rum asıllı Türk vatandaşı Kosta Stergiyadis, 2000 yılında üç saat farkla polisin elinden kurtulup Yunanistan’a kaçmayı başardı.
+   <br/>
+   <br/>
+   Geçtiğimiz ay İpsala sınır kapısında ihraç edilmek üzere yurtdışına gönderilen buzdolaplarının içinde yakalanan 270 kilo eroinin arkasındaki kişi yine Stergiyadis’ti. Bugüne kadar Kosta, Yunanistan’da yakalanıp Türkiye’ye teslim edilmedi. Buna karşılık son dönemde Türkiye’den çıkan eroinin külliyetli miktarda Yunanistan rotasını izlediği dikkatlerden kaçmıyor.
+   <br/>
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://aksiyon.com.tr:80/detay.php?id=3198&yorum=430), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20041116153553/http://aksiyon.com.tr:80/detay.php?id=3198&yorum=430)

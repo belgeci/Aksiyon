@@ -1,0 +1,79 @@
+# Rivaldo’dan, Gima’ya insan emeğinin üst sınırı
+
+*Ahmet Turan Alkan Bilinmeyen-tarih*
+
+<div>
+ <p>
+  <font>
+   İnsan emeğine, bütün dünyada geçerlilik kazanacak bir üst sınır koymak şarttır; alt sınırın belirli niteliğine karşılık üst sınırın “fuhş”a kadar tırmanabilmesi engellenmeli, sıradışı kalitedeki emek, sıradan emeğe nazaran makul nisbette endekslere bağlanmalıdır
+   <br/>
+   <br/>
+   Ankara’yı ilk defa 1970 yılında görmüştüm; ecnebi filmlerde gördüğümüz arkaplan bilgileri haricinde asrîlik namına bildiğimiz ve tahayyül ettiğimiz her şey Ankara’daydı. O günlerde şehrin merkezini hâlâ Ulus teşkil ediyordu. İki gariban birbiriyle randevulaşacakları zaman, “Ulus’ta heykelin dibinde buluşalım” diye sözleşiyorlardı. Talebelik yıllarımızda Ulus yavaş yavaş şehrin kalbi olmak üstünlüğünü kaybetmeye, ucundan kenarından taşralaşmaya ve pırıltısını kaybetmeye başladı. Artık iki arkadaş buluşacakları zaman, “Kızılay’da gökdelenin dibinde...” diye adres verir olmuşlardı. Gökdelen, sadece Ankara’nın değil, galiba Türkiye’nin en yüksek binasıydı ve topu topu 12 kat yüksekliğindeydi ama hemen herkesin nazarında o, modernliğin ve yüksek teknolojinin timsâli idi. Meşhur gökdeleni ziyaret etmek hiç nasib olmadı ama isteyen herkes, binanın alt katlarındaki Gima mağazasına girip çıkabiliyor, hatta vaktiyle bizim de yaptığımız gibi defalarca çaktırmadan yürüyen merdivenlerine binerek büyük şehir stajını ikmâl edebiliyordu.
+   <br>
+    <br>
+     Geçenlerde gazetede okudum; her ne sebepledir bilmem, Gima mağazalarının borsa değeri, aslında çok daha fazla etmesine rağmen 58 milyon dolara kadar düşmüş. Gazetenin haber editörü bu hadiseyi çok güzel bir başlıkla şöyle sunmuştu: Gima mağazası ancak bir Rivaldo kadar değer taşıyor!
+     <br>
+      <br>
+       Rivaldo kim? Rivaldo Brezilyalı bir futbolcu; şu günlerde yanılmıyorsam Barcelona’da top koşturmakla meşgul. Bizim açımızdan Rivaldo değil de Gima kavramı daha önemli şu anda. Gima, Türkiye’nin ilk süpermarketiydi dersem abartmış olmam. Yanlış hatırlamıyorsam Emekli Sandığı’nın hissedar olduğu bir ortaklık tarafından yönetiliyordu ve içine adım atar atmaz müşterilerini bambaşka bir dünyaya, modern tüketim ritüellerine ve alışveriş yapmanın dayanılmaz  cazibesine davet eden kendine mahsus bir havası vardı. Geçen otuz yıl zarfında Türkiye bir süpermarket patlaması yaşayınca Gima, “bir ilke imza atmış” olmanın pırıltısını kaybetti galiba.
+       <br>
+        <br>
+         Hayal gücünün dolar cinsinden sınırı
+         <br/>
+         <br/>
+         Hayır, mesele ne Rivaldo, ne de Gima mağazalarının borsa değeri; mesele, insan emeğinin (veya fiyatının) tabii sınırı. Alt sınırı tayin etmek kolay; her ülkede yapılan asgari geçim endeksleri insan emeğinin taban fiyatını açıkça gösteriyor. Mesela bu rakam, gelişmiş ülkelerde  iki–üç bin dolara kadar yükselebiliyorsa da Türkiye’de 100 dolar civarındadır. Asgari had, üç aşağı beş yukarı belli, peki üst sınır nedir?
+         <br/>
+         <br/>
+         Az önce dinlediğim bir televizyon haberine göre Amerikan kamuoyuna yönelik bir ankette Hollywood aktörlerinin film başına aldığı astronomik ücretlerin gerçekte ne kadar âdil olup olmadığı araştırılmış. Amerikalılar, Arnold Schwarzenegger’in bir film için aldığı 37 milyon dolarlık rakamı aslında hak etmediğini düşünüyorlarmış. Buna mukabil Julia Roberts’in ve şu anda ismini hatırlamayadığım bazı aktörlerin 20 milyon civarında kazanmasına normal nazarıyla bakılıyormuş! Halbuki yıllardan beri seyrettiğimiz Amerikan filmlerinde, sıradan insanlar için ikiyüzellibin  veya bir milyon dolar’ın hayal sınırlarını zorlayacak kadar büyük bir para olduğunu öğrenmiştik. Yıllık gelir itibariyle 80 veya yüz bin doların, “Amerikan tarzı hayat”ın sürdürülebilmesi için dolgun bir ücret sayıldığını da biliyorduk. Bir banka soygununda veya piyango ikramiyesinde telaffuz edilen birkaç milyon dolarlık rakamlar ise dudak uçurtacak seviyede görülüyordu.
+         <br/>
+         <br/>
+         Bu durumda bir kere daha “zenginin malı züğürdün çenesini yorar” durumuyla mı karşı karşıyayız?
+         <br/>
+         <br/>
+         Temelden sakat ve zalim bir mantık
+         <br/>
+         <br/>
+         Daha duru bir zihinle düşünmeyi deneyebiliriz. İnsan emeği fiyatlandırılacak olsa bunun bir üst sınırı olmalı mıdır? Kapitalist mantık bu soruyu gereksiz ve kışkırtıcı bulur; kapitalistler, fiyatın alıcı ile satıcı arasındaki talep dengesine göre belirleneceğini, bu yüzden alt ve üst sınır belirlemenin iktisadi düzeni rayından çıkaracağını savunurlar. Rivaldo, eğer 58 milyon dolar karşılığında kulübüne en azından 60 milyon kazandırıyorsa, en azından sermaye kurtarılmış ve iki milyon da kâra geçilmiş olacağından bu rakam problem teşkil etmez. Keza Julia Roberts’in çevirdiği film, sadece Bayan Roberts oynadığı için filme 20 milyon doların üstünde hasılat yaptırabiliyorsa filmin yapımcısı bu parayı rahatlıkla gözden çıkarabilir. Söz konusu filmde Julia Roberts’in oynadığı rolü, bir başka hanım aktristin ondan daha başarıyla canlandırması önemli değildir zira isimsiz bir aktristin filme hasılat açısından yapacağı katkı, Julia hanımdan daha azdır. Öyleyse kapitalist mantık açısından bir oyuncunun filme vereceği sanat emeği, kendi başına herhangi bir anlam taşımaz. Bu noktada emek, yapılan işten soyutlanmış ve yabancılaştırılmıştır. Yapımcının herhangi bir aktristin sanat emeğine değil, ille de Julia hanımın emeğine ihtiyacı vardır.
+         <br/>
+         <br/>
+         Böylece emeğin niteliği ile onun ücreti arasındaki tabii orantı kopar ve anlamsız hale gelir; artık önemli olan Julia hanıma verilen paranın, daha fazlasını kazandırıp kazandırmayacağıdır.
+         <br/>
+         <br/>
+         İtiraf etmeliyim ki ben bu mantığı ta temelden sakat ve zalim buluyorum.
+         <br/>
+         <br/>
+         Bu kadarına  “fuhş”  demezler mi?
+         <br/>
+         <br/>
+         Bu örneği karışık bulduysanız Rivaldo ile Gima arasındaki değer eşitliğine yeniden dönebiliriz; bir futbolcu, nasıl olur da en azından 35 senelik köklü bir maziye sahip, yüzlerce insana istihdam kapısı teşkil eden, stoklarıyla, iş kapasitesiyle, müşterileri ve firma markasıyla  şüphesiz bir futbolcudan çok daha fazlasını temsil eden bir şirket kadar değer kazanmış olabilir? Kazandığı paranın miktarı, Rivaldo’nun  futbolculuk kabiliyetini küçümsememizi gerektirmiyor, şüphesiz o  çok iyi bir sporcu ama 58 milyon doların Türkiye ölçüleriyle kaç asgari ücrete bedel olduğunu hesapladığınızda, Rivaldo’nun kazandığı paranın ne kadar zalim bir miktar olduğu daha iyi hissediliyor. Zira 58 milyon doların çok büyük bir kısmı, Rivaldo’nun futbol emeğine değil, aslında Rivaldo “logo”suna ödenmektedir. Bu noktadan sonra Rivaldo’nun birkaç sezon içinde bu paradan daha çoğunu Barcelona kulübüne kazandırması bana göre anlamlı olmaktan çıkıyor ve “fuhş” haline geliyor. Yanlış anlaşılmamalı; “fuhş”un kelime karşılığı aşırılıktır, hatta aşırılığın zulüm ölçülerine varan kısmı için fuhş tabiri kullanılır; esasen “fâhiş” kelimesi, Türkiye’de bir ticaret tabiri olarak hâlâ yaşıyor ve kasdettiğimiz anlamda kullanılıyor.
+         <br/>
+         <br/>
+         Zenginin malındaki züğürt payı
+         <br/>
+         <br/>
+         Sade Türkiye’de değil gelişmiş ülkeler de dahil bütün dünyada gelir dağılımı “fâhiş” derecede adaletsiz. Liberal iktisatçıların murad ettiği mânâda bir serbest rekabet ortamı hiç olmadı ve olmayacak. Daha da beteri, emek cinsinden pekâlâ ikame edilebilecek iken (yani Julia Roberts ve Rivaldo kadar sanat ve spor kabiliyetine sahip binlerce insana rağmen) bazı şöhretlerin kazanabildiği fâhiş paralar vicdan duygusunun ve adaletin zedelenmesine yol açıyor. Henüz bir şöhret imajı kazanmamış sıradan emeğe sahip çok sayıda sıradan insanın, kendi emeğine karşı yabancılaşarak kendilerine göre şahsi bir zalimlik felsefesi geliştirmelerine sebep oluyor.
+         <br/>
+         <br/>
+         Bana göre insan emeğine, bütün dünyada geçerlilik kazanacak bir üst sınır koymak şarttır; alt sınırın belirli niteliğine karşılık üst sınırın “fuhş”a kadar tırmanabilmesi engellenmeli, sıradışı kalitedeki emek, sıradan emeğe nazaran makul nisbette endekslere bağlanmalıdır.
+         <br/>
+         <br/>
+         Esasen dikkatli bir bakış, zenginin malında ne kadar züğürt payı olduğunu açıkça gösteriyor.
+         <br/>
+         <br/>
+         <br/>
+        </br>
+       </br>
+      </br>
+     </br>
+    </br>
+   </br>
+  </font>
+ </p>
+ <p>
+  <font>
+   (Bu yazı 10 kez okunmuştur)
+  </font>
+ </p>
+</div>
+
+
+Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=12250), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050302052634/http://www.aksiyon.com.tr:80/yazdir.php?id=12250)
