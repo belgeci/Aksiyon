@@ -2,30 +2,15 @@
 
 *Bilinmeyen-yazar Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20040705124855im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="http://web.archive.org/web/20040705124855im_/http://www.aksiyon.com.tr/resim/491/16.jpg" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  Irak Savaşı’nın, ABD kamuoyunun görmeye alışık olmadığı yüzlerinden biri, CBS Televizyonu’nun yayınladığı bir dizi fotoğrafla günışığına çıktı.
- </font>
- <p>
-  <font class="content">
-   CBS’in “60 Dakika II” adlı popüler haber programında yer verdiği ve 2003 sonunda Bağdat yakınındaki Ebu Greyb Cezaevi’nde çekildiğini duyurduğu fotoğraflar, ABD askerlerinin tutukluları ‘istismar edici’ ve ‘küçük düşürücü’ muamelede bulunduklarını kanıtlıyor. Bu fotoğrafların, bir ABD’li er tarafından elde edilerek üst askeri makamlara sunulduğu ve birer kopyasının da CBS’e verildiği açıklandı. Söz konusu fotoğraflarda görülen 6 ABD askeri hakkında, toplam 20 Iraklı tutukluya kötü muamele yaptıkları gerekçesiyle askeri mahkemede dava açıldığı ve fotoğrafların, mart ayında başlayan bu davada “suç kanıtı” olarak gösterildiği de duyuruldu. Yargılanan 6 asker de, ABD Kara Kuvvetleri’nin 800’üncü Askeri Polis Tugayı’na mensup ve içlerinden en az biri sivil hayatta da cezaevi gardiyanı olarak görev yapıyor.
-   <br>
-    <br/>
-    Bağdat’taki ABD askeri kaynaklarına göre, söz konusu 6 askere yönelik iddialar arasında “görevi kötüye kullanma, zorbalık, taciz ve saldırı” suçlamaları da bulunuyor. Bu fotoğraflar ayrıca, Ebu Greyb Cezaevi’nin yönetiminden sorumlu toplam 7 subay hakkında “disiplin cezası” istemine yol açtı. Ceza alması öngörülenler arasında, 800’üncü Askeri Polis Tugayı’nın komutanı Tuğgeneral Janice Karpinski de bulunuyor. Iraklı tutuklulara yapılan kötü muamelenin ortaya çıkmasına ilişkin olarak Bağdat’ta bilgi veren Tuğgeneral Mark Kimmit ise, bu fotoğrafların “Burada olup biten bazı şeyleri vicdanım kaldırmıyor” diyen bir ABD askeri tarafından kendilerine iletildiğini ve ocak ayından itibaren de Ebu Greyb’deki tutuklulara yapılan muamele konusunda soruşturma başlatıldığını açıkladı.
-    <br/>
-   </br>
-  </font>
- </p>
-</div>
+![](/web/20040705124855im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+![](http://web.archive.org/web/20040705124855im_/http://www.aksiyon.com.tr/resim/491/16.jpg)
+
+Irak Savaşı’nın, ABD kamuoyunun görmeye alışık olmadığı yüzlerinden biri, CBS Televizyonu’nun yayınladığı bir dizi fotoğrafla günışığına çıktı.
+
+CBS’in “60 Dakika II” adlı popüler haber programında yer verdiği ve 2003 sonunda Bağdat yakınındaki Ebu Greyb Cezaevi’nde çekildiğini duyurduğu fotoğraflar, ABD askerlerinin tutukluları ‘istismar edici’ ve ‘küçük düşürücü’ muamelede bulunduklarını kanıtlıyor. Bu fotoğrafların, bir ABD’li er tarafından elde edilerek üst askeri makamlara sunulduğu ve birer kopyasının da CBS’e verildiği açıklandı. Söz konusu fotoğraflarda görülen 6 ABD askeri hakkında, toplam 20 Iraklı tutukluya kötü muamele yaptıkları gerekçesiyle askeri mahkemede dava açıldığı ve fotoğrafların, mart ayında başlayan bu davada “suç kanıtı” olarak gösterildiği de duyuruldu. Yargılanan 6 asker de, ABD Kara Kuvvetleri’nin 800’üncü Askeri Polis Tugayı’na mensup ve içlerinden en az biri sivil hayatta da cezaevi gardiyanı olarak görev yapıyor.  
+
+Bağdat’taki ABD askeri kaynaklarına göre, söz konusu 6 askere yönelik iddialar arasında “görevi kötüye kullanma, zorbalık, taciz ve saldırı” suçlamaları da bulunuyor. Bu fotoğraflar ayrıca, Ebu Greyb Cezaevi’nin yönetiminden sorumlu toplam 7 subay hakkında “disiplin cezası” istemine yol açtı. Ceza alması öngörülenler arasında, 800’üncü Askeri Polis Tugayı’nın komutanı Tuğgeneral Janice Karpinski de bulunuyor. Iraklı tutuklulara yapılan kötü muamelenin ortaya çıkmasına ilişkin olarak Bağdat’ta bilgi veren Tuğgeneral Mark Kimmit ise, bu fotoğrafların “Burada olup biten bazı şeyleri vicdanım kaldırmıyor” diyen bir ABD askeri tarafından kendilerine iletildiğini ve ocak ayından itibaren de Ebu Greyb’deki tutuklulara yapılan muamele konusunda soruşturma başlatıldığını açıkladı.
 
 ## Yorumlar
 

@@ -2,25 +2,16 @@
 
 *Abdülhamit Bilici Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050226153740im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="/web/20050226153740im_/http://www.aksiyon.com.tr/resim/391/kapak.jpg" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  53 yıl önce komünizme karşı kapitalist dünyayı savunmak için kurulan NATO, 28 Mayıs'ta Rusya ile ilişkilerini üst düzeye çıkararak ideoloji merkezli bir örgüt olmaktan çıktı ve belirsiz 'ortak düşmana'a karşı medeniyet temelli bir güvenlik örgütü oldu. Bu durum NATO içindeki tek Müslüman olan Türkiye'yi nasıl etkileyecek?
- </font>
- <br/>
- <p>
-  <font class="content">
-   11 Eylül'den bir ay sonra NPQ adına Samuel Huntington ile yapılan bir röportajda Fransız filozof Jean Baudrillard'dan şu alıntı yapılıyordu: "Çin ve Rusya dahil bütün dünya postmodern çoğulculuğun etkisiyle büyük bir parçalanmışlık yaşıyor. Bunun tek istisnası var: İslam. Bütün dünyayı süpüren kaygısızlığa (kültürel relativizm) tek başına o meydan okuyor."
-   <br/>
-   <br/>
-   Uluslararası arenada bağımsız, sorgulayıcı,
+![](/web/20050226153740im_/http://www.aksiyon.com.tr/images/blank.gif)
+
+![](/web/20050226153740im_/http://www.aksiyon.com.tr/resim/391/kapak.jpg)
+
+53 yıl önce komünizme karşı kapitalist dünyayı savunmak için kurulan NATO, 28 Mayıs'ta Rusya ile ilişkilerini üst düzeye çıkararak ideoloji merkezli bir örgüt olmaktan çıktı ve belirsiz 'ortak düşmana'a karşı medeniyet temelli bir güvenlik örgütü oldu. Bu durum NATO içindeki tek Müslüman olan Türkiye'yi nasıl etkileyecek?  
+
+
+11 Eylül'den bir ay sonra NPQ adına Samuel Huntington ile yapılan bir röportajda Fransız filozof Jean Baudrillard'dan şu alıntı yapılıyordu: "Çin ve Rusya dahil bütün dünya postmodern çoğulculuğun etkisiyle büyük bir parçalanmışlık yaşıyor. Bunun tek istisnası var: İslam. Bütün dünyayı süpüren kaygısızlığa (kültürel relativizm) tek başına o meydan okuyor."  
+
+Uluslararası arenada bağımsız, sorgulayıcı,
 entellektüel bir birikimin yayın organı olarak
 tanınan NPQ böyle bir soru sorunca, dünyanın
 medeniyetler temelinde bir çatışmaya doğru gittiği
@@ -30,10 +21,9 @@ ifade etmek düşüyordu. Üsame bin Ladin'in Batı'ya
 kazandırdığını söyleyen Huntington, İslam ve Çin
 gibi farklı değer yargılarına dayanan diğer
 medeniyetlere karşı Batı'nın alması gerektiği
-tedbirleri şöyle sıralıyordu:
-   <br/>
-   <br/>
-   NATO'nun ve Avrupa Birliği'nin Batılı devletleri
+tedbirleri şöyle sıralıyordu:  
+
+NATO'nun ve Avrupa Birliği'nin Batılı devletleri
 içine alacak şekilde genişlemesini sürdürmesi; Latin
 Amerika'nın Batılılaştırılması'nın teşvik
 edilmesi; Ortodoksluğun merkez ülkesi olarak Rusya
@@ -43,10 +33,9 @@ teröristlere karşı işbirliği yapılması; Batı'nın diğer
 medeniyetler üzerinde teknoloik ve askeri
 üstünlüğünü koruması; İslam ülkelerinin ya da
 Çin'in konvansiyonel ve nükleer askeri güç
-geliştirmesinin önlenmesi.
-   <br/>
-   <br/>
-   11 Eylül gibi komplike bir saldırının yönetim
+geliştirmesinin önlenmesi.  
+
+11 Eylül gibi komplike bir saldırının yönetim
 tarafından haber alınamamış ve önlenememiş
 olması Amerikan komuoyunun son günlerde en fazla
 yoğunlaştığı konulardan biri olsa da, 11 Eylül
@@ -64,10 +53,9 @@ için senaryolar yazıyor. ABD'nin koalisyon
 zorlukları hatırına Filistin lideri Arafat ve Filistin
 halkının direnişi terörle beraber anılmaya
 başlandı. Çeçenistan'daki milli direniş de bu
-kategori içinde zikrediliyor.
-   <br/>
-   <br/>
-   15 yılda 30 bin insanını kaybeden Türkiye'nin,
+kategori içinde zikrediliyor.  
+
+15 yılda 30 bin insanını kaybeden Türkiye'nin,
 NATO üyesi olmasına rağmen bütün yardım
 istekleri boşa çıkarken, hatta müttefiklerinin
 teröristleri destekledikleri belgelenirken, Amerika'ya
@@ -94,10 +82,9 @@ düşmana karşı birleştiğini, üzerlerindeki muamma
 hâlâ çözülememiş olan Moskova'daki apartman
 bombalamalarını ve New York'taki saldırıyı
 kastederek sokaktaki insanın da artık 'ortak bir
-düşmanımız' olduğunu bildiğini söylüyordu.
-   <br/>
-   <br/>
-   Eski Yunan, Yahudilik-Hıristiyanlık, Roma ve
+düşmanımız' olduğunu bildiğini söylüyordu.  
+
+Eski Yunan, Yahudilik-Hıristiyanlık, Roma ve
 aydınlanma değerlerine dayanan ve günlük dilde
 kısaca Batı diye tanımladığımız dünyanın kendi
 içinde 1917'de başlayan ideolojik ayrımın Roma
@@ -110,10 +97,9 @@ dünyanın tek süper gücünün başını çektiği,
 dünyanın en güçlü askeri ittifakının masası
 etrafında 19 ülkenin eski düşman Rusya ile aynı
 masayı paylaşıyor olması 'teröre karşı uluslararası
-savaş'ın önemli adımlarından biri.
-   <br/>
-   <br/>
-   El Kaide korkusuyla geniş güvenlik tedbirlerinin
+savaş'ın önemli adımlarından biri.  
+
+El Kaide korkusuyla geniş güvenlik tedbirlerinin
 alındığı tarihi toplantı, Bush'un Berlin'deki Alman
 Meclisi'nde 23 Mayıs'ta yaptığı konuşmada
 söylediği gibi Magna Carta, eski Yunan, Paris'in
@@ -131,10 +117,9 @@ düşmanın İslam'la şu ya da bu şekilde
 irtibatlandırıldığı bir ortamda yaşanan bu gelişme,
 bir yönüyle İslam tarih, kültür ve coğrafyasına, bir
 yönüyle Batı'ya bağlı olan Türkiye'yi nasıl
-etkileyecekti?
-   <br/>
-   <br/>
-   NATO içindeki konumu böyle zor bir dönemece
+etkileyecekti?  
+
+NATO içindeki konumu böyle zor bir dönemece
 giren Türkiye, çok sıkıntılı ilerleyen ve
 önümüzdeki 6 ay içinde hayal kırıklığıyla
 sonuçlanması muhtemel olan Avrupa Birliği
@@ -153,10 +138,9 @@ ile ne kadar ortak vizyona sahip olduğu noktaları
 tartışmalı. Washington ile Moskova'nın ilişkileri bu
 düzlemde gelişirse, Türkiye'nin Batı ile olan
 ilişkilerini Moskova ile yaşayabileceği sorunlarda
-kullanma ihtimali zayıflamış oluyor.
-   <br/>
-   <br/>
-   Aksiyon'da, 11 Eylül hadisesinden bir ay önce 'Yeni
+kullanma ihtimali zayıflamış oluyor.  
+
+Aksiyon'da, 11 Eylül hadisesinden bir ay önce 'Yeni
 Avrasya Düzeni' başlığıyla yayınlanan dosyada
 Amerikan genelkurmayı için hazırlanan rapora
 atıfla önemli bazı bilgiler vermiştik. Bu raporda,
@@ -169,19 +153,17 @@ sona ermesinden sonra arkasını dönüp ilgilenmediği
 Afganistan meselesinin yoluna koyulmasından sonra
 da bölgesel güçler olan Rusya, Çin ve Hindistan'ın
 'meşru' çıkarlarını tanıyan çok taraflı bir sistemin
-tesisi öneriliyordu.
-   <br/>
-   <br/>
-   11 Eylül'ün Afganistan'a yapılacak olan operasyona
+tesisi öneriliyordu.  
+
+11 Eylül'ün Afganistan'a yapılacak olan operasyona
 gerekçe oluşturmak amacıyla yapıldığını ileri
 sürenler olsa da bunun için yeterli deliller ortaya
 çıkana kadar, ABD'nin 11 Eylül olayını özellikle bu
 bölge ve genelde ise dünya siyasetiyle ilgili
 düşüncelerini hayata geçirmek için büyük maharetle
-kullandığını söylemekle yetineceğiz.
-   <br/>
-   <br/>
-   Afganistan operasyonunun açıklanan hedefi ABD'ye
+kullandığını söylemekle yetineceğiz.  
+
+Afganistan operasyonunun açıklanan hedefi ABD'ye
 yapılan saldırıların arkasında olduğu söylenen El
 Kaide'nin ortadan kaldırılması ve El Kaide'nin lideri
 Üsame bin Ladin'i kendisine teslim etmeyen Taliban
@@ -192,10 +174,9 @@ değil. Taliban lideri Molla Ömer'e ulaşılamadığı
 gibi, Üsame bin Ladin de kayıplarda. El Kaide'nin
 dünya çapında 20 bin kadar bağlısından
 sözediliyor. Amerikan kamuoyu muhtemel
-saldırılara karşı sürekli istim üstünde tutuluyor.
-   <br/>
-   <br/>
-   11 Eylül'ün stratejik alandaki neticeleri
+saldırılara karşı sürekli istim üstünde tutuluyor.  
+
+11 Eylül'ün stratejik alandaki neticeleri
 Afganistan'daki mevzi başarıların çok ötesine geçti.
 11 Eylül'den hemen önce Özbekistan'ın da
 katılımıyla Şanghay İşbirliği Teşkilatı
@@ -205,15 +186,8 @@ Rusya, Amerikan hegemonyasına karşı açıkça
 cephe oluşturmayı amaçlıyordu. Batı'nın büyük
 oranda kendi halleriyle başbaşa bıraktığı Orta
 Asya'nın Türki cumhuriyetleri de bu örgütün içine
-girmişlerdi.
-   <br/>
-   <br/>
-   <i>
-    (Yazının devamını dergimizin 44-50. sayfalarında okuyabilirsiniz...)
-   </i>
-  </font>
- </p>
-</div>
+girmişlerdi.  
 
+ *(Yazının devamını dergimizin 44-50. sayfalarında okuyabilirsiniz...)*
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=51&yorum_id=1), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226153740/http://www.aksiyon.com.tr:80/detay.php?id=51&yorum_id=1)

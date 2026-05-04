@@ -2,51 +2,24 @@
 
 *Mehmet Yılmaz Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050331000852im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <font class="content">
-    Türkiye, Osmanlı’dan kalan evlad-ı fatihanla uzun yıllar ilgilenmedi. Daha doğrusu ilgilenemedi. Birinci Dünya Savaşı kaybedildi. Elbette devasa topraklar da… İnsanımız ‘son karakol’ niteliğindeki Anadolu’ya sığındı. Kendi derdine düştüğünden sınırları dışında kalanlara el uzatamadı. Ta ki 1974 yılındaki Kıbrıs harekâtına kadar…
-   </font>
-   <br/>
-   <p>
-    <font class="content">
-     Kıbrıs çıkarması, Türkiye’nin Osmanlı’dan kalan bakiye ile ilgilendiğini gösteriyordu ilk kez. Adanın kuzeyi, aynı zamanda Hıristiyan âleminden geri alınan ilk toprak parçası unvanını kazanıyordu. Zor şartlar altında gerçekleştirilen bu askeri operasyonun, özgüven açısından psikolojik bir anlamı da vardı. Türkiye, "Osmanlı’nın külleri arasından doğan bir ülke olarak her nerede olursa olsun evlad-ı fatihanla ilgileniyorum." mesajını veriyordu bütün dünyaya…
-     <br>
-      <br>
-       Peki bugün Kerkük, bir Kıbrıs olur mu? Şüphesiz bu soruya net cevap vermek mümkün değil. Her şeyden önce ikisi arasında çok fark var. Örneğin, Irak’ta bir işgal gücü var. Türkiye’nin varlığından rahatsızlık duyacak İran var. Kürtler ve Şiiler var.
-       <br>
-        <br>
-         Ancak, 1960’larda Rumların yaptığı mezalimlerin benzeri yaşanırsa, Türkiye’nin olaylara seyirci kalacağı da beklenmemeli… En azından geçmiş tecrübe, bunu gösteriyor çünkü… Yoksa, üst perdeden yapılan bunca açıklamanın başka bir anlamı olabilir mi acaba?
-         <br>
-          <br>
-           Bu hafta kapak dosyamızda Kerkük’ü masaya yatırıyoruz. Seçimleri bu tarihî şehirde izleyen arkadaşlarımız Cumali Önal ve Çetiner Çetin, bölgenin nabzını tuttu. Erhan Başyurt, cumhuriyet tarihimiz boyunca Kerkük konusunda izlenen politikaları analiz ederken; Salih Boztaş, Ankara’nın muhtemel bir güç kullanımını gündeme alıp almadığını yazdı. Fatih Uğur’la Ufuk Şanlı, Kerkük Yumurtalık petrol boru hattına yapılan saldırıları ele aldı. Haşim Söylemez ise Kerkük’te kurulacak belediyeden iş talebinde bulunan PKK militanlarının hayal kırıklığını kaleme aldı.
-           <br>
-            <br/>
-            *   *   *
-            <br/>
-            <br/>
-            Şüphesiz, dosyalarımız bunlarla sınırlı değil. Bu hafta da okurlarımızı şaşırtacak haber çalışmalarımız var. Örneğin, sinema yönetmeni Sinan Çetin’le yapılan mülakat bunlardan biri. CHP kurultayının gençlik kolları boyutuyla farklı bir değerlendirmesini de Kemal Derviş’in ekibinden CHP İstanbul milletvekili Zeynep Damla Gürel’in yeni bir parti sinyalini de ilk önce Aksiyon okurları öğrenecek. Rüşvet poşeti ile espri konusu olan CHP Yüksek Disiplin Kurulu üyesi Ergün Aydoğan’ın ilginç açıklamalarını da.
-            <br/>
-            <br/>
-            İyi haftalar.
-            <br/>
-           </br>
-          </br>
-         </br>
-        </br>
-       </br>
-      </br>
-     </br>
-    </font>
-   </p>
-  </p>
- </font>
-</div>
+![](/web/20050331000852im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+Türkiye, Osmanlı’dan kalan evlad-ı fatihanla uzun yıllar ilgilenmedi. Daha doğrusu ilgilenemedi. Birinci Dünya Savaşı kaybedildi. Elbette devasa topraklar da… İnsanımız ‘son karakol’ niteliğindeki Anadolu’ya sığındı. Kendi derdine düştüğünden sınırları dışında kalanlara el uzatamadı. Ta ki 1974 yılındaki Kıbrıs harekâtına kadar…  
+
+
+Kıbrıs çıkarması, Türkiye’nin Osmanlı’dan kalan bakiye ile ilgilendiğini gösteriyordu ilk kez. Adanın kuzeyi, aynı zamanda Hıristiyan âleminden geri alınan ilk toprak parçası unvanını kazanıyordu. Zor şartlar altında gerçekleştirilen bu askeri operasyonun, özgüven açısından psikolojik bir anlamı da vardı. Türkiye, "Osmanlı’nın külleri arasından doğan bir ülke olarak her nerede olursa olsun evlad-ı fatihanla ilgileniyorum." mesajını veriyordu bütün dünyaya…  
+
+Peki bugün Kerkük, bir Kıbrıs olur mu? Şüphesiz bu soruya net cevap vermek mümkün değil. Her şeyden önce ikisi arasında çok fark var. Örneğin, Irak’ta bir işgal gücü var. Türkiye’nin varlığından rahatsızlık duyacak İran var. Kürtler ve Şiiler var.  
+
+Ancak, 1960’larda Rumların yaptığı mezalimlerin benzeri yaşanırsa, Türkiye’nin olaylara seyirci kalacağı da beklenmemeli… En azından geçmiş tecrübe, bunu gösteriyor çünkü… Yoksa, üst perdeden yapılan bunca açıklamanın başka bir anlamı olabilir mi acaba?  
+
+Bu hafta kapak dosyamızda Kerkük’ü masaya yatırıyoruz. Seçimleri bu tarihî şehirde izleyen arkadaşlarımız Cumali Önal ve Çetiner Çetin, bölgenin nabzını tuttu. Erhan Başyurt, cumhuriyet tarihimiz boyunca Kerkük konusunda izlenen politikaları analiz ederken; Salih Boztaş, Ankara’nın muhtemel bir güç kullanımını gündeme alıp almadığını yazdı. Fatih Uğur’la Ufuk Şanlı, Kerkük Yumurtalık petrol boru hattına yapılan saldırıları ele aldı. Haşim Söylemez ise Kerkük’te kurulacak belediyeden iş talebinde bulunan PKK militanlarının hayal kırıklığını kaleme aldı.  
+
+* * *  
+
+Şüphesiz, dosyalarımız bunlarla sınırlı değil. Bu hafta da okurlarımızı şaşırtacak haber çalışmalarımız var. Örneğin, sinema yönetmeni Sinan Çetin’le yapılan mülakat bunlardan biri. CHP kurultayının gençlik kolları boyutuyla farklı bir değerlendirmesini de Kemal Derviş’in ekibinden CHP İstanbul milletvekili Zeynep Damla Gürel’in yeni bir parti sinyalini de ilk önce Aksiyon okurları öğrenecek. Rüşvet poşeti ile espri konusu olan CHP Yüksek Disiplin Kurulu üyesi Ergün Aydoğan’ın ilginç açıklamalarını da.  
+
+İyi haftalar.
 
 ## Yorumlar
 

@@ -2,30 +2,21 @@
 
 *Haşim Söylemez Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050225162053im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="/web/20050225162053im_/http://www.aksiyon.com.tr/resim/391/tabela.jpg" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  İşaretler artık yaşamın her karesinde yer alıyor. Hayata yön verecek kadar
+![](/web/20050225162053im_/http://www.aksiyon.com.tr/images/blank.gif)
+
+![](/web/20050225162053im_/http://www.aksiyon.com.tr/resim/391/tabela.jpg)
+
+İşaretler artık yaşamın her karesinde yer alıyor. Hayata yön verecek kadar
 güçlüler. Öyle ki; tabelasız yaşamayı reddeden hastalar bile var. Tabela
-hastalığı da yeni bir kavram olarak tıp literatürüne girdi.
-  <br/>
-  Bilimin piktogram olarak adlandırdığı bu alan,
+hastalığı da yeni bir kavram olarak tıp literatürüne girdi.  
+Bilimin piktogram olarak adlandırdığı bu alan,
 şehirlerdeki trafik tabelalarından tutun da bir mekandaki giriş–çıkışlara veya tuvalet göstergelerine,
 evimizdeki mutfak robotunun kullanma kılavuzuna kadar yaygınlaşmış durumda. Konu artık bilimsel
 platformlarda tartışılıyor, uluslararası kuruluşlar bütün dünyada bu alanda ortak bir dil oluşturmak için
-çaba harcıyor.
- </font>
- <br/>
- <p>
-  <font class="content">
-   Atını dağın eteğine doğru sür; karşına beyaz bir kayalık çıkacak, kayanın sağındaki patika yoldan devam
+çaba harcıyor.  
+
+
+Atını dağın eteğine doğru sür; karşına beyaz bir kayalık çıkacak, kayanın sağındaki patika yoldan devam
 et. Sonra karşına iki yol çıkacak, sen derenin kıyısından geçen yolu izle. İlk gördüğün çınar ağacının
 soluna doğru yol al; uzakta bir köy göreceksin, işte o köy bizim köyümüz. Evimiz de köy çeşmesinin
 yanındaki kireçli ev. Sanırım günümüzde böyle bir tarifi yapan birisini hepimiz ti’ye alırız. Çünkü böyle
@@ -40,13 +31,11 @@ platformlarda tartışılıyor, uluslararası kuruluşlar bütün dünyada bu al
 çaba harcıyor. Yaşamımıza yön veren, bizi yönlendiren piktogramlar yaşamın içine öyle sinmiş ki,
 hastaları bile var. Piktogram bir sorun olarak başgösteriyor, psikologlar ise çağımızın yeni hastalığı
 olarak tabir etikleri bu sorun karşısında şimdilik çaresiz. Cep telefonlarındaki yönlendirme tuşları veya
-televizyon kumandası hastaları zaman zaman işlevsel olarak kilitliyor, tabir yerindeyse beyin duruyor.
-   <br/>
-   <br/>
-   Tabela hastalıkları
-   <br/>
-   <br/>
-   Hayatın her alanında karşılaşılan piktogramlar insanlar üzerinde derin izler bırakıyor.
+televizyon kumandası hastaları zaman zaman işlevsel olarak kilitliyor, tabir yerindeyse beyin duruyor.  
+
+Tabela hastalıkları  
+
+Hayatın her alanında karşılaşılan piktogramlar insanlar üzerinde derin izler bırakıyor.
 Bu yaygınlıktan dolayı iki türlü hastalık ortaya çıkıyor. Psikolojik olarak hasta ya tabelasız yaşamı
 reddediyor ya da tabelalar karşısında hareket fonksiyonunu kaybediyor. Psikologlara göre bu
 hastalıkların düşük derecede olması tedaviyi kolaylaştırıyor. Ancak ileri derecede bir hasta için umutlu
@@ -57,10 +46,9 @@ zorunda kalıyorum.” Uzman Psikolog Aynur Kuğu Ünal alternatif seçimlerin o
 problem teşkil ettiğini söylüyor. Ünal; “Kişi birden fazla işaretle karşılaştığında ne yapacağına karar
 veremiyor, daha doğrusu tercih hakkını kullanmakta güçlük çekiyor. Ani değişiklikte problem
 yaşayabilir. Öğrenme ve tanımlamada güçlük çeken insanlar böyle sorunlar yaşayabilir. Erken teşhis
-edildiğinde tedavisi mümkün. Ama ileri aşamada durum daha da karışık hale gelebilir” diyor.
-   <br/>
-   <br/>
-   Bir başka piktogram hastası Rahşan Y.nin durumu ise Hasan K.nınkinden farklı.
+edildiğinde tedavisi mümkün. Ama ileri aşamada durum daha da karışık hale gelebilir” diyor.  
+
+Bir başka piktogram hastası Rahşan Y.nin durumu ise Hasan K.nınkinden farklı.
 Tabelasız ya da işaretsiz yaşayamıyor, fonksiyonel olarak hareket edemiyor. İşaret veya iz yoksa Rahşan
 için hayat donma noktasına geliyor. Rahşan kendisini şöyle anlatıyor: “Tabelalar veya işaretler beni
 doğru yere götürüyor, doğru işi yaptırıyor. Yalnızsam yani birisi beni yönlendirmiyorsa gideceğim yere
@@ -69,13 +57,11 @@ tedavinin sağlanması çok zor. Ünal; “Hastada, ‘Objeleri takip edersem do
 takıntı halini almıştır. Kişi bunun tersini yaptığında zarar göreceğini düşünür. Yani bir ritüelmiş gibi
 bakıyor. Kişilik yapısından da kaynaklanan bir durum olabilir” diyor. Piktogram hastaları konusunda
 uzmanlar bir gerçeğin altını ısrarla çizmek istiyorlar. Uzmanlara göre bu hastaların kesinlikle bir zeka
-problemi yok, aksine çok zeki olabiliyorlar.
-   <br/>
-   <br/>
-   Ortak bir dil
-   <br/>
-   <br/>
-   Piktogramlar dünyanın ortak dili. Birçok dile hizmet verebilecek işaretlerden,
+problemi yok, aksine çok zeki olabiliyorlar.  
+
+Ortak bir dil  
+
+Piktogramlar dünyanın ortak dili. Birçok dile hizmet verebilecek işaretlerden,
 sembollerden oluşuyor. Değişen zamanla birlikte artan ihtiyaç doğrultusunda piktogramlara olan ilgi
 yıldan yıla artıyor. Bu ilgi, anlamsız bir yönelmeden ziyade bilimsel olarak da aşama kaydediyor.
 Günümüzde her insan yaşamını güvenli olarak idame ettirebilmek için piktogramlara bağlı olarak
@@ -88,13 +74,11 @@ duraklarında, tuvaletlerde, acil çıkışlarda ve benzeri yerlerde kullanılan
 hüviyeti kazanması için standartlandırma çalışmaları sürdürülüyor. Uluslararası Standardizasyon
 Kuruluşu ISO (International Standardization Organization) halka açık yerlerde kullanılan piktogramları
 daha kullanılabilir hale getirmek için mesai harcıyor. Günlük hayatta piktogramlar daha çok trafik
-işaretlerinde, arabalarda, fotoğraf ve fotokopi makinalarında karşımıza çıkıyor.
-   <br/>
-   <br/>
-   Özel–kamu karıştırıyor
-   <br/>
-   <br/>
-   Piktogramların hem kamu kuruluşlarınca hem de özel kurumlarca kullanılması sorun
+işaretlerinde, arabalarda, fotoğraf ve fotokopi makinalarında karşımıza çıkıyor.  
+
+Özel–kamu karıştırıyor  
+
+Piktogramların hem kamu kuruluşlarınca hem de özel kurumlarca kullanılması sorun
 oluşturuyor. Her birim kullandığı işareti kendi estetik ve göz zevkine göre ayarladığından çizilen
 işaretler farklı bilinçaltlarının oluşmasına yol açıyor. İncelik, kısalık veya kalınlık önem taşıyor. Örneğin
 ok işareti birçok kişinin bilinçaltında bir silahın temel şekli gibi algılanır ve böylece saldırganlığın,
@@ -110,13 +94,11 @@ getirmesi gerekiyor. Bunun için iyi bir organizasyon, araştırma–geliştirme
 eğitim ve uygulama gerekiyor. Sembollerin etkili olmaması çoğunlukla şekli oluşturan kişinin daha
 önceden kullanılmış bir sembolü seçmesinden veya halk tarafından kabul edildiğinin zanedilmesinden
 kaynaklanıyor. Uzmanlara göre bu yaklaşım birçok mantıksız ve anlamsız sembollerin yayılmasına yol
-açmıştır. Örneğin bir babayı çocuğu ile gösteren şekil ile yaya geçidi kavramını anlatmaya çalışmak gibi.
-   <br/>
-   <br/>
-   Trafik işaretleri etkili olmalı
-   <br/>
-   <br/>
-   İşaretlerin önemlerine göre sıralanmasında güvenlik işaretleri ve trafik sembolleri ilk
+açmıştır. Örneğin bir babayı çocuğu ile gösteren şekil ile yaya geçidi kavramını anlatmaya çalışmak gibi.  
+
+Trafik işaretleri etkili olmalı  
+
+İşaretlerin önemlerine göre sıralanmasında güvenlik işaretleri ve trafik sembolleri ilk
 sıralarda yer alıyor. Bunların uluslararası düzeyde standartlaştırılması büyük önem arz ediyor. Bazı
 renklerin, bazı şekillerin emredici bir gücü olduğu, bazılarının ise tehlikeyi gösterdiği biliniyor. Küçük
 çocukların daha alfabeyi öğrenmeden bunları kolaylıkla öğrenmesi mümkün. Konunun uzmanlarına
@@ -129,19 +111,16 @@ derecesi yüksek olmalı. Tehlike işaretleri hayati önemde; şoförün ani kar
 hareketi anında sağlayabilecek şekilde bilgi verici olması şart. Ayrıca işaretler yüksek ya da alçak hızda
 bile kolaylıkla fark edilebilecek düzeyde olmalı. Bilgi eksikliği sadece kavram kargaşasına sebep olabilir.
 1949’daki Cenova görüşmesi ve 1961’deki Washington Uluslararası Trafik Kongresi’nden beri
-standardizasyon çalışmaları devam ediyor.
-   <br/>
-   <br/>
-   İşaretlerin açık seçikliğine ve göze çarpıcılığına özel bir önem gösterilmesi gerektiğini
+standardizasyon çalışmaları devam ediyor.  
+
+İşaretlerin açık seçikliğine ve göze çarpıcılığına özel bir önem gösterilmesi gerektiğini
 belirten Neyir Dereoğlu; “İşaretler sistematize edilmeli ve grup halindeki işaretlerin birleşiminin özel bir
 anlamı olmalı. Bunun için uzmanları tarafından tasarlanması şart. Kullanıcının yorumunun alınması ve
-kullanıcı üzerinde bir testin yapılması da zorunlu bir gereklilik” diyor.
-   <br/>
-   <br/>
-   Yerel değil genel
-   <br/>
-   <br/>
-   Görsel rehberlik sistemleri grafik tasarımının diğer şekillerine nazaran insanı pratik
+kullanıcı üzerinde bir testin yapılması da zorunlu bir gereklilik” diyor.  
+
+Yerel değil genel  
+
+Görsel rehberlik sistemleri grafik tasarımının diğer şekillerine nazaran insanı pratik
 yönden daha çok etkiliyor. Tanımı açık olduğundan kentte ya da kırsalda egemen unsurlardan birini
 oluşturuyor. Yerel işaretler günümüze kadar ehli olmayan kişiler tarafından oluşturulduğu için hep
 problem oldu. İşaretleri ilk kullanan Edward Johnston’dur. Johnston 1916’da Londra metrosunun giriş
@@ -155,9 +134,5 @@ her karesinde karşımıza çıkan piktogramlar zaman geçtikçe iyiden iyiye bi
 çıkışlarımızı kontrol altına alıyor, atacağımız adımın ölçüsünü bile ayarlıyor. Cep telefonlarımızda da
 bizi kendisine mecbur eden bu bilim dalının bir an önce sistematik olarak işler hale getirilmesi zorunlu.
 Tabii psikolojik sorunları giderecek bir uzmanlık alanının oluşturulması da şart.
-  </font>
- </p>
-</div>
-
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1225), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225162053/http://www.aksiyon.com.tr:80/detay.php?id=1225)

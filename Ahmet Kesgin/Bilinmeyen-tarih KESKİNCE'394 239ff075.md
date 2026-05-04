@@ -2,26 +2,12 @@
 
 *Ahmet Kesgin Bilinmeyen-tarih*
 
-<div>
- <p>
-  <font>
-   <center>
-    <a href="http://web.archive.org/web/20050301160239/http://www.aksiyon.com.tr/modules.php?name=Downloads&amp;d_op=getit&amp;lid=4" target="_blank">
-     <img border="0" src="/web/20050301160239im_/http://www.aksiyon.com.tr/resimler/394/keskince0.jpg"/>
-    </a>
-   </center>
-   <br/>
-   <br/>
-   <br/>
-   <br/>
-  </font>
- </p>
- <p>
-  <font>
-   (Bu yazı 88 kez okunmuştur)
-  </font>
- </p>
-</div>
+[![](/web/20050301160239im_/http://www.aksiyon.com.tr/resimler/394/keskince0.jpg)](http://web.archive.org/web/20050301160239/http://www.aksiyon.com.tr/modules.php?name=Downloads&d_op=getit&lid=4)  
 
+
+
+
+
+(Bu yazı 88 kez okunmuştur)
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1411), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050301160239/http://www.aksiyon.com.tr:80/yazdir.php?id=1411)

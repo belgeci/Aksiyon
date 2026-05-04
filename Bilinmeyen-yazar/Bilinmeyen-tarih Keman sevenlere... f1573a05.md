@@ -2,24 +2,11 @@
 
 *Bilinmeyen-yazar Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20030918135741im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="/web/20030918135741im_/http://www.aksiyon.com.tr/resim/8/blank.gif" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  Kudsi Ergüner’in, İstanbul Müzik Festivali çerçevesinde bir Hint grubuyla Aya İrini’de verdiği konser beğeni topladı. Müzik festivalinin klasik müzik ağırlıklı programı devam ediyor. “Keman”dan hoşlananlar için iki önemli alternatif var. Suna Kan, İstanbul Müzik Festivali çerçevesinde 26 Haziran’da İş Sanat Konser Salonu’nda ‘keman’ resitali sunacak. 29 Haziran’da ise Berlin Filarmoni Orkestrası Kemanları, Aya İrini Müzesi’nde sahneye çıkacak.
- </font>
- <p>
-  <font class="content">
-  </font>
- </p>
-</div>
+![](/web/20030918135741im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+![](/web/20030918135741im_/http://www.aksiyon.com.tr/resim/8/blank.gif)
+
+Kudsi Ergüner’in, İstanbul Müzik Festivali çerçevesinde bir Hint grubuyla Aya İrini’de verdiği konser beğeni topladı. Müzik festivalinin klasik müzik ağırlıklı programı devam ediyor. “Keman”dan hoşlananlar için iki önemli alternatif var. Suna Kan, İstanbul Müzik Festivali çerçevesinde 26 Haziran’da İş Sanat Konser Salonu’nda ‘keman’ resitali sunacak. 29 Haziran’da ise Berlin Filarmoni Orkestrası Kemanları, Aya İrini Müzesi’nde sahneye çıkacak.
 
 ## Yorumlar
 

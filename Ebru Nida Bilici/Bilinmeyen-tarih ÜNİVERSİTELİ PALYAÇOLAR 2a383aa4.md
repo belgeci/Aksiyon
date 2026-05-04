@@ -2,623 +2,306 @@
 
 *Ebru Nida Bilici Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050225162045im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="/web/20050225162045im_/http://www.aksiyon.com.tr/resim/391/blank.gif" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  Üniversite gençliği eğitimlerini tehdit edecek
-  <br>
-   maddi engelleri ortadan kaldırmak için artık
-   <br>
-    yeni iş kollarına yöneliyor. Açılışlarda, tatil
-    <br>
-     köylerinde ve özel ilköğretim okullarında
-     <br/>
-     gösteriler yapan palyaço ve Batman
-     <br/>
-     karakterlerinin üniversite öğrencileri olduğunu
-     <br/>
-     biliyor muydunuz? Onlar eğitim masraflarını
-     <br/>
-     karşılamak için gösteri yapıyorlar ama bir o
-     <br/>
-     kadar da eğleniyorlar
-    </br>
-   </br>
-  </br>
- </font>
- <br/>
- <p>
-  <font class="content">
-   Her yıl katlanarak artan eğitim masrafları anne
-   <br>
-    babalara çocuklarının eğitimi konusunda ciddi
-    <br/>
-    problemler yaşatıyor. Maddi imkansızlıklar
-    <br/>
-    nedeniyle birçok gencin eğitimi yarım kalıyor.
-    <br/>
-    Geçim derdini çok küçük yaşlarda omuzlayan
-    <br/>
-    çocuk işçileri toplumun değişik noktalarında
-    <br/>
-    görüp üzülsek de bilinçli bir şekilde aile
-    <br/>
-    bütçesine katkı sağlamak ve kendi eğitim
-    <br/>
-    masraflarını temin etmek için çalışan gençlerin
-    <br/>
-    çabası saygı uyandırıyor. Anlaşılan ailesinden
-    <br/>
-    destek görmediği için tahsilini yarım bırakmış
-    <br/>
-    anne babaların hikayelerini dinleyerek büyüyen
-    <br/>
-    gençler aynı akıbete uğramamak için ihtiyaç
-    <br/>
-    duydukları tek şeyin kendi gayretleri olduğunun
-    <br/>
-    farkına vardılar.
-    <br/>
-    <br/>
-    <br/>
-    Aslında aileler de gençler de artık
-    <br>
-     daha şanslı. Çünkü hayat bir önceki nesilden
-     <br>
-      esirgediği yeni, ilginç ve güvenilir iş imkanları
-      <br/>
-      sunuyor artık gençlere. Bugünün gençliğine
-      <br/>
-      sorumsuz ve asalak gözüyle bakanlara inat
-      <br/>
-      ailesine yük olmadan eğitimini tamamlamayı
-      <br/>
-      hedefleyen üniversite öğrencilerini çalışma
-      <br/>
-      hayatının değişik noktalarında görebiliyoruz
-      <br/>
-      şimdi. Size animatörlük yaparak öğrenimini
-      <br/>
-      sürdüren gençlerden bahsedeceğiz.
-      <br/>
-      <br/>
-      <br/>
-      Ne demek animasyon, ne yapar
-      <br>
-       animatör? Kısaca palyaço kılığında, janklör ya
-       <br>
-        da özel kostümler içinde gösteri yaparak
-        <br/>
-        insanları eğlendiren kişileri tarif etmek için
-        <br/>
-        kullanılıyor bu kavram. Ağırlıklı olarak özel
-        <br/>
-        kreş ve anaokullarında, ilköğretim okullarında,
-        <br/>
-        sünnet ve doğum günü partilerinde görev alan
-        <br/>
-        animatörler, açılış törenlerinde ve tatil
-        <br/>
-        köylerinde de yetişkinlerin hoş vakit
-        <br/>
-        geçirmelerine yardımcı oluyorlar.
-        <br/>
-        <br/>
-        <br/>
-        Milli bayramlar ya da yıl sonu
-        <br>
-         etkinliklerinin yapıldığı dönemlerde işleri bir
-         <br>
-          hayli yoğunlaşan hatta aylar öncesinden
-          <br/>
-          programları belirlenen animatörler, bu
-          <br/>
-          yoğunluğun içinde üniversitedeki derslerini de
-          <br/>
-          aksatmamaya çalışıyor. En büyük zorluğu da,
-          <br/>
-          gösteriler sınav günleriyle çakıştığında
-          <br/>
-          yaşıyorlar. Böyle durumlarda ekip
-          <br/>
-          arkadaşlarının desteğiyle problemin üstesinden
-          <br/>
-          geliyorlar.
-          <br/>
-          <br/>
-          <br/>
-          <b>
-           Animatörlere kriz
-           <br>
-            uğramıyor!
-           </br>
-          </b>
-          <br>
-           <br/>
-           <br/>
-           Burak Parlı genç bir üniversite
-           <br>
-            öğrencisi. Çalışma Ekonomisi okuyor. Ama
-            <br>
-             tiyatroya ilgisi yıllar öncesine dayanıyor. Lise
-             <br/>
-             yıllarında Bakırköy Sahne Sanatları Tiyatro
-             <br/>
-             Bölümünde eğitim aldıktan sonra aynı okulun
-             <br/>
-             öğrencileriyle Sihirli Palyaçolar adlı bir
-             <br/>
-             animasyon grubu kurmuş. Grup 10 kişiden
-             <br/>
-             oluşuyor şimdilik, ama hepsi üniversiteli. Zaten
-             <br/>
-             gruba dahil olmanın şartlarından biri de bu.
-             <br/>
-             Sebep ise mantar gibi çoğalan animatör ve
-             <br/>
-             animasyon grupları yüzünden kalitenin giderek
-             <br/>
-             düşmesi ve herhangi bir animasyon eğitimi
-             <br/>
-             almamış tecrübesiz insanların piyasayı işgal
-             <br/>
-             etmesi. Kendilerince bu duruma son vermek için
-             <br/>
-             üniversite mezunu, tiyatro ve pedagoji eğitimi
-             <br/>
-             almış, profesyonel animatörlerden oluşan bir
-             <br/>
-             grup olarak kalmayı hedeflemişler. Aralarında
-             <br/>
-             mezun olanlar da var. Örneğin İTÜ Elektrik
-             <br/>
-             Mühendisliği mezunu olan bir arkadaşları
-             <br/>
-             gruptaki işine hâlâ devam ediyor. Aslında o
-             <br/>
-             üniversite yılları boyunca ekipte rol aldığı
-             <br/>
-             halde okul bitince mühendislik yapmayı
-             <br/>
-             düşünüyormuş. Ancak mezuniyeti ekonomik
-             <br/>
-             kriz dönemine rastlayınca iş bulamamış. O
-             <br/>
-             zaman da en iyi ve en çok severek yaptığı işe,
-             <br/>
-             animatörlüğe dönmüş. Zaten Burak Parlı"ya
-             <br/>
-             göre animasyonun diğer tüm mesleklere göre
-             <br/>
-             önemli bir avantajı var: Bu işe kriz uğramıyor.
-             <br/>
-             Çünkü kriz başlayıp da insanlar mallarını
-             <br/>
-             satamaz olunca animatörler yardımıyla tanıtım
-             <br/>
-             yapmaya ve ilgi çekmeye çalışıyor. Özel okullar
-             <br/>
-             bu tip etkinliklerini öne sürerek daha faal bir
-             <br/>
-             hayat ve daha eğlenceli bir eğitim vaadinde
-             <br/>
-             bulunuyorlar. Böylece reklamları daha kolay
-             <br/>
-             oluyor. Ekonomik durum iyi olunca da durum
-             <br/>
-             pek değişmiyor. Çünkü o dönemde de para
-             <br/>
-             sıkıntısı olmadığı için insanlar eğlenceye
-             <br/>
-             ayırdıkları paraya acımıyorlar.
-             <br/>
-             <br/>
-             <br/>
-             Sihirli Palyaço üyeleri için özellikle
-             <br>
-              çocuklara yaptıkları programlar çok keyif verici,
-              <br>
-               çünkü çocukların katılımı ve ilgisi daha yüksek
-               <br/>
-               oluyor. Animasyon konusunda başarının
-               <br/>
-               eğitim, deneyim ve sevgi üçgeniyle mümkün
-               <br/>
-               olduğuna inanıyorlar. Onlara göre çocukları
-               <br/>
-               sevmeyen, onları anlamayan biri bu işi
-               <br/>
-               yapamaz.
-               <br/>
-               <br/>
-               <br/>
-               <b>
-                Onlar saray soytarısı değil
-               </b>
-               <br>
-                <br/>
-                <br/>
-                Tabii herşey tozpembe değil
-                <br>
-                 animasyon dünyasında. Onların da kendilerine
-                 <br>
-                  göre yaşadıkları zorluklar var. Doğumgünü ya
-                  <br>
-                   da sünnet partilerine çağrıldıklarında
-                   <br/>
-                   kendilerini paralarıyla satın aldığını düşünen
-                   <br/>
-                   bazı zengin insanların hoş olmayan tavırlarıyla
-                   <br/>
-                   karşılaşabildiklerini söyleyen Parlı, giyinecek
-                   <br/>
-                   yer bile göstermeden kaba davranışlar içine
-                   <br/>
-                   girenlere anında tavır koyarak bu durumda
-                   <br/>
-                   gösteriyi yapmayı reddedebildiklerini söylüyor.
-                   <br/>
-                   Bu tür tavırlar animasyonun ülkemizde
-                   <br/>
-                   gereğince anlaşılıp kabullenilmediği izlenimi
-                   <br/>
-                   veriyor bize. Anlaşılan eğlencenin insanın ruh
-                   <br/>
-                   sağlığı üzerindeki olumlu etkilerini bilmeyen
-                   <br/>
-                   bazı insanlar animatörlere saray soytarısı
-                   <br/>
-                   muamelesi yapabilecekleri inancındalar. Oysa
-                   <br/>
-                   karşılarındaki insanlar hem üniversiteli hem de
-                   <br/>
-                   mesleklerine sevgi duyan profesyoneller.
-                   <br/>
-                   <br/>
-                   <br/>
-                   Animasyonun yaygınlaşan bir iş kolu
-                   <br>
-                    olduğunu gören bir çok genç bu alanda çalışma
-                    <br>
-                     konusunda artan isteklilik gösteriyor. Bazen bir
-                     <br/>
-                     ekip içinde çalıştıktan sonra herşeyi
-                     <br/>
-                     öğrendiğini düşünerek gruptan ayrılıp tek
-                     <br/>
-                     başına gösteri yapmak isteyenler de
-                     <br/>
-                     çıkabiliyor. Ancak Burak Parlı bunun ekip işi
-                     <br/>
-                     olduğuna ve birlikte çalışarak daha başarılı
-                     <br/>
-                     olunabileceğine inanıyor.
-                     <br/>
-                     <br/>
-                     <br/>
-                     Sihirli palyaçolar grubunda palyaço
-                     <br>
-                      tiplemesi önemli bir yere sahip. Palyaço aslında
-                      <br>
-                       bize dışardan gelmiş bir karakter ama renkli ve
-                       <br/>
-                       cazip görünümü sayesinde ilgi çekebildiği gibi
-                       <br/>
-                       belirli bir tarzının ve sınırlamasının olmaması
-                       <br/>
-                       sebebiyle istediğinizi söyletebiliyorsunuz. Ancak
-                       <br/>
-                       bu genç ekip sadece palyaço ya da öteki
-                       <br/>
-                       modern gösteri malzemelerini kullanmıyor.
-                       <br/>
-                       Geleneksel Türk tiyatrolarını da repertuarlarına
-                       <br/>
-                       katmışlar. Bunun altında yatan sebep ise
-                       <br/>
-                       unutulmaya yüz tutmuş bu sanatları çocuklara
-                       <br/>
-                       tanıtıp sevdirme kaygısı.
-                       <br/>
-                       <br/>
-                       <br/>
-                       <b>
-                        İşlerine yatırım
-                        <br>
-                         yapıyorlar
-                        </br>
-                       </b>
-                       <br/>
-                       <br/>
-                       <br>
-                        <br/>
-                        <br/>
-                        Çiğdem Gürsoy ise İstanbul Sahnesi
-                        <br>
-                         çocuk tiyatro grubunun üyesi. Çiğdem"in tiyatro
-                         <br>
-                          merakı aileden geliyor. Tiyatroyu seven ve sık
-                          <br>
-                           sık çocuklarıyla tiyatroya giden bir aileye sahip
-                           <br>
-                            Çiğdem. Çocukluğunda gittiği Keşanlı Ali
-                            <br/>
-                            Destanı adlı oyunu seyrettiği gün bu işi
-                            <br/>
-                            kendisinin de yapabileceğini hatta bunu
-                            <br/>
-                            muhakkak yapması gerektiğini düşünmüş.
-                            <br/>
-                            Ancak hayat şartları ona Su Ürünleri
-                            <br/>
-                            Mühendisliğini okuma yolunu göstermiş. Bu
-                            <br/>
-                            bölümde okurken bile aklı gösteri sanatlarında
-                            <br/>
-                            olduğu için üniversiteye bağlı kültür merkezinde
-                            <br/>
-                            halkoyunları ve tiyatro konularında çeşitli kurs
-                            <br/>
-                            ve etkinliklere katılmış. Daha sonraları
-                            <br/>
-                            arkadaşlarıyla kurduğu tiyatro grubuyla önce
-                            <br/>
-                            yetişkinlere yönelik oyunlarda rol almış daha
-                            <br/>
-                            sonra ise çocuk oyunlarına yönelmiş.
-                            <br/>
-                            <br/>
-                            <br/>
-                            İşlerini amatör bir ruhla ancak
-                            <br>
-                             profesyonelce yapmaya çalışıyor İstanbul
-                             <br>
-                              Sahnesi'nin genç oyuncuları. Öyle derme
-                              <br/>
-                              çatmalık yok. Oyunun en küçük araç gereci bile
-                              <br/>
-                              özenle seçilerek temin ediliyor. Yani işlerine
-                              <br/>
-                              yatırım yapmayı ihmal etmiyorlar. "Bunlar
-                              <br/>
-                              çocuk" deyip eksik gedikle çıkmıyorlar
-                              <br/>
-                              karşılarına.
-                              <br/>
-                              <br/>
-                              <br/>
-                              Çocuk deyip geçmemek gerek. Özenli
-                              <br>
-                               olmak gerekiyor. Her hareket, her tavır
-                               <br>
-                                düşünülerek yapılmalı. Çünkü çocuk oyun
-                                <br/>
-                                sayesinde öğrendiklerini hayatı boyunca
-                                <br/>
-                                kullanacak. Zaten her bir oyun çocuklar kadar
-                                <br/>
-                                bu genç oyunculara da zevk veriyor.
-                                <br/>
-                                <br/>
-                                <br/>
-                                Tabii çocuklara yönelik gösteriler
-                                <br>
-                                 onların tiyatroculukları üzerinde olumlu etki
-                                 <br>
-                                  yapmış. Rahatlama, uyanık olma, hazır cevap
-                                  <br/>
-                                  olma gibi özellikler kazandırmış. Çünkü
-                                  <br/>
-                                  çocuklardan oyun boyunca çeşitli uyarıcılar
-                                  <br/>
-                                  almaları sürekli onlara cevap yetiştirmeyi ve
-                                  <br/>
-                                  konsantrasyonlarını bozmadan devam
-                                  <br/>
-                                  etmelerini gerekli kılıyor.
-                                  <br/>
-                                  <br/>
-                                  <br/>
-                                  Çocuk oyunlarında oynayabilmek için
-                                  <br>
-                                   kabiliyetin yanısıra çocuk sevgisi de çok önemli
-                                   <br>
-                                    Çiğdem Gürsoy"a göre. Tabii oyuna kendinizden
-                                    <br/>
-                                    birşeyler de katmak zorundasınız. Ayrıca
-                                    <br/>
-                                    konular çok önemli. Bu yüzden senaryoyu yazan
-                                    <br/>
-                                    kişinin pedagoji bilgisinin yeterli olması ya da
-                                    <br/>
-                                    ortaya çıkan ürünü bir uzmana kontrol ettirmesi
-                                    <br/>
-                                    şart. Oyunda kavga olmamalı örneğin. Bir
-                                    <br/>
-                                    mesaj veriyor olmalı ama mutlaka esprili bir
-                                    <br/>
-                                    yolla yapılmalı bu. Özellikle özel okullarda bu
-                                    <br/>
-                                    gösterilere daha çok yer veriliyor olmasının
-                                    <br/>
-                                    sebebi ise eğlencenin eğitimin bir parçası
-                                    <br/>
-                                    olduğu gerçeğini dikkate alıyor olmaları.
-                                    <br/>
-                                    <br/>
-                                    <br/>
-                                    <b>
-                                     Maddi ve manevi tatmin
-                                     <br>
-                                      dorukta
-                                     </br>
-                                    </b>
-                                    <br>
-                                     <br/>
-                                     <br/>
-                                     Çiğdem Gürsoy öğrenciliğe doymamış
-                                     <br>
-                                      görünüyor. Bu yoğun tempo içinde yüksek
-                                      <br>
-                                       lisansını da bitirdiği gibi şimdilerde doktoraya
-                                       <br/>
-                                       başvurmuş. Eğer doktoraya kabul edilirse onu
-                                       <br/>
-                                       da tiyatroyla beraber yürütmeyi düşünüyor.
-                                       <br/>
-                                       Ailesinin bu konuda şimdiye kadar gösterdiği
-                                       <br/>
-                                       desteğin devam etmesiyle her iki çalışmayı
-                                       <br/>
-                                       birlikte yürütebileceği umudunu taşıyor.
-                                       <br/>
-                                       <br/>
-                                       <br/>
-                                       Evet yazının girişinde yazımıza
-                                       <br>
-                                        konuk olan animatör üniversite öğrencilerini
-                                        <br>
-                                         diğerlerinden ayıran önemli bir farktan
-                                         <br/>
-                                         bahsetmiştik. Bu fark gençlerin okulları bitince
-                                         <br/>
-                                         de animatörlüğe devam etmek istemeleri.
-                                         <br/>
-                                         Hepsinin farklı farklı meslekleri olacak, okulları
-                                         <br/>
-                                         bittiğinde; ama onlar animatörlüğe devam
-                                         <br/>
-                                         edecekler. Yani belki aile bütçesine katkı
-                                         <br/>
-                                         amacıyla başladıkları iş, hayatlarının bir
-                                         <br/>
-                                         parçası olmuş durumda. Edindiğimiz izlenimler
-                                         <br/>
-                                         bunun birkaç sebebi olduğunu gösteriyor.
-                                         <br/>
-                                         Birincisi aktif, enerjik ve içindeki çocuğu hep
-                                         <br/>
-                                         canlı tutan gençlerin bu hareketlilikten kolay
-                                         <br/>
-                                         vazgeçemeyecek olmaları. İkincisi alkış ve
-                                         <br/>
-                                         ilgiye alışmış olmaları. Üçüncüsü ise bu işte
-                                         <br/>
-                                         tahmin edildiğinden daha fazla para olması.
-                                         <br/>
-                                         Ülkemizdeki yüzlerce çeşit işin aksine
-                                         <br/>
-                                         animatörler hakettikleri parayı kazanabiliyorlar.
-                                         <br/>
-                                         Kırkbeş dakikalık bir gösterinin seksen ila yüz
-                                         <br/>
-                                         milyon arası bir ücrete tâbi olduğunu söylersek,
-                                         <br/>
-                                         ne demek istediğimiz daha iyi anlaşılır
-                                         <br/>
-                                         herhalde.
-                                         <br/>
-                                         <br/>
-                                         <br/>
-                                         Palyaço birbirine zıt iki duyguyu -
-                                         <br>
-                                          hüznü ve mutluluğu- hatırlatan bir tipleme
-                                          <br>
-                                           olarak canlanır zihinlerimizde. Bunlardan biri
-                                           <br/>
-                                           dışardan algılanan, öteki ise içteki duyguyu
-                                           <br/>
-                                           örnekler. Yıllardır film ve kliplerde çizilen tablo
-                                           <br/>
-                                           palyaçoyu mutsuz olarak resmeder; çünkü
-                                           <br/>
-                                           palyaço sevdiklerinden, evinden ayrıdır, üstelik
-                                           <br/>
-                                           de meteliksizdir; neredeyse boğaz tokluğuna
-                                           <br/>
-                                           çalışıyordur. Ama yüzündeki boyalardan
-                                           <br/>
-                                           müteşekkil o kocaman gülüş bu hüznü gizlemek
-                                           <br/>
-                                           zorundadır. Yani mutlu görünmelidir herşeye
-                                           <br/>
-                                           rağmen. Çünkü mutlu etmek onun birincil
-                                           <br/>
-                                           görevidir. O, sahne emekçilerinin klasik
-                                           <br/>
-                                           ifadesiyle "kendisi mutsuz dahi olsa derdini
-                                           <br/>
-                                           tasasını kuliste bırakmak zorunda"dır. Parlak
-                                           <br/>
-                                           ışıltılı dünyaların, sirklerin, tiyatroların ya da
-                                           <br/>
-                                           bu mekanlara sığınmış insanların ortak kaderi
-                                           <br/>
-                                           gibidir aslında bu... Mutlu görünen, mutlandıran
-                                           <br/>
-                                           mutsuzlar... Ancak bu dosya sayesinde o iç
-                                           <br/>
-                                           burkan tablonun enerjik, mutlu, umutlu ve neşeli
-                                           <br/>
-                                           gençler tarafından artık güzel ve içaçıcı bir
-                                           <br/>
-                                           hale getirildiğini gördük. Etrafımızda
-                                           <br/>
-                                           gelecekten umutlu ve halinden şikayet etmeyen,
-                                           <br/>
-                                           hatta işini severek yapan gençler olması ne
-                                           <br/>
-                                           güzel.
-                                          </br>
-                                         </br>
-                                        </br>
-                                       </br>
-                                      </br>
-                                     </br>
-                                    </br>
-                                   </br>
-                                  </br>
-                                 </br>
-                                </br>
-                               </br>
-                              </br>
-                             </br>
-                            </br>
-                           </br>
-                          </br>
-                         </br>
-                        </br>
-                       </br>
-                      </br>
-                     </br>
-                    </br>
-                   </br>
-                  </br>
-                 </br>
-                </br>
-               </br>
-              </br>
-             </br>
-            </br>
-           </br>
-          </br>
-         </br>
-        </br>
-       </br>
-      </br>
-     </br>
-    </br>
-   </br>
-  </font>
- </p>
-</div>
+![](/web/20050225162045im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+![](/web/20050225162045im_/http://www.aksiyon.com.tr/resim/391/blank.gif)
+
+Üniversite gençliği eğitimlerini tehdit edecek  
+maddi engelleri ortadan kaldırmak için artık  
+yeni iş kollarına yöneliyor. Açılışlarda, tatil  
+köylerinde ve özel ilköğretim okullarında  
+gösteriler yapan palyaço ve Batman  
+karakterlerinin üniversite öğrencileri olduğunu  
+biliyor muydunuz? Onlar eğitim masraflarını  
+karşılamak için gösteri yapıyorlar ama bir o  
+kadar da eğleniyorlar  
+
+
+Her yıl katlanarak artan eğitim masrafları anne  
+babalara çocuklarının eğitimi konusunda ciddi  
+problemler yaşatıyor. Maddi imkansızlıklar  
+nedeniyle birçok gencin eğitimi yarım kalıyor.  
+Geçim derdini çok küçük yaşlarda omuzlayan  
+çocuk işçileri toplumun değişik noktalarında  
+görüp üzülsek de bilinçli bir şekilde aile  
+bütçesine katkı sağlamak ve kendi eğitim  
+masraflarını temin etmek için çalışan gençlerin  
+çabası saygı uyandırıyor. Anlaşılan ailesinden  
+destek görmediği için tahsilini yarım bırakmış  
+anne babaların hikayelerini dinleyerek büyüyen  
+gençler aynı akıbete uğramamak için ihtiyaç  
+duydukları tek şeyin kendi gayretleri olduğunun  
+farkına vardılar.  
+
+
+Aslında aileler de gençler de artık  
+daha şanslı. Çünkü hayat bir önceki nesilden  
+esirgediği yeni, ilginç ve güvenilir iş imkanları  
+sunuyor artık gençlere. Bugünün gençliğine  
+sorumsuz ve asalak gözüyle bakanlara inat  
+ailesine yük olmadan eğitimini tamamlamayı  
+hedefleyen üniversite öğrencilerini çalışma  
+hayatının değişik noktalarında görebiliyoruz  
+şimdi. Size animatörlük yaparak öğrenimini  
+sürdüren gençlerden bahsedeceğiz.  
+
+
+Ne demek animasyon, ne yapar  
+animatör? Kısaca palyaço kılığında, janklör ya  
+da özel kostümler içinde gösteri yaparak  
+insanları eğlendiren kişileri tarif etmek için  
+kullanılıyor bu kavram. Ağırlıklı olarak özel  
+kreş ve anaokullarında, ilköğretim okullarında,  
+sünnet ve doğum günü partilerinde görev alan  
+animatörler, açılış törenlerinde ve tatil  
+köylerinde de yetişkinlerin hoş vakit  
+geçirmelerine yardımcı oluyorlar.  
+
+
+Milli bayramlar ya da yıl sonu  
+etkinliklerinin yapıldığı dönemlerde işleri bir  
+hayli yoğunlaşan hatta aylar öncesinden  
+programları belirlenen animatörler, bu  
+yoğunluğun içinde üniversitedeki derslerini de  
+aksatmamaya çalışıyor. En büyük zorluğu da,  
+gösteriler sınav günleriyle çakıştığında  
+yaşıyorlar. Böyle durumlarda ekip  
+arkadaşlarının desteğiyle problemin üstesinden  
+geliyorlar.  
+
+
+ **Animatörlere kriz  
+uğramıyor!**  
+
+
+Burak Parlı genç bir üniversite  
+öğrencisi. Çalışma Ekonomisi okuyor. Ama  
+tiyatroya ilgisi yıllar öncesine dayanıyor. Lise  
+yıllarında Bakırköy Sahne Sanatları Tiyatro  
+Bölümünde eğitim aldıktan sonra aynı okulun  
+öğrencileriyle Sihirli Palyaçolar adlı bir  
+animasyon grubu kurmuş. Grup 10 kişiden  
+oluşuyor şimdilik, ama hepsi üniversiteli. Zaten  
+gruba dahil olmanın şartlarından biri de bu.  
+Sebep ise mantar gibi çoğalan animatör ve  
+animasyon grupları yüzünden kalitenin giderek  
+düşmesi ve herhangi bir animasyon eğitimi  
+almamış tecrübesiz insanların piyasayı işgal  
+etmesi. Kendilerince bu duruma son vermek için  
+üniversite mezunu, tiyatro ve pedagoji eğitimi  
+almış, profesyonel animatörlerden oluşan bir  
+grup olarak kalmayı hedeflemişler. Aralarında  
+mezun olanlar da var. Örneğin İTÜ Elektrik  
+Mühendisliği mezunu olan bir arkadaşları  
+gruptaki işine hâlâ devam ediyor. Aslında o  
+üniversite yılları boyunca ekipte rol aldığı  
+halde okul bitince mühendislik yapmayı  
+düşünüyormuş. Ancak mezuniyeti ekonomik  
+kriz dönemine rastlayınca iş bulamamış. O  
+zaman da en iyi ve en çok severek yaptığı işe,  
+animatörlüğe dönmüş. Zaten Burak Parlı"ya  
+göre animasyonun diğer tüm mesleklere göre  
+önemli bir avantajı var: Bu işe kriz uğramıyor.  
+Çünkü kriz başlayıp da insanlar mallarını  
+satamaz olunca animatörler yardımıyla tanıtım  
+yapmaya ve ilgi çekmeye çalışıyor. Özel okullar  
+bu tip etkinliklerini öne sürerek daha faal bir  
+hayat ve daha eğlenceli bir eğitim vaadinde  
+bulunuyorlar. Böylece reklamları daha kolay  
+oluyor. Ekonomik durum iyi olunca da durum  
+pek değişmiyor. Çünkü o dönemde de para  
+sıkıntısı olmadığı için insanlar eğlenceye  
+ayırdıkları paraya acımıyorlar.  
+
+
+Sihirli Palyaço üyeleri için özellikle  
+çocuklara yaptıkları programlar çok keyif verici,  
+çünkü çocukların katılımı ve ilgisi daha yüksek  
+oluyor. Animasyon konusunda başarının  
+eğitim, deneyim ve sevgi üçgeniyle mümkün  
+olduğuna inanıyorlar. Onlara göre çocukları  
+sevmeyen, onları anlamayan biri bu işi  
+yapamaz.  
+
+
+ **Onlar saray soytarısı değil**  
+
+
+Tabii herşey tozpembe değil  
+animasyon dünyasında. Onların da kendilerine  
+göre yaşadıkları zorluklar var. Doğumgünü ya  
+da sünnet partilerine çağrıldıklarında  
+kendilerini paralarıyla satın aldığını düşünen  
+bazı zengin insanların hoş olmayan tavırlarıyla  
+karşılaşabildiklerini söyleyen Parlı, giyinecek  
+yer bile göstermeden kaba davranışlar içine  
+girenlere anında tavır koyarak bu durumda  
+gösteriyi yapmayı reddedebildiklerini söylüyor.  
+Bu tür tavırlar animasyonun ülkemizde  
+gereğince anlaşılıp kabullenilmediği izlenimi  
+veriyor bize. Anlaşılan eğlencenin insanın ruh  
+sağlığı üzerindeki olumlu etkilerini bilmeyen  
+bazı insanlar animatörlere saray soytarısı  
+muamelesi yapabilecekleri inancındalar. Oysa  
+karşılarındaki insanlar hem üniversiteli hem de  
+mesleklerine sevgi duyan profesyoneller.  
+
+
+Animasyonun yaygınlaşan bir iş kolu  
+olduğunu gören bir çok genç bu alanda çalışma  
+konusunda artan isteklilik gösteriyor. Bazen bir  
+ekip içinde çalıştıktan sonra herşeyi  
+öğrendiğini düşünerek gruptan ayrılıp tek  
+başına gösteri yapmak isteyenler de  
+çıkabiliyor. Ancak Burak Parlı bunun ekip işi  
+olduğuna ve birlikte çalışarak daha başarılı  
+olunabileceğine inanıyor.  
+
+
+Sihirli palyaçolar grubunda palyaço  
+tiplemesi önemli bir yere sahip. Palyaço aslında  
+bize dışardan gelmiş bir karakter ama renkli ve  
+cazip görünümü sayesinde ilgi çekebildiği gibi  
+belirli bir tarzının ve sınırlamasının olmaması  
+sebebiyle istediğinizi söyletebiliyorsunuz. Ancak  
+bu genç ekip sadece palyaço ya da öteki  
+modern gösteri malzemelerini kullanmıyor.  
+Geleneksel Türk tiyatrolarını da repertuarlarına  
+katmışlar. Bunun altında yatan sebep ise  
+unutulmaya yüz tutmuş bu sanatları çocuklara  
+tanıtıp sevdirme kaygısı.  
+
+
+ **İşlerine yatırım  
+yapıyorlar**  
+
+
+
+
+Çiğdem Gürsoy ise İstanbul Sahnesi  
+çocuk tiyatro grubunun üyesi. Çiğdem"in tiyatro  
+merakı aileden geliyor. Tiyatroyu seven ve sık  
+sık çocuklarıyla tiyatroya giden bir aileye sahip  
+Çiğdem. Çocukluğunda gittiği Keşanlı Ali  
+Destanı adlı oyunu seyrettiği gün bu işi  
+kendisinin de yapabileceğini hatta bunu  
+muhakkak yapması gerektiğini düşünmüş.  
+Ancak hayat şartları ona Su Ürünleri  
+Mühendisliğini okuma yolunu göstermiş. Bu  
+bölümde okurken bile aklı gösteri sanatlarında  
+olduğu için üniversiteye bağlı kültür merkezinde  
+halkoyunları ve tiyatro konularında çeşitli kurs  
+ve etkinliklere katılmış. Daha sonraları  
+arkadaşlarıyla kurduğu tiyatro grubuyla önce  
+yetişkinlere yönelik oyunlarda rol almış daha  
+sonra ise çocuk oyunlarına yönelmiş.  
+
+
+İşlerini amatör bir ruhla ancak  
+profesyonelce yapmaya çalışıyor İstanbul  
+Sahnesi'nin genç oyuncuları. Öyle derme  
+çatmalık yok. Oyunun en küçük araç gereci bile  
+özenle seçilerek temin ediliyor. Yani işlerine  
+yatırım yapmayı ihmal etmiyorlar. "Bunlar  
+çocuk" deyip eksik gedikle çıkmıyorlar  
+karşılarına.  
+
+
+Çocuk deyip geçmemek gerek. Özenli  
+olmak gerekiyor. Her hareket, her tavır  
+düşünülerek yapılmalı. Çünkü çocuk oyun  
+sayesinde öğrendiklerini hayatı boyunca  
+kullanacak. Zaten her bir oyun çocuklar kadar  
+bu genç oyunculara da zevk veriyor.  
+
+
+Tabii çocuklara yönelik gösteriler  
+onların tiyatroculukları üzerinde olumlu etki  
+yapmış. Rahatlama, uyanık olma, hazır cevap  
+olma gibi özellikler kazandırmış. Çünkü  
+çocuklardan oyun boyunca çeşitli uyarıcılar  
+almaları sürekli onlara cevap yetiştirmeyi ve  
+konsantrasyonlarını bozmadan devam  
+etmelerini gerekli kılıyor.  
+
+
+Çocuk oyunlarında oynayabilmek için  
+kabiliyetin yanısıra çocuk sevgisi de çok önemli  
+Çiğdem Gürsoy"a göre. Tabii oyuna kendinizden  
+birşeyler de katmak zorundasınız. Ayrıca  
+konular çok önemli. Bu yüzden senaryoyu yazan  
+kişinin pedagoji bilgisinin yeterli olması ya da  
+ortaya çıkan ürünü bir uzmana kontrol ettirmesi  
+şart. Oyunda kavga olmamalı örneğin. Bir  
+mesaj veriyor olmalı ama mutlaka esprili bir  
+yolla yapılmalı bu. Özellikle özel okullarda bu  
+gösterilere daha çok yer veriliyor olmasının  
+sebebi ise eğlencenin eğitimin bir parçası  
+olduğu gerçeğini dikkate alıyor olmaları.  
+
+
+ **Maddi ve manevi tatmin  
+dorukta**  
+
+
+Çiğdem Gürsoy öğrenciliğe doymamış  
+görünüyor. Bu yoğun tempo içinde yüksek  
+lisansını da bitirdiği gibi şimdilerde doktoraya  
+başvurmuş. Eğer doktoraya kabul edilirse onu  
+da tiyatroyla beraber yürütmeyi düşünüyor.  
+Ailesinin bu konuda şimdiye kadar gösterdiği  
+desteğin devam etmesiyle her iki çalışmayı  
+birlikte yürütebileceği umudunu taşıyor.  
+
+
+Evet yazının girişinde yazımıza  
+konuk olan animatör üniversite öğrencilerini  
+diğerlerinden ayıran önemli bir farktan  
+bahsetmiştik. Bu fark gençlerin okulları bitince  
+de animatörlüğe devam etmek istemeleri.  
+Hepsinin farklı farklı meslekleri olacak, okulları  
+bittiğinde; ama onlar animatörlüğe devam  
+edecekler. Yani belki aile bütçesine katkı  
+amacıyla başladıkları iş, hayatlarının bir  
+parçası olmuş durumda. Edindiğimiz izlenimler  
+bunun birkaç sebebi olduğunu gösteriyor.  
+Birincisi aktif, enerjik ve içindeki çocuğu hep  
+canlı tutan gençlerin bu hareketlilikten kolay  
+vazgeçemeyecek olmaları. İkincisi alkış ve  
+ilgiye alışmış olmaları. Üçüncüsü ise bu işte  
+tahmin edildiğinden daha fazla para olması.  
+Ülkemizdeki yüzlerce çeşit işin aksine  
+animatörler hakettikleri parayı kazanabiliyorlar.  
+Kırkbeş dakikalık bir gösterinin seksen ila yüz  
+milyon arası bir ücrete tâbi olduğunu söylersek,  
+ne demek istediğimiz daha iyi anlaşılır  
+herhalde.  
+
+
+Palyaço birbirine zıt iki duyguyu -  
+hüznü ve mutluluğu- hatırlatan bir tipleme  
+olarak canlanır zihinlerimizde. Bunlardan biri  
+dışardan algılanan, öteki ise içteki duyguyu  
+örnekler. Yıllardır film ve kliplerde çizilen tablo  
+palyaçoyu mutsuz olarak resmeder; çünkü  
+palyaço sevdiklerinden, evinden ayrıdır, üstelik  
+de meteliksizdir; neredeyse boğaz tokluğuna  
+çalışıyordur. Ama yüzündeki boyalardan  
+müteşekkil o kocaman gülüş bu hüznü gizlemek  
+zorundadır. Yani mutlu görünmelidir herşeye  
+rağmen. Çünkü mutlu etmek onun birincil  
+görevidir. O, sahne emekçilerinin klasik  
+ifadesiyle "kendisi mutsuz dahi olsa derdini  
+tasasını kuliste bırakmak zorunda"dır. Parlak  
+ışıltılı dünyaların, sirklerin, tiyatroların ya da  
+bu mekanlara sığınmış insanların ortak kaderi  
+gibidir aslında bu... Mutlu görünen, mutlandıran  
+mutsuzlar... Ancak bu dosya sayesinde o iç  
+burkan tablonun enerjik, mutlu, umutlu ve neşeli  
+gençler tarafından artık güzel ve içaçıcı bir  
+hale getirildiğini gördük. Etrafımızda  
+gelecekten umutlu ve halinden şikayet etmeyen,  
+hatta işini severek yapan gençler olması ne  
+güzel.
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1216), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050225162045/http://www.aksiyon.com.tr:80/detay.php?id=1216)

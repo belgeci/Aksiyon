@@ -2,45 +2,22 @@
 
 *İbrahim Karayeğen Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050117143534im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <font class="content">
-    Aksiyon, önümüzdeki dönemde ciddi biçimde tartışılacak bir konuyu kapağa taşıyor: Özel güvenlikçiler. Yasal bir düzleme oturan özel güvenlik sektörü şimdiden 1 milyar Euro’luk büyüklüğe ulaştı.
-   </font>
-   <br/>
-   <p>
-    <font class="content">
-     180 bin polise karşı 140 bin özel güvenlikçi var. Yeni yasayla üst arama, gözaltına alma ve silah kullanma hakkı tanınıyor. Fabrikalar, işyerleri, statlar, konser mekânları hatta tehdit alan kişiler bile bundan yararlanabilecek. Rakamın kısa sürede 300 bine çıkması bekleniyor.
-     <br>
-      <br>
-       Buraya kadar sorun yok. Her geçen gün dışa daha çok açılan, sivilleşen ve özelleşen bir ülkede normal de sayılabilir. Ancak yeterli eğitim verilmeden polis yetkisiyle donatılmış eli silahlı insanların muhtemel vukuatlarını tahmin etmek zor değil. Elbette belli standartlar getiriliyor. Lise mezunu olması, 120 saat kurs görmesi, sertifika alması isteniyor. Ancak, liseden sonra iki yıllık eğitim gören polislerin bile eleştirildiği bir ülkede beş ayda yetişecek özel güvenlikçilerin işi kolay olmayacak. Özellikle psikolojik analiz gerektiren toplumsal olaylarda sergileyecekleri tavırlar önemli.
-       <br>
-        <br>
-         ABD’deki başkanlık seçimleri için son haftaya giriliyor. Anketler, Bush ile Kerry’nin başa baş olduğunu gösteriyor. 11 Eylül’le girilen yeni dönemde güvenlik ve terörle mücadele Amerikalı seçmenin önceliği oldu. Afganistan’da seçimle birlikte halk ilk kez demokrasiyle tanışırken; Irak’ta savaş ortamı sürüyor.  Seçim savaşın gölgesinde yapılıyor. Uzmanlar iki adaydan hangisi seçilirse seçilsin global politikanın değişmeyeceğine işaret ediyor. Kerry seçilirse belki birkaç ay gecikebilir. Temsilcimiz Mustafa Sungur, Cumhuriyetçi ve Demokrat seçmenlerin profilini yazdı.
-         <br/>
-         <br/>
-         Bu sayıda, Alaattin Çakıcı’nın 2000 yılında Kartal Cezaevi’nde Meclis soruşturma komisyonuna yaptığı açıklamaları da bulacaksınız. Görüşmenin tutanakları yakın siyasi tarihin üzerindeki örtüyü aralıyor.
-         <br/>
-         <br/>
-         Anadolu’nun çok kültürlü, çok milletli yapısına bir örnek olarak Adana’daki Kuzey Afrikalılar dosyasını sunuyoruz. Yaklaşık yüz sene önce sömürgecilerin tasallutundan kaçıp ülkemize sığınan insanların hikâyesi. Hele bir köy var ki Birleşmiş Milletler gibi. Moritanyalı, Cezayirli, Libyalı, Selanik Göçmeni, Van Kürdü, Boşnak Muhaciri ve Romanlardan oluşan köyde şimdiye kadar adliyelik bir vak’aya rastlanmamış.
-         <br/>
-         <br/>
-         İyi haftalar dileğiyle…
-         <br/>
-        </br>
-       </br>
-      </br>
-     </br>
-    </font>
-   </p>
-  </p>
- </font>
-</div>
+![](/web/20050117143534im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+Aksiyon, önümüzdeki dönemde ciddi biçimde tartışılacak bir konuyu kapağa taşıyor: Özel güvenlikçiler. Yasal bir düzleme oturan özel güvenlik sektörü şimdiden 1 milyar Euro’luk büyüklüğe ulaştı.  
+
+
+180 bin polise karşı 140 bin özel güvenlikçi var. Yeni yasayla üst arama, gözaltına alma ve silah kullanma hakkı tanınıyor. Fabrikalar, işyerleri, statlar, konser mekânları hatta tehdit alan kişiler bile bundan yararlanabilecek. Rakamın kısa sürede 300 bine çıkması bekleniyor.  
+
+Buraya kadar sorun yok. Her geçen gün dışa daha çok açılan, sivilleşen ve özelleşen bir ülkede normal de sayılabilir. Ancak yeterli eğitim verilmeden polis yetkisiyle donatılmış eli silahlı insanların muhtemel vukuatlarını tahmin etmek zor değil. Elbette belli standartlar getiriliyor. Lise mezunu olması, 120 saat kurs görmesi, sertifika alması isteniyor. Ancak, liseden sonra iki yıllık eğitim gören polislerin bile eleştirildiği bir ülkede beş ayda yetişecek özel güvenlikçilerin işi kolay olmayacak. Özellikle psikolojik analiz gerektiren toplumsal olaylarda sergileyecekleri tavırlar önemli.  
+
+ABD’deki başkanlık seçimleri için son haftaya giriliyor. Anketler, Bush ile Kerry’nin başa baş olduğunu gösteriyor. 11 Eylül’le girilen yeni dönemde güvenlik ve terörle mücadele Amerikalı seçmenin önceliği oldu. Afganistan’da seçimle birlikte halk ilk kez demokrasiyle tanışırken; Irak’ta savaş ortamı sürüyor. Seçim savaşın gölgesinde yapılıyor. Uzmanlar iki adaydan hangisi seçilirse seçilsin global politikanın değişmeyeceğine işaret ediyor. Kerry seçilirse belki birkaç ay gecikebilir. Temsilcimiz Mustafa Sungur, Cumhuriyetçi ve Demokrat seçmenlerin profilini yazdı.  
+
+Bu sayıda, Alaattin Çakıcı’nın 2000 yılında Kartal Cezaevi’nde Meclis soruşturma komisyonuna yaptığı açıklamaları da bulacaksınız. Görüşmenin tutanakları yakın siyasi tarihin üzerindeki örtüyü aralıyor.  
+
+Anadolu’nun çok kültürlü, çok milletli yapısına bir örnek olarak Adana’daki Kuzey Afrikalılar dosyasını sunuyoruz. Yaklaşık yüz sene önce sömürgecilerin tasallutundan kaçıp ülkemize sığınan insanların hikâyesi. Hele bir köy var ki Birleşmiş Milletler gibi. Moritanyalı, Cezayirli, Libyalı, Selanik Göçmeni, Van Kürdü, Boşnak Muhaciri ve Romanlardan oluşan köyde şimdiye kadar adliyelik bir vak’aya rastlanmamış.  
+
+İyi haftalar dileğiyle…
 
 ## Yorumlar
 

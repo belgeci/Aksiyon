@@ -2,34 +2,6 @@
 
 *Bilinmeyen-yazar Bilinmeyen-tarih*
 
-<div>
- <!--- Baslik, Spot, Resim kutusu ---------->
- <table>
-  <tr>
-   <td>
-   </td>
-   <td>
-    <br/>
-   </td>
-   <td>
-    <!--- Resim Burada ---------->
-    <!--- Resim Burada ---------->
-   </td>
-  </tr>
- </table>
- <br/>
- <p>
-  <font class="content">
-  </font>
-  <!--- Baslik, Spot, Resim kutusu ---------->
-  <p>
-   <font class="content">
-   </font>
-   <br/>
-   <!-------- end of YAZI ---------->
-  </p>
- </p>
-</div>
 
 
 ## Yorumlar

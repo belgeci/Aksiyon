@@ -2,17 +2,13 @@
 
 *Nihal Bengisu Karaca Bilinmeyen-tarih*
 
-<div>
- <p>
-  <font>
-   Shapplin yaşamı, yükselişi, hayata ve müziğe bakış
+Shapplin yaşamı, yükselişi, hayata ve müziğe bakış
 açısındaki relax tavrıyla operanın elitist ve üst
-sınıf müziği imajına  sevimli bir çehre
+sınıf müziği imajına sevimli bir çehre
 kazandırıyor. Onun müziği sıcak,ilginç ve günümüz
 insanının beklentilerini hesaba katan bir müzik;
-fantastik, tarihi ve edebi dokular içermesine rağmen.
-   <br/>
-   Shapplin'e rock müziği de yabancı değil. Geçmiş
+fantastik, tarihi ve edebi dokular içermesine rağmen.  
+Shapplin'e rock müziği de yabancı değil. Geçmiş
 yıllarda bir rock grubunda söylemiş, rhtym and
 blues bile denemiş. Ama müzik hayatı operayla
 başladığı için kan çekmiş adeta, içten içe özlediği
@@ -21,10 +17,9 @@ bir isim olmasına neden olan opera başka formlarla
 zenginleştirilmiş bir tür. Carmine Meo'da da ikinci
 ve yeni albümü Le Notte Eterna'da da opera
 formunun yanısıra pek çok şeyin izini sürmek
-mümkün.
-   <br/>
-   <br/>
-   Ses, insan vücuduna yerleştirilmiş muhteşem bir enstrüman. Kimileri bu enstrüman
+mümkün.  
+
+Ses, insan vücuduna yerleştirilmiş muhteşem bir enstrüman. Kimileri bu enstrüman
 konusunda fazlasıyla torpilli, yeni albümü La notte etterna'nın tanıtımı için ülkemize
 gelmiş olan Emma Shapplin bu torpilli grubun başını çekenlerden. Carmine Meo adlı
 albümü rock ya da pop dışında bir şey dinlemeyen genç nüfusu ve hatta incelmiş bir
@@ -34,13 +29,11 @@ sıfat, operayla hemen hemen hiçbir bağ geliştirememiş, hatta onu aşağıla
 mümkünse ti'ye alınacak bir olgu olarak görmüş Türk insanı için özellikle doğru. İlk
 albümü Türkiye'de 100 bin kopya satan Shapplin; sesini modellik, hosteslik ve telefon
 operatörlüğü yaparak biriktirdiği paralarla eğiten ve "buralara" kadar getiren sevecen
-bakışlı idealist bir Fransız. Geleceğin Maria Callas'ı.
-   <br/>
-   <br/>
-   Eski İtalyancanın büyülü kelimeleri
-   <br/>
-   <br/>
-   Klasikleri yeniden yorumlamıyor Shapplin, tüm klasik çağrışımlarına rağmen şarkı
+bakışlı idealist bir Fransız. Geleceğin Maria Callas'ı.  
+
+Eski İtalyancanın büyülü kelimeleri  
+
+Klasikleri yeniden yorumlamıyor Shapplin, tüm klasik çağrışımlarına rağmen şarkı
 sözü ve besteleri ile tamamen yeni olan eserleri seslendiriyor. Müzikal platforma
 yansıtacağı buluşlar yapmaktan hoşlanıyor. Sözgelimi yeni albümün adında bulunan
 "Etterna" kelimesi sadece Dante tarafından böyle, iki "t" ile kullanılırmış. Bu Emma
@@ -55,28 +48,25 @@ geçirmesiyle şekillenmiş. Bu işbirliği sırasında eski İtalyan yazarları
 ortamda Petrarca'nın hayat hikayesini okumuş prodüktörü. Bu hayat hikayesi Emma
 Shapplin'i etkilemiş ve bundan sonraki sözler tümüyle Dante ve Petrarca'dan esinlenilerek
 yazılmış. La Notte Etterna'da ise sadece duygusal bir esinlenme değilmiş sözkonosu olan.
-Shapplin "Ondan kelimeler de aldım bu sefer " diyor.
-   <br/>
-   <br/>
-   Fransızlar bilindiği gibi kendi dillerini kulanmakta abartılı hassasiyet sahibi bir
+Shapplin "Ondan kelimeler de aldım bu sefer " diyor.  
+
+Fransızlar bilindiği gibi kendi dillerini kulanmakta abartılı hassasiyet sahibi bir
 millettir, hatta bazıları inatla yabancı dil öğrenmez. Shapplin'in böyle kaygıları yok,
 sadece Dante'nin ve Petrarca'nın dili olduğu için değil kelimelerini büyülü bulduğu için de
-seviyor  İtalyancayı, bu dilde şarkı söylemek istiyor.  Bu eski dilin kendi içinde bir müziği
+seviyor İtalyancayı, bu dilde şarkı söylemek istiyor. Bu eski dilin kendi içinde bir müziği
 var, hayalgücünü zorlayan bir müziği... Emma Shapplin'in istediği de bu, dinleyicinin
 hayalgücünü çalıştırmak. Söylenilen şarkılar her zaman tek bir şeyi anlatmıyor.
-"Etterna'da bir kelime bazen birkaç anlama geliyor."  Sanatçı bunun bir avantaj olduğunu
+"Etterna'da bir kelime bazen birkaç anlama geliyor." Sanatçı bunun bir avantaj olduğunu
 düşünüyor. Çünkü o müziğin en önemli vasfının kişinin hayal gücünü çalıştırmak
 olduğuna inanıyor ve bu gerekçeyle dinleyiciyi şarkının hikayesinden olduğu gibi kendi
 kafasında beliren hikayeden bile uzak tutmak istiyor. "Ben kafamdaki hikayeyi
 aktarmaktan ziyade onların kendi hikayelerini kurmalarını istiyorum." 14. yy.
 İtalyancasının trajik, şiirsel bir tınısı var ve bu Shapplin'in vurguladığı "hikaye"nin
-özüne uygun düşüyor.
-   <br/>
-   <br/>
-   Rock dinliyor, Santana ile dans ediyor
-   <br/>
-   <br/>
-   Shapplin'e rock müziği de yabancı değil. Geçmiş yıllarda bir rock grubunda söylemiş,
+özüne uygun düşüyor.  
+
+Rock dinliyor, Santana ile dans ediyor  
+
+Shapplin'e rock müziği de yabancı değil. Geçmiş yıllarda bir rock grubunda söylemiş,
 rhtym and blues bile denemiş. Ama müzik hayatı operayla başladığı için kan çekmiş
 adeta, içten içe özlediği "opera"sına dönmüş yine. Ama Shapplin'in sevilen bir isim
 olmasına neden olan opera başka formlarla zenginleştirilmiş bir tür. Carmine Meo'da da
@@ -84,30 +74,26 @@ ikinci ve yeni albümü Le Notte Eterna'da da opera formunun yanısıra pek çok
 sürmek mümkün. Yaşıtları "yağ satırım bal satarım" modeli üzerinden pirim yaparken
 Shapplin "Benim müziğimde her şey var" diyecek kadar iddialı. Bu albümde çığlıklar,
 ıslıklar, konuşmalar, ritim, davul, çocuk sesleri, ağaç hışırtıları var. Klasikten çok
-newage türüne yakın duran sentezi tek bir isimle tanımlamak zor.
-   <br/>
-   <br/>
-   Şarkıları hüzünlü bir elektrik yayıyor . Ama genç sanatçı hüzünlü bir insan olmadığını
+newage türüne yakın duran sentezi tek bir isimle tanımlamak zor.  
+
+Şarkıları hüzünlü bir elektrik yayıyor . Ama genç sanatçı hüzünlü bir insan olmadığını
 söylüyor: "Eğlenmeyi, gülmeyi severim ve yeri geldiğinde palyaço bile olabilirm." Ancak
 şu var ki o, "neşe içinde, konsantre olmaya gereksinim duymadan kolayca şarkı
 söyleyebilen şarkıcılardan" da değil. Şarkı söylemek özel bir şey ve şarkı söylediği anlar
 da özel olmalı. Bu yüzden söylemeden önce bir hazırlık evresi geçirdiğini ve çevresinden
-olumlu enerji alabiliyorsa iyi bir performans gösterebildiğini söylüyor.
-   <br/>
-   <br/>
-   Operayı sevmeyenleri anlayabiliyorum
-   <br/>
-   <br/>
-   "Türk insanı, belki de pek çok ülkenin insanı operayı sevmez " dediğimizde "Onları
+olumlu enerji alabiliyorsa iyi bir performans gösterebildiğini söylüyor.  
+
+Operayı sevmeyenleri anlayabiliyorum  
+
+"Türk insanı, belki de pek çok ülkenin insanı operayı sevmez " dediğimizde "Onları
 anlayabiliyorum" diyor gülerek. "Ben de her operayı sevmiyorum, içlerinde çok sıkıcı
 olanlar var." Emma'ya göre insanlar artık hayattan çok hızlı, kesin ve basit sonuçlar talep
 ediyor ve müzik tercihlerini de en kısa yoldan keyif alacağı türlere yöneltiyor. "Oysa bir
 opera içinde ancak iki ya da en fazla üç tane keyif alınacak arya olur, geri kalan bölüm çok
 komplike, ancak yoğun bir konsantrasyon ve çaba gerektirecek şekilde düzenlenmiştir.
-İnsanların ise buna zamanı yok, bence opera bu yüzden insanların çoğuna itici geliyor."
-   <br/>
-   <br/>
-   Bu noktada operadan uzak duran insanların neden Emma Shapplin'i sevdiği
+İnsanların ise buna zamanı yok, bence opera bu yüzden insanların çoğuna itici geliyor."  
+
+Bu noktada operadan uzak duran insanların neden Emma Shapplin'i sevdiği
 noktası önem kazanıyor. Shapplin yaşamı, yükselişi, hayata ve müziğe bakış açısındaki
 relax tavrıyla operanın elitist ve üst sınıf müziği imajını sarsarak ona sevimli bir çehre
 kazandırıyor. Ancak o kendi müziğine duyulan ilgi ile operaya duyulan soğukluk
@@ -118,24 +104,16 @@ tarihsel ve edebi dokuya yeniden dikkat çekiyor. Kullanılan kelimelerin çok
 anlamlılığından, çağrışımlarının zenginliğinden dem vuruyor. Gerçekten de Shapplin'in
 "Benim müziğim" dediği tür eni boyu hesaplanabilir, daha yakın, daha sıcak, bugünün
 insanının iyi kötü davranış kalıplarını hesaba katan ama her halukârda kaliteden taviz
-vermeyen bir yapı.
-   <br/>
-   <br/>
-   Universal müzikten çıkan La note etterna için o sadece benim albümüm değil diyerek
+vermeyen bir yapı.  
+
+Universal müzikten çıkan La note etterna için o sadece benim albümüm değil diyerek
 Londra Filormani Orkestrası'nın payını hatırlatıyor. Gerekeni yapmış, artık ne olduysa
 olmuş, şimdi yapılacak tek şey konserlere hazırlanmak ve albümün sevilmesini umut
 etmekmiş. Sanatçı Yapı Kredi Sanat Festivali kapsamında 20 Temmuz'da Cemil
-Topuzlu'da sahne alacak ve sevenlerini sihirli alaşımı ile mest edecek.
-   <br/>
-   <br/>
-  </font>
- </p>
- <p>
-  <font>
-   (Bu yazı 115 kez okunmuştur)
-  </font>
- </p>
-</div>
+Topuzlu'da sahne alacak ve sevenlerini sihirli alaşımı ile mest edecek.  
 
+
+
+(Bu yazı 115 kez okunmuştur)
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/yazdir.php?id=1206), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050228022618/http://www.aksiyon.com.tr:80/yazdir.php?id=1206)

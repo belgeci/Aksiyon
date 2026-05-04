@@ -2,597 +2,297 @@
 
 *Abdülhamit Bilici Bilinmeyen-tarih*
 
-<div>
- <font>
-  <img border="0" height="1" src="/web/20050226010540im_/http://www.aksiyon.com.tr/images/blank.gif"/>
- </font>
- <font class="content">
-  <p>
-   <img border="0" hspace="5" src="/web/20050226010540im_/http://www.aksiyon.com.tr/resim/398/blank.gif" vspace="5"/>
-  </p>
- </font>
- <font class="content">
-  Türkiye"de son dönemde görmeye başladığımız siyaset tablosunu Soğuk Savaş yadigarı sağ-sol kavramlarıyla anlamak mümkün mü? Yeni dönemde Avrupa Birliği"ne karşı takınılan tutum ve küreselleşmeye bakış açısı siyasetin ana ekseni olacağa benziyor. Fiili sonuçlarıyla Ankara"yı çalkalayan bu iki olgu, Abant"ta Türkiye"nin aydınları tarafından enine boyuna tartışıldı
- </font>
- <br/>
- <p>
-  <font class="content">
-   Kimin tetiklediği uzun süre tartışılacak
-   <br>
-    bir operasyonla siyaset hallaç pamuğu gibi atılıp, neredeyse saat başı bir bakan
-    <br>
-     ya da milletvekili partisinden istifa ettiği günlerdi. Ekonomiden sorumlu kilit
-     <br>
-      bakanının istifa dilekçesi Ankara-Washington semalarında uçuşuyor, millet kulak
-      <br>
-       kesilmiş, bu kasırganın nereye varacağını merakla izliyordu.
-       <br/>
-       <br/>
-       <br/>
-       Bu kargaşa ortamına taban tabana zıt bir
-       <br>
-        mekan olan Abant"ta ise Ankara"daki bu dağdağalı havaya inat bir sükunet içinde
-        <br>
-         Türkiye"nin birikimi olan aydınlar yoğun bir entellektüel ziyafete
-         <br/>
-         hazırlanıyordu.
-         <br/>
-         <br/>
-         <br/>
-         Organizasyonun sahibi olan Gazeteciler ve
-         <br>
-          Yazarlar Vakfı, büyük emekle bir araya getirdiği aydınların tartışmalarından
-          <br>
-           çıkacak sonucun medyanın siyasete odaklanmasından dolayı gerekli ilgiyi
-           <br/>
-           görmeyeceğinden endişe ediyordu. Haksız da değillerdi. Bu yıl beşincisi yapılan
-           <br/>
-           Abant toplantılarına (12-14 Temmuz) medyanın ilgisi geçmiş yıllara göre düşüktü.
-           <br/>
-           Ancak gerçekte bu yılki sempozyumun konusu seçilen küreselleşme Ankara"daki
-           <br/>
-           gelişmelerden kopuk bir olgu muydu? Yoksa bizatihi Abant"ta tartışılan konunun
-           <br/>
-           fiili sonuçları mıydı Ankara"da yaşananlar?
-           <br/>
-           <br/>
-           <br/>
-           Türkiye tarihinde hiçbir bakan bu kadar
-           <br>
-            aleni olarak uluslararası sistemin "ricası" üzerine hükümette yer almamış,
-            <br>
-             istifa edip yeni oluşmakta olan bir partiye gitmeye karar verdiğinde de
-             <br/>
-             uluslararası baskılarla koltuğuna bağlanmamıştı.
-             <br/>
-             <br/>
-             <br/>
-             Siyasi tabloyu allak bullak eden olaylara
-             <br>
-              biraz uzaktan bakıldığında, temel faktörlerden birinin yine Abant"ta
-              <br>
-               küreselleşmeyle paralel olarak tartışılan Avrupa Birliği (AB) konusunda yaşanan
-               <br/>
-               tutumlar olduğu kolaylıkla görülür. Başbakan"ın sağlığı bahane olsa da,
-               <br/>
-               operasyon AB konusunda yapılması gerekenleri daha hızlı yapabilecek bir hükümet
-               <br/>
-               formülü oluşturmak hesabıyla başlamadı mı?
-               <br/>
-               <br/>
-               <br/>
-               Memuru maaşlarını, çiftçisi alım
-               <br>
-                fiyatlarını iyileştirmek için Ankara yerine IMF"ye dilekçe vermeye başlayan,
-                <br>
-                 neredeyse halkının yüzde 70"i kurtuluşu Ankara yerine Brüksel"de gören bir
-                 <br/>
-                 Türkiye"de aydınların küreselleşmeyi tartışması çok da siyasetin uzağında bir
-                 <br/>
-                 tercih değil, aksine aktüel siyasetin temalarına uygun seçimdi.
-                 <br/>
-                 <br/>
-                 <br/>
-                 Akademik kariyerleri kadar ideolojik temsil
-                 <br>
-                  keyfiyetleri de göz önüne alınarak oluşturulmuş davetli listesinde yer alan
-                  <br>
-                   bilim ve fikir erbabı, 3 gün boyunca küreselleşmenin ne olduğunu, Türkiye"nin
-                   <br/>
-                   oluşmakta olan bu yeni dünyayla nasıl ilişki kurması gerektiğini tartışırken
-                   <br/>
-                   ortaya çıkan tablo siyasette başlayan yeni yapılanmanın ana çizgilerine de
-                   <br/>
-                   işaret ediyordu. Dolayısıyla ciddi olarak siyasete soyunanların bir kulağı ya da
-                   <br/>
-                   gözü Abant"ta olması gerekirdi.
-                   <br/>
-                   <br/>
-                   <br/>
-                   Türk aydınları geçiyor allı yeşilli
-                   <br>
-                    <br/>
-                    <br/>
-                    Tartışılan konu ne olursa olsun, Abant,
-                    <br>
-                     Türk bilim ve fikir dünyasının birikimini ve renklerini gözlemlemek için de bir
-                     <br>
-                      laboratuarı andırıyordu. Bir kısım aydınların başkalarına uygulamaktan zevk
-                      <br>
-                       duydukları "kategorize etme" yöntemine başvurursak, küreselleşme konusu
-                       <br/>
-                       etrafında Türk aydınlarının kabaca üç gruba ayrıldığını söyleyebiliriz: Birinci
-                       <br/>
-                       grupta küreselleşmeyi emperyalizmin yeni adı olarak görüp kesin olarak
-                       <br/>
-                       reddedenler. İkinci grupta küreselleşme trenine atlamadığımız halde sonumuzun
-                       <br/>
-                       geleceğine inananlar. Üçüncü kategori ise küreselleşmeyi doğal/olgusal bir süreç
-                       <br/>
-                       olarak görüp tehlike ve fırsatlarına dikkat çekenler.
-                       <br/>
-                       <br/>
-                       <br/>
-                       Her kategorizasyonda bir miktar zorlama
-                       <br>
-                        vardır kuşkusuz. Üç gün boyunca tartışmalarını, fikirlerini izlememize rağmen bu
-                        <br>
-                         tasnifi cetvel kalem yapmadık. Hataları asgariye indirmek için görüşlerini
-                         <br/>
-                         aldığımız kişilerden bu tasnife katılıp katılmadıklarını, katılıyorlarsa hangi
-                         <br/>
-                         grubu kendilerine yakın hissettiklerini ve bunun gerekçelerini sorduk. Bir iki
-                         <br/>
-                         istisna dışında, herkes küreselleşmeye karşı aydınların tutumunun bu şekilde
-                         <br/>
-                         özetlenebileceğinde hemfikirdi.
-                         <br/>
-                         <br/>
-                         <br/>
-                         Küreselleşme taraftarlığını en net ortaya
-                         <br>
-                          koyan isimler Mehmet Altan, Eser Karakaş ve Nevval Sevindi"ydi. Altan süreci
-                          <br>
-                           tarihsel bir aşama olarak görürken, Sevindi ısrarla bu yeni durumun Türkiye"nin
-                           <br/>
-                           kültürünü dışarıya taşıması için kapı açtığını, Türk okulları, futbol ve iş
-                           <br/>
-                           adamlarının Türkiye"nin içe kapanarak değil dışa açılarak kendini
-                           <br/>
-                           geliştirebileceğinin örnekleri olduğunu savundu. Yine bu gruptan Nazif Gürdoğan,
-                           <br/>
-                           küreselleşmeye uyum sağlayamamanın Türkiye"yi, moderniteyi anlayamayan
-                           <br/>
-                           Osmanlı"nın akıbetiyle karşı karşıya getireceğini söylüyordu. AK Parti"den
-                           <br/>
-                           Hüseyin Çelik, küreselleşmeyle ilgili düşüncelerini Bediüzzaman"ın II.
-                           <br/>
-                           Meşrutiyet"e karşı çıkanlara söylediği "Eski hal muhal, ya yeni hal, ya
-                           <br/>
-                           izmihlal" sözleriyle anlatıyordu. Cemil Meriç"in kızı Ümit Meriç, Müslüman"ın
-                           <br/>
-                           doğası gereği global olduğunu söylerken, insanların yakınlaşmasını, insanlığın
-                           <br/>
-                           ihtiyaç duyduğu değerlerin transferini mümkün kılan bir küreselleşmeye taraftar
-                           <br/>
-                           olduğunu dile getiriyordu. Genel olarak dindarların cesur tavrı dikkat
-                           <br/>
-                           çekiciydi.
-                           <br/>
-                           <br/>
-                           <br/>
-                           Küreselleşmenin olumsuz yönlerine daha
-                           <br>
-                            fazla vurgu yapanların başında gelen Alev Alatlı, küreselleşmeyi 1880"lerde
-                            <br>
-                             yapılan gizli yuvarlak masa toplantılarıyla tohumu atılan, Üçlü Komisyon, Roma
-                             <br/>
-                             Kulübü ve Bilderberg"le devam eden ideolojik bir yapılanma olarak görüyordu. En
-                             <br/>
-                             az onun kadar sert tavırlarıyla dikkat çeken Durmuş Hocaoğlu"na göre
-                             <br/>
-                             küreselleşme, dünyadaki bir avuç zenginin, fakirlerin kaynaklarını çalarak
-                             <br/>
-                             onlara kendi görüşlerini empoze edişinin yeni adıydı.
-                             <br/>
-                             <br/>
-                             <br/>
-                             Sosyalist Mehmet Ali Kılıçbay"a göre,
-                             <br>
-                              karşısında rakip ideoloji kalmadığı için kapitalizmin küresel ölçekteki
-                              <br>
-                               istilasından başka bir şey olmayan küreselleşme, ABD"deki saygın bilim
-                               <br/>
-                               adamlarımızdan Kemal Karpat"a göre de başarılı olacağı hakkında temkinli
-                               <br/>
-                               olunması gereken bir süreçti.
-                               <br/>
-                               <br/>
-                               <br/>
-                               Küreselleşmeyle ilgili tutumları bakımından
-                               <br>
-                                çoğunluk ortada yer alıyordu. Onlara göre, bu tabii bir gelişmeydi. Fırsatları
-                                <br>
-                                 kadar tehlikeleri de vardı. Bu arada liberal fikirlerinden dolayı hızlı
-                                 <br/>
-                                 küreselleşme taraftarı olması beklenen Mustafa Erdoğan"ın temkinli yaklaşımı
-                                 <br/>
-                                 dikkat çekerken, dışa açık bir Türkiye perspektifini savunan bazı aydınların
-                                 <br/>
-                                 oylamalarda milliyetçilerle birlikte davranması, aydınlar arasındaki "dil"
-                                 <br/>
-                                 sorununu göstermesi bakımından ilginçti.
-                                 <br/>
-                                 <br/>
-                                 <br/>
-                                 Ali Bulaç, Hayrettin Karaman, Reha
-                                 <br>
-                                  Çamuroğlu, Ümit Meriç ve Süleyman Seyfi Öğün gibi isimlerin savunduğu "biz
-                                  <br>
-                                   merkezli dünya tasavvuru" vurgusu aydınlarımız adına önemli bir özgüvenin
-                                   <br/>
-                                   habercisiydi.
-                                   <br/>
-                                   <br/>
-                                   <br/>
-                                   Hayrettin Karaman, İslam merkezli bir
-                                   <br>
-                                    medeniyet tasavvuru için gerekli ilkeleri 5 madde halinde ortaya koyarken, Ali
-                                    <br>
-                                     Bulaç modernitenin krizine çare olarak insanın kendisiyle, ötekiyle, tabiatla ve
-                                     <br/>
-                                     yaratıcıyla barışı üzerine oturan dörtlü bir öneride bulundu. Meriç dünyanın
-                                     <br/>
-                                     karşı karşıya olduğu problemlerin çözümünün İslam"da olduğunu söylerken,
-                                     <br/>
-                                     Süleyman Seyfi Öğün asıl meselenin "bu coğrafyanın insanlarından, bu coğrafyanın
-                                     <br/>
-                                     birikiminden ne türetilebilir sorusunun cevabını adam gibi ortaya koymak"
-                                     <br/>
-                                     olduğunun altını çizdi. Reha Çamuoğlu, tasavvufun da hedefi olan nefisle
-                                     <br/>
-                                     mücadele ve kendini bilme ilkelerine, Suat Yıldırım Batı"dan yararlanırken ölçü
-                                     <br/>
-                                     olarak Gazali"nin Munkız"da ortaya koyduğu ilkelere atıfta bulundu.
-                                     <br/>
-                                     <br/>
-                                     <br/>
-                                     Her kategorilendirme gibi buradakiler de
-                                     <br>
-                                      elbette mutlak ayrımlar değil. Tanımlamanın ne kadar zor olduğunu Abant"ta, en
-                                      <br>
-                                       fazla mesai harcadıkları tanım konusunda yorgunluktan bitap düşünce, tanımı flu
-                                       <br/>
-                                       bırakarak gösterdiler. Dolayısıyla küreselleşmenin ne olduğu tanımlanamadan, bir
-                                       <br/>
-                                       süreçler toplamı, beşeri bir durum" gibi tespitlerle yetinildi. Zaten bu kadar
-                                       <br/>
-                                       farklı siyasi eğilim ve geçmişe sahip insanların tanımda anlaşmaları sürpriz
-                                       <br/>
-                                       olurdu.
-                                       <br/>
-                                       <br/>
-                                       <br/>
-                                       Öznesi kim?
-                                       <br>
-                                        <br/>
-                                        <br/>
-                                        Tanımda anlaşılamayınca tabii olarak
-                                        <br>
-                                         küreselleşmenin özneli bir süreç olup olmadığı konusunda da uzlaşma sağlanamadı.
-                                         <br>
-                                          Bal gibi özneli bir süreç olduğunu savunanlardan Alev Alatlı, gerekirse isim
-                                          <br>
-                                           isim, kurum kurum özneleri açıklayabileceğini savunurken, tabii bir süreç
-                                           <br/>
-                                           olduğunu düşünenlerin başında gelen Mehmet Altan, küreselleşmeyi ideolojik bir
-                                           <br/>
-                                           konuymuş gibi değerlendirerek karşı çıkmayı ulus devletlerin doğduğu bir dönemde
-                                           <br/>
-                                           feodal değerleri savunmaya benzetti.
-                                           <br/>
-                                           <br/>
-                                           <br/>
-                                           Yer yer küreselleşme sürecine yerel
-                                           <br>
-                                            motifler vermemiz gerektiğinden söz eden Ali Bulaç"ın, bu kapsamda global gelir
-                                            <br>
-                                             uçurumunu gidermek için Norveçli bir bilim adamına atfen zekatın uluslararası
-                                             <br/>
-                                             düzeyde kurumsallaştırılması önerisi maddeler arasına giremedi. Onun Kopenhag
-                                             <br/>
-                                             kriterleriyle ulus devletin mahiyet değiştirdiği tespitine sosyalist Mehmet Ali
-                                             <br/>
-                                             Kılıçbay destek verdi.
-                                             <br/>
-                                             <br/>
-                                             <br/>
-                                             Globalleşmenin daha çok ekonomik bir süreç
-                                             <br>
-                                              olduğunun benimsenmesine rağmen, ilk gün konuları ele alan 3 komisyondan
-                                              <br>
-                                               (siyaset, ekonomi, kültür) performansı en yüksek olan kültür, en düşük olan
-                                               <br/>
-                                               ekonomiydi. İlgi dağılımı da bu performans derecesiyle doğru orantılıydı. Bu
-                                               <br/>
-                                               durum kültürde Aydın, Karaman, Alatlı, Bulaç, Karpat, Meriç, Sevindi gibi daha
-                                               <br/>
-                                               çok popüler ismin bulunmasından mı, yoksa Türkiye"de ekonomiden umut kesildiği
-                                               <br/>
-                                               için küreselleşme daha çok kültür düzeyinde ilgi uyandırdığından mıydı
-                                               <br/>
-                                               anlaşılamadı.
-                                               <br/>
-                                               <br/>
-                                               <br/>
-                                               Tanım dışında üzerinde en çok durulan ve
-                                               <br>
-                                                tartışma çıkan konulardan biri Türkçe, diğeri Türkiye"nin gereksiz korkular
-                                                <br>
-                                                 yüzünden içe kapanma eğilimi konularıydı. Kültür komisyonunda dil konusunda o
-                                                 <br/>
-                                                 kadar seviyeli bir müzakere yapıldı ki Türkçe küreselleşmenin olumsuz etkilerine
-                                                 <br/>
-                                                 karşı hem bir sığınak, hem de küreselleşmenin anlaşılması ve yerli değerlerin
-                                                 <br/>
-                                                 transfer edilmesinde en önemli değer olarak ortaya çıktı. Her bir komisyon üyesi
-                                                 <br/>
-                                                 diğer komisyondaki tartışmaları izleyemediği için genel kurulda konu bu
-                                                 <br/>
-                                                 perspektiften kaydı ve Kopenhag kriterleri çerçevesinde ele alınan ana dil,
-                                                 <br/>
-                                                 resmi dil çıkmazına saptı.
-                                                 <br/>
-                                                 <br/>
-                                                 <br/>
-                                                 Gereksiz korkular konusunda Türk
-                                                 <br>
-                                                  aydınlarının nahifçe hemfikir olması gerektiğini beklerken, sonuç bildirisindeki
-                                                  <br>
-                                                   10"uncu maddede yer alan "Türkiye"nin yersiz korku ve kaygılarından kaynaklanan
-                                                   <br/>
-                                                   içe kapanma eğilimlerini bir kenara bırakarak..." ifadesi bir iki oy farkıyla
-                                                   <br/>
-                                                   ancak geçti. Bu durum aydınlarımızın bir kısmının küreselleşme ve Avrupa Birliği
-                                                   <br/>
-                                                   gibi gelişmeler karşısında ciddi ciddi tedirgin olduğunu gösteriyordu. Buna
-                                                   <br/>
-                                                   rağmen AB üyeliğini destekleyen bir maddenin (15. madde) bildiriye girmesi
-                                                   <br/>
-                                                   toplumdaki eğilimlere uygun bir durumdu.
-                                                   <br/>
-                                                   <br/>
-                                                   <br/>
-                                                   Abant Platformu buraya katılan aydınların
-                                                   <br>
-                                                    çoğunun ancak Meclis"e girdiği zaman fark edebileceği, şimdiye kadarki akademik
-                                                    <br>
-                                                     ve fikri hayatında rastlamadığı bir tarza sahip. Salt entellektüel bir platform
-                                                     <br/>
-                                                     değil, çünkü davetlilerin seçiminde katılımcıların akademik yanları kadar farklı
-                                                     <br/>
-                                                     dünya görüşlerinin temsil edilebilmesine imkan verecek bir siyasi çoğulculuk da
-                                                     <br/>
-                                                     hedefleniyor. Dolayısıyla ele alınan konuda akademik bir seviyeye, bir
-                                                     <br/>
-                                                     mükemmeliyete ulaşmak kadar, farklı eğilimler arasında bir uzlaşma noktasının
-                                                     <br/>
-                                                     bulunması da hedefleniyor. Her ne kadar gece gündüz sonuç bildirisini
-                                                     <br/>
-                                                     hazırlamakla uğraşan aydınlar, "Bunca sıkıntıyı siz basın için çekiyoruz. Son
-                                                     <br/>
-                                                     gün gelip bu bildiriyi istiyorsunuz" diye takılsalar da, aslında farklı
-                                                     <br/>
-                                                     meşreplerden gelmiş Türkiye aydınlarının ortak bir zeminde, kavga etmeden, ortak
-                                                     <br/>
-                                                     sonuçlara ulaşabileceklerini göstermek de Abant"ın hedeflerinden biri. Bir
-                                                     <br/>
-                                                     yönüyle Abant, katılanlardan yalnız akademik kariyer vasfını değil siyaseti,
-                                                     <br/>
-                                                     gündemi sorgulayan, fikir öncüsü olan, taraf tutan aydınları hedef alıyor.
-                                                     <br/>
-                                                     Özellikle komisyonların çalışmalarını tamamladıktan sonra ikinci gün oluşturulan
-                                                     <br/>
-                                                     ve her konunun (örneğin bu sene küreselleşmenin tanımı) saatlerce tartışıldığı
-                                                     <br/>
-                                                     genel kurul sanki Türkiye Büyük Aydınlar Meclisi"ni çağrıştırıyor. Aydınlardan
-                                                     <br/>
-                                                     bazıları "Bu tecrübeyle artık Meclis"te kimse elimize su dökemez" esprisi bile
-                                                     <br/>
-                                                     yapıyor.
-                                                     <br/>
-                                                     <br/>
-                                                     <br/>
-                                                     Dolayısıyla salt entellektüel
-                                                     <br>
-                                                      derinlik/netlik arayan akademisyenler de; siyasi görüşünün tamamen sonuç
-                                                      <br>
-                                                       bildirisine yansımasını bekleyen aktivistler de aradıklarını bulamıyorlar.
-                                                       <br/>
-                                                       Tamamen de nasipsiz kalmıyorlar. Birinci gruptakiler salt entellektüellikle
-                                                       <br/>
-                                                       siyaset arasındaki ince çizgi hakkında fikir sahibi oluyor. İkinciler ise
-                                                       <br/>
-                                                       aslında sevmedikleri karşıt görüşleri, onların gerekçelerini sıcak bir ortamda
-                                                       <br/>
-                                                       birinci elden öğrenme fırsatı buluyor. Ayrıca toplam 3 gün aynı yerde yemek
-                                                       <br/>
-                                                       yiyerek, aynı havuza girerek, aynı masa etrafında çay içerek farklı görüş
-                                                       <br/>
-                                                       temsilcileri arasında doğal bir insani yakınlık doğuyor.
-                                                       <br/>
-                                                       <br/>
-                                                       <br/>
-                                                       Abant"ın temel sürükleyicilerinden biri
-                                                       <br>
-                                                        olan Mete Tunçay"ın toplantıların içeriğinden çok şekli beni heyecanlandırıyor
-                                                        <br>
-                                                         demesi, Wisconsin Üniversitesi"nden kıymetli bilim adamı Prof. Dr. Kemal
-                                                         <br/>
-                                                         Karpat"ın "Türkiye"de ilk kez karşıt görüşler birbirini sükunetle dinliyor.
-                                                         <br/>
-                                                         Toplantıdan sonra birbiriyle dostça konuşuyor. Bu Türkiye için çok önemli, Abant
-                                                         <br/>
-                                                         ruhu devam etmeli" sözleri de Abant"ın bu siyasi, toplumsal yönüne işaret
-                                                         <br/>
-                                                         ediyor.
-                                                         <br/>
-                                                         <br/>
-                                                         <br/>
-                                                         Soldan ve sağdan bazı isimlerin eksikliği,
-                                                         <br>
-                                                          ortaya çıkan fikirlerin "Türkiye ortalaması" olduğu gibi bir hükmü zorlaştırsa
-                                                          <br>
-                                                           da, Abant"ın Türkiye"de mümkün olan en geniş katılımlı aydın platformu olduğuna
-                                                           <br/>
-                                                           her halde kimse itiraz edemez.
-                                                           <br/>
-                                                           <br/>
-                                                           <br/>
-                                                           Abant"a gölge düşürmek için bu platformu
-                                                           <br>
-                                                            sanki bir grubun etkisindeymiş gibi varsayarak görmezden gelenler toplantıları,
-                                                            <br>
-                                                             kararların alınış biçimini bilselerdi iddialarının yersizliğini anlarlardı.
-                                                             <br/>
-                                                             Gazeteciler ve Yazarlar Vakfı yalnız ev sahibi. Toplantının seyri, bildirinin
-                                                             <br/>
-                                                             oluşması, divanın seçimi ve yönetimi tamamen aydınların elinde. Birçok teklif,
-                                                             <br/>
-                                                             sahibi göz önüne alınmaksızın demokratik olarak reddedilebiliyor.
-                                                             <br/>
-                                                             <br/>
-                                                             <br/>
-                                                             AİHM mi, İstiklal Mahkemeleri mi?
-                                                             <br>
-                                                              <br/>
-                                                              <br/>
-                                                              Abant"ın demokratik açıdan kendini
-                                                              <br>
-                                                               kanıtladığının daha çarpıcı bir örneği de 1999"daki toplantıda yaşanmış.
-                                                               <br>
-                                                                Platformun tertip heyetinde yer alan Ali Bulaç, buraya katılan bazı isimleri
-                                                                <br>
-                                                                 etkili birilerinin arayarak "Katılmayın" şeklinde açıkça uyardığını, hatta
-                                                                 <br/>
-                                                                 bazılarının sırf bu yüzden katılmaktan vazgeçtiğini söyledi. Bu bilgiyi
-                                                                 <br/>
-                                                                 tersinden okursak, ortaya şu çıkıyor: Katılanların akademik özelliklerinin
-                                                                 <br/>
-                                                                 ötesinde, güç karşısında eğilmeyerek "aydın" vasıflarını kanıtlayan insanların
-                                                                 <br/>
-                                                                 platformu Abant.
-                                                                 <br/>
-                                                                 <br/>
-                                                                 <br/>
-                                                                 Tartışmalar da alabildiğine özgür bir
-                                                                 <br>
-                                                                  atmosferde cereyan ediyor. Mesela Türkiye"nin en saygın din adamlarının da
-                                                                  <br>
-                                                                   bulunduğu bu ortamda Alatlı "Artık gökteki cehennem insanları korkutmuyor" diyor
-                                                                   <br/>
-                                                                   ve bir tepkiyle karşılaşmıyordu.
-                                                                   <br/>
-                                                                   <br/>
-                                                                   <br/>
-                                                                   Avrupa Birliği üyeliğini Türkiye"nin bitişi
-                                                                   <br>
-                                                                    olarak gören Durmuş Hocaoğlu bazı AB taraftarlarının kullandığı "Atatürk bugün
-                                                                    <br>
-                                                                     yaşasaydı, AB"yi çağdaş Türkiye"nin hedefi yapardı" varsayımına şöyle cevap
-                                                                     <br/>
-                                                                     veriyordu: "Gazi yaşasaydı, AB taraftarlarını İstiklal Mahkemeleri"nde
-                                                                     <br/>
-                                                                     yargılardı." AB"ye soğuk bakanların hoşuna giden bu değerlendirmeye, liberal bir
-                                                                     <br/>
-                                                                     akademisyen olan İhsan Dağı şu cevapla karşılık veriyordu: "Atatürk yaşasaydı ne
-                                                                     <br/>
-                                                                     yapardı polemiğine girmeyeceğim. Ama Avrupa İnsan Hakları Mahkemesi"nde
-                                                                     <br/>
-                                                                     yargılanmayı, İstiklal Mahkemeleri"ne tercih ederim."
-                                                                     <br/>
-                                                                     <br/>
-                                                                     <br/>
-                                                                     Görüldüğü gibi sonuç bildirisi, her grubun
-                                                                     <br>
-                                                                      asıl fikrinden ödün vererek kabul ettiği bir asgari müştereği ifade eden özetten
-                                                                      <br>
-                                                                       ibaret. Türkiye ve dünyada tartışılan meselelere ilgi duyanlar, ya bir sene
-                                                                       <br/>
-                                                                       sonraki toplantıya katılmanın yolunu bulmalı, ya da Abant"taki tüm konuşulanları
-                                                                       <br/>
-                                                                       ihtiva eden kitapları dikkatle okumalı.
-                                                                      </br>
-                                                                     </br>
-                                                                    </br>
-                                                                   </br>
-                                                                  </br>
-                                                                 </br>
-                                                                </br>
-                                                               </br>
-                                                              </br>
-                                                             </br>
-                                                            </br>
-                                                           </br>
-                                                          </br>
-                                                         </br>
-                                                        </br>
-                                                       </br>
-                                                      </br>
-                                                     </br>
-                                                    </br>
-                                                   </br>
-                                                  </br>
-                                                 </br>
-                                                </br>
-                                               </br>
-                                              </br>
-                                             </br>
-                                            </br>
-                                           </br>
-                                          </br>
-                                         </br>
-                                        </br>
-                                       </br>
-                                      </br>
-                                     </br>
-                                    </br>
-                                   </br>
-                                  </br>
-                                 </br>
-                                </br>
-                               </br>
-                              </br>
-                             </br>
-                            </br>
-                           </br>
-                          </br>
-                         </br>
-                        </br>
-                       </br>
-                      </br>
-                     </br>
-                    </br>
-                   </br>
-                  </br>
-                 </br>
-                </br>
-               </br>
-              </br>
-             </br>
-            </br>
-           </br>
-          </br>
-         </br>
-        </br>
-       </br>
-      </br>
-     </br>
-    </br>
-   </br>
-  </font>
- </p>
-</div>
+![](/web/20050226010540im_/http://www.aksiyon.com.tr/images/blank.gif)
 
+![](/web/20050226010540im_/http://www.aksiyon.com.tr/resim/398/blank.gif)
+
+Türkiye"de son dönemde görmeye başladığımız siyaset tablosunu Soğuk Savaş yadigarı sağ-sol kavramlarıyla anlamak mümkün mü? Yeni dönemde Avrupa Birliği"ne karşı takınılan tutum ve küreselleşmeye bakış açısı siyasetin ana ekseni olacağa benziyor. Fiili sonuçlarıyla Ankara"yı çalkalayan bu iki olgu, Abant"ta Türkiye"nin aydınları tarafından enine boyuna tartışıldı  
+
+
+Kimin tetiklediği uzun süre tartışılacak  
+bir operasyonla siyaset hallaç pamuğu gibi atılıp, neredeyse saat başı bir bakan  
+ya da milletvekili partisinden istifa ettiği günlerdi. Ekonomiden sorumlu kilit  
+bakanının istifa dilekçesi Ankara-Washington semalarında uçuşuyor, millet kulak  
+kesilmiş, bu kasırganın nereye varacağını merakla izliyordu.  
+
+
+Bu kargaşa ortamına taban tabana zıt bir  
+mekan olan Abant"ta ise Ankara"daki bu dağdağalı havaya inat bir sükunet içinde  
+Türkiye"nin birikimi olan aydınlar yoğun bir entellektüel ziyafete  
+hazırlanıyordu.  
+
+
+Organizasyonun sahibi olan Gazeteciler ve  
+Yazarlar Vakfı, büyük emekle bir araya getirdiği aydınların tartışmalarından  
+çıkacak sonucun medyanın siyasete odaklanmasından dolayı gerekli ilgiyi  
+görmeyeceğinden endişe ediyordu. Haksız da değillerdi. Bu yıl beşincisi yapılan  
+Abant toplantılarına (12-14 Temmuz) medyanın ilgisi geçmiş yıllara göre düşüktü.  
+Ancak gerçekte bu yılki sempozyumun konusu seçilen küreselleşme Ankara"daki  
+gelişmelerden kopuk bir olgu muydu? Yoksa bizatihi Abant"ta tartışılan konunun  
+fiili sonuçları mıydı Ankara"da yaşananlar?  
+
+
+Türkiye tarihinde hiçbir bakan bu kadar  
+aleni olarak uluslararası sistemin "ricası" üzerine hükümette yer almamış,  
+istifa edip yeni oluşmakta olan bir partiye gitmeye karar verdiğinde de  
+uluslararası baskılarla koltuğuna bağlanmamıştı.  
+
+
+Siyasi tabloyu allak bullak eden olaylara  
+biraz uzaktan bakıldığında, temel faktörlerden birinin yine Abant"ta  
+küreselleşmeyle paralel olarak tartışılan Avrupa Birliği (AB) konusunda yaşanan  
+tutumlar olduğu kolaylıkla görülür. Başbakan"ın sağlığı bahane olsa da,  
+operasyon AB konusunda yapılması gerekenleri daha hızlı yapabilecek bir hükümet  
+formülü oluşturmak hesabıyla başlamadı mı?  
+
+
+Memuru maaşlarını, çiftçisi alım  
+fiyatlarını iyileştirmek için Ankara yerine IMF"ye dilekçe vermeye başlayan,  
+neredeyse halkının yüzde 70"i kurtuluşu Ankara yerine Brüksel"de gören bir  
+Türkiye"de aydınların küreselleşmeyi tartışması çok da siyasetin uzağında bir  
+tercih değil, aksine aktüel siyasetin temalarına uygun seçimdi.  
+
+
+Akademik kariyerleri kadar ideolojik temsil  
+keyfiyetleri de göz önüne alınarak oluşturulmuş davetli listesinde yer alan  
+bilim ve fikir erbabı, 3 gün boyunca küreselleşmenin ne olduğunu, Türkiye"nin  
+oluşmakta olan bu yeni dünyayla nasıl ilişki kurması gerektiğini tartışırken  
+ortaya çıkan tablo siyasette başlayan yeni yapılanmanın ana çizgilerine de  
+işaret ediyordu. Dolayısıyla ciddi olarak siyasete soyunanların bir kulağı ya da  
+gözü Abant"ta olması gerekirdi.  
+
+
+Türk aydınları geçiyor allı yeşilli  
+
+
+Tartışılan konu ne olursa olsun, Abant,  
+Türk bilim ve fikir dünyasının birikimini ve renklerini gözlemlemek için de bir  
+laboratuarı andırıyordu. Bir kısım aydınların başkalarına uygulamaktan zevk  
+duydukları "kategorize etme" yöntemine başvurursak, küreselleşme konusu  
+etrafında Türk aydınlarının kabaca üç gruba ayrıldığını söyleyebiliriz: Birinci  
+grupta küreselleşmeyi emperyalizmin yeni adı olarak görüp kesin olarak  
+reddedenler. İkinci grupta küreselleşme trenine atlamadığımız halde sonumuzun  
+geleceğine inananlar. Üçüncü kategori ise küreselleşmeyi doğal/olgusal bir süreç  
+olarak görüp tehlike ve fırsatlarına dikkat çekenler.  
+
+
+Her kategorizasyonda bir miktar zorlama  
+vardır kuşkusuz. Üç gün boyunca tartışmalarını, fikirlerini izlememize rağmen bu  
+tasnifi cetvel kalem yapmadık. Hataları asgariye indirmek için görüşlerini  
+aldığımız kişilerden bu tasnife katılıp katılmadıklarını, katılıyorlarsa hangi  
+grubu kendilerine yakın hissettiklerini ve bunun gerekçelerini sorduk. Bir iki  
+istisna dışında, herkes küreselleşmeye karşı aydınların tutumunun bu şekilde  
+özetlenebileceğinde hemfikirdi.  
+
+
+Küreselleşme taraftarlığını en net ortaya  
+koyan isimler Mehmet Altan, Eser Karakaş ve Nevval Sevindi"ydi. Altan süreci  
+tarihsel bir aşama olarak görürken, Sevindi ısrarla bu yeni durumun Türkiye"nin  
+kültürünü dışarıya taşıması için kapı açtığını, Türk okulları, futbol ve iş  
+adamlarının Türkiye"nin içe kapanarak değil dışa açılarak kendini  
+geliştirebileceğinin örnekleri olduğunu savundu. Yine bu gruptan Nazif Gürdoğan,  
+küreselleşmeye uyum sağlayamamanın Türkiye"yi, moderniteyi anlayamayan  
+Osmanlı"nın akıbetiyle karşı karşıya getireceğini söylüyordu. AK Parti"den  
+Hüseyin Çelik, küreselleşmeyle ilgili düşüncelerini Bediüzzaman"ın II.  
+Meşrutiyet"e karşı çıkanlara söylediği "Eski hal muhal, ya yeni hal, ya  
+izmihlal" sözleriyle anlatıyordu. Cemil Meriç"in kızı Ümit Meriç, Müslüman"ın  
+doğası gereği global olduğunu söylerken, insanların yakınlaşmasını, insanlığın  
+ihtiyaç duyduğu değerlerin transferini mümkün kılan bir küreselleşmeye taraftar  
+olduğunu dile getiriyordu. Genel olarak dindarların cesur tavrı dikkat  
+çekiciydi.  
+
+
+Küreselleşmenin olumsuz yönlerine daha  
+fazla vurgu yapanların başında gelen Alev Alatlı, küreselleşmeyi 1880"lerde  
+yapılan gizli yuvarlak masa toplantılarıyla tohumu atılan, Üçlü Komisyon, Roma  
+Kulübü ve Bilderberg"le devam eden ideolojik bir yapılanma olarak görüyordu. En  
+az onun kadar sert tavırlarıyla dikkat çeken Durmuş Hocaoğlu"na göre  
+küreselleşme, dünyadaki bir avuç zenginin, fakirlerin kaynaklarını çalarak  
+onlara kendi görüşlerini empoze edişinin yeni adıydı.  
+
+
+Sosyalist Mehmet Ali Kılıçbay"a göre,  
+karşısında rakip ideoloji kalmadığı için kapitalizmin küresel ölçekteki  
+istilasından başka bir şey olmayan küreselleşme, ABD"deki saygın bilim  
+adamlarımızdan Kemal Karpat"a göre de başarılı olacağı hakkında temkinli  
+olunması gereken bir süreçti.  
+
+
+Küreselleşmeyle ilgili tutumları bakımından  
+çoğunluk ortada yer alıyordu. Onlara göre, bu tabii bir gelişmeydi. Fırsatları  
+kadar tehlikeleri de vardı. Bu arada liberal fikirlerinden dolayı hızlı  
+küreselleşme taraftarı olması beklenen Mustafa Erdoğan"ın temkinli yaklaşımı  
+dikkat çekerken, dışa açık bir Türkiye perspektifini savunan bazı aydınların  
+oylamalarda milliyetçilerle birlikte davranması, aydınlar arasındaki "dil"  
+sorununu göstermesi bakımından ilginçti.  
+
+
+Ali Bulaç, Hayrettin Karaman, Reha  
+Çamuroğlu, Ümit Meriç ve Süleyman Seyfi Öğün gibi isimlerin savunduğu "biz  
+merkezli dünya tasavvuru" vurgusu aydınlarımız adına önemli bir özgüvenin  
+habercisiydi.  
+
+
+Hayrettin Karaman, İslam merkezli bir  
+medeniyet tasavvuru için gerekli ilkeleri 5 madde halinde ortaya koyarken, Ali  
+Bulaç modernitenin krizine çare olarak insanın kendisiyle, ötekiyle, tabiatla ve  
+yaratıcıyla barışı üzerine oturan dörtlü bir öneride bulundu. Meriç dünyanın  
+karşı karşıya olduğu problemlerin çözümünün İslam"da olduğunu söylerken,  
+Süleyman Seyfi Öğün asıl meselenin "bu coğrafyanın insanlarından, bu coğrafyanın  
+birikiminden ne türetilebilir sorusunun cevabını adam gibi ortaya koymak"  
+olduğunun altını çizdi. Reha Çamuoğlu, tasavvufun da hedefi olan nefisle  
+mücadele ve kendini bilme ilkelerine, Suat Yıldırım Batı"dan yararlanırken ölçü  
+olarak Gazali"nin Munkız"da ortaya koyduğu ilkelere atıfta bulundu.  
+
+
+Her kategorilendirme gibi buradakiler de  
+elbette mutlak ayrımlar değil. Tanımlamanın ne kadar zor olduğunu Abant"ta, en  
+fazla mesai harcadıkları tanım konusunda yorgunluktan bitap düşünce, tanımı flu  
+bırakarak gösterdiler. Dolayısıyla küreselleşmenin ne olduğu tanımlanamadan, bir  
+süreçler toplamı, beşeri bir durum" gibi tespitlerle yetinildi. Zaten bu kadar  
+farklı siyasi eğilim ve geçmişe sahip insanların tanımda anlaşmaları sürpriz  
+olurdu.  
+
+
+Öznesi kim?  
+
+
+Tanımda anlaşılamayınca tabii olarak  
+küreselleşmenin özneli bir süreç olup olmadığı konusunda da uzlaşma sağlanamadı.  
+Bal gibi özneli bir süreç olduğunu savunanlardan Alev Alatlı, gerekirse isim  
+isim, kurum kurum özneleri açıklayabileceğini savunurken, tabii bir süreç  
+olduğunu düşünenlerin başında gelen Mehmet Altan, küreselleşmeyi ideolojik bir  
+konuymuş gibi değerlendirerek karşı çıkmayı ulus devletlerin doğduğu bir dönemde  
+feodal değerleri savunmaya benzetti.  
+
+
+Yer yer küreselleşme sürecine yerel  
+motifler vermemiz gerektiğinden söz eden Ali Bulaç"ın, bu kapsamda global gelir  
+uçurumunu gidermek için Norveçli bir bilim adamına atfen zekatın uluslararası  
+düzeyde kurumsallaştırılması önerisi maddeler arasına giremedi. Onun Kopenhag  
+kriterleriyle ulus devletin mahiyet değiştirdiği tespitine sosyalist Mehmet Ali  
+Kılıçbay destek verdi.  
+
+
+Globalleşmenin daha çok ekonomik bir süreç  
+olduğunun benimsenmesine rağmen, ilk gün konuları ele alan 3 komisyondan  
+(siyaset, ekonomi, kültür) performansı en yüksek olan kültür, en düşük olan  
+ekonomiydi. İlgi dağılımı da bu performans derecesiyle doğru orantılıydı. Bu  
+durum kültürde Aydın, Karaman, Alatlı, Bulaç, Karpat, Meriç, Sevindi gibi daha  
+çok popüler ismin bulunmasından mı, yoksa Türkiye"de ekonomiden umut kesildiği  
+için küreselleşme daha çok kültür düzeyinde ilgi uyandırdığından mıydı  
+anlaşılamadı.  
+
+
+Tanım dışında üzerinde en çok durulan ve  
+tartışma çıkan konulardan biri Türkçe, diğeri Türkiye"nin gereksiz korkular  
+yüzünden içe kapanma eğilimi konularıydı. Kültür komisyonunda dil konusunda o  
+kadar seviyeli bir müzakere yapıldı ki Türkçe küreselleşmenin olumsuz etkilerine  
+karşı hem bir sığınak, hem de küreselleşmenin anlaşılması ve yerli değerlerin  
+transfer edilmesinde en önemli değer olarak ortaya çıktı. Her bir komisyon üyesi  
+diğer komisyondaki tartışmaları izleyemediği için genel kurulda konu bu  
+perspektiften kaydı ve Kopenhag kriterleri çerçevesinde ele alınan ana dil,  
+resmi dil çıkmazına saptı.  
+
+
+Gereksiz korkular konusunda Türk  
+aydınlarının nahifçe hemfikir olması gerektiğini beklerken, sonuç bildirisindeki  
+10"uncu maddede yer alan "Türkiye"nin yersiz korku ve kaygılarından kaynaklanan  
+içe kapanma eğilimlerini bir kenara bırakarak..." ifadesi bir iki oy farkıyla  
+ancak geçti. Bu durum aydınlarımızın bir kısmının küreselleşme ve Avrupa Birliği  
+gibi gelişmeler karşısında ciddi ciddi tedirgin olduğunu gösteriyordu. Buna  
+rağmen AB üyeliğini destekleyen bir maddenin (15. madde) bildiriye girmesi  
+toplumdaki eğilimlere uygun bir durumdu.  
+
+
+Abant Platformu buraya katılan aydınların  
+çoğunun ancak Meclis"e girdiği zaman fark edebileceği, şimdiye kadarki akademik  
+ve fikri hayatında rastlamadığı bir tarza sahip. Salt entellektüel bir platform  
+değil, çünkü davetlilerin seçiminde katılımcıların akademik yanları kadar farklı  
+dünya görüşlerinin temsil edilebilmesine imkan verecek bir siyasi çoğulculuk da  
+hedefleniyor. Dolayısıyla ele alınan konuda akademik bir seviyeye, bir  
+mükemmeliyete ulaşmak kadar, farklı eğilimler arasında bir uzlaşma noktasının  
+bulunması da hedefleniyor. Her ne kadar gece gündüz sonuç bildirisini  
+hazırlamakla uğraşan aydınlar, "Bunca sıkıntıyı siz basın için çekiyoruz. Son  
+gün gelip bu bildiriyi istiyorsunuz" diye takılsalar da, aslında farklı  
+meşreplerden gelmiş Türkiye aydınlarının ortak bir zeminde, kavga etmeden, ortak  
+sonuçlara ulaşabileceklerini göstermek de Abant"ın hedeflerinden biri. Bir  
+yönüyle Abant, katılanlardan yalnız akademik kariyer vasfını değil siyaseti,  
+gündemi sorgulayan, fikir öncüsü olan, taraf tutan aydınları hedef alıyor.  
+Özellikle komisyonların çalışmalarını tamamladıktan sonra ikinci gün oluşturulan  
+ve her konunun (örneğin bu sene küreselleşmenin tanımı) saatlerce tartışıldığı  
+genel kurul sanki Türkiye Büyük Aydınlar Meclisi"ni çağrıştırıyor. Aydınlardan  
+bazıları "Bu tecrübeyle artık Meclis"te kimse elimize su dökemez" esprisi bile  
+yapıyor.  
+
+
+Dolayısıyla salt entellektüel  
+derinlik/netlik arayan akademisyenler de; siyasi görüşünün tamamen sonuç  
+bildirisine yansımasını bekleyen aktivistler de aradıklarını bulamıyorlar.  
+Tamamen de nasipsiz kalmıyorlar. Birinci gruptakiler salt entellektüellikle  
+siyaset arasındaki ince çizgi hakkında fikir sahibi oluyor. İkinciler ise  
+aslında sevmedikleri karşıt görüşleri, onların gerekçelerini sıcak bir ortamda  
+birinci elden öğrenme fırsatı buluyor. Ayrıca toplam 3 gün aynı yerde yemek  
+yiyerek, aynı havuza girerek, aynı masa etrafında çay içerek farklı görüş  
+temsilcileri arasında doğal bir insani yakınlık doğuyor.  
+
+
+Abant"ın temel sürükleyicilerinden biri  
+olan Mete Tunçay"ın toplantıların içeriğinden çok şekli beni heyecanlandırıyor  
+demesi, Wisconsin Üniversitesi"nden kıymetli bilim adamı Prof. Dr. Kemal  
+Karpat"ın "Türkiye"de ilk kez karşıt görüşler birbirini sükunetle dinliyor.  
+Toplantıdan sonra birbiriyle dostça konuşuyor. Bu Türkiye için çok önemli, Abant  
+ruhu devam etmeli" sözleri de Abant"ın bu siyasi, toplumsal yönüne işaret  
+ediyor.  
+
+
+Soldan ve sağdan bazı isimlerin eksikliği,  
+ortaya çıkan fikirlerin "Türkiye ortalaması" olduğu gibi bir hükmü zorlaştırsa  
+da, Abant"ın Türkiye"de mümkün olan en geniş katılımlı aydın platformu olduğuna  
+her halde kimse itiraz edemez.  
+
+
+Abant"a gölge düşürmek için bu platformu  
+sanki bir grubun etkisindeymiş gibi varsayarak görmezden gelenler toplantıları,  
+kararların alınış biçimini bilselerdi iddialarının yersizliğini anlarlardı.  
+Gazeteciler ve Yazarlar Vakfı yalnız ev sahibi. Toplantının seyri, bildirinin  
+oluşması, divanın seçimi ve yönetimi tamamen aydınların elinde. Birçok teklif,  
+sahibi göz önüne alınmaksızın demokratik olarak reddedilebiliyor.  
+
+
+AİHM mi, İstiklal Mahkemeleri mi?  
+
+
+Abant"ın demokratik açıdan kendini  
+kanıtladığının daha çarpıcı bir örneği de 1999"daki toplantıda yaşanmış.  
+Platformun tertip heyetinde yer alan Ali Bulaç, buraya katılan bazı isimleri  
+etkili birilerinin arayarak "Katılmayın" şeklinde açıkça uyardığını, hatta  
+bazılarının sırf bu yüzden katılmaktan vazgeçtiğini söyledi. Bu bilgiyi  
+tersinden okursak, ortaya şu çıkıyor: Katılanların akademik özelliklerinin  
+ötesinde, güç karşısında eğilmeyerek "aydın" vasıflarını kanıtlayan insanların  
+platformu Abant.  
+
+
+Tartışmalar da alabildiğine özgür bir  
+atmosferde cereyan ediyor. Mesela Türkiye"nin en saygın din adamlarının da  
+bulunduğu bu ortamda Alatlı "Artık gökteki cehennem insanları korkutmuyor" diyor  
+ve bir tepkiyle karşılaşmıyordu.  
+
+
+Avrupa Birliği üyeliğini Türkiye"nin bitişi  
+olarak gören Durmuş Hocaoğlu bazı AB taraftarlarının kullandığı "Atatürk bugün  
+yaşasaydı, AB"yi çağdaş Türkiye"nin hedefi yapardı" varsayımına şöyle cevap  
+veriyordu: "Gazi yaşasaydı, AB taraftarlarını İstiklal Mahkemeleri"nde  
+yargılardı." AB"ye soğuk bakanların hoşuna giden bu değerlendirmeye, liberal bir  
+akademisyen olan İhsan Dağı şu cevapla karşılık veriyordu: "Atatürk yaşasaydı ne  
+yapardı polemiğine girmeyeceğim. Ama Avrupa İnsan Hakları Mahkemesi"nde  
+yargılanmayı, İstiklal Mahkemeleri"ne tercih ederim."  
+
+
+Görüldüğü gibi sonuç bildirisi, her grubun  
+asıl fikrinden ödün vererek kabul ettiği bir asgari müştereği ifade eden özetten  
+ibaret. Türkiye ve dünyada tartışılan meselelere ilgi duyanlar, ya bir sene  
+sonraki toplantıya katılmanın yolunu bulmalı, ya da Abant"taki tüm konuşulanları  
+ihtiva eden kitapları dikkatle okumalı.
 
 Kaynak: [www.aksiyon.com.tr](http://www.aksiyon.com.tr:80/detay.php?id=1569), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20050226010540/http://www.aksiyon.com.tr:80/detay.php?id=1569)
